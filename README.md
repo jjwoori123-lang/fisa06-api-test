@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Pakistan Super League signs Bangladesh’s Mustafizur after IPL controversy](https://www.aljazeera.com/sports/2026/2/5/pakistan-super-league-signs-bangladeshs-mustafizur-after-ipl-controversy) - **Al Jazeera English**
-2. [How and where to buy tickets for Manchester United vs. Tottenham](https://football-italia.net/how-where-buy-tickets-man-united-v-tottenham/) - **Football Italia**
-3. [PREVIEW | Fulham vs Everton - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-fulham-vs-everton-team-news-lineups-predictions/1045867) - **Playmakerstats.com**
-4. [LOI preview: Derry keen to mark McClean's homecoming](https://www.rte.ie/sport/soccer/2026/0205/1556955-loi-preview-derry-keen-to-mark-mccleans-homecoming/) - **RTE**
-5. [Flamengo Rekindle Talk of Vinícius Jr. Return as Contract Talks with Real Madrid Remain Unresolved](https://www.managingmadrid.com/real-madrid-cf-transfer-talk/103707/flamengo-rekindle-talk-of-vinicius-jr-return-as-contract-talks-with-real-madrid-remain-unresolved) - **Managing Madrid**
-6. [How to buy Premier League tickets for Liverpool vs. Manchester City](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2fcc1c9f-e070-4cc8-8877-888a9886459c) - **Yahoo Entertainment**
-7. [How to buy Premier League tickets for Liverpool vs. Manchester City](https://football-italia.net/buy-premier-league-tickets-liverpool-man-city/) - **Football Italia**
-8. [PREVIEW | Bournemouth vs Aston Villa - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-bournemouth-vs-aston-villa-team-news-lineups-predictions/1045842) - **Playmakerstats.com**
-9. [Arne Slot points out the one area Florian Wirtz hasn’t developed since joining Liverpool](https://www.hitc.com/arne-slot-points-out-the-one-area-florian-wirtz-hasnt-developed-since-joining-liverpool/) - **HITC - Football, Gaming, Movies, TV, Music**
-10. [Carrick on 100% start, Spurs challenge and Munich anniversary](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4de14e20-4370-4cc5-a29f-07bd7fc9dad9) - **Yahoo Entertainment**
+1. [Galaxy are ready to bring a Real Madrid idol to MLS](https://www.marca.com/en/football/mls/2026/02/05/6984c04fca47419f588b456c.html) - **Marca**
+2. [Lionel Messi’s Argentina teammate on Barcelona and Atlético Madrid radar, post-2026 World Cup move eyed](https://worldsoccertalk.com/news/lionel-messis-argentina-teammate-on-barcelona-and-atletico-madrid-radar-post-2026-world-cup-move-eyed/) - **Worldsoccertalk.com**
+3. [RCB Women vs DC Women WPL 2026 Final Live: Rodrigues fifty, Henry blitzkrieg power DC to 203/4 against RCB](https://m.economictimes.com/news/sports/royal-challengers-bengaluru-women-vs-delhi-capitals-women-wpl-2026-final-live-score-updates-streaming-tv-online/liveblog/127944571.cms) - **Economictimes.com**
+4. [France vs Ireland Free Streams: How to watch Six Nations 2026 Opener, TV Channels, Preview](https://www.techradar.com/how-to-watch/rugby/france-vs-ireland-six-nations-2026-opener-free) - **TechRadar**
+5. [Squad depth costing tired Newcastle amid fixture pile-up](https://www.skysports.com/football/news/11678/13503524/newcastle-squad-depth-costing-eddie-howes-tired-side-amid-fixture-pile-up-reporter-notebook) - **Sky Sports**
+6. [Nottingham Forest: Supporter Matchday Information](https://www.leedsunited.com/en/news/nottingham-forest-supporter-matchday-information) - **Leedsunited.com**
+7. [(VIDEO) NBA Trading News: Lakers Land Elite Sharpshooter Luke Kennard in Trade With Hawks](https://www.ibtimes.com.au/video-nba-trading-news-lakers-land-elite-sharpshooter-luke-kennard-trade-hawks-1861401) - **Ibtimes.com.au**
+8. [Rosenior says Arsenal showed lack of respect in warm-up](https://www.rte.ie/sport/soccer/2026/0205/1556959-rosenior-says-arsenal-showed-lack-of-respect-in-warm-up/) - **RTE**
+9. [How to watch 2026 PDC Premier League Darts Night 1: free live streams, players, schedule](https://www.techradar.com/how-to-watch/sport/how-to-watch-2026-pdc-premier-league-darts-night-1) - **TechRadar**
+10. [Chelsea vs. Wolverhampton Wanderers preview, kick-off time, how to watch, and team news](https://www.hitc.com/chelsea-vs-wolverhampton-wanderers-preview-kick-off-time-how-to-watch-and-team-news/) - **HITC - Football, Gaming, Movies, TV, Music**
 
 
 ---
-*최근 업데이트: 2026-02-07 00:24:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-07 01:23:14 (KST) / (하루 100회 제한 준수 중)*
