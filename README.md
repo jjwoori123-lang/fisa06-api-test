@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Celtic close in on free agent move for former Arsenal star](https://www.sportingnews.com/us/soccer/news/celtic-close-free-agent-move-former-arsenal-star/7fbdfea75588b356d2316751) - **Sporting News**
-2. [A viable midfield option is available for Pep Guardiola if Bernardo cannot play at Anfield](https://esteemedkompany.com/2026/02/05/a-viable-midfield-option-is-available-for-pep-guardiola-if-bernardo-cannot-play-at-anfield/) - **Esteemedkompany.com**
-3. [Hurzeler on Gomez's return, loans and Milner](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f967d47d-2656-4937-a9aa-c42519ac3640) - **Yahoo Entertainment**
-4. [Pakistan confirms India T20 World Cup boycott: Can it face sanctions, bans?](https://www.aljazeera.com/sports/2026/2/5/pakistan-confirms-india-t20-world-cup-boycott-can-it-face-sanctions-bans) - **Al Jazeera English**
-5. [WPL Final: DC look to end final jinx as RCB eye another title](https://timesofindia.indiatimes.com/sports/cricket/news/royal-challengers-bengaluru-vs-delhi-capitals-live-score-wpl-2026-final-rcb-w-vs-dc-w-live-updates-smriti-mandhana-jemimah-rodrigues/liveblog/127933425.cms) - **The Times of India**
-6. [RCB vs DC: How To Watch WPL 2026 Final Live On TV And Online?](https://www.ndtvprofit.com/sports/rcb-vs-dc-live-streaming-how-to-watch-wpl-2026-final-between-delhi-capitals-and-royal-challengers-bengaluru-live-on-tv-and-online-10950222) - **Ndtvprofit.com**
-7. [Pyramids FC: The remarkable goal drought of Fiston Mayele](https://foot-africa.com/en/news/pyramids-fc-the-remarkable-goal-drought-of-fiston-mayele-1072967/) - **Foot-africa.com**
-8. [Buy your matchday programme against Nottingham Forest](https://www.leedsunited.com/en/news/buy-your-matchday-programme-against-nottingham-forest) - **Leedsunited.com**
-9. [10 Soccer Players With the Most Instagram Followers in 2026](https://www.ibtimes.com.au/10-soccer-players-most-instagram-followers-2026-1861383) - **Ibtimes.com.au**
-10. [McClean can 'set and raise standards' - Lynch](https://www.bbc.com/sport/articles/c7v028eqzd6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Pundit reveals what can stop Arsenal from winning the title](https://www.justarsenal.com/pundit-reveals-what-can-stop-arsenal-from-winning-the-title/409307) - **Just Arsenal News**
+2. [On this day in 2011: The best comeback in Premier League history?](https://www.bbc.com/sport/football/articles/c8d0690gp2jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Slot stands by entertainment ethos but admits surprise at 'change' in PL style](https://www.skysports.com/football/news/11669/13503600/liverpool-arne-slot-didnt-expect-premier-league-style-shift-but-says-technical-reds-squad-is-now-adjusting) - **Sky Sports**
+4. [Premier League: Date, time, broadcast channels and line-ups for Manchester United vs Tottenham](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2ce6f162-3671-4acd-b413-3103e2827db0) - **Yahoo Entertainment**
+5. [Leeds and Forest clash under the lights with a chance to move nine points clear of the drop](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_aa7b3519-36d4-43e8-940c-e86e21e3d638) - **Yahoo Entertainment**
+6. [Gary Neville reveals the ‘unique quality’ that Liverpool’s new duo have](https://anfieldindex.com/90904/gary-neville-reveals-the-unique-quality-that-liverpools-new-duo-have.html) - **Anfieldindex.com**
+7. [No. 7 Maryland women’s lacrosse at No. 13 Syracuse preview](https://www.testudotimes.com/maryland-terps/87875/no-7-maryland-womens-lacrosse-at-no-13-syracuse-preview) - **Testudo Times**
+8. [Celtic close in on free agent move for former Arsenal star](https://www.sportingnews.com/us/soccer/news/celtic-close-free-agent-move-former-arsenal-star/7fbdfea75588b356d2316751) - **Sporting News**
+9. [A viable midfield option is available for Pep Guardiola if Bernardo cannot play at Anfield](https://esteemedkompany.com/2026/02/05/a-viable-midfield-option-is-available-for-pep-guardiola-if-bernardo-cannot-play-at-anfield/) - **Esteemedkompany.com**
 
 
 ---
-*최근 업데이트: 2026-02-06 20:36:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-06 21:00:07 (KST) / (하루 100회 제한 준수 중)*
