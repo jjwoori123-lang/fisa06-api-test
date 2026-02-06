@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Paul Merson accuses Arsenal’s players of not trusting one of their teammates](https://www.justarsenal.com/paul-merson-accuses-arsenals-players-of-not-trusting-one-of-their-teammates/409346) - **Just Arsenal News**
-2. [Nicky Butt makes shocking claim about David Moyes’ Man United stint](https://thepeoplesperson.com/2026/02/05/nicky-butt-makes-shocking-claim-about-david-moyes-man-united-stint-304696/) - **The Peoples Person**
-3. [Premier League Darts: Clayton cruises past debutant Rock in night one opener](https://www.bbc.com/sport/darts/live/czxne6gv1g3t?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Leicester hit with six-point deduction for breaching financial rules](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9501a9d7-2715-446c-a1e6-a089d0822146) - **Yahoo Entertainment**
-5. [“Liverpool wanted me” – Italian defender makes transfer revelation](https://anfieldindex.com/90918/liverpool-wanted-me-italian-defender-makes-transfer-revelation.html) - **Anfieldindex.com**
-6. [Virgil van Dijk’s renewal in doubt as Arne Slot sparks alarm at Liverpool: ‘There is life for this club without Virgil’](https://worldsoccertalk.com/news/virgil-van-dijks-renewal-in-doubt-as-arne-slot-sparks-alarm-at-liverpool-there-is-life-for-this-club-without-virgil/) - **Worldsoccertalk.com**
-7. [Who will referee Arsenal vs Sunderland?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_886e9607-4522-4279-a95b-7e5888ac7ec2) - **Yahoo Entertainment**
-8. [Madison Earl joins Glasgow City on loan](http://www.arsenal.com/news/madison-earl-joins-glasgow-city-loan) - **Arsenal.com**
-9. [Missouri Sports Betting 2026: MO Sportsbook, Promos, and Updates](https://www.foxsports.com/stories/betting/missouri-sports-betting) - **Fox Sports**
+1. [Why Man Utd are taking their time over manager decision](https://www.bbc.com/sport/football/articles/c24gedd0rqdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Why Man Utd are taking their time over manager decision](https://www.bbc.com/sport/football/articles/c24gedd0rqdo) - **BBC News**
+3. [Liverpool to pay Chelsea at least £2.8m for Ngumoha](https://www.bbc.com/sport/football/articles/c1dkvy56vn3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Liverpool to pay Chelsea at least £2.8m for Ngumoha](https://www.bbc.com/sport/football/articles/c1dkvy56vn3o) - **BBC News**
+5. [Voll helps pull off record run chase to win Women's Premier League](https://www.abc.net.au/news/2026-02-06/royal-challengers-bengaluru-win-indian-women-premier-league/106312236) - **ABC News (AU)**
+6. [Spence, Van de Ven And Odobert To Start | 4-2-3-1 Tottenham Hotspur Predicted Lineup Vs Manchester United](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e486d169-35fe-4fe2-a9d8-8b0f2dc38011) - **Yahoo Entertainment**
+7. [Okafor And Bornauw To Start | 3-4-1-2 Leeds United Predicted Lineup Vs Nottingham Forest](https://the4thofficial.net/2026/02/okafor-and-bornauw-to-start-3-4-1-2-leeds-united-predicted-lineup-vs-nottingham-forest/) - **The4thofficial.net**
+8. [Sutton's predictions v Gladiators star Apollo](https://www.bbc.com/sport/football/articles/ce3kr07kqpeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Sutton's predictions v Gladiators star Apollo](https://www.bbc.com/sport/football/articles/ce3kr07kqpeo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-02-07 05:00:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-07 05:53:30 (KST) / (하루 100회 제한 준수 중)*
