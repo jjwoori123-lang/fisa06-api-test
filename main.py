@@ -13,46 +13,46 @@ def update_readme(news_text, timestamp):
         f.write(header + news_text + footer)
 
 def get_epl_news():
-    # 1. 시간 먼저 정의 (KST 기준)
     kst_now = datetime.utcnow() + timedelta(hours=9)
     timestamp = kst_now.strftime('%Y-%m-%d %H:%M:%S')
 
     api_key = os.getenv("NEWS_API_KEY")
     if not api_key:
-        print("에러: NEWS_API_KEY가 설정되지 않았습니다.")
+        print("에러: NEWS_API_KEY 없음")
         return
 
+    # API 호출
     url = f"https://newsapi.org/v2/everything?q=Premier League&sortBy=publishedAt&pageSize=10&language=en&apiKey={api_key}"
 
     try:
         response = requests.get(url)
-        
         if response.status_code == 429:
-            print("에러: NewsAPI 호출 한도 초과입니다.")
+            print("한도 초과")
             return
             
         response.raise_for_status()
-        articles = response.json().get('articles', [])
+        data = response.json()
+        articles = data.get('articles', [])
         
-        if not articles:
-            print("알림: 새로운 기사가 없습니다.")
+        # 여기서 확실하게 10개만 자름
+        top_10_articles = articles[:11]
+
+        if not top_10_articles:
+            print("기사 없음")
             return
 
         news_content = ""
-        for i, article in enumerate(articles, 1):
+        for i, article in enumerate(top_10_articles, 1):
             title = article.get('title')
             source = article.get('source', {}).get('name')
             link = article.get('url')
             news_content += f"{i}. [{title}]({link}) - **{source}**\n"
             
-        # 2. 업데이트 함수에 시간 전달
         update_readme(news_content, timestamp)
-        
-        # 3. 이제 정상적으로 print 가능
-        print(f"성공: {timestamp} 기준 README 업데이트 완료")
+        print(f"성공: {timestamp} 기준 10개 출력 완료")
             
     except Exception as e:
-        print(f"오류 발생: {e}")
+        print(f"오류: {e}")
 
 if __name__ == "__main__":
     get_epl_news()
