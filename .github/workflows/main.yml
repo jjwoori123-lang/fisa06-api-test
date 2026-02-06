@@ -2,45 +2,49 @@ name: EPL News README Automation
 
 on:
   schedule:
-    # 1분마다 실행 (60/15 = 시간당 4회, 하루 96회 호출로 NewsAPI 무료 제한 100회 준수)
-    - cron: '*/1 * * * *'
-  workflow_dispatch: # 필요할 때 수동으로 실행할 수 있는 버튼 생성
+    # 1분마다 실행 (※ 주의: NewsAPI 무료 플랜은 약 100분 후 할당량 초과됨)
+    - cron: '* * * * *'
+  push:
+    branches: [ "main" ]
+  workflow_dispatch:
 
 jobs:
-  update-news:
+  build:
     runs-on: ubuntu-latest
-    # 파일 쓰기 권한 설정 (README 업데이트 후 커밋을 위해 필수)
+    
+    # 파일을 수정해서 다시 push하기 위한 권한 설정
     permissions:
       contents: write
 
     steps:
-      - name: Checkout Repository
+      - name: Checkout repository
         uses: actions/checkout@v4
 
       - name: Set up Python
         uses: actions/setup-python@v5
         with:
-          python-version: '3.11'
+          python-version: '3.12'
 
-      - name: Install Dependencies
+      - name: Install dependencies
         run: |
-          pip install requests python-dotenv
+          python -m pip install --upgrade pip
+          if [ -f requirements.txt ]; then 
+            pip install -r requirements.txt
+          else 
+            pip install requests python-dotenv
+          fi
 
-      - name: Run News Collector Script
+      - name: Run main.py
         env:
-          # GitHub Secrets에 등록한 API 키를 환경 변수로 연결
+          # GitHub Secrets에 등록한 이름과 일치시켜야 함
           NEWS_API_KEY: ${{ secrets.NEWS_API_KEY }}
         run: python main.py
 
-      - name: Commit and Push Changes
+      - name: Commit and Push changes
         run: |
           git config --global user.name "github-actions[bot]"
           git config --global user.email "github-actions[bot]@users.noreply.github.com"
           git add README.md
-          # 변경사항이 있을 때만 커밋 (에러 방지용)
-          if ! git diff --cached --exit-code; then
-            git commit -m "Update: Latest EPL News $(date +'%Y-%m-%d %H:%M')"
-            git push
-          else
-            echo "변경사항이 없어 푸시를 건너뜁니다."
-          fi
+          # 변경사항이 있을 때만 커밋, [skip ci]로 무한 루프 방지
+          git commit -m "chore: update EPL news data (1min interval) [skip ci]" || echo "No changes to commit"
+          git push
