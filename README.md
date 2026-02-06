@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sergio Aguero reveals being “on the verge” of leaving Manchester City for Premier League rivals in 2017](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2456fe09-dcff-4566-9579-5431b296b23d) - **Yahoo Entertainment**
-2. [Report: Liverpool considering £50m move to sign Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_67eb4aee-edea-4e2b-bcd7-bb71e5a01c12) - **Yahoo Entertainment**
-3. [Kylian Mbappe could welcome a French star as Real Madrid reportedly set one condition to sign a Premier League star](https://worldsoccertalk.com/news/kylian-mbappe-could-welcome-a-french-star-as-real-madrid-reportedly-set-one-condition-to-sign-a-premier-league-star/) - **Worldsoccertalk.com**
-4. [Barcelona consider blockbuster summer move for Premier League defender](https://www.football-espana.net/2026/02/05/barcelona-summer-move-premier-league-defender) - **Football Espana**
-5. [Arne Slot responds to Curtis Jones transfer rumours](https://eplindex.com/142489/arne-slot-responds-to-curtis-jones-transfer-rumours.html) - **English Premier League Index - Opta Stats**
-6. [Leeds v Nottingham Forest: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/premier-league-odds/leeds-v-nottingham-forest-line-ups-stats-preview-tv-live-stream-prediction/) - **101 Great Goals**
-7. [Flamengo press Real Madrid and put Vinicius in a difficult position](https://www.marca.com/en/football/real-madrid/2026/02/05/698504d4ca4741a5308b4598.html) - **Marca**
-8. [Raya, White And Calafiori To Start | 4-3-3 Arsenal Predicted Lineup Vs Sunderland](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8e186929-e61a-4795-b493-9ca45bb875c5) - **Yahoo Entertainment**
-9. [Why Man Utd are taking their time over manager decision](https://www.bbc.com/sport/football/articles/c24gedd0rqdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Why Man Utd are taking their time over manager decision](https://www.bbc.com/sport/football/articles/c24gedd0rqdo) - **BBC News**
+1. [Wissa To Lead The Line | 4-3-3 Newcastle United Predicted Lineup Vs Brentford](https://the4thofficial.net/2026/02/wissa-to-lead-the-line-4-3-3-newcastle-united-predicted-lineup-vs-brentford/) - **The4thofficial.net**
+2. [Arne Slot reveals Liverpool’s stance on midfielder’s potential exit](https://anfieldindex.com/90926/arne-slot-reveals-liverpools-stance-on-midfielders-potential-exit.html) - **Anfieldindex.com**
+3. [UEFA coefficient rankings: Why 5th place is the new 4th in the Premier League](https://www.nbcsports.com/soccer/news/uefa-coefficient-rankings-why-5th-place-is-the-new-4th-in-the-premier-league) - **NBCSports.com**
+4. [Arsenal’s Martín Zubimendi has stark message for Real Madrid amid transfer rumors: ‘I don’t think they need me’](https://worldsoccertalk.com/news/arsenals-martin-zubimendi-has-stark-message-for-real-madrid-amid-transfer-rumors-i-dont-think-they-need-me/) - **Worldsoccertalk.com**
+5. [Leicester City docked six points for financial breach](https://getfootball.eu/leicester-city-docked-six-points-for-financial-breach/) - **Getfootball.eu**
+6. [Liverpool now want special attacking sensation](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-now-want-special-attacking-sensation/) - **Anfieldwatch.co.uk**
+7. [A Cricket Crisis With Olympic Consequences](http://foreignpolicy.com/2026/02/05/india-pakistan-bangladesh-cricket-world-cup-olympics/) - **Foreign Policy**
+8. [Garnacho, Estevao And Palmer To Start | 4-2-3-1 Chelsea Predicted Lineup Vs Wolves](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7f57e0e5-d246-441b-9718-bef81d0ee70d) - **Yahoo Entertainment**
+9. [Sergio Aguero reveals being “on the verge” of leaving Manchester City for Premier League rivals in 2017](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2456fe09-dcff-4566-9579-5431b296b23d) - **Yahoo Entertainment**
+10. [Report: Liverpool considering £50m move to sign Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_67eb4aee-edea-4e2b-bcd7-bb71e5a01c12) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-07 06:35:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-07 06:56:12 (KST) / (하루 100회 제한 준수 중)*
