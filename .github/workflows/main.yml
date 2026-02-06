@@ -3,7 +3,7 @@ name: EPL News README Automation
 on:
   schedule:
     # 15분마다 실행 (60/15 = 시간당 4회, 하루 96회 호출로 NewsAPI 무료 제한 100회 준수)
-    - cron: '*/15 * * * *'
+    - cron: '*/5 * * * *'
   workflow_dispatch: # 필요할 때 수동으로 실행할 수 있는 버튼 생성
 
 jobs:
