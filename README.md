@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['I don't understand why' - Pep calls for rule change so Guehi can play final](https://www.skysports.com/football/news/11679/13503499/man-city-pep-guardiola-calls-for-carabao-cup-rule-change-to-allow-marc-guehi-to-play-in-wembley-final) - **Sky Sports**
-2. [Boycotting India at T20 World Cup to support Bangladesh: Pakistan PM Sharif](https://www.aljazeera.com/sports/2026/2/5/boycotting-india-at-t20-world-cup-to-support-bangladesh-pakistan-pm-sharif) - **Al Jazeera English**
-3. [‘In very advanced talks’: Romano drops bombshell over ‘untouchable’ Man United star and Euro giants on Wednesday](https://strettynews.com/2026/02/05/fabrizio-romano-kobbie-mainoo-very-advanced-talks-napoli-transfers/) - **Strettynews.com**
-4. [“This isn’t working” – TalkSPORT pundit claims Chelsea star looks “lost,” should’ve joined different club](https://chelsea.news/2026/02/gabby-agbonlahor-liam-delap-chelsea/) - **Chelsea.news**
-5. [Cristiano Ronaldo Birthday: Age, Stats, Total Goals and Net Worth](https://www.rediff.com/sports/report/cristiano-ronaldo-birthday-stats-age-goals-net-worth/20260205.htm) - **Rediff.com**
-6. [Man United laying groundwork for ‘composed and consistent’ Premier League star amid Chelsea interest](https://strettynews.com/2026/02/05/manchester-united-murillo-nottingham-forest-chelsea-transfer/) - **Strettynews.com**
-7. [Tyrell Malacia: More details emerge of bizarre deadline day deal](https://thepeoplesperson.com/2026/02/05/tyrell-malacia-more-details-emerge-of-bizarre-deadline-day-deal-304669/) - **The Peoples Person**
-8. [Adam Wharton: United told what they must do to sign Palace midfielder](https://thepeoplesperson.com/2026/02/05/adam-wharton-united-told-what-they-must-do-to-sign-palace-midfielder-304667/) - **The Peoples Person**
-9. [Morning Rundown: The main headlines, best video and what will shape today's news](https://news.sky.com/story/morning-rundown-starmer-warned-he-could-fall-iran-us-talks-to-begin-and-crotch-enhancements-13503918) - **Sky.com**
+1. [Madison Chock, Evan Bates ice dance schedule: Times, channels to watch USA stars live at 2026 Olympics](https://www.sportingnews.com/us/olympics/news/madison-chock-evan-bates-ice-dance-schedule-times-channels-watch-olympics/ecd13445bdff60df5dd06f78) - **Sporting News**
+2. [How Arsenal have created entertainment, leaving the jorunalists far behind](https://untold-arsenal.com/archives/119315) - **Untold-arsenal.com**
+3. [Underdog Clayton keen to prove Premier League point](https://www.bbc.com/sport/darts/articles/cdex1k3l278o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Nasser Hussain to ICC: ‘Bangladesh, Pakistan, and India must be treated the same’](https://indianexpress.com/article/sports/cricket/nasser-hussain-icc-bangladesh-pakistan-india-treated-same-10515068/) - **The Indian Express**
+5. [Ticket Information: Manchester City (H)](https://www.leedsunited.com/en/news/ticket-information-manchester-city-h) - **Leedsunited.com**
+6. [Ticket information: Sunderland (H)](https://www.leedsunited.com/en/news/ticket-information-sunderland-h) - **Leedsunited.com**
+7. [Amber Glenn figure skating schedule: Times, channels to watch USA star's performances live at 2026 Olympics](https://www.sportingnews.com/us/olympics/news/amber-glenn-figure-skating-schedule-times-channels-watch-live-olympics/d7a281128911b25a562e052f) - **Sporting News**
+8. ['FA Cup takes on real importance for Newcastle this season'](https://www.bbc.com/sport/football/articles/cly3kr3e2k7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Teenage superstar WILL be Liverpool's next French signing](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpools-next-french-signing-is-clear/) - **Anfieldwatch.co.uk**
+10. [Haway The Podcast | IS HE ANY GOOD? | Belgian Footy Scout On New Sunderland Winger Nilson Angulo!](https://rokerreport.sbnation.com/haway-the-podcast/124698/haway-the-podcast-is-he-any-good-belgian-footy-scout-on-new-sunderland-winger-nilson-angulo) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-02-06 16:49:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-06 17:50:18 (KST) / (하루 100회 제한 준수 중)*
