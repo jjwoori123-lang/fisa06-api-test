@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Galaxy are ready to bring a Real Madrid idol to MLS](https://www.marca.com/en/football/mls/2026/02/05/6984c04fca47419f588b456c.html) - **Marca**
-2. [Lionel Messi’s Argentina teammate on Barcelona and Atlético Madrid radar, post-2026 World Cup move eyed](https://worldsoccertalk.com/news/lionel-messis-argentina-teammate-on-barcelona-and-atletico-madrid-radar-post-2026-world-cup-move-eyed/) - **Worldsoccertalk.com**
-3. [RCB Women vs DC Women WPL 2026 Final Live: Rodrigues fifty, Henry blitzkrieg power DC to 203/4 against RCB](https://m.economictimes.com/news/sports/royal-challengers-bengaluru-women-vs-delhi-capitals-women-wpl-2026-final-live-score-updates-streaming-tv-online/liveblog/127944571.cms) - **Economictimes.com**
-4. [France vs Ireland Free Streams: How to watch Six Nations 2026 Opener, TV Channels, Preview](https://www.techradar.com/how-to-watch/rugby/france-vs-ireland-six-nations-2026-opener-free) - **TechRadar**
-5. [Squad depth costing tired Newcastle amid fixture pile-up](https://www.skysports.com/football/news/11678/13503524/newcastle-squad-depth-costing-eddie-howes-tired-side-amid-fixture-pile-up-reporter-notebook) - **Sky Sports**
-6. [Nottingham Forest: Supporter Matchday Information](https://www.leedsunited.com/en/news/nottingham-forest-supporter-matchday-information) - **Leedsunited.com**
-7. [(VIDEO) NBA Trading News: Lakers Land Elite Sharpshooter Luke Kennard in Trade With Hawks](https://www.ibtimes.com.au/video-nba-trading-news-lakers-land-elite-sharpshooter-luke-kennard-trade-hawks-1861401) - **Ibtimes.com.au**
-8. [Rosenior says Arsenal showed lack of respect in warm-up](https://www.rte.ie/sport/soccer/2026/0205/1556959-rosenior-says-arsenal-showed-lack-of-respect-in-warm-up/) - **RTE**
-9. [How to watch 2026 PDC Premier League Darts Night 1: free live streams, players, schedule](https://www.techradar.com/how-to-watch/sport/how-to-watch-2026-pdc-premier-league-darts-night-1) - **TechRadar**
-10. [Chelsea vs. Wolverhampton Wanderers preview, kick-off time, how to watch, and team news](https://www.hitc.com/chelsea-vs-wolverhampton-wanderers-preview-kick-off-time-how-to-watch-and-team-news/) - **HITC - Football, Gaming, Movies, TV, Music**
+1. [Jamie Gittens out ‘long-term’ with hamstring tear as Chelsea injury list grows](https://footballtoday.com/2026/02/05/jamie-gittens-out-long-term-with-hamstring-tear-as-chelsea-injury-list-grows/) - **Footballtoday.com**
+2. [Leicester docked six points for breaking EFL rules](https://www.rte.ie/sport/soccer/2026/0205/1556977-leicester-docked-six-points-for-breaking-efl-rules/) - **RTE**
+3. [Arsenal steps up their interest in Ligue 1 talent](https://www.justarsenal.com/arsenal-steps-up-their-interest-in-ligue-1-talent/409343) - **Just Arsenal News**
+4. [Maguire impressed with Evans and Woodgate](https://www.manutd.com/en/news/detail/harry-maguire-speaks-about-jonny-evans-and-jonathan-woodgate-impact-on-man-utd-defenders) - **Manchester United**
+5. [Leicester docked six points for financial breaches](https://www.bbc.com/sport/football/articles/c5y31xk1zx0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Record January window for transfers despite drop in spending](https://sports.yahoo.com/articles/record-january-window-transfers-despite-165224158.html) - **Yahoo Entertainment**
+7. [Leicester City deducted six points](https://www.skysports.com/football/news/11712/13503777/leicester-city-points-deduction-championship-club-docked-six-points-for-breaching-efls-profit-and-sustainability-rules) - **Sky Sports**
+8. [Who Is the Cowboys’ New Defensive Coordinator, Christian Parker?](https://theleadsm.com/who-is-the-cowboys-new-defensive-coordinator-christian-parker/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=who-is-the-cowboys-new-defensive-coordinator-christian-parker) - **Theleadsm.com**
 
 
 ---
-*최근 업데이트: 2026-02-07 01:23:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-07 02:25:58 (KST) / (하루 100회 제한 준수 중)*
