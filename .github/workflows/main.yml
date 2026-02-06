@@ -1,0 +1,46 @@
+name: EPL News README Automation
+
+on:
+  schedule:
+    # 15분마다 실행 (60/15 = 시간당 4회, 하루 96회 호출로 NewsAPI 무료 제한 100회 준수)
+    - cron: '*/15 * * * *'
+  workflow_dispatch: # 필요할 때 수동으로 실행할 수 있는 버튼 생성
+
+jobs:
+  update-news:
+    runs-on: ubuntu-latest
+    # 파일 쓰기 권한 설정 (README 업데이트 후 커밋을 위해 필수)
+    permissions:
+      contents: write
+
+    steps:
+      - name: Checkout Repository
+        uses: actions/checkout@v4
+
+      - name: Set up Python
+        uses: actions/setup-python@v5
+        with:
+          python-version: '3.11'
+
+      - name: Install Dependencies
+        run: |
+          pip install requests python-dotenv
+
+      - name: Run News Collector Script
+        env:
+          # GitHub Secrets에 등록한 API 키를 환경 변수로 연결
+          NEWS_API_KEY: ${{ secrets.NEWS_API_KEY }}
+        run: python main.py
+
+      - name: Commit and Push Changes
+        run: |
+          git config --global user.name "github-actions[bot]"
+          git config --global user.email "github-actions[bot]@users.noreply.github.com"
+          git add README.md
+          # 변경사항이 있을 때만 커밋 (에러 방지용)
+          if ! git diff --cached --exit-code; then
+            git commit -m "Update: Latest EPL News $(date +'%Y-%m-%d %H:%M')"
+            git push
+          else
+            echo "변경사항이 없어 푸시를 건너뜁니다."
+          fi
