@@ -5,24 +5,23 @@ from dotenv import load_dotenv
 
 load_dotenv()
 
-def update_readme(news_text):
+def update_readme(news_text, timestamp):
     header = "# ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)\n\n"
-    # 한국 시간(KST) 계산
-    kst_now = datetime.utcnow() + timedelta(hours=9)
-    timestamp = kst_now.strftime('%Y-%m-%d %H:%M:%S')
-    
-    footer = f"\n\n---\n*최지막 업데이트: {timestamp} (KST) / (하루 100회 제한 준수 중)*"
+    footer = f"\n\n---\n*최근 업데이트: {timestamp} (KST) / (하루 100회 제한 준수 중)*"
     
     with open("README.md", "w", encoding="utf-8") as f:
         f.write(header + news_text + footer)
 
 def get_epl_news():
+    # 1. 시간 먼저 정의 (KST 기준)
+    kst_now = datetime.utcnow() + timedelta(hours=9)
+    timestamp = kst_now.strftime('%Y-%m-%d %H:%M:%S')
+
     api_key = os.getenv("NEWS_API_KEY")
     if not api_key:
         print("에러: NEWS_API_KEY가 설정되지 않았습니다.")
         return
 
-    # NewsAPI 호출 (최신순 10개)
     url = f"https://newsapi.org/v2/everything?q=Premier League&sortBy=publishedAt&pageSize=10&language=en&apiKey={api_key}"
 
     try:
@@ -46,7 +45,10 @@ def get_epl_news():
             link = article.get('url')
             news_content += f"{i}. [{title}]({link}) - **{source}**\n"
             
-        update_readme(news_content)
+        # 2. 업데이트 함수에 시간 전달
+        update_readme(news_content, timestamp)
+        
+        # 3. 이제 정상적으로 print 가능
         print(f"성공: {timestamp} 기준 README 업데이트 완료")
             
     except Exception as e:
