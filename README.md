@@ -1,16 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How to watch Burnley vs West Ham live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-burnley-vs-west-ham-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
-2. [Slot on Jacquet signing, Wirtz form and Man City](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f4c3ccea-2733-4caf-ab62-bd26af444f71) - **Yahoo Entertainment**
-3. [Report: Manchester United eyeing summer moves for three Premier League stars](https://eplindex.com/142430/report-manchester-united-eyeing-summer-moves-for-three-premier-league-stars.html) - **English Premier League Index - Opta Stats**
-4. [Slot: “Work in gym and better connection with teammates” key to Wirtz’s form](https://anfieldindex.com/90907/slot-work-in-gym-and-better-connection-with-teammates-key-to-wirtzs-form.html) - **Anfieldindex.com**
-5. [Egyptian Premier League: all the transfers from the 2025-2026 winter window](https://foot-africa.com/en/news/egyptian-premier-league-all-the-transfers-from-the-2025-2026-winter-window-1072745/) - **Foot-africa.com**
-6. ['Poor kid!' - France World Cup winner feels sorry for Jeremy Jacquet after £62m Liverpool deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-jeremy-jacquet-rennes-christophe-dugarry-62m-deal/) - **Anfieldwatch.co.uk**
-7. ['Silva is so clever and so thorough with everything he does' - King](https://www.bbc.com/sport/football/articles/c5y2n050y5ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Premier League launches new LGBTQ+ campaign](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c64e9da0-d8c9-42a3-9112-8be796c7df29) - **Yahoo Entertainment**
-9. [Premier League launches new LGBTQ+ campaign](https://www.bbc.com/sport/football/articles/cly1mnp21ezo) - **BBC News**
-10. [Nottingham Forest clash dedicated to Premier League With Pride campaign](https://www.leedsunited.com/en/news/nottingham-forest-clash-dedicated-to-premier-league-with-pride-campaign) - **Leedsunited.com**
+1. [Olympics luge schedule: TV channels, live streams, how to watch every event at 2026 Winter Games](https://www.sportingnews.com/us/olympics/news/olympics-luge-schedule-channels-streams-watch-milan-2026/4477d48ad232af198b8e199b) - **Sporting News**
+2. [The Roots of the Youth Sports Gold Rush](http://prospect.org/2026/02/05/feb-2026-magazine-youth-sports-private-equity/) - **The American Prospect**
+3. [Match Officials: Craig Pawson to referee Liverpool vs Manchester City](https://cityxtra.co.uk/41164/match-officials-craig-pawson-to-referee-liverpool-vs-manchester-city/) - **Cityxtra.co.uk**
+4. [Olympics ski jumping schedule: TV channels, live streams, how to watch every event at 2026 Winter Games](https://www.sportingnews.com/us/olympics/news/olympics-ski-jumping-schedule-channels-streams-watch-milan-2026/54df34758f64afc619a29cf6) - **Sporting News**
+5. [Slot targets improved display against Man City at home](https://www.channelnewsasia.com/sport/slot-targets-improved-display-against-man-city-home-5909646) - **CNA**
+6. [Liverpool v Manchester City: Slot eyes revenge after Etihad horror show in November](https://www.101greatgoals.com/football/premier-league/liverpool-v-manchester-city-slot-eyes-revenge-after-etihad-horror-show-in-november/) - **101 Great Goals**
+7. [Slot gives hope on key defneder’s possible return](https://anfieldindex.com/90908/slot-gives-hope-on-key-defneders-possible-return.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-02-06 18:49:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-06 19:43:14 (KST) / (하루 100회 제한 준수 중)*
