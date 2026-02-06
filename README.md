@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Free agent Oxlade-Chamberlain close to Celtic move](https://www.bbc.com/sport/football/articles/c79r2xyq192o) - **BBC News**
-2. [Newcastle: Gordon set for scan as injury worries mount](https://www.101greatgoals.com/football/premier-league/newcastle-gordon-injury-update-scan/) - **101 Great Goals**
-3. [Tonali: Juventus’ plan and Newcastle’s fear ahead of 2026 summer transfer window](https://football-italia.net/tonali-juventus-plan-newcastle-fear-2026-deal/) - **Football Italia**
-4. [Slot says Manchester City clash a good gauge of Liverpool progress](https://thefootballfaithful.com/slot-says-manchester-city-clash-a-good-gauge-of-liverpool-progress/) - **The Football Faithful**
-5. [Glasner reveals McNeil deal disappointment as he calls for Palace 'reset'](https://www.skysports.com/football/news/32461/13503743/oliver-glasner-reavals-dwight-mcneil-deal-disappointment-as-he-calls-for-crystal-palace-reset) - **Sky Sports**
-6. [Vieira on key Gunners moments and being Invincible](http://www.arsenal.com/news/vieira-key-gunners-moments-and-being-invincible) - **Arsenal.com**
-7. [Stoke City’s Bosun Lawal keeping faith that Ireland cap will come](https://www.irishtimes.com/sport/soccer/2026/02/05/stoke-citys-bosun-lawal-keeping-faith-that-ireland-cap-will-come/) - **The Irish Times**
-8. [Cunha and Dorgu up for PL Goal of the Month](https://www.manutd.com/en/news/detail/matheus-cunha-and-patrick-chinazaekpere-dorgu-up-for-premier-league-goal-of-the-month-jan-2026) - **Manchester United**
-9. [Ex Chelsea & Real Madrid Winger Backs Inter Milan To Hoist Serie A Title: “They Are The Strongest & Will Win The Scudetto”](https://sempreinter.com/2026/02/05/eden-hazard-prasies-inter-milan-they-win-scudetto/) - **SempreInter**
-10. [Premier League player of the month: the nominees revealed! (official)](https://foot-africa.com/en/news/premier-league-player-of-the-month-the-nominees-revealed-official-1073108/) - **Foot-africa.com**
+1. [Premier League: Bertrand Traoré set for anticipated return](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_30a5ec17-f314-4a50-9aa0-7c7977058245) - **Yahoo Entertainment**
+2. ['Let's keep these standards' | Nuno positive on staying up with West Ham](https://www.skysports.com/football/video/34079/13503710/nuno-espirito-santo-urges-west-ham-players-to-maintain-standards-in-bid-to-avoid-relegation) - **Sky Sports**
+3. [REPORT: Daniel Levy looking for buyers of his ENIC stock](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/68866/report-daniel-levy-looking-for-buyers-of-his-enic-stock) - **SB Nation**
+4. ['I want to give back' - Gomes helps children with stammer](https://www.bbc.com/sport/football/articles/cevnrn1y2lro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Sunderland set £50m price tag for Chelsea and Liverpool target](https://thefootballfaithful.com/sunderland-set-50m-price-tag-for-chelsea-and-liverpool-target/) - **The Football Faithful**
+6. [Egyptian Premier League: Ceramica could soar at the expense of the giants](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_18528e01-c99b-4c5e-a009-83f1832364f6) - **Yahoo Entertainment**
+7. [Paratici ‘not sure’ Tottenham’s training centre is better than Fiorentina’s](https://football-italia.net/paratici-tottenham-training-centre-fiorentina/) - **Football Italia**
+8. [United submit squad to Premier League](https://www.manutd.com/en/news/detail/man-utd-submit-full-playing-squad-to-premier-league-2026) - **Manchester United**
+9. [Brentford B 0 FC Kryvbas 0: Excellent team performance earns draw against Ukrainian Premier League side](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_117204c4-616a-4fed-bb59-53446b622b48) - **Yahoo Entertainment**
+10. [Iliman Ndiaye: Could Everton winger really replace Rashford at United?](https://thepeoplesperson.com/2026/02/05/iliman-ndiaye-could-everton-winger-really-replace-rashford-at-united-304686/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-02-06 22:21:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-06 23:25:54 (KST) / (하루 100회 제한 준수 중)*
