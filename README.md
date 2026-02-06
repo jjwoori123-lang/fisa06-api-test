@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Premier League: Bertrand Traoré set for anticipated return](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_30a5ec17-f314-4a50-9aa0-7c7977058245) - **Yahoo Entertainment**
-2. ['Let's keep these standards' | Nuno positive on staying up with West Ham](https://www.skysports.com/football/video/34079/13503710/nuno-espirito-santo-urges-west-ham-players-to-maintain-standards-in-bid-to-avoid-relegation) - **Sky Sports**
-3. [REPORT: Daniel Levy looking for buyers of his ENIC stock](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/68866/report-daniel-levy-looking-for-buyers-of-his-enic-stock) - **SB Nation**
-4. ['I want to give back' - Gomes helps children with stammer](https://www.bbc.com/sport/football/articles/cevnrn1y2lro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Sunderland set £50m price tag for Chelsea and Liverpool target](https://thefootballfaithful.com/sunderland-set-50m-price-tag-for-chelsea-and-liverpool-target/) - **The Football Faithful**
-6. [Egyptian Premier League: Ceramica could soar at the expense of the giants](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_18528e01-c99b-4c5e-a009-83f1832364f6) - **Yahoo Entertainment**
-7. [Paratici ‘not sure’ Tottenham’s training centre is better than Fiorentina’s](https://football-italia.net/paratici-tottenham-training-centre-fiorentina/) - **Football Italia**
-8. [United submit squad to Premier League](https://www.manutd.com/en/news/detail/man-utd-submit-full-playing-squad-to-premier-league-2026) - **Manchester United**
-9. [Brentford B 0 FC Kryvbas 0: Excellent team performance earns draw against Ukrainian Premier League side](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_117204c4-616a-4fed-bb59-53446b622b48) - **Yahoo Entertainment**
-10. [Iliman Ndiaye: Could Everton winger really replace Rashford at United?](https://thepeoplesperson.com/2026/02/05/iliman-ndiaye-could-everton-winger-really-replace-rashford-at-united-304686/) - **The Peoples Person**
+1. [Pakistan Super League signs Bangladesh’s Mustafizur after IPL controversy](https://www.aljazeera.com/sports/2026/2/5/pakistan-super-league-signs-bangladeshs-mustafizur-after-ipl-controversy) - **Al Jazeera English**
+2. [How and where to buy tickets for Manchester United vs. Tottenham](https://football-italia.net/how-where-buy-tickets-man-united-v-tottenham/) - **Football Italia**
+3. [PREVIEW | Fulham vs Everton - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-fulham-vs-everton-team-news-lineups-predictions/1045867) - **Playmakerstats.com**
+4. [LOI preview: Derry keen to mark McClean's homecoming](https://www.rte.ie/sport/soccer/2026/0205/1556955-loi-preview-derry-keen-to-mark-mccleans-homecoming/) - **RTE**
+5. [Flamengo Rekindle Talk of Vinícius Jr. Return as Contract Talks with Real Madrid Remain Unresolved](https://www.managingmadrid.com/real-madrid-cf-transfer-talk/103707/flamengo-rekindle-talk-of-vinicius-jr-return-as-contract-talks-with-real-madrid-remain-unresolved) - **Managing Madrid**
+6. [How to buy Premier League tickets for Liverpool vs. Manchester City](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2fcc1c9f-e070-4cc8-8877-888a9886459c) - **Yahoo Entertainment**
+7. [How to buy Premier League tickets for Liverpool vs. Manchester City](https://football-italia.net/buy-premier-league-tickets-liverpool-man-city/) - **Football Italia**
+8. [PREVIEW | Bournemouth vs Aston Villa - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-bournemouth-vs-aston-villa-team-news-lineups-predictions/1045842) - **Playmakerstats.com**
+9. [Arne Slot points out the one area Florian Wirtz hasn’t developed since joining Liverpool](https://www.hitc.com/arne-slot-points-out-the-one-area-florian-wirtz-hasnt-developed-since-joining-liverpool/) - **HITC - Football, Gaming, Movies, TV, Music**
+10. [Carrick on 100% start, Spurs challenge and Munich anniversary](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4de14e20-4370-4cc5-a29f-07bd7fc9dad9) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-06 23:25:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-07 00:24:22 (KST) / (하루 100회 제한 준수 중)*
