@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [PREVIEW | Liverpool vs Manchester City - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-liverpool-vs-manchester-city-team-news-lineups-predictions/1046760) - **Playmakerstats.com**
-2. ['I love a challenge' - why Xhaka joined Sunderland](https://www.bbc.com/sport/football/articles/czdqd4y2dpqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [How to watch Leeds United v Nottingham Forest, team news, predicted line-ups and more](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b767410b-de04-451c-a92c-6027f0c5d611) - **Yahoo Entertainment**
-4. [Sammie Szmodics loaned to Derby due to issues in dressingroom, says Kieran McKenna](https://www.irishtimes.com/sport/soccer/2026/02/06/sammie-szmodics-loaned-to-derby-due-to-issues-in-dressingroom-says-kieran-mckenna/) - **The Irish Times**
-5. [22-year-old Liverpool player could be set for out-of-window move](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-harvey-davies-loan-move-national-league/) - **Anfieldwatch.co.uk**
-6. [ICC Under-19 World Cup winners list from 1988 to 2026: Most wins, records and other facts](https://economictimes.indiatimes.com/news/sports/icc-under-19-world-cup-winners-list-from-1988-to-2026-most-wins-records-and-other-facts/articleshow/127998252.cms) - **The Times of India**
-7. [Ranking the 15 greatest Commanders players ever, from Sonny Jurgensen to Sean Taylor](https://www.sportingnews.com/us/nfl/washington-commanders/news/greatest-commanders-players-ever-ranked/f6cb3bfd0ba3a46165d6011e) - **Sporting News**
-8. [How and where to buy tickets for Tottenham vs Newcastle](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8d064024-9115-4777-8457-87d93451c0f8) - **Yahoo Entertainment**
+1. [Rushworth hopes to play in Premier League with Sky Blues](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0045f93c-b865-4991-b029-7638c4e9f2fc) - **Yahoo Entertainment**
+2. [Nasser's T20 World Cup predictions: Winners and England's chances](https://www.skysports.com/cricket/news/12080/13504168/nasser-hussains-t20-world-cup-predictions-winners-surprise-packages-players-to-watch-and-how-will-england-do) - **Sky Sports**
+3. [Shearer gives Arsenal encouragement in pursuit of Newcastle star](https://www.justarsenal.com/shearer-gives-arsenal-encouragement-in-pursuit-of-newcastle-star/409430) - **Just Arsenal News**
+4. [Hugo Ekitike compared to Liverpool legend by former star](https://anfieldindex.com/90945/hugo-ekitike-compared-to-liverpool-legend-by-former-star.html) - **Anfieldindex.com**
+5. ['A World Cup few seem to want but one England need'](https://www.bbc.com/sport/cricket/articles/c9qp85qe37zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. ['Leicester dream torn apart by unprecedented spending'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_68d919db-a817-4d58-b13d-c40f2e16a170) - **Yahoo Entertainment**
+7. [Liverpool vs Man City: Match Preview, Latest Team News and How to Watch](https://eplindex.com/142528/liverpool-vs-man-city-match-preview-latest-team-news-and-how-to-watch.html) - **English Premier League Index - Opta Stats**
+8. ['A World Cup few seem to want but one England need'](https://www.bbc.com/sport/cricket/articles/c9qp85qe37zo) - **BBC News**
+9. ['Leicester dream torn apart by unprecedented spending'](https://www.bbc.com/sport/football/articles/cz6y6jy1xdwo) - **BBC News**
+10. ['Foxes now in a true relegation scrap'](https://www.bbc.com/sport/football/articles/c0505pvz1ejo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-02-08 01:35:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-08 02:01:26 (KST) / (하루 100회 제한 준수 중)*
