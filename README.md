@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Enzo: I want to follow in Lampard's footsteps at Chelsea and win more trophies](https://www.skysports.com/football/news/11668/13503279/enzo-fernandez-exclusive-interview-i-want-to-follow-in-frank-lampards-footsteps-at-chelsea-and-win-lots-more-trophies) - **Sky Sports**
-2. ['Why young British managers need lower league experience'](https://www.bbc.com/sport/football/articles/cn7j0p61n80o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. ['Why young British managers need lower league experience'](https://www.bbc.com/sport/football/articles/cn7j0p61n80o) - **BBC News**
-4. [Olympics freestyle skiing schedule: TV channels, live streams, how to watch every freeski event at 2026 Winter Games](https://www.sportingnews.com/us/olympics/news/olympics-freestyle-skiing-schedule-channels-streams-watch-2026-winter/1ca81670b2a7bd91d66a8ac0) - **Sporting News**
-5. [Why Team GB medalists won't receive bonus at Winter Olympics](https://www.ladbible.com/news/sport/winter-olympics-pay-athlete-bonus-team-gb-funding-102280-20260206) - **LADbible**
-6. [Newcastle squad is strong enough, says Howe](https://www.101greatgoals.com/football/premier-league/newcastle-squad-is-strong-enough-says-howe/) - **101 Great Goals**
-7. [Liverpool v City: FPL Gameweek 25 Scout report](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e914b81f-a979-4bc6-a46b-c0d1bf0dc9ef) - **Yahoo Entertainment**
-8. [Why is every EFL game kicking off one minute later this weekend?](https://www.bbc.com/sport/football/articles/cdx453d21kgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Why is every EFL game kicking off one minute later this weekend?](https://www.bbc.com/sport/football/articles/cdx453d21kgo) - **BBC News**
+1. [Howe on Gordon injury, player confidence and Brentford](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b831806a-b1be-459d-905d-08c9c7b2c9c1) - **Yahoo Entertainment**
+2. ['Manager's dream' Milner nears Premier League record](https://www.bbc.com/sport/football/articles/cr575410j0po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Spurs boss Frank says European absence a boon for Man Utd](https://sports.yahoo.com/articles/spurs-boss-frank-says-european-104734011.html) - **Yahoo Entertainment**
+4. [Ex-NZ cricketer praises Smriti Mandhana after RCB WPL triumph](https://economictimes.indiatimes.com/news/sports/ex-nz-cricketer-praises-smriti-mandhana-after-rcb-wpl-triumph/articleshow/127985070.cms) - **The Times of India**
+5. ['Lucky escape' or 'nonsensical' points deduction?](https://www.bbc.com/sport/football/articles/c3ede9zd830o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Agent makes Lucca prediction after Forest move, confirms Camarda was close to Milan return](https://football-italia.net/agent-lucca-prediction-camarda-close-milan/) - **Football Italia**
+7. ['Pakistan's U-turn can happen anytime': Irfan Pathan on Pak's decision to boycott India match at T20 WC 2026](https://economictimes.indiatimes.com/news/sports/pakistans-u-turn-can-happen-anytime-irfan-pathan-on-paks-decision-to-boycott-india-match-at-t20-wc-2026/articleshow/127984685.cms) - **The Times of India**
+8. [Ireland go back to the bad old days after night to forget in Paris](https://www.irishtimes.com/sport/2026/02/06/ireland-go-back-to-the-bad-old-days-after-night-to-forget-in-paris/) - **The Irish Times**
+9. [Enzo: I want to follow in Lampard's footsteps at Chelsea and win more trophies](https://www.skysports.com/football/news/11668/13503279/enzo-fernandez-exclusive-interview-i-want-to-follow-in-frank-lampards-footsteps-at-chelsea-and-win-lots-more-trophies) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-02-07 19:30:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-07 19:57:42 (KST) / (하루 100회 제한 준수 중)*
