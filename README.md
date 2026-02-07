@@ -1,16 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Rushworth hopes to play in Premier League with Sky Blues](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0045f93c-b865-4991-b029-7638c4e9f2fc) - **Yahoo Entertainment**
-2. [Nasser's T20 World Cup predictions: Winners and England's chances](https://www.skysports.com/cricket/news/12080/13504168/nasser-hussains-t20-world-cup-predictions-winners-surprise-packages-players-to-watch-and-how-will-england-do) - **Sky Sports**
-3. [Shearer gives Arsenal encouragement in pursuit of Newcastle star](https://www.justarsenal.com/shearer-gives-arsenal-encouragement-in-pursuit-of-newcastle-star/409430) - **Just Arsenal News**
-4. [Hugo Ekitike compared to Liverpool legend by former star](https://anfieldindex.com/90945/hugo-ekitike-compared-to-liverpool-legend-by-former-star.html) - **Anfieldindex.com**
-5. ['A World Cup few seem to want but one England need'](https://www.bbc.com/sport/cricket/articles/c9qp85qe37zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. ['Leicester dream torn apart by unprecedented spending'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_68d919db-a817-4d58-b13d-c40f2e16a170) - **Yahoo Entertainment**
-7. [Liverpool vs Man City: Match Preview, Latest Team News and How to Watch](https://eplindex.com/142528/liverpool-vs-man-city-match-preview-latest-team-news-and-how-to-watch.html) - **English Premier League Index - Opta Stats**
-8. ['A World Cup few seem to want but one England need'](https://www.bbc.com/sport/cricket/articles/c9qp85qe37zo) - **BBC News**
-9. ['Leicester dream torn apart by unprecedented spending'](https://www.bbc.com/sport/football/articles/cz6y6jy1xdwo) - **BBC News**
-10. ['Foxes now in a true relegation scrap'](https://www.bbc.com/sport/football/articles/c0505pvz1ejo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Newcastle: Sandro Tonali’s agent says midfielder’s future will be decided in the summer](https://www.101greatgoals.com/football/premier-league/newcastle-sandro-tonalis-agent-says-midfielders-future-will-be-decided-in-the-summer/) - **101 Great Goals**
+2. [Five managers under pressure this February ](https://onefootball.com/en/news/five-managers-under-pressure-this-february-42369519) - **Onefootball.com**
+3. [Premier League: Date, time, channels and lineups for Wolves vs Chelsea](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_20800109-b9e1-4780-88ee-01078778e5b4) - **Yahoo Entertainment**
+4. [“The bigger picture…” – Cole Palmer’s treatment explained as Chelsea hope he can deliver against weak Wolves](https://chelsea.news/2026/02/cole-palmer-treatment-bigger-picture/) - **Chelsea.news**
+5. [Sun TV Q3 net dips 11% to ₹324 crore](https://www.thehindubusinessline.com/news/sun-tv-q3-net-dips-11-to-324-crore/article70600838.ece) - **BusinessLine**
+6. [Ipswich interest in Azeez shows our strength - Neil](https://www.bbc.com/sport/football/articles/c4gvgzjvq98o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Ipswich interest in Azeez shows our strength - Neil](https://www.bbc.com/sport/football/articles/c4gvgzjvq98o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-02-08 02:01:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-08 02:46:37 (KST) / (하루 100회 제한 준수 중)*
