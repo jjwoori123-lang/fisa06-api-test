@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Leicester urged to 'take medicine' and move on after six-point penalty](https://www.bbc.com/sport/football/articles/c1lzlgr0v7yo) - **BBC News**
-2. [Can Cowboys join Crosby trade war? Would it make Parsons loss better?](https://cowboyswire.usatoday.com/story/sports/nfl/cowboys/2026/02/06/cowboys-maxx-crosby-trade-talk-micah-parsons/88544258007/) - **USA Today**
-3. [Why should I not express how I feel? - Guardiola](https://www.bbc.com/sport/football/articles/crlel3dyzdzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Why should I not express how I feel? - Guardiola](https://www.bbc.com/sport/football/articles/crlel3dyzdzo) - **BBC News**
-5. [Wolves vs Chelsea: Match Preview, Latest Team News and Score Prediction](https://eplindex.com/142516/wolves-vs-chelsea-match-preview-latest-team-news-and-score-prediction.html) - **English Premier League Index - Opta Stats**
-6. [Pep says ‘every season is more difficult’ as he chases Arsenal](https://www.101greatgoals.com/football/premier-league/pep-says-every-season-is-more-difficult-as-he-chases-arsenal/) - **101 Great Goals**
-7. [Edwards on new signings, Strand Larsen's exit and Chelsea](https://www.bbc.com/sport/football/articles/cwynydjwg2eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [EPL: Players still struggling after Jota’s death – Ex-Liverpool goalkeeper](https://punchng.com/?p=2057072) - **The Punch**
-9. [All your FPL stats and Premier League team news in one place](https://www.bbc.com/sport/articles/cx2w2pk5plko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [All your FPL stats and Premier League team news in one place](https://www.bbc.com/sport/articles/cx2w2pk5plko) - **BBC News**
+1. [Moyes on Mykolenko's return, George and McNeil](https://www.bbc.com/sport/football/articles/ckgvg1gmx2yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Every word of Mikel’s pre-Sunderland presser](http://www.arsenal.com/news/every-word-mikels-pre-sunderland-presser) - **Arsenal.com**
+3. [“We’ve all felt” – Enzo Fernandez shares honest opinion on Liam Rosenior](https://chelsea.news/2026/02/enzo-fernandez-liam-rosenior-chelsea/) - **Chelsea.news**
+4. [EPL: Carrick seeks Man United’s fourth win in Tottenham clash](https://punchng.com/epl-carrick-seeks-man-uniteds-fourth-win-in-tottenham-clash/) - **The Punch**
+5. [PREVIEW | Brighton & Hove Albion vs Crystal Palace - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-brighton-hove-albion-vs-crystal-palace-team-news-lineups-predictions/1046611) - **Playmakerstats.com**
+6. [Man City brace for Liverpool challenge as Guardiola emphasises mental fortitude](https://www.channelnewsasia.com/sport/man-city-brace-liverpool-challenge-guardiola-emphasises-mental-fortitude-5913196) - **CNA**
+7. [Shamrock Rovers' League of Ireland opener against Dundalk postponed following pitch inspection](https://www.thejournal.ie/shamrock-rovers-dundalk-8-6949128-Feb2026/) - **TheJournal.ie**
+8. [O'Neill: Oxlade Chamberlain wants to come to Celtic](https://www.skysports.com/football/news/11095/13504092/alex-oxlade-chamberlain-celtic-boss-martin-oneill-confirms-ex-arsenal-and-liverpool-midfielder-set-to-join) - **Sky Sports**
+9. [Vieira explains why the Premier League title is more difficult to win now](https://www.justarsenal.com/vieira-explains-why-the-premier-league-title-is-more-difficult-to-win-now/409407) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-02-07 22:48:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-07 23:30:28 (KST) / (하루 100회 제한 준수 중)*
