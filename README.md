@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Moyes on Mykolenko's return, George and McNeil](https://www.bbc.com/sport/football/articles/ckgvg1gmx2yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Every word of Mikel’s pre-Sunderland presser](http://www.arsenal.com/news/every-word-mikels-pre-sunderland-presser) - **Arsenal.com**
-3. [“We’ve all felt” – Enzo Fernandez shares honest opinion on Liam Rosenior](https://chelsea.news/2026/02/enzo-fernandez-liam-rosenior-chelsea/) - **Chelsea.news**
-4. [EPL: Carrick seeks Man United’s fourth win in Tottenham clash](https://punchng.com/epl-carrick-seeks-man-uniteds-fourth-win-in-tottenham-clash/) - **The Punch**
-5. [PREVIEW | Brighton & Hove Albion vs Crystal Palace - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-brighton-hove-albion-vs-crystal-palace-team-news-lineups-predictions/1046611) - **Playmakerstats.com**
-6. [Man City brace for Liverpool challenge as Guardiola emphasises mental fortitude](https://www.channelnewsasia.com/sport/man-city-brace-liverpool-challenge-guardiola-emphasises-mental-fortitude-5913196) - **CNA**
-7. [Shamrock Rovers' League of Ireland opener against Dundalk postponed following pitch inspection](https://www.thejournal.ie/shamrock-rovers-dundalk-8-6949128-Feb2026/) - **TheJournal.ie**
-8. [O'Neill: Oxlade Chamberlain wants to come to Celtic](https://www.skysports.com/football/news/11095/13504092/alex-oxlade-chamberlain-celtic-boss-martin-oneill-confirms-ex-arsenal-and-liverpool-midfielder-set-to-join) - **Sky Sports**
-9. [Vieira explains why the Premier League title is more difficult to win now](https://www.justarsenal.com/vieira-explains-why-the-premier-league-title-is-more-difficult-to-win-now/409407) - **Just Arsenal News**
+1. [Glasner on Mateta's medical, Strand Larsen and 'pressing reset button'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f2f697f5-8c20-41f1-99b2-4c9f5e2274f5) - **Yahoo Entertainment**
+2. [Andrews on Furo availability, benching Collins and Bentt](https://www.bbc.com/sport/football/articles/cj9r90mz33xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Glasner opens up on Mateta’s failed Milan medical: ‘It wasn’t a big surprise’](https://football-italia.net/glasner-on-matetas-failed-milan-medical/) - **Football Italia**
+4. [What's happened to Brighton? Palace game crucial for Hurzeler](https://www.skysports.com/football/news/11095/13504116/fabian-hurzeler-under-pressure-from-fans-as-brighton-face-arch-rivals-crystal-palace-in-poor-form-the-radar) - **Sky Sports**
+5. [Arteta's update on Saka, Odegaard and Timber](http://www.arsenal.com/news/artetas-update-saka-odegaard-and-timber) - **Arsenal.com**
+6. [Mikel asks for “the best atmosphere we’ve seen”](http://www.arsenal.com/news/mikel-asks-best-atmosphere-weve-seen) - **Arsenal.com**
+7. [McKenna: Szmodics' Ipswich exit due to 'culture'](https://www.rte.ie/sport/soccer/2026/0206/1557124-mckenna-szmodics-ipswich-exit-due-to-culture/) - **RTE**
+8. [Moyes on Mykolenko's return, George and McNeil](https://www.bbc.com/sport/football/articles/ckgvg1gmx2yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-02-07 23:30:28 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-07 23:57:30 (KST) / (하루 100회 제한 준수 중)*
