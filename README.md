@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sky Sports: Celtic set to sign former Premier League star today](https://eplindex.com/142502/sky-sports-celtic-set-to-sign-former-premier-league-star-today.html) - **English Premier League Index - Opta Stats**
-2. [The hunger to win never changes: Smriti Mandhana](https://timesofindia.indiatimes.com/entertainment/events/bangalore/the-hunger-to-win-never-changes-smriti-mandhana/articleshow/127982343.cms) - **The Times of India**
-3. [Tonali’s agent set for ‘transfer talks’ with Newcastle, but ‘no preference’ between Juventus and Arsenal](https://football-italia.net/tonali-agent-transfer-talks-newcastle-juventus/) - **Football Italia**
-4. [Report: Arsenal offered Bayern Munich’s Leon Goretzka on Deadline Day](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/165247/arsenal-offered-leon-goretzka-bayern-munich-january-transfer-window-champions-league-epl) - **Bavarian Football Works**
-5. [Patrick Vieira names new Manchester City star as future Etihad Stadium captain](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5d0c17fb-ab40-4142-8f09-cb204f367ae6) - **Yahoo Entertainment**
-6. [Report: Leeds To Target New Goalkeeper In Summer](https://eplindex.com/142497/report-leeds-to-target-new-goalkeeper-in-summer.html) - **English Premier League Index - Opta Stats**
-7. [Sunderland manager gives update on if Xhaka will be fit to face Arsenal](https://www.justarsenal.com/sunderland-manager-gives-update-on-if-xhaka-will-be-fit-to-face-arsenal/409390) - **Just Arsenal News**
-8. [Wirtz & Ekitike's blossoming partnership offers Reds hope amid Anfield gloom](https://www.skysports.com/football/news/11095/13503730/florian-wirtz-and-hugo-ekitikes-blossoming-partnership-offers-liverpool-hope-amid-the-anfield-gloom) - **Sky Sports**
+1. [Enzo: I want to follow in Lampard's footsteps at Chelsea and win more trophies](https://www.skysports.com/football/news/11668/13503279/enzo-fernandez-exclusive-interview-i-want-to-follow-in-frank-lampards-footsteps-at-chelsea-and-win-lots-more-trophies) - **Sky Sports**
+2. ['Why young British managers need lower league experience'](https://www.bbc.com/sport/football/articles/cn7j0p61n80o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. ['Why young British managers need lower league experience'](https://www.bbc.com/sport/football/articles/cn7j0p61n80o) - **BBC News**
+4. [Olympics freestyle skiing schedule: TV channels, live streams, how to watch every freeski event at 2026 Winter Games](https://www.sportingnews.com/us/olympics/news/olympics-freestyle-skiing-schedule-channels-streams-watch-2026-winter/1ca81670b2a7bd91d66a8ac0) - **Sporting News**
+5. [Why Team GB medalists won't receive bonus at Winter Olympics](https://www.ladbible.com/news/sport/winter-olympics-pay-athlete-bonus-team-gb-funding-102280-20260206) - **LADbible**
+6. [Newcastle squad is strong enough, says Howe](https://www.101greatgoals.com/football/premier-league/newcastle-squad-is-strong-enough-says-howe/) - **101 Great Goals**
+7. [Liverpool v City: FPL Gameweek 25 Scout report](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e914b81f-a979-4bc6-a46b-c0d1bf0dc9ef) - **Yahoo Entertainment**
+8. [Why is every EFL game kicking off one minute later this weekend?](https://www.bbc.com/sport/football/articles/cdx453d21kgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Why is every EFL game kicking off one minute later this weekend?](https://www.bbc.com/sport/football/articles/cdx453d21kgo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-02-07 18:48:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-07 19:30:09 (KST) / (하루 100회 제한 준수 중)*
