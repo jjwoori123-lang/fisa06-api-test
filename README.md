@@ -1,13 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle: Sandro Tonali’s agent says midfielder’s future will be decided in the summer](https://www.101greatgoals.com/football/premier-league/newcastle-sandro-tonalis-agent-says-midfielders-future-will-be-decided-in-the-summer/) - **101 Great Goals**
-2. [Five managers under pressure this February ](https://onefootball.com/en/news/five-managers-under-pressure-this-february-42369519) - **Onefootball.com**
-3. [Premier League: Date, time, channels and lineups for Wolves vs Chelsea](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_20800109-b9e1-4780-88ee-01078778e5b4) - **Yahoo Entertainment**
-4. [“The bigger picture…” – Cole Palmer’s treatment explained as Chelsea hope he can deliver against weak Wolves](https://chelsea.news/2026/02/cole-palmer-treatment-bigger-picture/) - **Chelsea.news**
-5. [Sun TV Q3 net dips 11% to ₹324 crore](https://www.thehindubusinessline.com/news/sun-tv-q3-net-dips-11-to-324-crore/article70600838.ece) - **BusinessLine**
-6. [Ipswich interest in Azeez shows our strength - Neil](https://www.bbc.com/sport/football/articles/c4gvgzjvq98o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Ipswich interest in Azeez shows our strength - Neil](https://www.bbc.com/sport/football/articles/c4gvgzjvq98o) - **BBC News**
+1. [The hunger to win never changes: Smriti Mandhana](https://timesofindia.indiatimes.com/city/bengaluru/the-hunger-to-win-never-changes-smriti-mandhana/articleshow/127982435.cms) - **The Times of India**
+2. [January signings added to City's updated Champions League squad](https://www.mancity.com/news/mens/new-names-in-uefa-champions-league-squad-63905995) - **Manchester City FC**
+3. [Liverpool can return to fray for Inter’s Denzel Dumfries](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f8ec9080-ef9c-48e8-b6ac-0b97715ab57e) - **Yahoo Entertainment**
+4. [“They want me to remain silent” – Pep Guardiola blasts critics and reiterates support for victims of war](https://cityxtra.co.uk/41372/just-because-im-a-manager-pep-guardiola-blasts-critics-and-reiterates-support-for-innocent-victims-of-war/) - **Cityxtra.co.uk**
+5. [Kobbie Mainoo: United make major decision on key midfielder’s future](https://thepeoplesperson.com/2026/02/06/kobbie-mainoo-united-make-major-decision-on-key-midfielders-future-304743/) - **The Peoples Person**
+6. [Manchester City’s updated UEFA Champions League squad revealed after January transfer window](https://cityxtra.co.uk/41384/manchester-citys-updated-uefa-champions-league-squad-revealed-after-january-transfer-window/) - **Cityxtra.co.uk**
+7. [Preview: Arsenal v Sunderland](http://www.arsenal.com/news/preview-arsenal-v-sunderland) - **Arsenal.com**
+8. [How to watch SuperSport from anywhere](https://www.techradar.com/how-to-watch/watch-supersport-from-anywhere) - **TechRadar**
+9. [Gary Lineker impressed by ‘quite clever’ tactical call Liam Rosenior has made at Chelsea](https://www.hitc.com/gary-lineker-impressed-by-quite-clever-tactical-call-liam-rosenior-has-made-at-chelsea/) - **HITC - Football, Gaming, Movies, TV, Music**
+10. [Go Inside Training ahead of Sunderland clash](http://www.arsenal.com/news/go-inside-training-ahead-sunderland-clash) - **Arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-02-08 02:46:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-08 03:40:07 (KST) / (하루 100회 제한 준수 중)*
