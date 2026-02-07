@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Glasner on Mateta's medical, Strand Larsen and 'pressing reset button'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f2f697f5-8c20-41f1-99b2-4c9f5e2274f5) - **Yahoo Entertainment**
-2. [Andrews on Furo availability, benching Collins and Bentt](https://www.bbc.com/sport/football/articles/cj9r90mz33xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Glasner opens up on Mateta’s failed Milan medical: ‘It wasn’t a big surprise’](https://football-italia.net/glasner-on-matetas-failed-milan-medical/) - **Football Italia**
-4. [What's happened to Brighton? Palace game crucial for Hurzeler](https://www.skysports.com/football/news/11095/13504116/fabian-hurzeler-under-pressure-from-fans-as-brighton-face-arch-rivals-crystal-palace-in-poor-form-the-radar) - **Sky Sports**
-5. [Arteta's update on Saka, Odegaard and Timber](http://www.arsenal.com/news/artetas-update-saka-odegaard-and-timber) - **Arsenal.com**
-6. [Mikel asks for “the best atmosphere we’ve seen”](http://www.arsenal.com/news/mikel-asks-best-atmosphere-weve-seen) - **Arsenal.com**
-7. [McKenna: Szmodics' Ipswich exit due to 'culture'](https://www.rte.ie/sport/soccer/2026/0206/1557124-mckenna-szmodics-ipswich-exit-due-to-culture/) - **RTE**
-8. [Moyes on Mykolenko's return, George and McNeil](https://www.bbc.com/sport/football/articles/ckgvg1gmx2yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Solomon agent: Fiorentina relegation could cost Spurs 10m after Southampton snub](https://football-italia.net/solomon-agent-10m-fiorentina-southampton/) - **Football Italia**
+2. [What's going on with Cristiano Ronaldo and Al Nassr? Latest after star sits out second Saudi Pro League game](https://www.sportingnews.com/us/soccer/news/cristiano-ronaldo-al-nassr-riyadh-refused-play-saudi-game/a3558c1a184fe6604f945248) - **Sporting News**
+3. [“I’ll tell you again…” – Pep Guardiola issues defiant response to Manchester City exit talk](https://cityxtra.co.uk/41367/ill-tell-you-again-pep-guardiola-issues-defiant-response-to-manchester-city-exit-talk/) - **Cityxtra.co.uk**
+4. [Emery on Watkins' fitness, Onana's availability and squad depth](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ed666918-1b5a-48d3-a29a-17f0262eb44d) - **Yahoo Entertainment**
+5. [Arteta apologises to Rosenior after disrespect row](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_64b89faa-33c0-43a6-83e1-d7c46c2d68c6) - **Yahoo Entertainment**
+6. [FULL LIST: Joe Aribo ranked among top 10 highest-paid championship players](https://punchng.com/full-list-joe-aribo-ranked-among-top-10-highest-paid-championship-players/) - **The Punch**
+7. [Livingstone staying with Lancs three more years](https://www.bbc.com/sport/cricket/articles/cdx4xe6wvyzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Alan Shearer gives his Arsenal v Sunderland prediction](https://www.justarsenal.com/alan-shearer-gives-his-arsenal-v-sunderland-prediction/409408) - **Just Arsenal News**
+9. [NYT Strands hints and answers for Saturday, February 7 (game #706)](https://www.techradar.com/computing/websites-apps/nyt-strands-today-answers-hints-7-february-2026) - **TechRadar**
 
 
 ---
-*최근 업데이트: 2026-02-07 23:57:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-08 00:34:42 (KST) / (하루 100회 제한 준수 중)*
