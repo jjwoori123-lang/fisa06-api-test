@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The hunger to win never changes: Smriti Mandhana](https://timesofindia.indiatimes.com/city/bengaluru/the-hunger-to-win-never-changes-smriti-mandhana/articleshow/127982435.cms) - **The Times of India**
-2. [January signings added to City's updated Champions League squad](https://www.mancity.com/news/mens/new-names-in-uefa-champions-league-squad-63905995) - **Manchester City FC**
-3. [Liverpool can return to fray for Inter’s Denzel Dumfries](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f8ec9080-ef9c-48e8-b6ac-0b97715ab57e) - **Yahoo Entertainment**
-4. [“They want me to remain silent” – Pep Guardiola blasts critics and reiterates support for victims of war](https://cityxtra.co.uk/41372/just-because-im-a-manager-pep-guardiola-blasts-critics-and-reiterates-support-for-innocent-victims-of-war/) - **Cityxtra.co.uk**
-5. [Kobbie Mainoo: United make major decision on key midfielder’s future](https://thepeoplesperson.com/2026/02/06/kobbie-mainoo-united-make-major-decision-on-key-midfielders-future-304743/) - **The Peoples Person**
-6. [Manchester City’s updated UEFA Champions League squad revealed after January transfer window](https://cityxtra.co.uk/41384/manchester-citys-updated-uefa-champions-league-squad-revealed-after-january-transfer-window/) - **Cityxtra.co.uk**
-7. [Preview: Arsenal v Sunderland](http://www.arsenal.com/news/preview-arsenal-v-sunderland) - **Arsenal.com**
-8. [How to watch SuperSport from anywhere](https://www.techradar.com/how-to-watch/watch-supersport-from-anywhere) - **TechRadar**
-9. [Gary Lineker impressed by ‘quite clever’ tactical call Liam Rosenior has made at Chelsea](https://www.hitc.com/gary-lineker-impressed-by-quite-clever-tactical-call-liam-rosenior-has-made-at-chelsea/) - **HITC - Football, Gaming, Movies, TV, Music**
-10. [Go Inside Training ahead of Sunderland clash](http://www.arsenal.com/news/go-inside-training-ahead-sunderland-clash) - **Arsenal.com**
+1. [Wolverhampton Wanderers v Chelsea: Key stats and talking points](https://www.bbc.com/sport/football/articles/c1m7m5ddm02o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Fulham v Everton: Key stats and talking points](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_549fe019-a8b2-4551-a252-ded6d8f3a55a) - **Yahoo Entertainment**
+3. [Burnley v West Ham: Key stats and talking points](https://www.bbc.com/sport/football/articles/c5y2y8n482do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Arsenal v Sunderland: Key stats and talking points](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ae8f42ab-cd63-49dd-ad0f-185707a24234) - **Yahoo Entertainment**
+5. [As it happened: All the League of Ireland action on opening night of the 2026 season](https://www.independent.ie/sport/soccer/league-of-ireland/as-it-happened-all-the-league-of-ireland-action-on-opening-night-of-the-2026-season/a581946554.html) - **Independent.ie**
+6. [Arsenal may have suffered a fresh injury blow ahead of Sunderland game](https://www.justarsenal.com/arsenal-may-have-suffered-a-fresh-injury-blow-ahead-of-sunderland-game/409433) - **Just Arsenal News**
+7. [League of Ireland: It’s opening night as the 2026 domestic season kicks off](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-its-opening-night-as-the-2026-domestic-season-kicks-off/a581946554.html) - **Independent.ie**
+8. [Leeds v Nottingham Forest: Team news and confirmed line-ups for crunch Premier League clash](https://www.101greatgoals.com/football/premier-league/leeds-v-nottingham-forest-team-news-confirmed-line-ups-for-crunch-premier-league-clash/) - **101 Great Goals**
+9. [Anthony Gordon: Man United plot raid on Newcastle for shock reason](https://thepeoplesperson.com/2026/02/06/anthony-gordon-man-united-plot-raid-on-newcastle-for-shock-reason-304742/) - **The Peoples Person**
+10. [Leeds vs Nottingham Forest LIVE updates, watch live, score, analysis, highlights](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_315e8706-5cd8-421b-9e73-851b61dcdfe8) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-08 03:40:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-08 04:05:19 (KST) / (하루 100회 제한 준수 중)*
