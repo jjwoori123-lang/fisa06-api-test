@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Three things we learned – Manchester City 3-1 Newcastle United](https://bitterandblue.sbnation.com/manchester-city-league-cup/36765/three-things-we-learned-manchester-city-3-1-newcastle-united) - **SB Nation**
-2. [Former Premier League star sends Liverpool sack warning to Arne Slot](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1276bb8b-7919-4df8-b5ef-4effb83e0ccf) - **Yahoo Entertainment**
-3. [Ex-Villa striker Duran set for sixth club aged 22](https://www.bbc.com/sport/football/articles/cp878md787xo) - **BBC News**
-4. [Strasbourg set €50m asking price for Joaquín Panichelli](https://www.getfootballnewsfrance.com/2026/strasbourg-set-e50m-asking-price-for-joaquin-panichelli/) - **Get French Football News**
-5. [Aston Villa aim to protect third spot as Bournemouth’s form tests top four credentials](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_53933a1b-af99-498e-ab74-98f6f3b1d456) - **Yahoo Entertainment**
-6. [Report Man United open talks to sign Juventus midfielder Locatelli](https://football-italia.net/man-united-open-talks-juventus-locatelli/) - **Football Italia**
-7. [Carrick looking forward to Frank reunion when Man Utd face Spurs](https://sports.yahoo.com/articles/carrick-looking-forward-frank-reunion-112533168.html) - **Yahoo Entertainment**
-8. [Mikaela Shiffrin skiing schedule: Times, channels to watch USA star's races live at 2026 Winter Olympics](https://www.sportingnews.com/us/olympics/news/mikaela-shiffrin-skiing-schedule-watch-live-events-2026-olympics/24bcd883b072c3185f923413) - **Sporting News**
-9. [Emmanuel Agbadou leaves Wolves for Turkey](https://www.playmakerstats.com/news/emmanuel-agbadou-leaves-wolves-for-turkey/1046539) - **Playmakerstats.com**
-10. [Wolves vs Chelsea: Blues head to Molineux chasing four-in-a-row to leapfrog Man Utd](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8c930969-822b-4612-955f-9e534cdf87bd) - **Yahoo Entertainment**
+1. [Jordan Stolz speed skating schedule: Times, channels to watch USA star's races live at 2026 Winter Olympics](https://www.sportingnews.com/us/olympics/news/jordan-stolz-speed-skating-schedule-times-channels-watch-live-olympics/f6bf003baa0441e088983447) - **Sporting News**
+2. [Pep gives update on Bernardo, Dias and Stones](https://www.mancity.com/news/mens/pep-guardiola-liverpool-injury-news-63905976) - **Manchester City FC**
+3. [Peter Crouch makes interesting prediction ahead of Liverpool vs Man City](https://anfieldindex.com/90939/peter-crouch-makes-interesting-prediction-ahead-of-liverpool-vs-man-city.html) - **Anfieldindex.com**
+4. [Arsenal vs Sunderland: Match Preview, Latest Team News and Score Prediction](https://eplindex.com/142512/arsenal-vs-sunderland-match-preview-latest-team-news-and-score-prediction.html) - **English Premier League Index - Opta Stats**
+5. [Match Preview: Burnley U21s v Brentford B in PL Cup](https://www.brentfordfc.com/en/news/article/brentford-b-team-v-burnley-u21s-premier-league-cup-match-preview) - **Brentfordfc.com**
+6. [Pep Guardiola press conference: Bernardo Silva, Ruben Dias and John Stones injury updates ahead of Liverpool](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_19001362-1042-4635-bf23-19af1d2280b8) - **Yahoo Entertainment**
+7. [Wayne Rooney: Man United’s title-winning goal is Premier League’s best](https://thepeoplesperson.com/2026/02/06/wayne-rooney-man-uniteds-title-winning-goal-is-premier-leagues-best-304734/) - **The Peoples Person**
+8. [Fagrie Lakay nets brace as Cleopatra boost title ambitions](https://foot-africa.com/en/news/fagrie-lakay-nets-brace-as-cleopatra-boost-title-ambitions-1074479/) - **Foot-africa.com**
+9. [WPL Speed Queen: Powering the next generation of India’s fast-bowling stars](https://timesofindia.indiatimes.com/sports/wpl-speed-queen-powering-the-next-generation-of-indias-fast-bowling-stars/articleshow/127988825.cms) - **The Times of India**
+10. [Who is new Sunderland goalkeeper Ellborg?](https://www.bbc.com/sport/football/articles/cd6w6q18xq5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-02-07 20:52:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-07 21:56:39 (KST) / (하루 100회 제한 준수 중)*
