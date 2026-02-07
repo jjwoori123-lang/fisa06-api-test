@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bruno Fernandes: Saudi Pro League gain fresh motivation to pounce on £57m transfer opportunity](https://thepeoplesperson.com/2026/02/06/bruno-fernandes-saudi-pro-league-gain-fresh-motivation-to-pounce-on-57m-transfer-opportunity-304746/) - **The Peoples Person**
-2. [Tamworth sign EFL's Howley and Isichei on loan](https://www.bbc.com/sport/football/articles/c1m7mej0ky7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Liverpool star could still leave the club this month](https://anfieldindex.com/90954/liverpool-star-could-still-leave-the-club-this-month.html) - **Anfieldindex.com**
-4. [Dias, Guehi And Rodri To Start | 4-3-3 Manchester City Predicted Lineup Vs Liverpool](https://the4thofficial.net/2026/02/dias-guehi-and-rodri-to-start-4-3-3-manchester-city-predicted-lineup-vs-liverpool/) - **The4thofficial.net**
-5. [Premier League: Leeds v Nottm Forest - team news & build-up](https://www.bbc.com/sport/football/live/cp3zkdegdqjt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Wolverhampton Wanderers v Chelsea: Key stats and talking points](https://www.bbc.com/sport/football/articles/c1m7m5ddm02o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Fulham v Everton: Key stats and talking points](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_549fe019-a8b2-4551-a252-ded6d8f3a55a) - **Yahoo Entertainment**
-8. [Burnley v West Ham: Key stats and talking points](https://www.bbc.com/sport/football/articles/c5y2y8n482do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Arsenal v Sunderland: Key stats and talking points](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ae8f42ab-cd63-49dd-ad0f-185707a24234) - **Yahoo Entertainment**
-10. [Arsenal may have suffered a fresh injury blow ahead of Sunderland game](https://www.justarsenal.com/arsenal-may-have-suffered-a-fresh-injury-blow-ahead-of-sunderland-game/409433) - **Just Arsenal News**
+1. [Report: Liverpool and Newcastle United set for another transfer showdown over England midfielder](https://anfieldindex.com/90952/report-liverpool-and-newcastle-united-set-for-another-transfer-showdown-over-england-midfielder.html) - **Anfieldindex.com**
+2. [Manchester United vs. Tottenham in Premier League matchup in two teams heading in opposite directions](https://www.cbssports.com/soccer/news/manchester-united-tottenham-hotspur-premier-league-michael-carrick/) - **CBS Sports**
+3. [Liverpool add FOUR new players to Premier League squad including special centre-back](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8cc30d4d-66dc-4e80-8d7e-157a0071e3b0) - **Yahoo Entertainment**
+4. [Sunderland Slap £50m Price Tag On Arsenal, Chelsea, And Manchester City Target: Should They Be Selling Him?](https://the4thofficial.net/2026/02/sunderland-slap-50m-price-tag-on-arsenal-chelsea-and-manchester-city-target-should-they-be-selling-him/) - **The4thofficial.net**
+5. [Bohs sign quintet ahead of new league season](https://www.rte.ie/sport/soccer/2026/0206/1557180-bohs-sign-quintet-ahead-of-new-league-season/) - **RTE**
+6. [“He’s not a top, top striker.” Arsenal man not highly rated by pundit](https://www.justarsenal.com/hes-not-a-top-top-striker-arsenal-man-not-highly-rated-by-pundit/409451) - **Just Arsenal News**
+7. [Journalist reveals the truth behind Florian Wirtz’s recent Liverpool form](https://anfieldindex.com/90948/journalist-reveals-the-truth-behind-florian-wirtzs-recent-liverpool-form.html) - **Anfieldindex.com**
+8. [Bayern’s Leon Goretzka prefers Premier League move over Milan](https://www.getfootballnewsitaly.com/2026/bayerns-leon-goretzka-prefers-premier-league-move-over-milan/) - **Getfootballnewsitaly.com**
+9. [The Gambia's WTO Trade Policy Review: UK Statement – February 2026](https://www.gov.uk/government/speeches/the-gambias-wto-trade-policy-review-uk-statement-february-2026) - **Www.gov.uk**
+10. [Grealish Out, George In: Moyes’ Suicide Or Gem? Can A Teen Save Everton’s Season From Disaster Now?](https://the4thofficial.net/2026/02/grealish-out-george-in-moyes-suicide-or-gem-can-a-teen-save-evertons-season-from-disaster-now/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-02-08 04:40:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-08 05:31:47 (KST) / (하루 100회 제한 준수 중)*
