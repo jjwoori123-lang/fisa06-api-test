@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Vicario ‘so proud’ of Tottenham team-mates despite another loss under Thomas Frank](https://www.101greatgoals.com/football/premier-league/vicario-so-proud-of-tottenham-team-mates-despite-another-loss-under-thomas-frank/) - **101 Great Goals**
-2. [“How can you say no?” – Hugo Ekitike reveals why he chose to join Liverpool](https://anfieldindex.com/90974/how-can-you-say-no-hugo-ekitike-reveals-why-he-chose-to-join-liverpool.html) - **Anfieldindex.com**
-3. [Report: Liverpool set to battle Man United in the race to sign Bundesliga forward](https://eplindex.com/142543/report-liverpool-set-to-battle-man-united-in-the-race-to-sign-bundesliga-forward.html) - **English Premier League Index - Opta Stats**
-4. [Carrick extends winning run as Man United beat 10-man Tottenham 2-0](https://www.aljazeera.com/sports/2026/2/7/carrick-extends-winning-run-as-man-united-beat-10-man-tottenham-2-0) - **Al Jazeera English**
-5. [Vicario Gets 8, Romero With 4.5 | Tottenham Hotspur Players Rated In Tough Loss Vs Manchester United](https://the4thofficial.net/2026/02/vicario-gets-8-romero-with-4-5-tottenham-hotspur-players-rated-in-tough-loss-vs-manchester-united/) - **The4thofficial.net**
-6. [Man United win again as ten-man Tottenham are seen off](https://www.rte.ie/sport/soccer/2026/0207/1557221-man-united-win-again-as-ten-man-tottenham-are-seen-off/) - **RTE**
-7. [Bournemouth vs Aston Villa LIVE updates, watch live, score, analysis, highlights](https://www.nbcsports.com/soccer/news/bournemouth-vs-aston-villa-live-updates-score-highlights-stats-watch) - **NBCSports.com**
-8. [Manchester City have to take this Liverpool side on head-on.](https://esteemedkompany.com/2026/02/07/manchester-city-have-to-take-this-liverpool-side-on-head-on/) - **Esteemedkompany.com**
-9. [Mainoo, Dalot And Fernandes Get 8 | Manchester United Players Rated In Solid Win Vs Tottenham Hotspur](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_44b3ddbc-baf9-4b9d-a00c-768f3c205fc9) - **Yahoo Entertainment**
-10. [Kenyans light up Charlton Athletic’s social media after Collins Sichenje's big move to England](https://www.citizen.digital/entertainment/kenyans-light-up-charlton-athletics-social-media-after-collins-sichenjes-big-move-to-england-n377086) - **Citizen.digital**
+1. [Liverpool face major battle to retain star academy player amid strong transfer interest involving Manchester City](https://cityxtra.co.uk/41247/liverpool-face-major-battle-to-retain-star-academy-player-amid-strong-transfer-interest-involving-manchester-city/) - **Cityxtra.co.uk**
+2. [Owen Hargreaves raves about Bruno Fernandes and Casemiro after Spurs win for this key reason](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_923cb68b-101f-44c9-984e-271abf9937c5) - **Yahoo Entertainment**
+3. [Antoine Semenyo leaves out Bruno Fernandes in Manchester United pick](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_06971f1f-453b-491a-a41c-3ed485f030cb) - **Yahoo Entertainment**
+4. [EPL: Romero sent off as Manchester United beat Spurs 2-0](https://punchng.com/epl-romero-sent-off-as-manchester-united-beat-spurs-2-0/) - **The Punch**
+5. [Newcastle United vs Brentford: Eddie Howe's pre-match message](https://www.newcastleunited.com/en/news/newcastle-united-vs-brentford-eddie-howes-pre-match-message) - **Newcastleunited.com**
+6. [Manchester United and Michael Carrick win again as Tottenham are seen off](https://www.the42.ie/manchester-united-spurs-michael-carrick-6950312-Feb2026/) - **The42**
+7. [A Manchester City magician may be the ideal player to thrive on the big stage at Anfield](https://esteemedkompany.com/2026/02/07/a-manchester-city-magician-may-be-the-ideal-player-to-thrive-on-the-big-stage-at-anfield/) - **Esteemedkompany.com**
+8. [Carrick brings Manchester United 'something special', says Fernandes](https://sports.yahoo.com/articles/carrick-brings-manchester-united-something-151314629.html) - **Yahoo Entertainment**
+9. [Michael Carrick keeps perfect Manchester United record intact as Cristian Romero sees red](https://www.irishtimes.com/sport/2026/02/07/michael-carrick-keeps-perfect-manchester-united-record-intact-as-cristian-romero-sees-red/) - **The Irish Times**
+10. [Vicario ‘so proud’ of Tottenham team-mates despite another loss under Thomas Frank](https://www.101greatgoals.com/football/premier-league/vicario-so-proud-of-tottenham-team-mates-despite-another-loss-under-thomas-frank/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-02-08 23:59:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-09 00:36:04 (KST) / (하루 100회 제한 준수 중)*
