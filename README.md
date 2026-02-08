@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man United Starting XI vs Spurs: Confirmed Team News and Predicted Lineup](https://eplindex.com/142536/man-united-starting-xi-vs-spurs-confirmed-team-news-and-predicted-lineup.html) - **English Premier League Index - Opta Stats**
-2. [Football charity's 20 years sending kit to Africa](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5c1b8c9f-88ee-4cd6-9296-cd6b88397816) - **Yahoo Entertainment**
-3. [Morgan Rogers can transform United’s attack, here’s why](https://thepeoplesperson.com/2026/02/07/morgan-rogers-can-transform-uniteds-attack-heres-why-304769/) - **The Peoples Person**
-4. [Chelsea midfield ace addresses future amid Real Madrid links – ‘I’m very grateful’](https://madriduniversal.com/chelsea-midfield-ace-addresses-future-amid-real-madrid-links-im-very-grateful/) - **Madriduniversal.com**
-5. [Premier League & La Liga stars dominate best players in Europe ranking across every position](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_66cbc19f-c8a7-45ad-b824-08fe81cce96a) - **Yahoo Entertainment**
-6. [Where to watch Arsenal vs. Sunderland live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5e446aaf-b5fd-4c00-bfc3-24cdc8c36de8) - **Yahoo Entertainment**
-7. [Where to watch Wolves vs. Chelsea live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_22561fb5-bf82-4bfc-986e-ca41f992781f) - **Yahoo Entertainment**
-8. [Wolves vs. Chelsea, Premier League: Preview, team news, how to watch](https://weaintgotnohistory.sbnation.com/premier-league/165955/wolverhampton-wanderers-vs-chelsea-premier-league-preview-team-news-how-to-watch) - **SB Nation**
-9. [Chelsea XI vs Wolves – Predicted lineup and team news](https://thefootballfaithful.com/chelsea-xi-vs-wolves-predicted-lineup-and-team-news-3/) - **The Football Faithful**
+1. [Where to watch Wrexham vs. Millwall live stream, TV channel, start time for EFL Championship match](https://www.sportingnews.com/us/soccer/news/watch-wrexham-vs-millwall-live-stream-tv-channel-start-time/4e4c70b09cde61444ffd9327) - **Sporting News**
+2. [Top 5⃣ stories: Fermín renews, Copa semis set, Barrios out](https://onefootball.com/en/news/top-5-stories-fermin-renews-copa-semis-set-barrios-out-42371924) - **Onefootball.com**
+3. [How to watch Manchester United vs Tottenham in the USA: Live Stream and TV for 2025/2026 Premier League](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-manchester-united-vs-tottenham-in-the-usa-live-stream-and-tv-for-2025-2026-premier-league/) - **Worldsoccertalk.com**
+4. [Arsenal v Sunderland: the current form and the source of goals](https://untold-arsenal.com/archives/119352) - **Untold-arsenal.com**
+5. [Manchester City’s updated Premier League squad after January transfer window](https://cityxtra.co.uk/41390/manchester-citys-updated-premier-league-squad-after-january-transfer-window/) - **Cityxtra.co.uk**
+6. [Liverpool v Manchester City – Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/premier-league-odds/liverpool-v-manchester-city-line-ups-stats-and-preview/) - **101 Great Goals**
+7. [Liverpool star looking to maintain incredible record against Man City](https://anfieldindex.com/90962/liverpool-star-looking-to-maintain-incredible-record-against-man-city.html) - **Anfieldindex.com**
+8. [Man United Starting XI vs Spurs: Confirmed Team News and Predicted Lineup](https://eplindex.com/142536/man-united-starting-xi-vs-spurs-confirmed-team-news-and-predicted-lineup.html) - **English Premier League Index - Opta Stats**
+9. [Football charity's 20 years sending kit to Africa](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5c1b8c9f-88ee-4cd6-9296-cd6b88397816) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-08 16:52:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-08 17:37:16 (KST) / (하루 100회 제한 준수 중)*
