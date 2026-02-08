@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arteta tells Arsenal fans to make “the best atmosphere” against Sunderland](https://www.justarsenal.com/arteta-tells-arsenal-fans-to-make-the-best-atmosphere-against-sunderland/409468) - **Just Arsenal News**
-2. [Valencia v Real Madrid – Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/la-liga-odds/valencia-v-real-madrid-line-ups-stats-and-preview/) - **101 Great Goals**
-3. [Opta predicts Liverpool’s crucial clash with Man City](https://anfieldindex.com/90963/opta-predicts-liverpools-crucial-clash-with-man-city.html) - **Anfieldindex.com**
-4. [India now sets the terms of global cricket](https://www.aljazeera.com/opinions/2026/2/7/india-now-sets-the-terms-of-global-cricket) - **Al Jazeera English**
-5. [Chelsea fans’ preferred lineup against Wolves: Chance for Garnacho?](https://weaintgotnohistory.sbnation.com/premier-league/165967/chelsea-fans-preferred-lineup-against-wolves-chance-for-garnacho) - **SB Nation**
-6. [Odegaard on his injury and looking at big picture](http://www.arsenal.com/news/odegaard-his-injury-and-looking-big-picture) - **Arsenal.com**
-7. [Everton XI vs Fulham – Predicted lineup and team news](https://thefootballfaithful.com/everton-xi-vs-fulham-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-8. [Premier League five-year net spend ranking: How top clubs have gambled their fortune as Newcastle break into top six](https://sportsview.co.uk/2026/02/premier-league-five-year-net-spend-ranking-how-top-clubs-have-gambled-their-fortune-as-newcastle-break-into-top-six?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=premier-league-five-year-net-spend-ranking-how-top-clubs-have-gambled-their-fortune-as-newcastle-break-into-top-six) - **Sportsview.co.uk**
+1. [League title still within City's grasp, says Guehi](https://www.rte.ie/sport/soccer/2026/0207/1557238-league-title-still-within-citys-grasp-says-guehi/) - **RTE**
+2. [Ex-Gunner agrees deal after surprise Arsenal return comments](https://dailycannon.com/2026/02/arsenal-oxlade-chamberlain-celtic-medical/) - **Dailycannon.com**
+3. [Premier League Soccer 2026: Stream Man United vs. Tottenham Live](https://www.cnet.com/tech/services-and-software/premier-league-soccer-2026-stream-man-united-vs-tottenham/) - **CNET**
+4. [Manchester United vs. Tottenham Hotspur: game time, blog, and how to watch online](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-match-threads/68897/manchester-united-vs-tottenham-hotspur-game-time-blog-and-how-to-watch-online) - **SB Nation**
+5. [LIVE: Manchester United vs Tottenham Hotspur – Premier League](https://www.aljazeera.com/sports/liveblog/2026/2/7/live-manchester-united-vs-tottenham-hotspur-premier-league) - **Al Jazeera English**
+6. [Arteta tells Arsenal fans to make “the best atmosphere” against Sunderland](https://www.justarsenal.com/arteta-tells-arsenal-fans-to-make-the-best-atmosphere-against-sunderland/409468) - **Just Arsenal News**
+7. [Valencia v Real Madrid – Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/la-liga-odds/valencia-v-real-madrid-line-ups-stats-and-preview/) - **101 Great Goals**
+8. [Opta predicts Liverpool’s crucial clash with Man City](https://anfieldindex.com/90963/opta-predicts-liverpools-crucial-clash-with-man-city.html) - **Anfieldindex.com**
+9. [India now sets the terms of global cricket](https://www.aljazeera.com/opinions/2026/2/7/india-now-sets-the-terms-of-global-cricket) - **Al Jazeera English**
 
 
 ---
-*최근 업데이트: 2026-02-08 18:02:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-08 18:47:59 (KST) / (하루 100회 제한 준수 중)*
