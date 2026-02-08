@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Player ratings as Man Utd end barren run vs Tottenham](https://sportsview.co.uk/2026/02/player-ratings-as-man-utd-end-barren-run-vs-tottenham?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=player-ratings-as-man-utd-end-barren-run-vs-tottenham) - **Sportsview.co.uk**
-2. [Man Utd beat Spurs as Romero sees red and pressure mounts on Frank](https://www.skysports.com/football/news/11661/13503144/man-utd-2-0-tottenham-cristian-romero-sent-off-in-same-week-as-social-media-rant-as-spurs-beaten-in-premier-league-again) - **Sky Sports**
-3. [Premier League: Man United see off Tottenham!](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_42d895a3-a5c4-401c-87cf-df82e462a608) - **Yahoo Entertainment**
-4. [Tottenham captain Cristian Romero shown red card vs. Manchester United](https://www.usatoday.com/story/sports/soccer/2026/02/07/cristian-romero-red-card-tottenham-captain-vs-man-utd/88564533007/) - **USA Today**
-5. [Viviano ‘smelled of alcohol’ before Everton-Arsenal, but Inter the only regret](https://football-italia.net/viviano-smell-of-alcohol-everton-arsenal-inter/) - **Football Italia**
-6. [Juventus & Napoli Target Emerges As Top Priority For Inter Milan In Summer Market](https://sempreinter.com/2026/02/07/inter-palestra-priority-juventus-napoli/) - **SempreInter**
-7. [Super Bowl Pacific time kickoff: Patriots vs. Seahawks start time, schedule, channel, streaming to watch 2026 game live](https://www.sportingnews.com/us/nfl/news/super-bowl-pacific-time-kickoff-start-schedule-channel-streaming-watch/f161e38ac9753fb9f26b423d) - **Sporting News**
-8. [Vincent Kompany’s chances of becoming next Manchester City manager revealed](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2e612361-afdf-41bf-9311-482b9780313a) - **Yahoo Entertainment**
-9. [MHH Roundtable: Olympic Thoughts](https://www.milehighhockey.com/mhh-roundtables/61124/mhh-roundtable-olympic-thoughts) - **Mile High Hockey**
-10. [Newcastle Reportedly Set Three-Figure Asking Price for Sandro Tonali](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/20367/newcastle-reportedly-set-three-figure-asking-price-for-sandro-tonali) - **SB Nation**
+1. [Vicario ‘so proud’ of Tottenham team-mates despite another loss under Thomas Frank](https://www.101greatgoals.com/football/premier-league/vicario-so-proud-of-tottenham-team-mates-despite-another-loss-under-thomas-frank/) - **101 Great Goals**
+2. [“How can you say no?” – Hugo Ekitike reveals why he chose to join Liverpool](https://anfieldindex.com/90974/how-can-you-say-no-hugo-ekitike-reveals-why-he-chose-to-join-liverpool.html) - **Anfieldindex.com**
+3. [Report: Liverpool set to battle Man United in the race to sign Bundesliga forward](https://eplindex.com/142543/report-liverpool-set-to-battle-man-united-in-the-race-to-sign-bundesliga-forward.html) - **English Premier League Index - Opta Stats**
+4. [Carrick extends winning run as Man United beat 10-man Tottenham 2-0](https://www.aljazeera.com/sports/2026/2/7/carrick-extends-winning-run-as-man-united-beat-10-man-tottenham-2-0) - **Al Jazeera English**
+5. [Vicario Gets 8, Romero With 4.5 | Tottenham Hotspur Players Rated In Tough Loss Vs Manchester United](https://the4thofficial.net/2026/02/vicario-gets-8-romero-with-4-5-tottenham-hotspur-players-rated-in-tough-loss-vs-manchester-united/) - **The4thofficial.net**
+6. [Man United win again as ten-man Tottenham are seen off](https://www.rte.ie/sport/soccer/2026/0207/1557221-man-united-win-again-as-ten-man-tottenham-are-seen-off/) - **RTE**
+7. [Bournemouth vs Aston Villa LIVE updates, watch live, score, analysis, highlights](https://www.nbcsports.com/soccer/news/bournemouth-vs-aston-villa-live-updates-score-highlights-stats-watch) - **NBCSports.com**
+8. [Manchester City have to take this Liverpool side on head-on.](https://esteemedkompany.com/2026/02/07/manchester-city-have-to-take-this-liverpool-side-on-head-on/) - **Esteemedkompany.com**
+9. [Mainoo, Dalot And Fernandes Get 8 | Manchester United Players Rated In Solid Win Vs Tottenham Hotspur](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_44b3ddbc-baf9-4b9d-a00c-768f3c205fc9) - **Yahoo Entertainment**
+10. [Kenyans light up Charlton Athletic’s social media after Collins Sichenje's big move to England](https://www.citizen.digital/entertainment/kenyans-light-up-charlton-athletics-social-media-after-collins-sichenjes-big-move-to-england-n377086) - **Citizen.digital**
 
 
 ---
-*최근 업데이트: 2026-02-08 23:32:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-08 23:59:29 (KST) / (하루 100회 제한 준수 중)*
