@@ -1,16 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United interested in Michael Kayode](https://foot-africa.com/en/news/manchester-united-interested-in-michael-kayode-1076882/) - **Foot-africa.com**
-2. [Atletico Madrid vs Real Betis – Match preview and team news](https://thefootballfaithful.com/atletico-madrid-vs-real-betis-match-preview-and-team-news/) - **The Football Faithful**
-3. [Atletico Madrid vs Real Betis – Predicted lineup and team news](https://thefootballfaithful.com/atletico-madrid-vs-real-betis-predicted-lineup-and-team-news/) - **The Football Faithful**
-4. [Liverpool vs Manchester City – Combined XI](https://thefootballfaithful.com/liverpool-vs-manchester-city-combined-xi-2/) - **The Football Faithful**
-5. [Juventus vs Lazio – Match preview and team news](https://thefootballfaithful.com/juventus-vs-lazio-match-preview-and-team-news/) - **The Football Faithful**
-6. [“I want to be the best in everything” – Pep Guardiola makes major Manchester City future admission](https://cityxtra.co.uk/41410/i-want-to-be-the-best-in-everything-pep-guardiola-makes-major-manchester-city-future-admission/) - **Cityxtra.co.uk**
-7. [How many points does Arsenal need to win the league?](https://untold-arsenal.com/archives/119380) - **Untold-arsenal.com**
-8. [Arsenal: key player set for surgery](https://foot-africa.com/en/news/arsenal-key-player-set-for-surgery-1076855/) - **Foot-africa.com**
-9. [£160k per week Liverpool defender opens talks over free transfer](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4e6c2894-d548-418a-bf4e-f3ce81b1442c) - **Yahoo Entertainment**
-10. [“Focus” Ian Wright reacts to Arsenal’s win against Sunderland](https://www.justarsenal.com/focus-ian-wright-reacts-to-arsenals-win-against-sunderland/409512) - **Just Arsenal News**
+1. [Report: Liverpool star offered mega money deal](https://anfieldindex.com/90987/report-liverpool-star-offered-mega-money-deal.html) - **Anfieldindex.com**
+2. [Report: Chelsea and Spurs among clubs chasing Serie A hitman](https://eplindex.com/142559/report-chelsea-and-spurs-among-clubs-chasing-serie-a-hitman.html) - **English Premier League Index - Opta Stats**
+3. [Senior figures at Man United stepping up interest in £50m-rated Italian powerhouse](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5c543a3a-59b8-41ec-83b7-89edb5f0393a) - **Yahoo Entertainment**
+4. [Liverpool vs. Manchester City: Premier League 2025-26 Live Coverage & How to Watch](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_938eee61-3c99-4dad-9afc-726032f7a8c9) - **Yahoo Entertainment**
+5. [Anfield, the ground that strikes fear into Erling Haaland ](https://onefootball.com/en/news/anfield-the-ground-that-strikes-fear-into-erling-haaland-42377640) - **Onefootball.com**
+6. [Big battle for Jules Koundé in the Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_afd9653d-60e3-43bd-b27c-1b4424c57782) - **Yahoo Entertainment**
+7. [Chelsea vs Leeds: Match preview, predicted line-ups, team news and prediction](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_26fe8f3f-fd76-48bc-9703-aae8bd3393f6) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-09 18:41:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-09 19:58:13 (KST) / (하루 100회 제한 준수 중)*
