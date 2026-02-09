@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [EPL: Palace beat Brighton 1-0 to end 12-game winless run](https://punchng.com/epl-palace-beat-brighton-1-0-to-end-12-game-winless-run/) - **The Punch**
-2. [Palace snap nine-game winless run by beating Brighton](https://www.channelnewsasia.com/sport/palace-snap-nine-game-winless-run-beating-brighton-5916216) - **CNA**
-3. [Cristiano Ronaldo’s drama reportedly pushes a Premier League star closer to a Saudi Pro League move in the 2026-27](https://worldsoccertalk.com/news/cristiano-ronaldos-drama-reportedly-pushes-a-premier-league-star-closer-to-a-saudi-pro-league-move-in-the-2026-27/) - **Worldsoccertalk.com**
-4. [Ismaila Sarr haunts Brighton to end Palace’s 12-match winless nightmare](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e463b8f4-eb48-4a5c-8a7d-d195a9933661) - **Yahoo Entertainment**
-5. [Three sporting events to watch this week: Your handy guide to sport on television](https://www.irishtimes.com/sport/2026/02/08/three-sporting-events-to-watch-this-week-your-handy-guide-to-sport-on-television/) - **The Irish Times**
-6. [La Liga Soccer: Stream Valencia vs. Real Madrid Live From Anywhere](https://www.cnet.com/tech/services-and-software/la-liga-soccer-stream-valencia-vs-real-madrid-live-from-anywhere/) - **CNET**
-7. [Sarr strikes as Palace end winless run at Brighton](https://sports.yahoo.com/articles/sarr-strikes-palace-end-winless-165307758.html) - **Yahoo Entertainment**
-8. [Ismaila Sarr strike ends Crystal Palace’s 12-match winless run by beating bitter rivals Brighton away](https://www.independent.ie/sport/soccer/premier-league/ismaila-sarr-strike-ends-crystal-palaces-12-match-winless-run-by-beating-bitter-rivals-brighton-away/a1385146258.html) - **Independent.ie**
+1. [Man City 'needed' to beat Liverpool to keep title race alive: Silva](https://sports.yahoo.com/articles/man-city-needed-beat-liverpool-191508817.html) - **Yahoo Entertainment**
+2. [Haaland And Donnarumma Get 8 | Manchester City Players Rated In Impressive Win Vs Liverpool](https://the4thofficial.net/2026/02/haaland-and-donnarumma-get-8-manchester-city-players-rated-in-impressive-win-vs-liverpool/) - **The4thofficial.net**
+3. [Man City fight back to win 2-1 at Liverpool and keep title hopes alive](https://www.aljazeera.com/sports/2026/2/8/man-city-come-back-to-win-2-1-at-liverpool-and-keep-title-hopes-alive) - **Al Jazeera English**
+4. [Haaland scores stoppage-time penalty to seal DRAMATIC win over Liverpool!](https://www.skysports.com/football/video/11095/13505050/liverpool-1-2-manchester-city-premier-league-highlights) - **Sky Sports**
+5. [Szoboszlai Gets 7, Alisson With 6 | Liverpool Players Rated In Tough Loss Vs Manchester City](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e2b3b777-c772-4345-b3d2-085be93812a9) - **Yahoo Entertainment**
+6. [Official: Blati Touré leaves Pyramids FC](https://foot-africa.com/en/news/official-blati-toure-leaves-pyramids-fc-1077572/) - **Foot-africa.com**
+7. [Late Haaland penalty hands City dramatic Anfield win](https://foot-africa.com/en/news/late-haaland-penalty-hands-city-dramatic-anfield-win-1077584/) - **Foot-africa.com**
+8. [Underdog Milton Williams a perfect fit for surprising Patriots team](https://www.providencejournal.com/story/sports/nfl/patriots/2026/02/08/milton-williams-has-been-a-perfect-fit-for-surprising-patriots-team/88578802007/) - **The Providence Journal**
+9. [Match Report & Player Ratings: Liverpool 1 – 2 Manchester City (Premier League)](https://cityxtra.co.uk/41425/match-report-player-ratings-liverpool-1-2-manchester-city-premier-league/) - **Cityxtra.co.uk**
+10. [Player Ratings: Erling Haaland scores late winner as Man City stun Liverpool](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c2dc215a-2b60-48aa-8284-8f7c519d43d6) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-10 02:51:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-10 04:20:41 (KST) / (하루 100회 제한 준수 중)*
