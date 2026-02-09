@@ -1,13 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Liverpool star offered mega money deal](https://anfieldindex.com/90987/report-liverpool-star-offered-mega-money-deal.html) - **Anfieldindex.com**
-2. [Report: Chelsea and Spurs among clubs chasing Serie A hitman](https://eplindex.com/142559/report-chelsea-and-spurs-among-clubs-chasing-serie-a-hitman.html) - **English Premier League Index - Opta Stats**
-3. [Senior figures at Man United stepping up interest in £50m-rated Italian powerhouse](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5c543a3a-59b8-41ec-83b7-89edb5f0393a) - **Yahoo Entertainment**
-4. [Liverpool vs. Manchester City: Premier League 2025-26 Live Coverage & How to Watch](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_938eee61-3c99-4dad-9afc-726032f7a8c9) - **Yahoo Entertainment**
-5. [Anfield, the ground that strikes fear into Erling Haaland ](https://onefootball.com/en/news/anfield-the-ground-that-strikes-fear-into-erling-haaland-42377640) - **Onefootball.com**
-6. [Big battle for Jules Koundé in the Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_afd9653d-60e3-43bd-b27c-1b4424c57782) - **Yahoo Entertainment**
-7. [Chelsea vs Leeds: Match preview, predicted line-ups, team news and prediction](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_26fe8f3f-fd76-48bc-9703-aae8bd3393f6) - **Yahoo Entertainment**
+1. [“Hopefully” – Liam Rosenior provides Reece James update and reveals game he could return for](https://chelsea.news/2026/02/liam-rosenior-reece-james-fitness-update/) - **Chelsea.news**
+2. [Liam Rosenior issues key update on Reece James’ fitness after Chelsea win over Wolves](https://www.hitc.com/liam-rosenior-issues-key-update-on-reece-james-fitness-after-chelsea-win-over-wolves/) - **HITC - Football, Gaming, Movies, TV, Music**
+3. [“Really special” Sunderland star praises Arsenal man](https://www.justarsenal.com/really-special-sunderland-star-praises-arsenal-man/409535) - **Just Arsenal News**
+4. [Cleworth's rise from National League to brink of Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2d6348aa-b4b4-417b-a13c-742782b9ee1f) - **Yahoo Entertainment**
+5. [Cleworth's rise from National League to brink of Premier League](https://www.bbc.com/sport/football/articles/cx2lxdw3j7yo) - **BBC News**
+6. [Gruev earns Hisense Player of the Match after starring role in Forest win](https://www.leedsunited.com/en/news/hisense-player-of-the-match-forest-feb26) - **Leedsunited.com**
+7. [United legend explains why Kobbie Mainoo reminds him of George Best](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_47316849-1e72-4971-84b2-64ce18988015) - **Yahoo Entertainment**
+8. [What time will the Super Bowl end? When history says Patriots vs. Seahawks will wrap](https://www.usatoday.com/story/sports/nfl/super-bowl/2026/02/08/what-time-super-bowl-60-end/88512241007/) - **USA Today**
+9. [Report: Liverpool star offered mega money deal](https://anfieldindex.com/90987/report-liverpool-star-offered-mega-money-deal.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-02-09 19:58:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-09 20:52:59 (KST) / (하루 100회 제한 준수 중)*
