@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Women’s and Men’s Golf Added to Apple Sports](https://www.ilounge.com/news/apple/womens-and-mens-golf-added-to-apple-sports) - **iLounge**
-2. [How to watch Liverpool vs Man City](https://www.skysports.com/football/news/11669/13503516/watch-liverpool-vs-man-city-tv-channel-live-stream-now-tv-team-news-and-score-prediction) - **Sky Sports**
-3. [Liverpool predicted XI vs Man City: Slot set to unleash Ekitike and Wirtz for Anfield blockbuster](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_86d5efe2-6e4f-4ef5-96b8-a7cbb8b9c1cc) - **Yahoo Entertainment**
-4. [Garnacho criticised after another frustrating Chelsea performance](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f05d0ea9-3ea8-4ace-9bdb-e5d0f328a6d8) - **Yahoo Entertainment**
-5. [The new top-flight Canadian club inspired by Athletic Bilbao](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_14592a34-acf1-409f-b523-6f4f12f94f5d) - **Yahoo Entertainment**
-6. [The new top-flight Canadian club inspired by Athletic Bilbao](https://www.bbc.com/sport/articles/cly94d9engpo) - **BBC News**
-7. [View: Romero is the ‘disgraceful’ one after letting Tottenham down again](https://sportsview.co.uk/2026/02/view-romero-is-the-disgraceful-one-after-letting-tottenham-down-again?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=view-romero-is-the-disgraceful-one-after-letting-tottenham-down-again) - **Sportsview.co.uk**
-8. [Phagwara to Italy: The long road of cricketer Jaspreet Singh](https://economictimes.indiatimes.com/news/sports/phagwara-to-italy-the-long-road-of-cricketer-jaspreet-singh/articleshow/128061520.cms) - **The Times of India**
-9. [Manchester City vs Liverpool: Latest City injury and team news, and predicted City starting XI](https://esteemedkompany.com/2026/02/08/manchester-city-vs-liverpool-latest-city-injury-and-team-news-and-predicted-city-starting-xi/) - **Esteemedkompany.com**
+1. [Tutierov has 'huge future' after first Exeter start](https://www.bbc.com/sport/football/articles/ckgjg5m9je2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [European giants step up transfer interest in ‘authoritative’ Liverpool star](https://www.anfieldwatch.co.uk/liverpool-fc/news/european-giants-step-up-transfer-interest-in-authoritative-liverpool-star/) - **Anfieldwatch.co.uk**
+3. [Where to watch Liverpool vs. Man City live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/ca/soccer/news/watch-liverpool-man-city-live-stream-tv-channel-start-time-premier-league/0cf19e0206f67eb8a920eb13) - **Sporting News**
+4. [“I had a lot of info…” – Pep Guardiola hails Pepijn Lijnders influence ahead of Liverpool title-decider](https://cityxtra.co.uk/41409/i-had-a-lot-of-info-pep-guardiola-hails-pepijn-lijnders-influence-ahead-of-liverpool-title-decider/) - **Cityxtra.co.uk**
+5. [College basketball scores, winners and losers: North Carolina, Kentucky, Alabama rally to win rivalry games](https://www.cbssports.com/college-basketball/news/college-basketball-scores-winners-losers-north-carolina-duke-alabama-kentucky-auburn/) - **CBS Sports**
+6. [Sandro Tonali in Real Madrid's sights](https://foot-africa.com/en/news/sandro-tonali-in-real-madrids-sights-1076756/) - **Foot-africa.com**
+7. [Women’s and Men’s Golf Added to Apple Sports](https://www.ilounge.com/news/apple/womens-and-mens-golf-added-to-apple-sports) - **iLounge**
+8. [How to watch Liverpool vs Man City](https://www.skysports.com/football/news/11669/13503516/watch-liverpool-vs-man-city-tv-channel-live-stream-now-tv-team-news-and-score-prediction) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-02-09 16:34:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-09 17:28:07 (KST) / (하루 100회 제한 준수 중)*
