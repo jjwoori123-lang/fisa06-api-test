@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Former Liverpool star sends sack warning to Arne Slot after recent struggles](https://anfieldindex.com/91023/former-liverpool-star-sends-sack-warning-to-arne-slot-after-recent-struggles-2.html) - **Anfieldindex.com**
-2. [Six points and five goals clear: but how does that relate to the use of the squad?](https://untold-arsenal.com/archives/119396) - **Untold-arsenal.com**
-3. [“A joy to watch” – Former Liverpool star heaps praise on summer signings](https://eplindex.com/142589/a-joy-to-watch-former-liverpool-star-heaps-praise-on-summer-signings-2.html) - **English Premier League Index - Opta Stats**
-4. [Premier League Awards: City send statement, Delightful Dango](https://thefootballfaithful.com/premier-league-awards-city-send-statement-delightful-dango/) - **The Football Faithful**
-5. [Ref Watch LIVE! Liverpool, Man City, Newcastle incidents to be analysed](https://www.skysports.com/football/live-blog/11095/13505157/ref-watch-live-man-city-newcastle-incidents-and-more-analysed-by-former-premier-league-referee-dermot-gallagher) - **Sky Sports**
-6. [Mainoo shining under Carrick at Man Utd - what was Amorim missing?](https://www.skysports.com/football/news/11095/13504090/kobbie-mainoos-man-utd-form-under-michael-carrick-shows-why-ruben-amorim-made-a-mistake-in-ignoring-him) - **Sky Sports**
-7. [Revenge, thrashings and more: the top 5️⃣ stories this Monday](https://onefootball.com/en/news/revenge-thrashings-and-more-the-top-5-stories-this-monday-42381751) - **Onefootball.com**
-8. [Hartlepool appoint ex-defender Liddle as coach](https://www.bbc.com/sport/football/articles/c3ewjkjxxedo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Ex-Premier League striker turned Netflix star aims for James Bond or Marvel role](https://www.hitc.com/ex-premier-league-striker-turned-netflix-star-aims-for-james-bond-or-marvel-role/) - **HITC - Football, Gaming, Movies, TV, Music**
+1. [Arteta explains what Arsenal must do to win the Premier League title](https://www.justarsenal.com/arteta-explains-what-arsenal-must-do-to-win-the-premier-league-title/409613) - **Just Arsenal News**
+2. [Serie A clubs target £21m Liverpool forward](https://eplindex.com/142592/serie-a-clubs-target-21m-liverpool-forward.html) - **English Premier League Index - Opta Stats**
+3. [United hunt fifth straight win to crack the top three, but Nuno’s resurgent Hammers stand in the way](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_72ca2402-4f8a-467b-a52d-1b5acc3c6ab7) - **Yahoo Entertainment**
+4. [Iliman Ndiaye, hot target for Arsenal and Chelsea?](https://foot-africa.com/en/news/iliman-ndiaye-hot-target-for-arsenal-and-chelsea-noadsense-1078229/) - **Foot-africa.com**
+5. [‘What they’ve said is…’: Neville divulges fresh info he’s heard directly from Utd over managerial appointment](https://strettynews.com/2026/02/09/gary-neville-michael-carrick-manchester-united-managerial-appointment/) - **Strettynews.com**
+6. [How can I watch City v Fulham on TV?](https://www.mancity.com/news/mens/city-v-fulham-tv-listings-9-feb-63906069) - **Manchester City FC**
+7. [Gary Neville discusses United’s chances of Champions League qualification](https://thepeoplesperson.com/2026/02/09/gary-neville-discusses-uniteds-chances-of-champions-league-qualification-304867/) - **The Peoples Person**
+8. [A bookmaker has paid out on Arsenal to win the Premier League. Man City is not ready to concede yet](https://sports.yahoo.com/articles/bookmaker-paid-arsenal-win-premier-090237342.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-10 17:59:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-10 19:08:09 (KST) / (하루 100회 제한 준수 중)*
