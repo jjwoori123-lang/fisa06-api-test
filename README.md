@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Familiar frailties return](https://www.bbc.com/sport/football/articles/c1w57ze19y5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Dewsbury-Hall ready to step up in Grealish absence](https://www.bbc.com/sport/football/articles/cwyk5wg2rejo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [A win that sends a signal: How Bayern overcame Hoffenheim](https://fcbayern.com/en/news/2026/02/analysis-bundesliga-bayern-vs.-hoffenheim) - **Fcbayern.com**
-4. ['It's not easy' - Gasperini on Ferguson's ankle issues](https://www.rte.ie/sport/soccer/2026/0208/1557409-its-not-easy-gasperini-on-fergusons-ankle-issues/) - **RTE**
-5. [Where to watch USA mixed doubles curling in Olympic semifinals: Time, TV schedule, channel, live stream for 2026](https://www.sportingnews.com/us/olympics/news/watch-usa-mixed-doubles-curling-olympic-time-schedule-channel-stream/49144b51b7a6a6524303983d) - **Sporting News**
-6. [Manchester City Are Showing Interest In This Newcastle United Midfielder: Decent Choice For Pep?](https://the4thofficial.net/2026/02/manchester-city-are-showing-interest-in-this-newcastle-united-midfielder-decent-choice-for-pep/) - **The4thofficial.net**
-7. [Robert Lewandowski joins Messi and Ronaldo in elite goalscoring club after Barcelona strike](https://worldsoccertalk.com/news/robert-lewandowski-joins-messi-and-ronaldo-in-elite-goalscoring-club-after-barcelona-strike/) - **Worldsoccertalk.com**
-8. ['Killjoy' - did VAR get late drama in Liverpool v Man City right? - BBC](https://slashdot.org/firehose.pl?op=view&amp;id=180758406) - **Slashdot.org**
-9. [Americans Abroad Weekend Rewind: Richards, Thompson and more](https://sbisoccer.com/2026/02/americans-abroad-weekend-rewind-richards-thompson-and-more) - **Sbisoccer.com**
-10. [Bruno Fernandes keeps edging his name at Manchester United by overtaking Ronaldo and David Beckham in major record](https://worldsoccertalk.com/news/bruno-fernandes-keeps-edging-his-name-at-manchester-united-by-overtaking-ronaldo-and-david-beckham-in-major-record/) - **Worldsoccertalk.com**
+1. [Santi Cazorla criticises La Liga following Real Oviedo controversy – “Light years away from the Premier League”](https://www.football-espana.net/2026/02/09/santi-cazorla-criticises-la-liga) - **Football Espana**
+2. [Osimhen scores again as Lookman suffers first Atletico defeat](https://punchng.com/osimhen-scores-again-as-lookman-suffers-first-atletico-defeat/) - **The Punch**
+3. [CNS Spikers, Nigeria Customs win volleyball Super Cup](https://punchng.com/cns-spikers-nigeria-customs-win-volleyball-super-cup/) - **The Punch**
+4. [Liverpool 1-2 Manchester City: Haaland, Silva, Szoboszlai, and nine minutes that altered the title, top-five outlook - NBC Sports](https://slashdot.org/firehose.pl?op=view&amp;id=180758772) - **Slashdot.org**
+5. [NPFL: Ikorodu go top as Remo drop to 19th](https://punchng.com/npfl-ikorodu-go-top-as-remo-drop-to-19th/) - **The Punch**
+6. [Mixed summer for hiring: Gig jobs rise as permanent roles stay elusive](https://www.livemint.com/companies/news/mixed-summer-for-hiring-gig-jobs-rise-as-permanent-roles-stay-elusive-11770540404761.html) - **Livemint**
+7. [Pep Guardiola sends Arsenal warning as Manchester City stay in title hunt](https://www.sportingnews.com/us/soccer/news/pep-guardiola-sends-arsenal-warning-manchester-city-stay-title-hunt/c23cafb64b5b5956d06e234a) - **Sporting News**
+8. [Why Hyundai hitched its wagon to the ICC as cricket aims to go global](https://www.livemint.com/companies/people/hyundai-cricket-sponsorship-icc-premier-partner-11770281514771.html) - **Livemint**
+9. [Op-Ed: The new playbook for Indian sports’ Amrit Kaal](https://www.livemint.com/opinion/india-sports-industry-amrit-kaal-130-billion-opportunity-2030-11770220599313.html) - **Livemint**
+10. [How much Newcastle United wants before selling Arsenal target](https://www.justarsenal.com/how-much-newcastle-united-wants-before-selling-arsenal-target/409606) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-02-10 08:49:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-10 11:42:44 (KST) / (하루 100회 제한 준수 중)*
