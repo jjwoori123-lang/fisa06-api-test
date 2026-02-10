@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Palmer scores first-half hat-trick in Chelsea win](https://thechronicle.com.gh/palmer-scores-first-half-hat-trick-in-chelsea-win/) - **Thechronicle.com.gh**
-2. [Aston Villa falter as Bournemouth earn draw](https://thechronicle.com.gh/aston-villa-falter-as-bournemouth-earn-draw/) - **Thechronicle.com.gh**
-3. [Crystal Palace beat Brighton to end winless run](https://thechronicle.com.gh/crystal-palace-beat-brighton-to-end-winless-run/) - **Thechronicle.com.gh**
-4. [HBO Max to Launch in the UK & Ireland on Thursday, March 26](http://www.thefutoncritic.com/news/2026/02/09/hbo-max-to-launch-in-the-uk-and-ireland-on-thursday-march-26-618512/20260209wbd01/) - **Thefutoncritic.com**
-5. [Santi Cazorla criticises La Liga following Real Oviedo controversy – “Light years away from the Premier League”](https://www.football-espana.net/2026/02/09/santi-cazorla-criticises-la-liga) - **Football Espana**
-6. [Osimhen scores again as Lookman suffers first Atletico defeat](https://punchng.com/osimhen-scores-again-as-lookman-suffers-first-atletico-defeat/) - **The Punch**
-7. [CNS Spikers, Nigeria Customs win volleyball Super Cup](https://punchng.com/cns-spikers-nigeria-customs-win-volleyball-super-cup/) - **The Punch**
-8. [Liverpool 1-2 Manchester City: Haaland, Silva, Szoboszlai, and nine minutes that altered the title, top-five outlook - NBC Sports](https://slashdot.org/firehose.pl?op=view&amp;id=180758772) - **Slashdot.org**
-9. [NPFL: Ikorodu go top as Remo drop to 19th](https://punchng.com/npfl-ikorodu-go-top-as-remo-drop-to-19th/) - **The Punch**
+1. [K League in 2025-2026 AFC Champions League Match Day 7 Preview](http://www.kleagueunited.com/2026/02/k-league-in-2025-2026-afc-champions.html) - **Kleagueunited.com**
+2. [Tottenham in relegation battle, says Rooney](https://www.bbc.com/sport/football/articles/cn5gr167x3yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Tottenham in relegation battle, says Rooney](https://www.bbc.com/sport/football/articles/cn5gr167x3yo) - **BBC News**
+4. [Ken Early: Liverpool succumbed to a familiar hysteria in late collapse against Manchester City](https://www.irishtimes.com/sport/soccer/2026/02/09/ken-early-liverpool-succumbed-to-a-familiar-hysteria-in-late-collapse-against-manchester-city/) - **The Irish Times**
+5. [Where to watch USA women's hockey: Channel, live stream, time, TV schedule for 2026 Olympics game vs. Switzerland](https://www.sportingnews.com/us/olympics/news/watch-usa-womens-hockey-channel-stream-time-schedule-switzerland/89b2fc26c520d3acdeb2e1ca) - **Sporting News**
+6. [The Wayne Rooney Show](https://www.bbc.co.uk/sounds/play/p0myv14t) - **BBC News**
+7. [Home Is Where The Heart Is](https://rokerreport.sbnation.com/opinion/125379/home-is-where-the-heart-is) - **SB Nation**
+8. [Saying Goodbye To The Class Of 2024/25](https://rokerreport.sbnation.com/opinion/125351/saying-goodbye-to-the-class-of-2024-25) - **SB Nation**
+9. [Palmer scores first-half hat-trick in Chelsea win](https://thechronicle.com.gh/palmer-scores-first-half-hat-trick-in-chelsea-win/) - **Thechronicle.com.gh**
 
 
 ---
-*최근 업데이트: 2026-02-10 14:06:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-10 15:38:37 (KST) / (하루 100회 제한 준수 중)*
