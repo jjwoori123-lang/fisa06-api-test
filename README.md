@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bruno Fernandes reacts as Manchester United fan closes in on haircut vow](https://thepeoplesperson.com/2026/02/09/bruno-fernandes-reacts-as-manchester-united-fan-closes-in-on-haircut-vow-306248/) - **The Peoples Person**
-2. [Real Madrid starlet’s agent opens up on January exit, future: ‘The decision has already been made’](https://madriduniversal.com/real-madrid-starlets-agent-opens-up-on-january-exit-future-the-decision-has-already-been-made/) - **Madriduniversal.com**
-3. [Analysing Fulham ahead of our Premier League meeting](https://www.mancity.com/news/mens/fulham-home-opta-analysis-february-2026-63906244) - **Manchester City FC**
-4. [The perils of experimenting with a back four](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_af901b0c-9d4c-4e77-9e98-872794a9a37f) - **Yahoo Entertainment**
-5. ['Let's give Liverpool hell'](https://www.bbc.com/sport/football/articles/c05vjry08j9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. ['A mammoth psychological boost'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_cc2886d1-93c0-44f2-bedc-dc3f763ce6a1) - **Yahoo Entertainment**
-7. [Nottingham Forest latest departure shines harsh light on club’s recruitment decisions](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_466c666a-56e4-4b9e-b840-d177bbf04ece) - **Yahoo Entertainment**
-8. [The Cannon and Keyboard: perceptions and opinions](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1fa1af4d-552b-4cbe-9411-a412edaeccf4) - **Yahoo Entertainment**
-9. [Tottenham Hotspur vs Newcastle United: Test your knowledge with our pre-Spurs quiz](https://www.newcastleunited.com/en/news/tottenham-hotspur-vs-newcastle-united-test-your-knowledge-with-our-pre-spurs) - **Newcastleunited.com**
-10. [Sutton's predictions v golf superstar & Arsenal fan Ian Poulter](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c1d85bff-5034-4c36-a3d9-b64a5ac0defa) - **Yahoo Entertainment**
+1. [Manchester City look to have a squad capable of going deep in the UEFA Champions League](https://esteemedkompany.com/2026/02/09/manchester-city-look-to-have-a-squad-capable-of-going-deep-in-the-uefa-champions-league/) - **Esteemedkompany.com**
+2. [Why have Leicester City been deducted points?](https://hayters.com/why-have-leicester-city-been-deducted-points/) - **Hayters.com**
+3. [Chelsea Are Facing Stiff Competition For This Juventus Forward: Should Rosenior Go For Him?](https://the4thofficial.net/2026/02/chelsea-are-facing-stiff-competition-for-this-juventus-forward-should-rosenior-go-for-him/) - **The4thofficial.net**
+4. [How should Chelsea line up against Leeds United to keep stacking Premier League wins?](https://weaintgotnohistory.sbnation.com/premier-league/166050/how-should-chelsea-line-up-against-leeds-united-to-keep-stacking-premier-league-wins) - **SB Nation**
+5. [Man Utd joins Arsenal in the race for Premier League star](https://www.justarsenal.com/man-utd-joins-arsenal-in-the-race-for-premier-league-star/409645) - **Just Arsenal News**
+6. [Greatest Of All Time: Bryan Danielson](https://www.wrestlinginc.com/2096788/greatest-of-all-time-goat-bryan-danielson/) - **Wrestling Inc.**
+7. [Nottingham Forest: Dyche rejects doubts about job security](https://www.101greatgoals.com/football/premier-league/nottingham-forest-dyche-job-security/) - **101 Great Goals**
+8. [Top-four tussle: Liverpool face Champions League chasers in season-defining quartet](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_96620751-9b14-4747-a482-d00507c8951f) - **Yahoo Entertainment**
+9. [Champions League Power Rankings: Inter surging ahead of knockout stage playoff round](https://www.cbssports.com/soccer/news/champions-league-power-rankings-inter-knockout-stage-playoff-round/) - **CBS Sports**
+10. [Harvard limiting the number of A grades is a good thing — even if students are melting down over it](https://nypost.com/2026/02/09/us-news/harvard-limiting-the-number-of-a-grades-is-a-good-thing-even-if-students-are-melting-down-over-it/) - **New York Post**
 
 
 ---
-*최근 업데이트: 2026-02-11 02:41:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-11 04:10:27 (KST) / (하루 100회 제한 준수 중)*
