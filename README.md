@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tottenham v Newcastle: Key stats and talking points](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e5d3b436-8b0b-4f47-a085-5bde4dcca396) - **Yahoo Entertainment**
-2. [Chelsea v Leeds: Key stats and talking points](https://www.bbc.com/sport/football/articles/cvgk5r0ypn0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [ Tuesday: Vitória v Fla, Liberta build-up, Premier League action](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f634334d-10da-478a-bc56-c7db829d688f) - **Yahoo Entertainment**
-4. [Grealish's season is over after surgery on left foot](https://www.rte.ie/sport/soccer/2026/0210/1557617-grealishs-season-is-over-after-surgery-on-left-foot/) - **RTE**
-5. [Where to watch Chelsea vs. Leeds United live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a469375c-73f5-4c1c-a2f4-55bbc2df61ca) - **Yahoo Entertainment**
-6. [Where to watch West Ham vs. Man United live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-west-ham-man-united-live-stream-tv-channel-time-premier-league/6e6b5ad527e3876a64d9ace0) - **Sporting News**
-7. [Le Bris analyses the key players in a Sunderland team defying history](https://www.skysports.com/football/news/11095/13505398/regis-le-bris-interview-sunderland-head-coach-analyses-the-key-players-in-his-team-such-as-granit-xhaka-robin-roefs-dan-ballard-and-brian-brobbey) - **Sky Sports**
-8. [Young Gun: Jack Talbot](http://www.arsenal.com/news/young-gun-jack-talbot) - **Arsenal.com**
-9. [Scottish Premiership talking points: Title race twist, derby drama and Ox debut?](https://www.skysports.com/football/news/11781/13505415/scottish-premiership-rangers-visit-motherwell-live-on-sky-sports-in-action-packed-midweek-card-with-hearts-and-celtic-also-featuring) - **Sky Sports**
-10. [West Ham United vs. Manchester United preview, kick-off time, how to watch, and team news](https://www.hitc.com/west-ham-united-vs-manchester-united-preview-kick-off-time-how-to-watch-and-team-news/) - **HITC - Football, Gaming, Movies, TV, Music**
+1. [Can you beat our Premier League top assisters quiz?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a0d723b0-c905-4b60-aa4a-555762663b2b) - **Yahoo Entertainment**
+2. [Can you beat our Premier League top assisters quiz?](https://www.bbc.com/sport/football/articles/cq8480e0pepo) - **BBC News**
+3. ['I can't stand what football is becoming' - Sutton on Howe critics](https://www.bbc.com/sport/football/articles/c70kzxxdx0ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Report: Juventus set to offer Weston McKennie a three-year contract extension](https://www.blackwhitereadallover.com/serie-a-campionato-2025-26-juventus/36356/report-juventus-set-to-offer-weston-mckennie-a-three-year-contract-extension) - **Black & White & Read All Over**
+5. [Brentford vs. Arsenal preview, kick-off time, how to watch, and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0bf67b8c-906e-4789-866e-fedc8a17ca6c) - **Yahoo Entertainment**
+6. [‘It won’t go into the team talk’: Michael Carrick plays down viral haircut fan as Manchester United chase fifth win against West Ham United](https://indianexpress.com/article/sports/football/michael-carrick-haircut-fan-manchester-united-5th-win-west-ham-10524201/) - **The Indian Express**
+7. [Dyche 'is the man' to see Forest 'through this kind of storm'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_874cf7ee-d2eb-4851-864c-5a2bcd7a4c08) - **Yahoo Entertainment**
+8. [Gyokeres is 'the man to dispatch' Gunners opponents](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0f6e60a8-1df5-4c4e-a11b-4f23be857c7e) - **Yahoo Entertainment**
+9. [Sunderland vs. Liverpool preview, kick-off time, how to watch, and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8687dd7e-0d36-4476-8efa-f152d0640f5b) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-11 17:28:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-11 18:35:04 (KST) / (하루 100회 제한 준수 중)*
