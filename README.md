@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Romeo is a Dead Man is a hyper-violent sci-fi trip that’s as gripping as it is mystifying](https://www.techradar.com/gaming/romeo-is-a-dead-man-review) - **TechRadar**
-2. [Charles Sagoe Jr joins Kalmar FF on loan](http://www.arsenal.com/news/charles-sagoe-jr-joins-kalmar-ff-loan) - **Arsenal.com**
-3. [USA curling live stream, 2026 Winter Olympics mixed gold medal match vs Sweden](https://www.thebiglead.com/usa-curling-live-stream-2026-winter-olympics-mixed-doubles-gold-medal-match-sweden/) - **The Big Lead**
-4. [Slot admits Reds ‘not performing to Liverpool standards’](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_05284005-d0f7-48eb-b5f8-c6247525be04) - **Yahoo Entertainment**
-5. [Has Gyokeres finally found form or are stats misleading?](https://www.bbc.com/sport/football/articles/c8d5jezj7y9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Let's not be deflected by title race talk, urges Pep](https://www.mancity.com/news/mens/pep-guardiola-manchester-city-v-fulham-written-preview-63906321) - **Manchester City FC**
-7. [Premier League (2025/26): Who is leading the scorers' chart?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6ebeab77-9c8b-4912-bf1d-3c0c953dd57d) - **Yahoo Entertainment**
-8. [Manchester City v Fulham: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/premier-league-odds/premier-league-manchester-city-fulham-preview/) - **101 Great Goals**
-9. [Ben Foster makes ‘massive fallout’ claim after Kobbie Mainoo’s Man Utd resurgence](https://www.hitc.com/ben-foster-makes-massive-fallout-claim-after-kobbie-mainoos-man-utd-resurgence/) - **HITC - Football, Gaming, Movies, TV, Music**
-10. [Como’s Jean Butez reveals France World Cup dream](https://www.getfootballnewsfrance.com/2026/comos-jean-butez-reveals-france-world-cup-dream/) - **Get French Football News**
+1. [Glasner on Devenny's return, Mateta and 'special' Brighton win](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_791b1b2f-a2b3-4980-9358-ffe05d0ee0f3) - **Yahoo Entertainment**
+2. [Ipswich have 'different profile' to 2024 promotion team](https://www.bbc.com/sport/football/articles/ce8n1qjgmgqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Which Man Utd ace made BBC Team of the Week as Kobbie Mainoo and Bryan Mbeumo miss out](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f8e0d28d-c7d5-4cf8-8b7e-6d6db6680d06) - **Yahoo Entertainment**
+4. [John Terry reacts as Cole Palmer is once again linked with Manchester United move](https://www.hitc.com/john-terry-reacts-as-cole-palmer-is-once-again-linked-with-manchester-united-move/) - **HITC - Football, Gaming, Movies, TV, Music**
+5. [Ian Bell takes on assistant coach role at Delhi Capitals for IPL 2026](https://www.business-standard.com/cricket/ipl/ian-bell-takes-on-assistant-coach-role-at-delhi-capitals-for-ipl-2026-126021001615_1.html) - **Business Standard**
+6. [Are Leeds safe?](https://www.bbc.com/sport/football/articles/c62gr2jeyjlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Jimenez feared limited Milan playing time, Nico Paz ‘ready’ for Real Madrid return](https://football-italia.net/jimenez-fear-limited-milan-time-paz-madrid/) - **Football Italia**
+8. [Guardiola seeks solution to Man City's second half struggles](https://sports.yahoo.com/articles/guardiola-seeks-solution-man-citys-143218286.html) - **Yahoo Entertainment**
+9. [Dortmund record strong six-month profits despite €11m salary hike](https://bulinews.com/dortmund-record-strong-six-month-profits-despite-11m-salary-hike) - **Bulinews.com**
 
 
 ---
-*최근 업데이트: 2026-02-11 23:01:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-12 00:16:24 (KST) / (하루 100회 제한 준수 중)*
