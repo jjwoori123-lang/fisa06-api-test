@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea throw away lead to drop points at Leeds, Newcastle take precious in over Spurs](https://www.irishtimes.com/sport/soccer/2026/02/10/chelsea-throw-away-lead-to-drop-points-at-leeds-newcastle-take-precious-in-over-spurs/) - **The Irish Times**
-2. [Frank 'convinced' he will remain in charge at Spurs despite fans turning again](https://www.skysports.com/football/news/11661/13505678/thomas-frank-convinced-he-will-keep-his-job-at-tottenham-despite-fan-discontent-again-after-newcastle-defeat) - **Sky Sports**
-3. [“One of the finest in the division” Ruud Gullit praises Arsenal star](https://www.justarsenal.com/one-of-the-finest-in-the-division-ruud-gullit-praises-arsenal-star/409722) - **Just Arsenal News**
-4. [From top four to trapdoor? Spurs’ relegation threat is real](https://www.skysports.com/football/news/11095/13505706/tottenham-from-top-four-to-trapdoor-spurs-relegation-threat-is-real-with-west-ham-on-the-charge) - **Sky Sports**
-5. [Bruno Fernandes’ Manchester United face fierce threat as Manchester City reportedly enter race for $130 million star](https://worldsoccertalk.com/news/bruno-fernandes-manchester-united-face-fierce-threat-as-manchester-city-reportedly-enter-race-for-130-million-star/) - **Worldsoccertalk.com**
-6. [Chelsea throw away two goal lead at home to Leeds](https://www.rte.ie/sport/soccer/2026/0210/1557744-chelsea-throw-away-two-goal-lead-at-home-to-leeds/) - **RTE**
-7. [Tottenham 1–2 Newcastle: Ramsey turns Spurs’ relegation fears into reality](https://wp.fromthespot.co.uk/26498/tottenham-1-2-newcastle-ramsey-turns-spurs-relegation-fears-into-reality/) - **Fromthespot.co.uk**
-8. [Tottenham Hotspur crisis deepens as Jacob Ramsey scores Newcastle winner](https://www.independent.ie/sport/soccer/premier-league/tottenham-hotspur-crisis-deepens-as-jacob-ramsey-scores-newcastle-winner/a1089561670.html) - **Independent.ie**
-9. [EPL: Leeds come from behind to draw Chelsea 2‑2 at Stamford Bridge](https://punchng.com/epl-leeds-come-from-behind-to-draw-chelsea-2‑2-at-stamford-bridge/) - **The Punch**
+1. [West Ham stalemate a hair-raising result for Manchester United fan](https://www.channelnewsasia.com/sport/west-ham-stalemate-hair-raising-result-manchester-united-fan-5921726) - **CNA**
+2. [Soccer-West Ham stalemate a hair-raising result for Manchester United fan](https://sports.yahoo.com/articles/soccer-west-ham-stalemate-hair-225255575.html) - **Yahoo Entertainment**
+3. [Thomas Frank leaves Tottenham fans speechless with stunning admission in post-match interview after Newcastle loss](https://www.101greatgoals.com/football/premier-league/thomas-frank-tottenham-fans-speechless-stunning-admission/) - **101 Great Goals**
+4. [Pedro ‘frustrated’ at ‘missed opportunity’ for Chelsea after Leeds draw](https://www.101greatgoals.com/football/premier-league/chelsea-leeds-reaction-joao-pedro/) - **101 Great Goals**
+5. [West Ham display showed United not ready to play twice a week](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a4d116ce-380a-4247-9f77-9d39691bd744) - **Yahoo Entertainment**
+6. [Nmecha Gets 7.5, Gruev With 7 | Leeds United Players Rated In Hard-Fought Draw Vs Chelsea](https://the4thofficial.net/2026/02/nmecha-gets-7-5-gruev-with-7-leeds-united-players-rated-in-hard-fought-draw-vs-chelsea/) - **The4thofficial.net**
+7. [Jacob Ramsey scores his first Newcastle goal to leave Thomas Frank on the brink](https://footballtoday.com/2026/02/10/jacob-ramsey-scores-his-first-newcastle-goal-to-leave-thomas-frank-on-the-brink/) - **Footballtoday.com**
+8. [Leeds come back from two down to earn draw at Chelsea](https://www.bbc.com/sport/football/videos/c8750rrywx9o) - **BBC News**
+9. [Report: West Ham 1 United 1](https://www.manutd.com/en/news/detail/match-report-west-ham-united-v-man-utd-february-10-2026) - **Manchester United**
 
 
 ---
-*최근 업데이트: 2026-02-12 07:02:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-12 07:53:57 (KST) / (하루 100회 제한 준수 중)*
