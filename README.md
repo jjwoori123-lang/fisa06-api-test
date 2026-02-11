@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Barça on Super League exit: No benefit to stay](https://www.espn.com/soccer/story/_/id/47874930/barcelona-relationship-real-madrid-reasons-super-league-withdrawal) - **ESPN**
-2. [Man City eye Premier League title twist as pressure mounts on Frank and Howe](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_03e1f752-e515-4394-978e-efb04936938b) - **Yahoo Entertainment**
-3. [China's influence in Bangladesh likely to deepen as India's ties decline](https://www.business-standard.com/world-news/china-s-influence-in-bangladesh-likely-to-deepen-as-india-s-ties-decline-126021000077_1.html) - **Business Standard**
-4. [Grealish's season over after undergoing foot surgery](https://www.channelnewsasia.com/sport/grealishs-season-over-after-undergoing-foot-surgery-5919361) - **CNA**
-5. [China set to deepen influence in Bangladesh after election as India ties strain](https://www.thehindubusinessline.com/news/world/china-set-to-deepen-influence-in-bangladesh-after-election-as-india-ties-strain/article70613638.ece) - **BusinessLine**
-6. [Erling Haaland makes bold claim amid Golden Boot race with Mbappé, Kane: ‘I haven’t scored enough goals’](https://worldsoccertalk.com/news/erling-haaland-makes-bold-claim-amid-golden-boot-race-with-mbappe-kane-i-havent-scored-enough-goals/) - **Worldsoccertalk.com**
-7. [Analysis-China set to widen footprint in Bangladesh as India’s ties decline](https://www.internazionale.it/ultime-notizie-reuters/2026/02/10/analysis-china-set-to-widen-footprint-in-bangladesh-as-india-s-ties-decline) - **Internazionale.it**
-8. [Spurs boss Frank on Pochettino chants and confidence in his players](https://hayters.com/spurs-boss-frank-on-pochettino-chants-and-confidence-in-his-players/) - **Hayters.com**
-9. [Finidi demands signings after continental failure](https://punchng.com/finidi-demands-signings-after-continental-failure/) - **The Punch**
-10. [It would be “pointless” if Man United didn’t feel excitement of win streak, says Carrick](https://wp.fromthespot.co.uk/26480/it-would-be-pointless-if-man-united-didnt-feel-excitement-of-win-streak-says-carrick/) - **Fromthespot.co.uk**
+1. [Chelsea staff and key player spotted watching Blues U18s match last night](https://chelsea.news/2026/02/chelsea-staff-and-key-player-spotted-watching-blues-u18s-match-last-night/) - **Chelsea.news**
+2. [‘Final decision depends on…: Romano confirms new £100m-valued Premier League star is on United’s shortlist](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_cbc346f9-6947-44f2-acf1-352bccebc556) - **Yahoo Entertainment**
+3. ['You love Kobbie' - Mainoo showing Amorim why so many do](https://www.bbc.com/sport/football/articles/cvg83g4zyllo) - **BBC News**
+4. [Bangladesh’s Tarique Rahman: From exile to edge of power](https://www.thestar.com.my/news/world/2026/02/10/bangladeshs-tarique-rahman-from-exile-to-edge-of-power) - **The Star Online**
+5. [Bangladesh’s Tarique Rahman: From exile to edge of power](https://www.internazionale.it/ultime-notizie-reuters/2026/02/10/bangladesh-s-tarique-rahman-from-exile-to-edge-of-power) - **Internazionale.it**
+6. [Sunderland vs Liverpool: Dream Big At The Stadium Of Light](https://rokerreport.sbnation.com/opinion/125474/sunderland-vs-liverpool-dream-big-at-the-stadium-of-light) - **SB Nation**
+7. [Will Sunderland Remain Unbeaten After Liverpool Clash?](https://rokerreport.sbnation.com/roker-roundtable/125468/will-sunderland-remain-unbeaten-after-liverpool-clash) - **SB Nation**
+8. [Haway Sunderland — Let’s Give Liverpool Hell!](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d861141a-d495-4fd6-b264-73b990e55e8f) - **Yahoo Entertainment**
+9. [“Revenge” – Former Chelsea striker says Blues should beat Leeds “Comfortably”](https://chelsea.news/2026/02/revenge-former-chelsea-striker-says-blues-should-beat-leeds-comfortably/) - **Chelsea.news**
 
 
 ---
-*최근 업데이트: 2026-02-11 14:13:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-11 15:36:35 (KST) / (하루 100회 제한 준수 중)*
