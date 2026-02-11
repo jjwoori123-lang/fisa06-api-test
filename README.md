@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Premier League defender admits returning to Real Madrid ‘would be a dream’](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6532e0ff-086c-4752-a1f2-280714741b73) - **Yahoo Entertainment**
-2. [Julian Alvarez has not been contacted by Barcelona](https://www.marca.com/en/football/barcelona/2026/02/10/698b06f222601d23198b45bc.html) - **Marca**
-3. ['He might be interested': Arne Slot offered Anfield escape route](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-netherlands-arne-slot-offered-anfield-escape-route/) - **Anfieldwatch.co.uk**
-4. [Tottenham vs. Newcastle live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/tottenham-vs-newcastlelive-stream-tv-channel-time-premier-league/d9897a54959bdf9680f7b1b4) - **Sporting News**
-5. [Should Arteta be sacked if Arsenal does not win the title?](https://www.justarsenal.com/should-arteta-be-sacked-if-arsenal-does-not-win-the-title/409673) - **Just Arsenal News**
-6. [Wolves need to rediscover composure to avoid unwanted record](https://www.bbc.com/sport/football/articles/cgl5kzl6k33o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Tottenham Hotspur injury latest: Pedro Porro, Djed Spence and more](https://eplindex.com/142636/tottenham-hotspur-injury-latest-pedro-porro-djed-spence-and-more.html) - **English Premier League Index - Opta Stats**
-8. [Can you beat our Premier League top assisters quiz?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a0d723b0-c905-4b60-aa4a-555762663b2b) - **Yahoo Entertainment**
+1. [Liverpool: Failure to qualify for the Champions League would be ‘unacceptable’, admits Slot](https://www.101greatgoals.com/football/premier-league/liverpool-failure-to-qualify-for-the-champions-league-would-be-unacceptable-admits-slot/) - **101 Great Goals**
+2. [Lancs sign Aussie batter McDermott for T20 Blast](https://www.bbc.com/sport/cricket/articles/cgrzyqj0r19o) - **BBC News**
+3. [Is this a lull or something deeper for Irish rugby?](https://www.irishtimes.com/sport/2026/02/10/is-this-a-lull-or-something-deeper-for-irish-rugby/) - **The Irish Times**
+4. [Great for Premier League that there will be real jeopardy - Given](https://www.bbc.com/sport/football/videos/cde4nry9dkxo) - **BBC News**
+5. [Is Parker ruthless enough for Premier League?](https://www.bbc.com/sport/football/articles/c07jndym017o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. ['Really hard' recruitment model impacting Brighton form - Smith](https://www.bbc.com/sport/football/articles/c77exv3rd3xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Do Man City hold the goalkeeping edge?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2fa06338-a2c2-4a2b-bb34-0781a32a05bf) - **Yahoo Entertainment**
+8. [Mark Pope is 4-0 against absolute legends of college basketball this season](https://www.aseaofblue.com/kentucky-wildcats-basketball/162714/mark-pope-vs-rick-pitino-barnes-john-calipari-uk) - **A Sea Of Blue**
+9. [Palmer misses stoppage-time sitter as Chelsea capitulate in Leeds draw](https://www.skysports.com/football/news/11661/13505655/chelsea-2-2-leeds-liam-roseniors-side-throw-away-two-goal-lead-and-miss-chance-to-go-fourth) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-02-11 19:32:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-11 20:29:56 (KST) / (하루 100회 제한 준수 중)*
