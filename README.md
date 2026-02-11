@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [West Ham stalemate a hair-raising result for Manchester United fan](https://www.channelnewsasia.com/sport/west-ham-stalemate-hair-raising-result-manchester-united-fan-5921726) - **CNA**
-2. [Soccer-West Ham stalemate a hair-raising result for Manchester United fan](https://sports.yahoo.com/articles/soccer-west-ham-stalemate-hair-225255575.html) - **Yahoo Entertainment**
-3. [Thomas Frank leaves Tottenham fans speechless with stunning admission in post-match interview after Newcastle loss](https://www.101greatgoals.com/football/premier-league/thomas-frank-tottenham-fans-speechless-stunning-admission/) - **101 Great Goals**
-4. [Pedro ‘frustrated’ at ‘missed opportunity’ for Chelsea after Leeds draw](https://www.101greatgoals.com/football/premier-league/chelsea-leeds-reaction-joao-pedro/) - **101 Great Goals**
-5. [West Ham display showed United not ready to play twice a week](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a4d116ce-380a-4247-9f77-9d39691bd744) - **Yahoo Entertainment**
-6. [Nmecha Gets 7.5, Gruev With 7 | Leeds United Players Rated In Hard-Fought Draw Vs Chelsea](https://the4thofficial.net/2026/02/nmecha-gets-7-5-gruev-with-7-leeds-united-players-rated-in-hard-fought-draw-vs-chelsea/) - **The4thofficial.net**
-7. [Jacob Ramsey scores his first Newcastle goal to leave Thomas Frank on the brink](https://footballtoday.com/2026/02/10/jacob-ramsey-scores-his-first-newcastle-goal-to-leave-thomas-frank-on-the-brink/) - **Footballtoday.com**
-8. [Leeds come back from two down to earn draw at Chelsea](https://www.bbc.com/sport/football/videos/c8750rrywx9o) - **BBC News**
-9. [Report: West Ham 1 United 1](https://www.manutd.com/en/news/detail/match-report-west-ham-united-v-man-utd-february-10-2026) - **Manchester United**
+1. [Christian Pulisic's Milan future isn't signed yet and Liverpool and Arsenal are ready](https://www.marca.com/en/football/serie-a/2026/02/11/698bbf6c46163fac4f8b45f5.html) - **Marca**
+2. [Milan confident of €24m Chukwueze sale](https://punchng.com/milan-confident-of-e24m-chukwueze-sale/) - **The Punch**
+3. [EPL: Spurs lose at home as Newcastle claim 2-1 victory](https://punchng.com/epl-spurs-lose-at-home-as-newcastle-claim-2-1-victory/) - **The Punch**
+4. [Tottenham gloom deepens, Man Utd salvage point at West Ham](https://www.channelnewsasia.com/sport/tottenham-gloom-deepens-man-utd-salvage-point-west-ham-5921786) - **CNA**
+5. [Frank 'convinced' he will be in charge for Arsenal game](https://www.rte.ie/sport/soccer/2026/0210/1557804-frank-convinced-he-will-be-in-charge-for-arsenal-game/) - **RTE**
+6. [Slot: No guarantees if I stay, but Liverpool stood by Klopp with no CL](https://www.skysports.com/football/news/11095/13506025/arne-slot-liverpool-boss-says-theres-no-guarantee-he-stays-after-this-season-if-they-miss-out-on-champions-league-football) - **Sky Sports**
+7. [West Ham 1-1 Man Utd: What Nuno said](https://www.bbc.com/sport/football/articles/cp329pry7pno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Leeds have a 'never say die attitude' - Farke](https://www.bbc.com/sport/football/videos/c627mr1p81mo) - **BBC News**
+9. ['No opinion' – Moyes not drawn on O'Brien dismissal](https://www.rte.ie/sport/soccer/2026/0210/1557802-no-opinion-moyes-not-drawn-on-obrien-dismissal/) - **RTE**
+10. [How Cole Palmer's improbable miss in front of goal for Chelsea could mean more than dropped points](https://www.cbssports.com/soccer/news/cole-palmer-chelsea-miss-premier-league-leeds-champions-league-race/) - **CBS Sports**
 
 
 ---
-*최근 업데이트: 2026-02-12 07:53:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-12 08:36:03 (KST) / (하루 100회 제한 준수 중)*
