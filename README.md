@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['I'm head coach, no manager' - Still on Watford job](https://www.bbc.com/sport/football/articles/c24d55jl4yyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Bella-Kotchap turns the English page](https://foot-africa.com/en/news/bella-kotchap-turns-the-english-page-1081907/) - **Foot-africa.com**
-3. [“It feels crazy, man!” – Antoine Semenyo desperate for Carabao Cup glory against Arsenal](https://cityxtra.co.uk/41393/it-feels-crazy-man-antoine-semenyo-desperate-for-carabao-cup-glory-against-arsenal/) - **Cityxtra.co.uk**
-4. [Samuel Chukwueze draws interest from Crystal Palace and West Ham](https://foot-africa.com/en/news/samuel-chukwueze-draws-interest-from-crystal-palace-and-west-ham-1081916/) - **Foot-africa.com**
-5. [Tottenham Hotspur sack Thomas Frank](https://getfootball.eu/tottenham-hotspur-sack-thomas-frank/) - **Getfootball.eu**
-6. ['I'm going to go Red Card' | Watch the best RefCam moments from Man Utd v Spurs](https://www.skysports.com/football/video/34070/13506377/im-going-to-go-red-card-watch-the-best-refcam-moments-from-man-utd-v-spurs) - **Sky Sports**
-7. [Crystal Palace vs Burnley LIVE updates, watch live, score, analysis, highlights](https://www.nbcsports.com/soccer/news/crystal-palace-vs-burnley-live-updates-score-highlights-stats-watch) - **NBCSports.com**
-8. [Who are the favourites to be the next Spurs manager?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_10030c88-3f83-487f-8a6c-1c8c27cb3439) - **Yahoo Entertainment**
-9. [Richard Hughes, do something! £35m homegrown playmaker is wanted by Newcastle and Chelsea](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-richard-hughes-tyler-morton-lyon-homegrown-playmaker-newcastle-and-chelsea/) - **Anfieldwatch.co.uk**
+1. [Sunderland vs Liverpool: Line-ups confirmed for Premier League clash](https://www.101greatgoals.com/football/premier-league/sunderland-vs-liverpool-line-ups-confirmed-premier-league/) - **101 Great Goals**
+2. [Man City vs. Fulham score, stats, talking points, highlights as Dias and Foden return for Guardiola's men](https://www.sportingnews.com/us/soccer/news/man-city-fulham-score-stats-talking-points-highlights/3eb994ff21894c1217b14ec4) - **Sporting News**
+3. [LIVE – Manchester City v Fulham: Commentary, updates, goals and stats](https://www.101greatgoals.com/football/premier-league/live-manchester-city-v-fulham-commentary-updates-goals-stats-haaland/) - **101 Great Goals**
+4. [Charles Sagoe Jr explains why he left Arsenal in a shock loan move](https://www.justarsenal.com/charles-sagoe-jr-explains-why-he-left-arsenal-in-a-shock-loan-move/409774) - **Just Arsenal News**
+5. [Steve Barker's Simba secure back-to-back league wins](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5964ccb3-565f-43cc-bc85-1a61ef0dc094) - **Yahoo Entertainment**
+6. [Cricket gaming finds its new groove as fans now chase thrills, not money](https://economictimes.indiatimes.com/industry/media/entertainment/cricket-gaming-finds-its-new-groove-as-fans-now-chase-thrills-not-money/articleshow/128221704.cms) - **The Times of India**
+7. [Kevin Kilbane: Gasperini’s negative comments about Evan Ferguson have gone too far](https://www.irishtimes.com/sport/soccer/2026/02/11/kevin-kilbane-gasperinis-negative-comments-about-evan-ferguson-have-gone-too-far/) - **The Irish Times**
+8. [Tottenham Sack Thomas Frank Following Eight-Game Winless Run](https://www.foxsports.com/stories/soccer/tottenham-sack-thomas-frank-as-manager-pays-ultimate-price-for-dismal-eight-game-winless-run) - **Fox Sports**
+9. [After OM, De Zerbi sets his sights on the Premier League](https://foot-africa.com/en/news/after-om-de-zerbi-sets-his-sights-on-the-premier-league-1082078/) - **Foot-africa.com**
+10. [Nottingham Forest vs Wolves LIVE updates, watch live, score, analysis, highlights](https://www.nbcsports.com/soccer/news/nottingham-forest-vs-wolves-live-updates-score-highlights-stats-watch) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-02-13 02:43:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-13 04:07:48 (KST) / (하루 100회 제한 준수 중)*
