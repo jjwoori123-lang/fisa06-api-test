@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Is tonight the night for a Manchester City midfielder to return to form?](https://esteemedkompany.com/2026/02/11/is-tonight-the-night-for-a-manchester-city-midfielder-to-return-to-form/) - **Esteemedkompany.com**
-2. [Man United, Chelsea held; Tottenham gloom deepens](https://www.rediff.com/sports/report/epl-manchester-united-chelsea-held-tottenham-gloom-deepens/20260211.htm) - **Rediff.com**
-3. [Sport travel guide 2026: Fifa World Cup, All Blacks, F1 and NFL trips for fans](https://www.nzherald.co.nz/travel/sport-travel-guide-2026-fifa-world-cup-all-blacks-f1-and-nfl-trips-for-fans/FOJFSIV5UNAVRBD2YBKXVED7EU/) - **New Zealand Herald**
-4. [West Ham vs Man United ends in draw as Spurs lose to Newcastle](https://www.aljazeera.com/sports/2026/2/11/west-ham-vs-man-united-ends-in-draw-as-spurs-lose-to-newcastle) - **Al Jazeera English**
-5. [Santiago Gimenez’s AC Milan future in doubt as club reportedly targets 4-time Premier League winner](https://worldsoccertalk.com/news/santiago-gimenezs-ac-milan-future-in-doubt-as-club-reportedly-targets-4-time-premier-league-winner/) - **Worldsoccertalk.com**
-6. [Manchester City vs Fulham: Latest City injury news and predicted City starting XI](https://esteemedkompany.com/2026/02/11/manchester-city-vs-fulham-latest-city-injury-news-and-predicted-city-starting-xi/) - **Esteemedkompany.com**
-7. [USA men's curling schedule: Times, TV channels, live streams to watch every game at 2026 Winter Olympics](https://www.sportingnews.com/us/olympics/news/usa-mens-curling-schedule-times-channels-streams-watch-olympics/f15a5be4aad0ef9e0ab3950b) - **Sporting News**
-8. [‘I could have done a lot of things better’ – Michael Obafemi hoping to earn Ireland recall after latest loan move](https://www.independent.ie/sport/soccer/premier-league/i-could-have-done-a-lot-of-things-better-michael-obafemi-hoping-to-earn-ireland-recall-after-latest-loan-move/a1826151609.html) - **Independent.ie**
-9. ['I think I could have done more with the loans that I went on' – Michael Obafemi hoping to earn Ireland recall after latest move](https://www.independent.ie/sport/soccer/premier-league/i-think-i-could-have-done-more-with-the-loans-that-i-went-on-michael-obafemi-hoping-to-earn-ireland-recall-after-latest-move/a1826151609.html) - **Independent.ie**
-10. [Liam Rosenior looks for positive trends in ‘bitter pill’ Leeds United draw](https://weaintgotnohistory.sbnation.com/premier-league/166108/liam-rosenior-looks-for-positive-trends-in-bitter-pill-leeds-united-draw) - **SB Nation**
+1. [Liam Rosenior will need to change this one unwanted statistic from this season](https://chelsea.news/2026/02/liam-rosenior-will-need-to-change-this-one-unwanted-statistic-from-this-season/) - **Chelsea.news**
+2. [EPL: Can Arsenal Go All the Way This Season?](https://www.justarsenal.com/epl-can-arsenal-go-all-the-way-this-season/409744) - **Just Arsenal News**
+3. [The Hoddle of Coffee: Tottenham Hotspur news and links for Wednesday, February 11](https://cartilagefreecaptain.sbnation.com/hoddle-of-coffee/68927/the-hoddle-of-coffee-tottenham-hotspur-news-and-links-for-wednesday-february-11) - **SB Nation**
+4. [Olympic men's curling standings: Updated results, schedule for 2026 Winter Games](https://www.sportingnews.com/us/olympics/news/olympic-mens-curling-standings-results-schedule-2026-winter-games/1e86b1f47c25e98a35109c9c) - **Sporting News**
+5. [Ronaldo Araujo has his say on Julian Alvarez to Barcelona transfer talk](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/112440/ronaldo-araujo-has-his-say-on-julian-alvarez-to-barcelona-transfer-talk) - **Barca Blaugranes**
+6. [Remember these five great wins against Brentford?](http://www.arsenal.com/news/remember-these-five-great-wins-against-brentford) - **Arsenal.com**
+7. [Aston Villa vs Brighton – Predicted lineup and team news](https://thefootballfaithful.com/aston-villa-vs-brighton-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+8. [Burnley XI vs Crystal Palace – Predicted lineup and team news](https://thefootballfaithful.com/burnley-xi-vs-crystal-palace-predicted-lineup-and-team-news/) - **The Football Faithful**
+9. [Arne Slot enduring toughest season ‘by a mile’ at Liverpool](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c864fcd3-b437-479d-aefa-4c60a8b90d26) - **Yahoo Entertainment**
+10. [Crystal Palace vs Burnley – Match preview and team news](https://thefootballfaithful.com/crystal-palace-vs-burnley-match-preview-and-team-news/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-02-12 15:17:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-12 16:32:33 (KST) / (하루 100회 제한 준수 중)*
