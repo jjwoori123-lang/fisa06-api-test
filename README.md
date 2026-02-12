@@ -1,16 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Who has the most Premier League appearances?](https://www.bbc.com/sport/football/articles/c14r638r163o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Who has the most Premier League appearances?](https://www.bbc.com/sport/football/articles/c14r638r163o) - **BBC News**
-3. [Forest held by bottom side Wolves despite having 35 shots](https://www.skysports.com/football/news/11661/13505726/nottingham-forest-0-0-wolves-sean-dyches-side-held-despite-having-35-shots-in-blow-to-survival-hopes) - **Sky Sports**
-4. [Liverpool ready to spend €80 million to land Barcelona star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f7ff5383-54fb-448d-a0bb-30cc10913b44) - **Yahoo Entertainment**
-5. [Brighton's Milner equals Premier League appearance record](https://www.france24.com/en/live-news/20260211-brighton-s-milner-equals-premier-league-appearance-record) - **FRANCE 24 English**
-6. [Brighton's Milner equals Premier League appearance record](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1f9e5e80-41be-43b7-9b3d-e6069522a777) - **Yahoo Entertainment**
-7. [Arne Slot delivers bold take on his potential dismissal from Liverpool: ‘The circumstances are sometimes taken into account’](https://worldsoccertalk.com/news/arne-slot-delivers-bold-take-on-his-potential-dismissal-from-liverpool-the-circumstances-are-sometimes-taken-into-account/) - **Worldsoccertalk.com**
-8. [Bundesliga duo monitor Southampton’s Caspar Jander](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_42e7e927-a5a3-4442-ac97-fdf50e733ebb) - **Yahoo Entertainment**
-9. [Premier League: Date, time and TV channels for Brentford vs Arsenal](https://foot-africa.com/en/news/premier-league-date-time-and-tv-channels-for-brentford-vs-arsenal-1082195/) - **Foot-africa.com**
-10. [Manchester City: Fulham’s Etihad misery continues as familiar foe haunts Cottagers again](https://www.101greatgoals.com/football/premier-league/manchester-city-etihad-misery-fulham/) - **101 Great Goals**
+1. [Own goal enough for Villa as they edge past Brighton](https://www.rte.ie/sport/soccer/2026/0211/1557952-own-goal-enough-for-villa-as-they-edge-past-brighton/) - **RTE**
+2. [EPL: Man City thrash Fulham 3-0 to close gap on Arsenal](https://punchng.com/epl-man-city-thrash-fulham-3-0-to-close-gap-on-arsenal/) - **The Punch**
+3. [Aston Villa 1-0 Brighton: Late own goal the difference as Milner makes Premier League history](https://www.nbcsports.com/soccer/news/aston-villa-vs-brighton-recap-final-score-video-highlights-analysis) - **NBCSports.com**
+4. [Super Rugby turns 30, hoping a faster game attracts more fans](https://japantoday.com/category/sports/super-rugby-turns-30-hoping-a-faster-game-attracts-more-fans) - **Japan Today**
+5. [Tottenham fires coach Thomas Frank after desperate Premier League run](https://japantoday.com/category/sports/thomas-frank-out-as-coach-of-tottenham1) - **Japan Today**
+6. [Thomas Frank pays the price for his ineffective, lifeless approach at Tottenham Hotspur but problems persist](https://www.cbssports.com/soccer/news/thomas-frank-pays-price-tottenham-failure-premier-league/) - **CBS Sports**
+7. [Does 5th place in Premier League qualify for Champions League? How UEFA decides extra spot for 2026/27](https://www.sportingnews.com/us/soccer/news/premier-league-5th-place-qualify-champions-league-uefa/2d9ba6e2f9c3f93a7ffd08bc) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-02-13 06:17:08 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-13 06:53:29 (KST) / (하루 100회 제한 준수 중)*
