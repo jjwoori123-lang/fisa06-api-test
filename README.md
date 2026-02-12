@@ -1,14 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Marcus Rashford: Barca chief Deco reveals how Aston Villa almost scuppered deal for star](https://thepeoplesperson.com/2026/02/11/marcus-rashford-barca-chief-deco-reveals-how-aston-villa-almost-scuppered-deal-for-star-306386/) - **The Peoples Person**
-2. [Daniel Farke Makes Ruthless Leeds United Call As Senior Star Set For Exit: Right Decision?](https://the4thofficial.net/2026/02/daniel-farke-makes-ruthless-leeds-united-call-as-senior-star-set-for-exit-right-decision/) - **The4thofficial.net**
-3. [Did Spurs wait too long to sack Frank - and could it risk relegation?](https://www.skysports.com/football/news/11095/13506548/thomas-frank-sacked-did-spurs-wait-too-long-to-remove-their-head-coach-and-could-it-cost-them-premier-league-survival) - **Sky Sports**
-4. [Havertz could miss four matches with muscle injury](https://www.bbc.com/sport/football/articles/cly102j3jlzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Havertz could miss four matches with muscle injury](https://www.bbc.com/sport/football/articles/cly102j3jlzo) - **BBC News**
-6. [Virgil van Dijk rises to occasion as Reds skipper eases pressure on Arne Slot with hard-earned victory at Sunderland](https://www.independent.ie/sport/soccer/premier-league/virgil-van-dijk-rises-to-occasion-as-reds-skipper-eases-pressure-on-arne-slot-with-hard-earned-victory-at-sunderland/a947297900.html) - **Independent.ie**
-7. [ Liverpool bring Sunderland’s incredible run to an end](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bf8c0d9c-2d86-4e42-83cc-efa3264e70eb) - **Yahoo Entertainment**
-8. [Van Dijk header ends Sunderland's unbeaten home record](https://www.rte.ie/sport/soccer/2026/0211/1557955-van-dijk-header-ends-sunderlands-unbeaten-home-record/) - **RTE**
+1. [Aston Villa boss Emery on late win over Brighton and Matty Cash injury](https://hayters.com/aston-villa-boss-emery-on-late-win-over-brighton-and-matty-cash-injury/) - **Hayters.com**
+2. [“Amazing” Arteta insists Brentford are a top team](https://www.justarsenal.com/amazing-arteta-insists-brentford-are-a-top-team/409795) - **Just Arsenal News**
+3. [It's all a fairytale at the moment, says Semenyo](https://www.mancity.com/news/mens/semenyo-post-fulham-reaction-pl-11-feb-63906421) - **Manchester City FC**
+4. [Atletico Madrid players fume at “disrespectful” Ronald Araujo remarks ahead of Copa del Rey clash](https://www.football-espana.net/2026/02/11/atletico-madrid-players-disrespectful-ronald-araujo) - **Football Espana**
+5. [Forest keep missing chances to push forward - Dyche](https://www.bbc.com/sport/football/videos/cn87ggnlp2xo) - **BBC News**
+6. [Liverpool overcome Sunderland to boost hopes of top 4 finish](https://www.the42.ie/liverpool-sunderland-report-3-6954326-Feb2026/) - **The42**
+7. [O'Reilly: It's an honour to play next to Rodri](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5dc28292-e7f7-41c9-b734-1fdfbf671f34) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-13 07:35:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-13 08:01:32 (KST) / (하루 100회 제한 준수 중)*
