@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Thomas Frank left “massively frustrated” after 2-1 Tottenham defeat vs Newcastle](https://sportsview.co.uk/2026/02/thomas-frank-left-massively-frustrated-after-2-1-tottenham-defeat-vs-newcastle?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=thomas-frank-left-massively-frustrated-after-2-1-tottenham-defeat-vs-newcastle) - **Sportsview.co.uk**
-2. [Has Milner's record become a problem for Brighton?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0033a74b-4a35-4550-8b75-d93389e76e13) - **Yahoo Entertainment**
-3. [Has Milner's record become a problem for Brighton?](https://www.bbc.com/sport/football/articles/ce3g8xlw47po) - **BBC News**
-4. [Opinion: Arsenal’s Chance To Banish League Cup Ghosts At Wembley](https://www.justarsenal.com/opinion-arsenals-chance-to-banish-league-cup-ghosts-at-wembley/409686) - **Just Arsenal News**
-5. [Pep Guardiola credits Gianluigi Donnarumma’s “mum and dad” for Liverpool save](https://cityxtra.co.uk/41548/pep-guardiola-credits-gianluigi-donnarummas-mum-and-dad-for-liverpool-save/) - **Cityxtra.co.uk**
-6. [“Devastated” Liam Rosenior rips into Chelsea team after 2-2 draw with Leeds](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f4375c44-6699-4594-bb47-bdec1522664a) - **Yahoo Entertainment**
-7. [“That is the type of player” – Jason Cundy urges Chelsea to make move for £86m rated star](https://chelsea.news/2026/02/jason-cundy-julian-alvarez-chelsea/) - **Chelsea.news**
-8. [Sesko stunner in 96th minute salvages draw for Manchester United at West Ham](https://www.the42.ie/west-ham-manchester-united-6953148-Feb2026/) - **The42**
+1. [Frank confident of avoiding Spurs sack despite relegation fears](https://thefootballfaithful.com/frank-confident-of-avoiding-spurs-sack-despite-relegation-fears/) - **The Football Faithful**
+2. [Bayern Munich vs RB Leipzig – Match preview and team news](https://thefootballfaithful.com/bayern-munich-vs-rb-leipzig-match-preview-and-team-news-2/) - **The Football Faithful**
+3. [Tottenham prepare €100 million bid for Real Madrid wonderkid – report](https://madriduniversal.com/tottenham-prepare-e100-million-bid-for-real-madrid-wonderkid-report/) - **Madriduniversal.com**
+4. [Rosenior calls costly Cole Palmer miss ‘1 in 1000’ moment](https://thefootballfaithful.com/rosenior-calls-costly-cole-palmer-miss-1-in-1000-moment/) - **The Football Faithful**
+5. [Will Dyche steer Forest away from danger?](https://www.bbc.com/sport/football/articles/cde4nyz2p98o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Will Dyche steer Forest away from danger?](https://www.bbc.com/sport/football/articles/cde4nyz2p98o) - **BBC News**
+7. [Eze reveals one thing he has had more of at Arsenal than he was used to](https://www.justarsenal.com/eze-reveals-one-thing-he-has-had-more-of-at-arsenal-than-he-was-used-to/409733) - **Just Arsenal News**
+8. [Crystal Palace v Burnley: Key stats and talking points](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3bfe4a64-be69-4ffd-87e0-c68b02d19a30) - **Yahoo Entertainment**
+9. [Aston Villa v Brighton: Key stats and talking points](https://www.bbc.com/sport/football/articles/c1jkd808n2lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Arne Slot suggests Liverpool’s history could save him](https://anfieldindex.com/91119/arne-slot-suggests-liverpools-history-could-save-him.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-02-12 17:08:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-12 18:08:27 (KST) / (하루 100회 제한 준수 중)*
