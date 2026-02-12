@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chicken Premier League! UP cricket match turns heads after 'Man of the Match' awarded ‘pure desi’ chicken](https://timesofindia.indiatimes.com/etimes/trending/chicken-premier-league-up-cricket-match-turns-heads-after-man-of-the-match-awarded-pure-desi-chicken/articleshow/128215334.cms) - **The Times of India**
-2. [Wilson Odobert suffers torn ACL; Spurs winger ruled out for the rest of the season](https://footballtoday.com/2026/02/11/wilson-odobert-suffers-torn-acl-spurs-winger-ruled-out-for-the-rest-of-the-season/) - **Footballtoday.com**
-3. [Arne Slot's damning comments confirm Liverpool need to fire him](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8fc465f8-895d-4e37-be9a-37244f5dffad) - **Yahoo Entertainment**
-4. [Rosenior makes big claim about his team selection for tomorrow – we will find out if it’s a bluff](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3d475c75-635b-4922-a68a-96b4f8d111f1) - **Yahoo Entertainment**
-5. [Who could replace Frank as Tottenham boss?](https://www.bbc.com/sport/football/articles/cjrq3ev0dq2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Premier League Soccer: Stream Man City vs. Fulham Live From Anywhere](https://www.cnet.com/tech/services-and-software/premier-league-soccer-stream-man-city-vs-fulham-live-from-anywhere/) - **CNET**
-7. [How Brentford and Arsenal have transformed since first PL meeting](https://www.skysports.com/football/news/11661/13506182/brentford-vs-arsenal-how-the-two-premier-league-clubs-have-transformed-since-first-league-meeting-in-2021) - **Sky Sports**
-8. [How Brentford and Arsenal have transformed since first PL meeting](https://www.skysports.com/football/news/11661/13506182/brentford-vs-arsenal-how-the-two-premier-league-clubs-have-transformed-since-first-league-meeting-in-2021) - **Sky Sports**
-9. [Chelsea: Rosenior sends key message to Blues players after Leeds collapse](https://www.101greatgoals.com/news/rosenior-chelsea-message-leeds-collapse/) - **101 Great Goals**
-10. [Chelsea: Rosenior sends key message to Blues players after Leeds collapse](https://www.101greatgoals.com/football/premier-league/rosenior-chelsea-message-leeds-collapse/) - **101 Great Goals**
+1. ['I'm head coach, no manager' - Still on Watford job](https://www.bbc.com/sport/football/articles/c24d55jl4yyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Bella-Kotchap turns the English page](https://foot-africa.com/en/news/bella-kotchap-turns-the-english-page-1081907/) - **Foot-africa.com**
+3. [“It feels crazy, man!” – Antoine Semenyo desperate for Carabao Cup glory against Arsenal](https://cityxtra.co.uk/41393/it-feels-crazy-man-antoine-semenyo-desperate-for-carabao-cup-glory-against-arsenal/) - **Cityxtra.co.uk**
+4. [Samuel Chukwueze draws interest from Crystal Palace and West Ham](https://foot-africa.com/en/news/samuel-chukwueze-draws-interest-from-crystal-palace-and-west-ham-1081916/) - **Foot-africa.com**
+5. [Tottenham Hotspur sack Thomas Frank](https://getfootball.eu/tottenham-hotspur-sack-thomas-frank/) - **Getfootball.eu**
+6. ['I'm going to go Red Card' | Watch the best RefCam moments from Man Utd v Spurs](https://www.skysports.com/football/video/34070/13506377/im-going-to-go-red-card-watch-the-best-refcam-moments-from-man-utd-v-spurs) - **Sky Sports**
+7. [Crystal Palace vs Burnley LIVE updates, watch live, score, analysis, highlights](https://www.nbcsports.com/soccer/news/crystal-palace-vs-burnley-live-updates-score-highlights-stats-watch) - **NBCSports.com**
+8. [Who are the favourites to be the next Spurs manager?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_10030c88-3f83-487f-8a6c-1c8c27cb3439) - **Yahoo Entertainment**
+9. [Richard Hughes, do something! £35m homegrown playmaker is wanted by Newcastle and Chelsea](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-richard-hughes-tyler-morton-lyon-homegrown-playmaker-newcastle-and-chelsea/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-02-13 01:38:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-13 02:43:34 (KST) / (하루 100회 제한 준수 중)*
