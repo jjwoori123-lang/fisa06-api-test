@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [PREVIEW | Manchester City vs Salford City - team news, lineups, predictions](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d096090d-54dd-4d9f-b8cc-c55c0d4a9ca5) - **Yahoo Entertainment**
-2. [Marc Leishman, Bryson DeChambeau Share LIV Golf Adelaide Lead After Round 1](https://www.foxsports.com/stories/golf/liv-golf-adelaide-leaderboard-round-1) - **Fox Sports**
-3. [Arsenal, Brentford face off as races for Premier League title, Champions League berths take center stage](https://www.cbssports.com/soccer/news/arsenal-brentford-preview-premier-league-ucl-race/) - **CBS Sports**
-4. [ United eye two stars, Gasp wants Koop, Allegri wants him back ](https://onefootball.com/en/news/united-eye-two-stars-gasp-wants-koop-allegri-wants-him-back-42399231) - **Onefootball.com**
-5. [Match Officials: Matthew Donohue to referee Manchester City vs Salford City](https://cityxtra.co.uk/41631/match-officials-matthew-donohue-to-referee-manchester-city-vs-salford-city/) - **Cityxtra.co.uk**
-6. [Exclusive says Chelsea willing to break transfer pattern and offer contract to senior Premier League player](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1af1adca-98d5-4a39-9f15-5592dca5ee74) - **Yahoo Entertainment**
-7. [How Liverpool transformed their corner threat](https://www.skysports.com/football/news/11095/13506689/liverpools-corner-threat-transformed-as-changes-pay-off-for-virgil-van-dijks-winning-goal-against-sunderland) - **Sky Sports**
-8. [Nottingham Forest makes Sean Dyche third fired coach this season](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b18b74a0-0095-4178-a239-47d2a98ea56c) - **Yahoo Entertainment**
-9. [Andrews confident of Brentford’s strengths ahead of Arsenal clash](https://wp.fromthespot.co.uk/26573/andrews-confident-of-brentfords-strengths-ahead-of-arsenal-clash/) - **Fromthespot.co.uk**
-10. [Premier League: Salah in the top 5 most goal-involved players](https://foot-africa.com/en/news/premier-league-salah-in-the-top-5-most-goal-involved-players-1083239/) - **Foot-africa.com**
+1. [Who is replacing Sean Dyche at Nottingham Forest? #sports](https://alltoc.com/sports/who-is-replacing-sean-dyche-at-nottingham-forest) - **Alltoc.com**
+2. [Did Forest's finishing cost Dyche his job?](https://www.bbc.com/sport/football/articles/c043l2qe9evo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [League of Ireland transfers: Dundalk sign defender Tyreke Wilson on permanent deal from Shelbourne](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-transfers-dundalk-sign-defender-tyreke-wilson-on-permanent-deal-from-shelbourne/a799822324.html) - **Independent.ie**
+4. [Kick It Out and Football v Homophobia launch new reporting relationship over anti-LGBTQ+ hate](https://www.thepinknews.com/2026/02/12/kick-it-out-football-v-homophobia-lgbtq/) - **Thepinknews.com**
+5. [Arsenal vs. Brentford prediction, odds, picks, best bets for Thursday's Premier League match](https://www.cbssports.com/soccer/news/arsenal-vs-brentford-prediction-odds-picks-best-bets-for-thursdays-premier-league-match/) - **CBS Sports**
+6. [Arsenal Starting XI vs Brentford: Confirmed Team News and Predicted Lineup](https://eplindex.com/142767/arsenal-starting-xi-vs-brentford-confirmed-team-news-and-predicted-lineup-3.html) - **English Premier League Index - Opta Stats**
+7. [Nottingham Forest set to appoint Vitor Pereira as new head coach](https://getfootball.eu/nottingham-forest-set-to-appoint-vitor-pereira-as-new-head-coach/) - **Getfootball.eu**
+8. [Odobert ACL tear adds to Spurs injury crisis](https://sports.yahoo.com/articles/odobert-acl-tear-adds-spurs-155420894.html) - **Yahoo Entertainment**
+9. [The teams who could be 'sleepwalking' into relegation this season](https://www.playmakerstats.com/news/the-teams-who-could-be-sleepwalking-into-relegation-this-season/1051683) - **Playmakerstats.com**
+10. [Arsenal boost as one rival for Tonali does not think they can afford him](https://www.justarsenal.com/arsenal-boost-as-one-rival-for-tonali-does-not-think-they-can-afford-him/409845) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-02-14 00:05:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-14 01:02:45 (KST) / (하루 100회 제한 준수 중)*
