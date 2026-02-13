@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Iliman Ndiaye: United surge ahead of the competition](https://thepeoplesperson.com/2026/02/11/iliman-ndiaye-united-surge-ahead-of-the-competition-306385/) - **The Peoples Person**
-2. [Will West Ham make 40-point mark crucial in relegation fight?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_48d54027-8442-466b-bb93-e573a66f0aaa) - **Yahoo Entertainment**
-3. [Will West Ham make 40-point mark crucial in relegation fight?](https://www.bbc.com/sport/football/articles/c4gjplk9rr7o) - **BBC News**
-4. [Aston Villa 1-0 Brighton: What Hurzeler said](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d632faeb-6f5a-4095-8337-6100c84bbb46) - **Yahoo Entertainment**
-5. [Manchester City: Pep Guardiola reveals why he substituted Erling Haaland at half-time in Fulham win](https://www.101greatgoals.com/football/premier-league/manchester-city-guardiola-haaland-sub/) - **101 Great Goals**
-6. [Aston Villa 1-0 Brighton: What Emery said](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ab272197-006c-42e2-aa45-d002c2319983) - **Yahoo Entertainment**
-7. ['One of our best' - Man City first half delights Guardiola](https://www.bbc.com/sport/football/videos/c17805vzjdno) - **BBC News**
-8. [NFL Needs To Get Back to the Basics With Super Bowl Halftime Show Next Year](https://freerepublic.com/focus/f-chat/4366487/posts) - **Freerepublic.com**
-9. [Max Eberl praises Luis Díaz’s worth for Bayern Munich after RB Leipzig win in DFB-Pokal](https://www.bavarianfootballworks.com/bayern-munich-finances-board/166967/max-eberl-praises-luis-diazs-worth-for-bayern-munich-after-rb-leipzig-win-in-dfb-pokal) - **Bavarian Football Works**
-10. [How to watch Brentford vs Arsenal live: Stream link, TV channel, latest team news, prediction](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8d255094-b424-482c-beca-9861fba7f3b1) - **Yahoo Entertainment**
+1. [Super League Shut Down: Real Madrid Settles Legal Dispute With UEFA Over Failed Project](https://www.foxsports.com/stories/soccer/super-league-saga-finally-over-as-real-madrid-reach-agreement-with-uefa-for-the-well-being-of-european-club-football) - **Fox Sports**
+2. [Aston Villa 1-0 Brighton: Own goal wins it as Milner breaks record](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ffeb8ba1-124b-4cf5-958f-125c49d45b61) - **Yahoo Entertainment**
+3. [Dyche sacked by Forest after dismal Wolves draw](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_282b516c-d99c-41eb-aebe-7dca848601f8) - **Yahoo Entertainment**
+4. [Sean Dyche sacked by Nottingham Forest — Where do the Tricky Trees go from here?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8bf7a340-57df-4015-9519-b9165f185352) - **Yahoo Entertainment**
+5. [Nottingham Forest sack manager Dyche](https://www.bbc.com/sport/football/articles/c98p80g568do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Nottingham Forest sack manager for third time this season](https://news.sky.com/story/nottingham-forest-sack-sean-dyche-their-third-managerial-departure-this-season-13506582) - **Sky.com**
+7. [Candace Parker, Doc Rivers among 2026 Naismith Basketball Hall of Fame finalists](https://sports.yahoo.com/articles/candace-parker-doc-rivers-among-004606695.html) - **Yahoo Entertainment**
+8. [Nottingham Forest sack manager Dyche](https://www.bbc.com/sport/football/articles/c98p80g568do) - **BBC News**
+9. ['Big asset' Oxlade-Chamberlain has immediate Celtic impact](https://www.bbc.com/sport/football/articles/cp32nq7v3n5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Tyrell Malacia set to be offered Premier League lifeline](https://thepeoplesperson.com/2026/02/12/tyrell-malacia-set-to-be-offered-premier-league-lifeline-306390/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-02-13 08:47:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-13 11:36:24 (KST) / (하루 100회 제한 준수 중)*
