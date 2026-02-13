@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Super League Shut Down: Real Madrid Settles Legal Dispute With UEFA Over Failed Project](https://www.foxsports.com/stories/soccer/super-league-saga-finally-over-as-real-madrid-reach-agreement-with-uefa-for-the-well-being-of-european-club-football) - **Fox Sports**
-2. [Aston Villa 1-0 Brighton: Own goal wins it as Milner breaks record](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ffeb8ba1-124b-4cf5-958f-125c49d45b61) - **Yahoo Entertainment**
-3. [Dyche sacked by Forest after dismal Wolves draw](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_282b516c-d99c-41eb-aebe-7dca848601f8) - **Yahoo Entertainment**
-4. [Sean Dyche sacked by Nottingham Forest — Where do the Tricky Trees go from here?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8bf7a340-57df-4015-9519-b9165f185352) - **Yahoo Entertainment**
-5. [Nottingham Forest sack manager Dyche](https://www.bbc.com/sport/football/articles/c98p80g568do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Nottingham Forest sack manager for third time this season](https://news.sky.com/story/nottingham-forest-sack-sean-dyche-their-third-managerial-departure-this-season-13506582) - **Sky.com**
-7. [Candace Parker, Doc Rivers among 2026 Naismith Basketball Hall of Fame finalists](https://sports.yahoo.com/articles/candace-parker-doc-rivers-among-004606695.html) - **Yahoo Entertainment**
-8. [Nottingham Forest sack manager Dyche](https://www.bbc.com/sport/football/articles/c98p80g568do) - **BBC News**
-9. ['Big asset' Oxlade-Chamberlain has immediate Celtic impact](https://www.bbc.com/sport/football/articles/cp32nq7v3n5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Tyrell Malacia set to be offered Premier League lifeline](https://thepeoplesperson.com/2026/02/12/tyrell-malacia-set-to-be-offered-premier-league-lifeline-306390/) - **The Peoples Person**
+1. [Premier League club interested in USMNT coach Mauricio Pochettino](https://nypost.com/2026/02/11/sports/tottenham-interested-in-usmnt-coach-mauricio-pochettino-after-thomas-frank-firing/) - **New York Post**
+2. [EPL: Man City crush Fulham, keep pressure on Arsenal](https://www.rediff.com/sports/report/epl-man-city-crush-fulham-keep-pressure-on-arsenal/20260212.htm) - **Rediff.com**
+3. [Manchester United Co-Owner Jim Ratcliffe Warns Of Economic Collapse Due To Mass Migration, Skyrocketing Benefits](https://dailycaller.com/2026/02/11/manchester-united-co-owner-jim-ratcliffe-economic-collapse-mass-migration-benefits/) - **The Daily Caller**
+4. [West Ham plot Chukwueze summer hijack](https://punchng.com/west-ham-plot-chukwueze-summer-hijack/) - **The Punch**
+5. [Lookman targets Barca scalp as Atletico chase final](https://punchng.com/?p=2062214) - **The Punch**
+6. [Onyeka may miss Coventry games as child’s birth nears](https://punchng.com/?p=2062219) - **The Punch**
+7. [Julian Alvarez linked to Barcelona after captain opens door amid reported interest from Premier League giants](https://worldsoccertalk.com/news/julian-alvarez-linked-to-barcelona-after-captain-opens-door-amid-reported-interest-from-premier-league-giants/) - **Worldsoccertalk.com**
+8. [Ex-Nigeria defender questions Bassey benching](https://punchng.com/ex-nigeria-defender-questions-bassey-benching/) - **The Punch**
+9. [I could have fought Joshua for £100m — Ferdinand](https://punchng.com/i-could-have-fought-joshua-for-100m-ferdinand/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-02-13 11:36:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-13 13:34:14 (KST) / (하루 100회 제한 준수 중)*
