@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Marcus Rashford: Barcelona propose swap deal for United loanee](https://thepeoplesperson.com/2026/02/12/marcus-rashford-barcelona-propose-swap-deal-for-united-loanee-306394/) - **The Peoples Person**
-2. [Milner's career in pictures](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ffc75226-3ec2-455a-bc2d-1955ac51350a) - **Yahoo Entertainment**
-3. [Quiz: Name the squad from Kim Little's debut](http://www.arsenal.com/news/quiz-name-squad-kim-littles-debut) - **Arsenal.com**
-4. [Liverpool: Salah equals Steven Gerrard, Slot praises him](https://foot-africa.com/en/news/liverpool-salah-equals-steven-gerrard-slot-praises-him-1082744/) - **Foot-africa.com**
-5. [Vítor Pereira in talks with Nottingham Forest after Sean Dyche sacked](https://www.101greatgoals.com/football/premier-league/nottingham-forest-pereira-in-talks-after-dyche-joins-long-list-of-sacked-managers/) - **101 Great Goals**
-6. [Liverpool to pounce on stalled contract talks for new Mo Salah](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-christian-pulisic-ac-milan-contract-talks/) - **Anfieldwatch.co.uk**
-7. [Brentford v Arsenal: with the teams evenly matched the change of referee could be decisive](https://untold-arsenal.com/archives/119436) - **Untold-arsenal.com**
-8. [Nottingham Forest sack third manager of Premier League campaign](https://thefootballfaithful.com/nottingham-forest-sack-third-manager-of-premier-league-campaign/) - **The Football Faithful**
-9. [Preview: Brentford v Arsenal](http://www.arsenal.com/news/preview-brentford-v-arsenal-3) - **Arsenal.com**
-10. [Hull captain Coyle signs new contract](https://www.bbc.com/sport/football/articles/cvgk484xl47o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Semenyo is really looking forward to facing Arsenal in the Carabao Cup final](https://www.justarsenal.com/semenyo-is-really-looking-forward-to-facing-arsenal-in-the-carabao-cup-final/409805) - **Just Arsenal News**
+2. [Atletico chief issues fresh response to Julian Alvarez to Barcelona transfer talk](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/112537/atletico-chief-issues-fresh-response-to-julian-alvarez-to-barcelona-transfer-talk) - **Barca Blaugranes**
+3. [Real Madrid identify 24-year-old Borussia Dortmund star as potential Fran Garcia replacement](https://madriduniversal.com/real-madrid-identify-24-year-old-borussia-dortmund-star-as-potential-fran-garcia-replacement/) - **Madriduniversal.com**
+4. [ 'Carrick has proven himself as a Premier League manager'](https://www.bbc.com/sport/football/articles/c309pjg645jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Why did Nottingham Forest sack Sean Dyche? #sports](https://alltoc.com/sports/why-did-nottingham-forest-sack-sean-dyche) - **Alltoc.com**
+6. [‘Somebody needs to start sticking up for Evan Ferguson’](https://www.irishtimes.com/sport/2026/02/12/somebody-needs-to-start-sticking-up-for-evan-ferguson/) - **The Irish Times**
+7. [Manchester mayor Burnham joins condemnation of United owner Ratcliffe over immigration comments](https://www.101greatgoals.com/football/premier-league/manchester-mayor-burnham-joins-condemnation-of-united-owner-ratcliffe-over-immigration-comments/) - **101 Great Goals**
+8. [Chelsea ready to challenge Real Madrid for the signing of €60m-rated Dutch star – report](https://madriduniversal.com/chelsea-ready-to-challenge-real-madrid-for-the-signing-of-e60m-rated-dutch-star-report/) - **Madriduniversal.com**
 
 
 ---
-*최근 업데이트: 2026-02-13 18:05:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-13 19:04:09 (KST) / (하루 100회 제한 준수 중)*
