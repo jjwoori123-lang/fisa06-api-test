@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Chelsea want to sign Premier League star on a free transfer](https://eplindex.com/142771/report-chelsea-want-to-sign-premier-league-star-on-a-free-transfer.html) - **English Premier League Index - Opta Stats**
-2. [PREVIEW | Aston Villa vs Newcastle - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-aston-villa-vs-newcastle-team-news-lineups-predictions/1051896) - **Playmakerstats.com**
-3. [Manchester United co-owner says UK has been 'colonized by immigrants'](https://www.usatoday.com/story/sports/soccer/epl/2026/02/12/jim-ratcliffe-manchester-united-immigrants/88644534007/) - **USA Today**
-4. [Liverpool team news vs Brighton and predicted lineup](https://www.squawka.com/en/news/liverpool-team-news-vs-brighton-predicted-lineup-fa-cup/?source=onefootball) - **Squawka**
-5. [Premier League Soccer: Stream Brentford vs. Arsenal Live From Anywhere](https://www.cnet.com/tech/services-and-software/premier-league-soccer-stream-brentford-vs-arsenal-live-from-anywhere/) - **CNET**
-6. [Gakpo praises Liverpool’s defensive display after Sunderland win](https://www.empireofthekop.com/2026/02/12/gakpo-praises-liverpools-defensive-display-after-sunderland-win/) - **Empire of The Kop**
-7. [Nottingham Forest could make Premier League history after Sean Dyche sacking](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d3c39924-a011-4889-b25c-b15d7d06ef32) - **Yahoo Entertainment**
-8. [Keane interested in taking Spurs job](https://www.skysports.com/football/news/11661/13506846/next-tottenham-manager-robbie-keane-interested-in-taking-job-but-not-on-temporary-basis) - **Sky Sports**
+1. [Ange Postecoglou’s remark exposes growing concern for David Moyes at Everton](https://www.hitc.com/ange-postecoglous-remark-exposes-growing-concern-for-david-moyes-at-everton/) - **HITC - Football, Gaming, Movies, TV, Music**
+2. [Premier League: Build-up as leaders Arsenal visit Brentford](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9eec16db-24f0-44b2-8892-d09a35f11105) - **Yahoo Entertainment**
+3. [Woltemade To Lead The Line | 4-3-3 Newcastle United Predicted Lineup Vs Aston Villa](https://the4thofficial.net/2026/02/woltemade-to-lead-the-line-4-3-3-newcastle-united-predicted-lineup-vs-aston-villa/) - **The4thofficial.net**
+4. [Brentford vs Arsenal live: Confirmed starting lineups, team news in Premier League](https://www.101greatgoals.com/football/premier-league/brentford-vs-arsenal-live-confirmed-lineups/) - **101 Great Goals**
+5. [Confirmed Arsenal team v Brentford – Gyokeres and Eze start](https://www.justarsenal.com/confirmed-arsenal-team-v-brentford-gyokeres-and-eze-start/409860) - **Just Arsenal News**
+6. [Team news: Four changes for trip to Brentford](http://www.arsenal.com/news/team-news-four-changes-trip-brentford) - **Arsenal.com**
+7. [Eberechi Eze now faces the challenge of vindicating Andrea Berta’s crucial decision for Arsenal](https://www.hitc.com/eberechi-eze-now-faces-the-challenge-of-vindicating-andrea-bertas-crucial-decision-for-arsenal/) - **HITC - Football, Gaming, Movies, TV, Music**
+8. [The Super Bowl now plays like America’s divorce proceedings](https://freerepublic.com/focus/f-chat/4366593/posts) - **Freerepublic.com**
+9. [Michael Carrick’s future on the brink as Manchester United suffer major blow with top coach renewing contract](https://worldsoccertalk.com/news/michael-carricks-future-on-the-brink-as-manchester-united-suffer-major-blow-with-top-coach-renewing-contract/) - **Worldsoccertalk.com**
+10. [The stoic assassin: Illinois freshman Keaton Wagler's monster first year on pace with Magic Johnson](https://www.cbssports.com/college-basketball/news/illinois-freshman-keaton-wagler-magic-johnson/) - **CBS Sports**
 
 
 ---
-*최근 업데이트: 2026-02-14 02:59:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-14 04:04:12 (KST) / (하루 100회 제한 준수 중)*
