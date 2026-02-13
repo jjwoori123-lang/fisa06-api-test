@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: La Liga giants considering move to sign Chelsea star](https://eplindex.com/142756/report-la-liga-giants-considering-move-to-sign-chelsea-star.html) - **English Premier League Index - Opta Stats**
-2. [Counting under way in Bangladesh polls following uprising](https://www.rte.ie/news/2026/0212/1558126-bangladesh-elections/) - **RTE**
-3. [Postecoglou reveals four transfer targets he missed at Spurs](https://thefootballfaithful.com/postecoglou-reveals-four-transfer-targets-he-missed-at-spurs/) - **The Football Faithful**
-4. [Fernandes to Real Madrid: what Meulensteen said about United star’s future](https://thepeoplesperson.com/2026/02/12/fernandes-to-real-madrid-what-meulensteen-said-about-united-stars-future-306404/) - **The Peoples Person**
-5. [Real Madrid set for €13 million windfall as former academy gem seals permanent Premier League transfer](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_22fb211a-63b9-40c3-9bff-90aca44b272e) - **Yahoo Entertainment**
-6. [Official: AFC Bournemouth sign Alex Jimenez on permanent transfer from Milan](https://football-italia.net/official-milan-sell-jimenez-to-bournemouth/) - **Football Italia**
-7. [Liverpool midfielder's future plunged into serious doubt](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-midfielder-wataru-endo-future-plunged-into-serious-doubt/) - **Anfieldwatch.co.uk**
-8. [Horse Tracks: Denver Broncos 2025 rookie class earns low grade for first-year performance](https://www.milehighreport.com/denver-broncos-news/171836/denver-broncos-2025-rookie-class-grade) - **Mile High Report**
+1. [Federico Chiesa makes his mind up over Juventus return](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-juventus-ready-take-it-or-leave-it-offer-for-federico-chiesa/) - **Anfieldwatch.co.uk**
+2. [Premier League: When Hannibal Mejbri sparks a comeback and ignites Burnley](https://foot-africa.com/en/news/premier-league-when-hannibal-mejbri-sparks-a-comeback-and-ignites-burnley-1083122/) - **Foot-africa.com**
+3. [Did Dyche deserve the sack at Nottingham Forest?](https://www.bbc.com/sport/articles/c77e4elpgpro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Pep Guardiola remembers Kevin De Bruyne in heartwarming press conference moment after Fulham win](https://cityxtra.co.uk/41623/pep-guardiola-remembers-kevin-de-bruyne-in-heartwarming-press-conference-moment-after-fulham-win/) - **Cityxtra.co.uk**
+5. [Footballer Thomas Partey facing two additional rape charges](https://www.bbc.com/news/articles/cy4wnwwg738o) - **BBC News**
+6. [Manchester City: Semenyo matches Savinho in just… 8 matches](https://foot-africa.com/en/news/manchester-city-semenyo-matches-savinho-in-just-8-matches-1083110/) - **Foot-africa.com**
+7. [Derry City issue banning order on number of fans after disturbance at Sligo Rovers game](https://www.independent.ie/sport/soccer/league-of-ireland/derry-city-issue-banning-order-on-number-of-fans-after-disturbance-at-sligo-rovers-game/a2008331226.html) - **Independent.ie**
+8. [Derry City issue banning order on number of fans after violence at Sligo Rovers game](https://www.independent.ie/sport/soccer/league-of-ireland/derry-city-issue-banning-order-on-number-of-fans-after-violence-at-sligo-rovers-game/a2008331226.html) - **Independent.ie**
+9. [The Premier League players with 500+ appearances as Milner equals record](https://thefootballfaithful.com/the-premier-league-players-with-500-appearances-as-milner-equals-record/) - **The Football Faithful**
+10. [Who are the favourites to become the next Forest manager?](https://hayters.com/who-are-the-favourites-to-become-the-next-forest-manager/) - **Hayters.com**
 
 
 ---
-*최근 업데이트: 2026-02-13 20:48:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-13 22:07:53 (KST) / (하루 100회 제한 준수 중)*
