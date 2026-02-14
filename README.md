@@ -1,14 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tottenham Turn to Igor Tudor as Interim Boss After Sacking Thomas Frank](https://www.ibtimes.com.au/tottenham-turn-igor-tudor-interim-boss-after-sacking-thomas-frank-1861566) - **Ibtimes.com.au**
-2. [PREVIEW | Stoke City vs Fulham - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-stoke-city-vs-fulham-team-news-lineups-predictions/1052508) - **Playmakerstats.com**
-3. [Tudor agrees deal to become Spurs interim head coach - reaction and analysis](https://www.bbc.com/sport/football/live/c1l7g934710t?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [FA Cup Fourth Round: Arsenal & Man City Lead the Charge as New Champion Awaits](https://footballtoday.com/2026/02/13/fa-cup-round-four-preview/) - **Footballtoday.com**
-5. [What to expect and key predictions for NBA All-Star Weekend](https://www.usatoday.com/story/sports/nba/2026/02/13/nba-all-star-weekend-2026-predictions-outlook/88634718007/) - **USA Today**
-6. [PREVIEW: Aston Villa host Newcastle in all-Premier League FA Cup tie](https://wp.fromthespot.co.uk/26583/preview-aston-villa-host-newcastle-in-all-premier-league-fa-cup-tie/) - **Fromthespot.co.uk**
-7. [Manchester United leadership already giving more and more consideration to Michael Carrick for the summer](https://sportsview.co.uk/2026/02/manchester-united-leadership-already-giving-more-and-more-consideration-to-michael-carrick-for-the-summer?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-leadership-already-giving-more-and-more-consideration-to-michael-carrick-for-the-summer) - **Sportsview.co.uk**
-8. [Iliman Ndiaye: Everton’s plan to thwart United now revealed](https://thepeoplesperson.com/2026/02/13/iliman-ndiaye-evertons-plan-to-thwart-united-now-revealed-306465/) - **The Peoples Person**
+1. [Spurs set to hire Tudor as interim boss until end of season: reports](https://sports.yahoo.com/articles/spurs-set-hire-tudor-interim-145702085.html) - **Yahoo Entertainment**
+2. [Who is 'firefighter' Tudor tasked with keeping Spurs in Premier League?](https://www.skysports.com/football/news/11095/13507144/igor-tudor-who-is-tottenhams-interim-head-coach-the-former-juventus-lazio-marseille-boss-analysed) - **Sky Sports**
+3. [Igor Tudor: Out-of-work coach who was fired by Juventus is now interim manager of Tottenham. Check portfolio](https://economictimes.indiatimes.com/news/international/us/igor-tudor-out-of-work-coach-who-was-fired-by-juventus-is-now-interim-manager-of-tottenham-check-portfolio/articleshow/128312210.cms) - **The Times of India**
+4. [Canada Soccer strikes lucrative new rights deal, projects massive financial boost](https://www.cbc.ca/sports/soccer/canada-soccer-strikes-lucrative-new-rights-deal-9.7088268) - **CBC News**
+5. [Scott McTominay: Man United lead race for Napoli talisman in shock twist](https://thepeoplesperson.com/2026/02/13/scott-mctominay-man-united-lead-race-for-napoli-talisman-in-shock-twist-306460/) - **The Peoples Person**
+6. [Rodri charged by FA following post-Tottenham interview comments](https://cityxtra.co.uk/41680/rodri-charged-by-fa-following-post-tottenham-interview-comments/) - **Cityxtra.co.uk**
+7. [Tottenham Turn to Igor Tudor as Interim Boss After Sacking Thomas Frank](https://www.ibtimes.com.au/tottenham-turn-igor-tudor-interim-boss-after-sacking-thomas-frank-1861566) - **Ibtimes.com.au**
 
 
 ---
-*최근 업데이트: 2026-02-14 23:30:50 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-14 23:58:28 (KST) / (하루 100회 제한 준수 중)*
