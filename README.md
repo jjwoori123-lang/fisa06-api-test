@@ -1,14 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Italian report links Scott McTominay with Man Utd return after Napoli comments](https://www.hitc.com/italian-report-links-scott-mctominay-with-man-utd-return-after-napoli-comments/) - **HITC - Football, Gaming, Movies, TV, Music**
-2. [How to watch Arsenal vs Wigan Athletic live: Stream link, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-arsenal-vs-wigan-athletic-live-stream-link-tv-channel-team-news-prediction) - **NBCSports.com**
-3. [Raya thinks Arsenal needs to get stronger at defending setpieces](https://www.justarsenal.com/raya-thinks-arsenal-needs-to-get-stronger-at-defending-setpieces/409897) - **Just Arsenal News**
-4. [New Blackburn boss Michael O’Neill to combine role with Northern Ireland job](https://www.independent.ie/sport/soccer/new-blackburn-boss-michael-oneill-to-combine-role-with-northern-ireland-job/a1764281025.html) - **Independent.ie**
-5. [Guardiola seeks respite as 'exhausted' Man City face Salford in FA Cup again](https://www.channelnewsasia.com/sport/guardiola-seeks-respite-exhausted-man-city-face-salford-in-fa-cup-again-5929851) - **CNA**
-6. [Carrick named Premier League Manager of the Month](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_86975fd1-f6d2-4e4d-987c-2e3ed64f8abd) - **Yahoo Entertainment**
-7. [Former Marseille managers feature high on Tottenham’s managerial shortlist](https://www.getfootballnewsfrance.com/2026/former-marseille-managers-feature-high-on-tottenhams-managerial-shortlist/) - **Get French Football News**
-8. [Everton sets Iliman Ndiaye's price tag](https://foot-africa.com/en/news/everton-sets-iliman-ndiayes-price-tag-1084697/) - **Foot-africa.com**
+1. [Tottenham Turn to Igor Tudor as Interim Boss After Sacking Thomas Frank](https://www.ibtimes.com.au/tottenham-turn-igor-tudor-interim-boss-after-sacking-thomas-frank-1861566) - **Ibtimes.com.au**
+2. [PREVIEW | Stoke City vs Fulham - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-stoke-city-vs-fulham-team-news-lineups-predictions/1052508) - **Playmakerstats.com**
+3. [Tudor agrees deal to become Spurs interim head coach - reaction and analysis](https://www.bbc.com/sport/football/live/c1l7g934710t?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [FA Cup Fourth Round: Arsenal & Man City Lead the Charge as New Champion Awaits](https://footballtoday.com/2026/02/13/fa-cup-round-four-preview/) - **Footballtoday.com**
+5. [What to expect and key predictions for NBA All-Star Weekend](https://www.usatoday.com/story/sports/nba/2026/02/13/nba-all-star-weekend-2026-predictions-outlook/88634718007/) - **USA Today**
+6. [PREVIEW: Aston Villa host Newcastle in all-Premier League FA Cup tie](https://wp.fromthespot.co.uk/26583/preview-aston-villa-host-newcastle-in-all-premier-league-fa-cup-tie/) - **Fromthespot.co.uk**
+7. [Manchester United leadership already giving more and more consideration to Michael Carrick for the summer](https://sportsview.co.uk/2026/02/manchester-united-leadership-already-giving-more-and-more-consideration-to-michael-carrick-for-the-summer?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-leadership-already-giving-more-and-more-consideration-to-michael-carrick-for-the-summer) - **Sportsview.co.uk**
+8. [Iliman Ndiaye: Everton’s plan to thwart United now revealed](https://thepeoplesperson.com/2026/02/13/iliman-ndiaye-evertons-plan-to-thwart-united-now-revealed-306465/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-02-14 22:49:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-14 23:30:50 (KST) / (하루 100회 제한 준수 중)*
