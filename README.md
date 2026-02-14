@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Igor Tyjon: Man United make bold move to frustrate Arsenal in race for exciting Championship striker](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ebe5bc43-6131-4dbe-bb56-df4c52b11999) - **Yahoo Entertainment**
-2. [On average, one tourist rescued every day along Goa’s coast in 2025](https://timesofindia.indiatimes.com/city/goa/on-average-one-tourist-rescued-every-day-along-goas-coast-in-2025/articleshow/128321597.cms) - **The Times of India**
-3. [Govt inaugurates 6 smart city projects ahead of CCP polls](https://timesofindia.indiatimes.com/city/goa/govt-inaugurates-6-smart-city-projects-ahead-of-ccp-polls/articleshow/128321485.cms) - **The Times of India**
-4. [Indigenisation influences operational preparedness: Coast Guard chief](https://timesofindia.indiatimes.com/city/goa/indigenisation-influences-operational-preparedness-coast-guard-chief/articleshow/128321347.cms) - **The Times of India**
-5. [Chelsea continue to make history with FA Cup line-up ](https://onefootball.com/en/news/chelsea-continue-to-make-history-with-fa-cup-line-up-42406184) - **Onefootball.com**
-6. [What in the World?](http://foreignpolicy.com/2026/02/13/news-quiz-thailand-election-netanyahu-trump-gaza-bad-bunny-super-bowl/) - **Foreign Policy**
-7. [Bayern Munich unlikely to pay €100m for Liverpool target Yan Diomande](https://www.hitc.com/bayern-munich-unlikely-to-pay-e100m-for-liverpool-target-yan-diomande/) - **HITC - Football, Gaming, Movies, TV, Music**
-8. [ISL: For first time, bottom-ranked club set for relegation to second division](https://timesofindia.indiatimes.com/city/goa/isl-for-first-time-bottom-ranked-club-set-for-relegation-to-second-division/articleshow/128321303.cms) - **The Times of India**
-9. [Mumbai court cancels non-bailable warrants against former Maharashtra minister Eknath Khadse and wife in 2016 Pune land deal case](https://timesofindia.indiatimes.com/city/mumbai/mumbai-court-cancels-non-bailable-warrants-against-former-maharashtra-minister-eknath-khadse-and-wife-in-2016-pune-land-deal-case/articleshow/128317949.cms) - **The Times of India**
-10. [Vacancies for over 700 group ‘C’ posts open](https://timesofindia.indiatimes.com/city/goa/vacancies-for-over-700-group-c-posts-open/articleshow/128321277.cms) - **The Times of India**
+1. [Report: Newcastle United considering move to sign £37.5m Nottingham Forest star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4f86a159-dfc9-42cf-a364-c02b792103b2) - **Yahoo Entertainment**
+2. [“I have no reason to go against him” – Liverpool fan backs Arne Slot despite recent struggles](https://anfieldindex.com/91210/i-have-no-reason-to-go-against-him-liverpool-fan-backs-arne-slot-despite-recent-struggles.html) - **Anfieldindex.com**
+3. [Dabolim airport will continue ops for civil, Navy use, says CM](https://timesofindia.indiatimes.com/city/goa/dabolim-airport-will-continue-ops-for-civil-navy-use-says-cm/articleshow/128321885.cms) - **The Times of India**
+4. [Dombivli witnesses rise in swanky hosps, but has few affordable beds](https://timesofindia.indiatimes.com/city/mumbai/dombivli-witnesses-rise-in-swanky-hosps-but-has-few-affordable-beds/articleshow/128318073.cms) - **The Times of India**
+5. [By fleeing to Phuket after Birch inferno, Luthras disregarded lives of staff: Court](https://timesofindia.indiatimes.com/city/goa/by-fleeing-to-phuket-after-birch-inferno-luthras-disregarded-lives-of-staff-court/articleshow/128321712.cms) - **The Times of India**
+6. [NIGHTMARE: The Ratings Are In | NFL is Doomed..](https://freerepublic.com/focus/f-chat/4366747/posts) - **Freerepublic.com**
+7. [Wrexham vs. Ipswich Town LIVE Updates: Lineups confirmed for the 2025-26 FA Cup Fourth Round](https://worldsoccertalk.com/news/wrexham-vs-ipswich-town-live-updates-minute-by-minute-coverage-of-the-2025-26-fa-cup-fourth-round/) - **Worldsoccertalk.com**
+8. [Igor Tyjon: Man United make bold move to frustrate Arsenal in race for exciting Championship striker](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ebe5bc43-6131-4dbe-bb56-df4c52b11999) - **Yahoo Entertainment**
+9. [On average, one tourist rescued every day along Goa’s coast in 2025](https://timesofindia.indiatimes.com/city/goa/on-average-one-tourist-rescued-every-day-along-goas-coast-in-2025/articleshow/128321597.cms) - **The Times of India**
+10. [Govt inaugurates 6 smart city projects ahead of CCP polls](https://timesofindia.indiatimes.com/city/goa/govt-inaugurates-6-smart-city-projects-ahead-of-ccp-polls/articleshow/128321485.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-02-15 04:40:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-15 04:55:42 (KST) / (하루 100회 제한 준수 중)*
