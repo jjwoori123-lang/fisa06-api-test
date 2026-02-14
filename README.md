@@ -1,13 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Spurs set to hire Tudor as interim boss until end of season: reports](https://sports.yahoo.com/articles/spurs-set-hire-tudor-interim-145702085.html) - **Yahoo Entertainment**
-2. [Who is 'firefighter' Tudor tasked with keeping Spurs in Premier League?](https://www.skysports.com/football/news/11095/13507144/igor-tudor-who-is-tottenhams-interim-head-coach-the-former-juventus-lazio-marseille-boss-analysed) - **Sky Sports**
-3. [Igor Tudor: Out-of-work coach who was fired by Juventus is now interim manager of Tottenham. Check portfolio](https://economictimes.indiatimes.com/news/international/us/igor-tudor-out-of-work-coach-who-was-fired-by-juventus-is-now-interim-manager-of-tottenham-check-portfolio/articleshow/128312210.cms) - **The Times of India**
-4. [Canada Soccer strikes lucrative new rights deal, projects massive financial boost](https://www.cbc.ca/sports/soccer/canada-soccer-strikes-lucrative-new-rights-deal-9.7088268) - **CBC News**
-5. [Scott McTominay: Man United lead race for Napoli talisman in shock twist](https://thepeoplesperson.com/2026/02/13/scott-mctominay-man-united-lead-race-for-napoli-talisman-in-shock-twist-306460/) - **The Peoples Person**
-6. [Rodri charged by FA following post-Tottenham interview comments](https://cityxtra.co.uk/41680/rodri-charged-by-fa-following-post-tottenham-interview-comments/) - **Cityxtra.co.uk**
-7. [Tottenham Turn to Igor Tudor as Interim Boss After Sacking Thomas Frank](https://www.ibtimes.com.au/tottenham-turn-igor-tudor-interim-boss-after-sacking-thomas-frank-1861566) - **Ibtimes.com.au**
+1. [Farke on league 'priority', Birmingham and Premier League sackings](https://www.bbc.com/sport/football/articles/c7475nw7yd7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [“Consistently been appreciated by” – Fabrizio Romano shares fresh update on Nicolas Jackson future](https://chelsea.news/2026/02/nicolas-jackson-future-chelsea-latest/) - **Chelsea.news**
+3. [Former Croatia international Igor Tudor agrees to become Tottenham’s interim manager](https://www.independent.ie/sport/soccer/premier-league/former-croatia-international-igor-tudor-agrees-to-become-tottenhams-interim-manager/a1431421738.html) - **Independent.ie**
+4. [Arsenal may have been handed yet another injury scare](https://www.justarsenal.com/arsenal-may-have-been-handed-yet-another-injury-scare/409907) - **Just Arsenal News**
+5. [Tottenham to appoint Tudor as ex-Juventus coach accepts offer](https://football-italia.net/tottenham-tudor-ex-juventus-coach-offer/) - **Football Italia**
+6. [Official: Michael Carrick wins first Premier League Manager of the Month award](https://thepeoplesperson.com/2026/02/13/official-michael-carrick-wins-first-premier-league-manager-of-the-month-award-306464/) - **The Peoples Person**
+7. [Northern Ireland’s Michael O’Neill to combine job with managing Blackburn Rovers](https://www.irishtimes.com/sport/soccer/2026/02/13/new-blackburn-boss-michael-oneill-to-combine-role-with-northern-ireland/) - **The Irish Times**
+8. [U21s report: Arsenal 1-0 Newcastle United](http://www.arsenal.com/fixture/under-21/2026-Feb-13/under-21-1-0-newcastle-united-u21-match-report) - **Arsenal.com**
+9. [Inside the NBA’s Strategy for Big Brand Plays During All-Star Weekend](https://www.adweek.com/convergent-tv/nba-brands-all-star-weekend-2026/) - **Adweek**
+10. [Daniel Farke: It is a tough place to go](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c66840ff-0001-4ecb-a72b-494f64d5e825) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-14 23:58:28 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-15 00:35:05 (KST) / (하루 100회 제한 준수 중)*
