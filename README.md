@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arrested BJP MLA BA Basavaraja to undergo heart test at Bengaluru’s Jayadeva](https://timesofindia.indiatimes.com/city/bengaluru/arrested-bjp-mla-ba-basavaraja-to-undergo-heart-test-at-bengalurus-jayadeva/articleshow/128317262.cms) - **The Times of India**
-2. [Liverpool vs. Brighton: FA Cup 2025-26 Preview & Team News](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/78718/liverpool-vs-brighton-fa-cup-2025-26-preview-team-news) - **SB Nation**
-3. [Ben Foster explains why Manchester United fans should be wary of Aston Villa fixture](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_da74730a-1ab1-4b04-ac38-7d5096e807f2) - **Yahoo Entertainment**
-4. [Bigamy: Madras high court rejects govt servant’s plea for family pension for second wife](https://timesofindia.indiatimes.com/city/chennai/bigamy-madras-high-court-rejects-govt-servants-plea-for-family-pension-for-second-wife/articleshow/128317612.cms) - **The Times of India**
-5. [Football has a real fossil fuel problem – and it’s not sustainable](https://theconversation.com/football-has-a-real-fossil-fuel-problem-and-its-not-sustainable-270400) - **The Conversation Africa**
-6. [Tottenham agree deal to make Igor Tudor interim manager until end of season](https://www.irishtimes.com/sport/soccer/2026/02/13/tottenham-agree-deal-to-make-igor-tudor-interim-manager-until-end-of-season/) - **The Irish Times**
-7. [Justice Manjula of Madras high court retires after 30 years in judicial service](https://timesofindia.indiatimes.com/city/chennai/justice-manjula-of-madras-high-court-retires-after-30-years-in-judicial-service/articleshow/128317406.cms) - **The Times of India**
-8. [Premier League pitches £750m annual boost from ad sales revamp](https://news.sky.com/story/premier-league-pitches-750m-annual-boost-from-ad-sales-revamp-13507246) - **Sky.com**
-9. [Veteran director Joe Simon dies of cardiac arrest at film chamber meet in Bengaluru](https://timesofindia.indiatimes.com/city/bengaluru/veteran-director-joe-simon-dies-of-cardiac-arrest-at-film-chamber-meet-in-bengaluru/articleshow/128316912.cms) - **The Times of India**
-10. [Armstrong murder case: Arrested advocate gets bail on medical grounds](https://timesofindia.indiatimes.com/city/coimbatore/armstrong-murder-case-arrested-advocate-gets-bail-on-medical-grounds/articleshow/128316939.cms) - **The Times of India**
+1. [Liverpool castaway learns his fate after what's happened this season](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4544f3a9-d0c6-442c-9f08-824311ca47b4) - **Yahoo Entertainment**
+2. [514 athletes to get up to Rs20 lakh under scholarship scheme](https://timesofindia.indiatimes.com/city/patna/514-athletes-to-get-up-to-rs20-lakh-under-scholarship-scheme/articleshow/128319122.cms) - **The Times of India**
+3. [Autorickshaw driver arrested for stalking college girl in Mumbai](https://timesofindia.indiatimes.com/city/mumbai/autorickshaw-driver-arrested-for-stalking-college-girl-in-mumbai/articleshow/128317589.cms) - **The Times of India**
+4. [Police step up night drive against drunk, rash driving in city](https://timesofindia.indiatimes.com/city/ranchi/police-step-up-night-drive-against-drunk-rash-driving-in-city/articleshow/128318737.cms) - **The Times of India**
+5. [Emergency plan: De la Fuente draws up a 50-man shortlist](https://onefootball.com/en/news/emergency-plan-de-la-fuente-draws-up-a-50-man-shortlist-42405769) - **Onefootball.com**
+6. [Balangir police bust Rs 5 crore digital fraud racket, arrest two for mule account network](https://timesofindia.indiatimes.com/city/bhubaneswar/balangir-police-bust-rs-5-crore-digital-fraud-racket-arrest-two-for-mule-account-network/articleshow/128318798.cms) - **The Times of India**
+7. [Tension flares in Churachandpur again after protest against MLA](https://timesofindia.indiatimes.com/city/guwahati/tension-flares-in-churachandpur-again-after-protest-against-mla/articleshow/128318803.cms) - **The Times of India**
+8. [Assam to get Rs 747cr for road & bridge projects: Union min](https://timesofindia.indiatimes.com/city/guwahati/assam-to-get-rs-747cr-for-road-bridge-projects-union-min/articleshow/128318711.cms) - **The Times of India**
+9. [Tribal girl leads anti-alcohol drive across 30 villages](https://timesofindia.indiatimes.com/city/ranchi/tribal-girl-leads-anti-alcohol-drive-across-30-villages/articleshow/128318657.cms) - **The Times of India**
+10. [Violence, arson in Nagaland village over land dispute](https://timesofindia.indiatimes.com/city/guwahati/violence-arson-in-nagaland-village-over-land-dispute/articleshow/128318497.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-02-15 02:45:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-15 03:39:49 (KST) / (하루 100회 제한 준수 중)*
