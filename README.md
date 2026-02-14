@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [15 minor girls rescued in Saran, five orchestra owners arrested](https://timesofindia.indiatimes.com/city/patna/15-minor-girls-rescued-in-saran-five-orchestra-owners-arrested/articleshow/128320508.cms) - **The Times of India**
-2. [New intelligence mechanism strengthens crime detection](https://timesofindia.indiatimes.com/city/goa/new-intelligence-mechanism-strengthens-crime-detection/articleshow/128320463.cms) - **The Times of India**
-3. [CM pushes for early revival of closed sugar mills in state](https://timesofindia.indiatimes.com/city/patna/cm-pushes-for-early-revival-of-closed-sugar-mills-in-state/articleshow/128320464.cms) - **The Times of India**
-4. [Bihar govt signs fresh five-year pact with Gates Foundation](https://timesofindia.indiatimes.com/city/patna/bihar-govt-signs-fresh-five-year-pact-with-gates-foundation/articleshow/128320234.cms) - **The Times of India**
-5. [Gags Tandon: Arne Slot is pushing ‘brilliant’ Liverpool star out of the door](https://anfieldindex.com/91209/gags-tandon-arne-slot-is-pushing-brilliant-liverpool-star-out-of-the-door.html) - **Anfieldindex.com**
-6. [Hull vs Chelsea: Confirmed line-ups for FA Cup clash](https://www.101greatgoals.com/football/hull-vs-chelsea-confirmed-line-ups-fa-cup-clash/) - **101 Great Goals**
-7. [Notorious criminal arrested in Dhanbad, links to Prince Khan gang unearthed](https://timesofindia.indiatimes.com/city/ranchi/notorious-criminal-arrested-in-dhanbad-links-to-prince-khan-gang-unearthed/articleshow/128319860.cms) - **The Times of India**
-8. [Education minister promises action over school furniture anomalies](https://timesofindia.indiatimes.com/city/patna/education-minister-promises-action-over-school-furniture-anomalies/articleshow/128319419.cms) - **The Times of India**
-9. [Dhanbad municipal polls gain momentum as mayoral candidates intensify campaigns](https://timesofindia.indiatimes.com/city/ranchi/dhanbad-municipal-polls-gain-momentum-as-mayoral-candidates-intensify-campaigns/articleshow/128319776.cms) - **The Times of India**
-10. [Federico Valverde: Blockbuster update on United target’s future](https://thepeoplesperson.com/2026/02/13/federico-valverde-blockbuster-update-on-united-targets-future-306475/) - **The Peoples Person**
+1. [Igor Tyjon: Man United make bold move to frustrate Arsenal in race for exciting Championship striker](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ebe5bc43-6131-4dbe-bb56-df4c52b11999) - **Yahoo Entertainment**
+2. [On average, one tourist rescued every day along Goa’s coast in 2025](https://timesofindia.indiatimes.com/city/goa/on-average-one-tourist-rescued-every-day-along-goas-coast-in-2025/articleshow/128321597.cms) - **The Times of India**
+3. [Govt inaugurates 6 smart city projects ahead of CCP polls](https://timesofindia.indiatimes.com/city/goa/govt-inaugurates-6-smart-city-projects-ahead-of-ccp-polls/articleshow/128321485.cms) - **The Times of India**
+4. [Indigenisation influences operational preparedness: Coast Guard chief](https://timesofindia.indiatimes.com/city/goa/indigenisation-influences-operational-preparedness-coast-guard-chief/articleshow/128321347.cms) - **The Times of India**
+5. [Chelsea continue to make history with FA Cup line-up ](https://onefootball.com/en/news/chelsea-continue-to-make-history-with-fa-cup-line-up-42406184) - **Onefootball.com**
+6. [What in the World?](http://foreignpolicy.com/2026/02/13/news-quiz-thailand-election-netanyahu-trump-gaza-bad-bunny-super-bowl/) - **Foreign Policy**
+7. [Bayern Munich unlikely to pay €100m for Liverpool target Yan Diomande](https://www.hitc.com/bayern-munich-unlikely-to-pay-e100m-for-liverpool-target-yan-diomande/) - **HITC - Football, Gaming, Movies, TV, Music**
+8. [ISL: For first time, bottom-ranked club set for relegation to second division](https://timesofindia.indiatimes.com/city/goa/isl-for-first-time-bottom-ranked-club-set-for-relegation-to-second-division/articleshow/128321303.cms) - **The Times of India**
+9. [Mumbai court cancels non-bailable warrants against former Maharashtra minister Eknath Khadse and wife in 2016 Pune land deal case](https://timesofindia.indiatimes.com/city/mumbai/mumbai-court-cancels-non-bailable-warrants-against-former-maharashtra-minister-eknath-khadse-and-wife-in-2016-pune-land-deal-case/articleshow/128317949.cms) - **The Times of India**
+10. [Vacancies for over 700 group ‘C’ posts open](https://timesofindia.indiatimes.com/city/goa/vacancies-for-over-700-group-c-posts-open/articleshow/128321277.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-02-15 04:05:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-15 04:40:07 (KST) / (하루 100회 제한 준수 중)*
