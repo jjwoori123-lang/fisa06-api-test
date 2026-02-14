@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Are Arsenal feeling the pressure because of one simple reason?](https://www.skysports.com/football/news/11670/13506845/arsenals-premier-league-title-hopes-hit-at-brentford-as-familiar-pattern-of-struggling-after-man-city-play-continues) - **Sky Sports**
-2. [Brentford vs Arsenal: Arteta reveals how ‘casino’ led to ‘really bad’ moment and explains Eze substitution](https://www.101greatgoals.com/football/premier-league/brentford-arsenal-arteta-eze/) - **101 Great Goals**
-3. [Brentford 1 – Arsenal 1 match report: tough, tough, tough](https://theshortfuse.sbnation.com/premier-league/36523/brentford-1-arsenal-1-match-report-tough-tough-tough) - **SB Nation**
-4. [Caryn Jarocki has more girls basketball wins than any coach in Colorado — and she’s not done yet](https://www.denverpost.com/2026/02/12/caryn-jarocki-highlands-ranch-girls-basketball-30-years/) - **The Denver Post**
-5. [Price takes Premier League glory in Antwerp](https://www.rte.ie/sport/darts/2026/0212/1558254-price-takes-premier-league-glory-in-antwerp/) - **RTE**
-6. ['They're Not A Big Club': Ange Postecoglou Rips Into Tottenham After Thomas Frank Sacking](https://www.foxsports.com/stories/soccer/theyre-not-a-big-club-ange-postecoglou-gives-harsh-verdict-on-tottenham-after-thomas-frank-sacking) - **Fox Sports**
-7. [Nunez set for Premier League return after Al Hilal axing? - Paper Talk](https://www.skysports.com/football/transfer-paper-talk/12709/13506930/darwin-nunez-former-liverpool-striker-heading-back-to-the-premier-league-after-being-axed-by-al-hilal-paper-talk) - **Sky Sports**
-8. [Papers: Ratcliffe apologises to Glazers over immigration comments](https://www.skysports.com/transfer/news/12691/13507366/sir-jim-ratcliffe-apologises-to-glazer-family-over-immigration-comments-paper-talk) - **Sky Sports**
-9. [Arteta on tough match and learning lessons](http://www.arsenal.com/news/arteta-tough-match-and-learning-lessons) - **Arsenal.com**
+1. [Top 3 potential replacements for Luka Doncic in the 2026 NBA All-Star game](https://www.marca.com/en/basketball/nba/los-angeles-lakers/2026/02/13/698e8ae646163f31508b45c3.html) - **Marca**
+2. [Arsenal Drop Crucial Points At Brentford As Their Premier League Lead Shrinks](https://www.foxsports.com/stories/soccer/arsenal-player-ratings-vs-brentford-eberechi-eze-flops-again-as-gunners-drop-crucial-points-in-premier-league-title-race-despite-noni-maduekes-fine-header) - **Fox Sports**
+3. [The 26: Projecting USA's Roster, Lineup 4 Months Before 2026 World Cup Opener](https://www.foxsports.com/stories/soccer/26-26-predicting-usmnts-roster-lineup-4-months-before-world-cup-opener) - **Fox Sports**
+4. [Bangladesh's BNP heading for 'sweeping' election win](https://www.rte.ie/news/world/2026/0213/1558259-bangladesh-election-results/) - **RTE**
+5. [Arsenal, Man City eye trophy haul, Macclesfield more FA Cup 'miracles'](https://sports.yahoo.com/articles/arsenal-man-city-eye-trophy-011655104.html) - **Yahoo Entertainment**
+6. [Pakistan bowler Tariq and his unusual delivery courts controversy at the T20 World Cup](https://sports.yahoo.com/articles/pakistan-bowler-tariq-unusual-delivery-011236321.html) - **Yahoo Entertainment**
+7. [BNP heads for decisive victory in Bangladesh's parliamentary election](https://www.business-standard.com/world-news/bnp-heads-for-decisive-victory-in-bangladesh-s-parliamentary-election-126021300060_1.html) - **Business Standard**
+8. [Every word from Arteta's post-Brentford presser | Press conference | News - Arsenal.com](https://slashdot.org/firehose.pl?op=view&amp;id=180784106) - **Slashdot.org**
+9. [Netherlands drop insane throwback kits for 2026 FIFA World Cup](https://www.thebiglead.com/netherlands-drop-insane-throwback-kits-2026-fifa-world-cup/) - **The Big Lead**
+10. [Lionel Messi’s 2026 World Cup hopes in doubt after reported coach Scaloni concerns about Argentina players](https://worldsoccertalk.com/news/lionel-messis-2026-world-cup-hopes-in-doubt-after-reported-coach-scaloni-concerns-about-argentina-players/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-02-14 08:58:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-14 11:47:26 (KST) / (하루 100회 제한 준수 중)*
