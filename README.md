@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle star set for talks over his future](https://hayters.com/newcastle-star-set-for-talks-over-his-future/) - **Hayters.com**
-2. [How poker-face Eustace has transformed Derby in year](https://www.bbc.com/sport/football/articles/cpv8z7enkn7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [How poker-face Eustace has transformed Derby in year](https://www.bbc.com/sport/football/articles/cpv8z7enkn7o) - **BBC News**
-4. [Pick of the stats: Birmingham City v Leeds United](https://www.bbc.com/sport/football/articles/c8jx98pkg83o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Preview: Arsenal v Wigan Athletic](http://www.arsenal.com/news/preview-arsenal-v-wigan-athletic) - **Arsenal.com**
-6. [When Henry's treble beat Wigan on Highbury finale](http://www.arsenal.com/news/when-henrys-treble-beat-wigan-highbury-finale) - **Arsenal.com**
-7. [Liverpool’s next 5 games compared to Man United and Chelsea as Reds remain alive in top-4 race](https://www.empireofthekop.com/2026/02/13/liverpool-next-5-games-compared-to-man-united-and-chelsea/) - **Empire of The Kop**
-8. [13th February – Five Memorable Celtic Moments on This Day](https://thecelticstar.com/13th-february-five-memorable-celtic-moments-on-this-day/) - **The Celtic Star**
-9. [2026 Olympic figure skating live stream, Ilia Malinin goes for gold](https://www.thebiglead.com/2026-olympic-figure-skating-live-stream-ilia-malinin-free-skate-final/) - **The Big Lead**
-10. [IPL 2026: Riyan Parag replaces Samson as new Rajasthan Royals captain](https://www.business-standard.com/cricket/ipl/ipl-2026-riyan-parag-replaces-samson-as-new-rajasthan-royals-captain-126021301284_1.html) - **Business Standard**
+1. [Report: Man United are in the race to sign 20-year-old midfielder](https://eplindex.com/142802/report-man-united-are-in-the-race-to-sign-20-year-old-midfielder.html) - **English Premier League Index - Opta Stats**
+2. [Virgil van Dijk broke a huge Liverpool record against Sunderland](https://anfieldindex.com/91198/virgil-van-dijk-broke-a-huge-liverpool-record-against-sunderland.html) - **Anfieldindex.com**
+3. [Shelbourne and St Patrick’s Athletic games postponed due to unplayable pitches](https://www.irishtimes.com/sport/soccer/2026/02/13/shelbourne-and-st-patricks-athletic-games-postponed-due-to-unplayable-pitches/) - **The Irish Times**
+4. [Northern Ireland boss O'Neill takes on short-term role as Blackburn head coach](https://www.skysports.com/football/news/11095/13507079/michael-oneill-blackburn-rovers-name-northern-ireland-manager-as-new-head-coach-on-short-term-arrangement) - **Sky Sports**
+5. [Arsenal boss issues clear demand before FA Cup tie](https://dailycannon.com/2026/02/arsenal-arteta-wigan-facup/) - **Dailycannon.com**
+6. [Kristjaan Speakman: A Key Figure in Sunderland’s Revival](https://rokerreport.sbnation.com/opinion/125983/kristjaan-speakman-a-key-figure-in-sunderlands-revival) - **SB Nation**
+7. [Celtic, Rangers and Hearts face crucial title challenges on Sunday](https://thecelticstar.com/celtic-rangers-and-hearts-face-crucial-title-challenges-on-sunday/) - **The Celtic Star**
+8. [Liverpool vs Brighton: How bad are Reds at set pieces? Analysing Slot’s ‘impossible’ claim over Premier League](https://www.101greatgoals.com/football/premier-league/liverpool-vs-brighton-set-pieces-arne-slot/) - **101 Great Goals**
+9. [Juventus set for key contact for Bournemouth’s Marcos Senesi](https://www.getfootballnewsitaly.com/2026/juventus-set-for-key-contact-for-bournemouths-marcos-senesi/) - **Getfootballnewsitaly.com**
 
 
 ---
-*최근 업데이트: 2026-02-14 20:53:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-14 21:56:44 (KST) / (하루 100회 제한 준수 중)*
