@@ -1,14 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arne Slot: It’s ‘impossible’ to win Premier League without set pieces](https://thefootballfaithful.com/arne-slot-premier-league-set-pieces/) - **The Football Faithful**
-2. [After Munich, Celtic in £40.3 million Champions League folly](https://thecelticstar.com/after-munich-celtic-in-40-3-million-champions-league-folly/) - **The Celtic Star**
-3. [Premier League Awards: Anxious Arsenal and Sesko’s stunner](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_249bd469-3554-4c34-8961-eef6e4d122fe) - **Yahoo Entertainment**
-4. [Arne Slot explains why Van Dijk is ‘vital’ to Liverpool this season](https://www.empireofthekop.com/2026/02/13/arne-slot-explains-why-van-dijk-is-vital-to-liverpool-this-season/) - **Empire of The Kop**
-5. [Peter Crouch says questions must be asked if Arsenal don’t win the title](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3aef26df-0219-4250-aa42-eb67ff7d2931) - **Yahoo Entertainment**
-6. [Newcastle could part ways with Nick Woltemade this summer as Bayern union possibility emerges](https://cfbayerninsider.com/2026/02/newcastle-could-part-ways-with-nick-woltemade-this-summer-as-bayern-union/) - **Cfbayerninsider.com**
-7. [Peter Crouch says questions must be asked if Arsenal don’t win the title](https://www.justarsenal.com/peter-crouch-says-questions-must-be-asked-if-arsenal-dont-win-the-title/409885) - **Just Arsenal News**
-8. [‘I heard…’: Bundesliga expert confirms Man Utd are interested and ‘can afford’ €100m attacking sensation](https://strettynews.com/2026/02/13/christian-falk-yan-diomande-manchester-united-rb-leipzig-transfers/) - **Strettynews.com**
+1. [“Nothing has really gone wrong” Keown defends Arsenal despite Brentford draw](https://www.justarsenal.com/nothing-has-really-gone-wrong-keown-defends-arsenal-despite-brentford-draw/409886) - **Just Arsenal News**
+2. [Matheus Nunes admits to negative reaction to right-back transition at Manchester City](https://cityxtra.co.uk/41537/matheus-nunes-admits-to-negative-reaction-to-right-back-transition-at-manchester-city/) - **Cityxtra.co.uk**
+3. [Mexicans Abroad: How to Watch](https://www.fmfstateofmind.com/mexicans-abroad/26465/mexicans-abroad-how-to-watch) - **Fmfstateofmind.com**
+4. [FA Cup: What to know as Chelsea's Liam Rosenior awaits Hull City return, Arsenal, Liverpool also in action](https://www.cbssports.com/soccer/news/fa-cup-chelseas-arsenal-liverpool-wrexham-liam-rosenior-hull-city/) - **CBS Sports**
+5. [BBC to show Scots' games live as Serie A returns to free-to-air TV](https://www.bbc.com/sport/football/articles/cx2ye666jjlo) - **BBC News**
+6. [ BREAKING: Premier League crown January Player of the Month ](https://onefootball.com/en/news/breaking-premier-league-crown-january-player-of-the-month-42403332) - **Onefootball.com**
+7. [Wrexham in FA Cup spotlight as Rosenior reunites with Hull](https://www.skysports.com/football/news/11095/13506673/fa-cup-fourth-round-liverpool-arsenal-man-city-chelsea-newcastle-aston-villa-and-more-in-action-this-weekend) - **Sky Sports**
+8. [Big international boost for United trio](https://www.manutd.com/en/news/detail/thomas-tuchel-confirms-reds-in-england-picture-again) - **Manchester United**
 
 
 ---
-*최근 업데이트: 2026-02-14 19:59:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-14 20:31:39 (KST) / (하루 100회 제한 준수 중)*
