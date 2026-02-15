@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Como 1-2 Fiorentina: Match report](https://www.violanation.com/serie-a/21326/como-1-2-fiorentina-serie-a-match-report-highlights-goal-fagioli-kean-parisi-shithousery) - **Violanation.com**
-2. [Man Utd given boost in the race for £35m EPL star who could link up with McTominay](https://strettynews.com/2026/02/14/man-utd-napoli-wolves-joao-gomes/) - **Strettynews.com**
-3. [Gana's drop-off is becoming a problem](http://www.toffeeweb.com/season/25-26/news/47282.html) - **Toffeeweb**
-4. [Milan visit and study Everton as new San Siro stadium project develops](https://football-italia.net/milan-visit-and-study-everton-stadium/) - **Football Italia**
-5. ['Gutted!' - Liverpool star's World Cup dream in tatters](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-wataru-endo-world-cup-dream-in-tatters/) - **Anfieldwatch.co.uk**
-6. [Liverpool is leading Arsenal in the race for Premier League forward](https://www.justarsenal.com/liverpool-is-leading-arsenal-in-the-race-for-premier-league-forward/409986) - **Just Arsenal News**
-7. [How to watch Liverpool vs Brighton in the USA: Live Stream and TV for 2025/2026 FA Cup](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-liverpool-vs-brighton-in-the-usa-live-stream-and-tv-for-2025-2026-fa-cup/) - **Worldsoccertalk.com**
-8. [Report: Man United have held talks over move to sign Man City star](https://eplindex.com/142856/report-man-united-have-held-talks-over-move-to-sign-man-city-star.html) - **English Premier League Index - Opta Stats**
-9. [USMNT midfielder Brenden Aaronson named Leeds Player of the Month](https://www.usatoday.com/story/sports/soccer/usmnt/2026/02/14/brenden-aaronson-leeds-player-of-the-month-usmnt/88678958007/) - **USA Today**
+1. [Livestream FA Cup Soccer: Watch Liverpool vs. Brighton From Anywhere](https://www.cnet.com/tech/services-and-software/livestream-fa-cup-soccer-watch-liverpool-vs-brighton-from-anywhere/) - **CNET**
+2. [First team duo support youngsters during allyship workshop](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d2a2c668-7763-4a6e-af69-7dfdb07c442e) - **Yahoo Entertainment**
+3. [FA Cup : Service minimum pour Manchester City face à Salford, mais qualification pour les huitièmes de finale de la compétition](https://www.sofoot.com/breves/fa-cup-service-minimum-pour-manchester-city-face-a-salford-mais-se-qualifie-pour-les-huitiemes-de-finale-de-la-competition) - **SO FOOT**
+4. [Citizens ease to win at home to Salford City](https://www.playmakerstats.com/news/citizens-easy-to-win-at-home-to-salford-city/1053516) - **Playmakerstats.com**
+5. [Aston Villa vs Newcastle United live: Confirmed teams and lineups in 2025/26 FA Cup fourth round](https://www.101greatgoals.com/football/aston-villa-vs-newcastle-united-confirmed-teams-fa-cup/) - **101 Great Goals**
+6. [Arsenal v Wigan and the question of injuries](https://untold-arsenal.com/archives/119476) - **Untold-arsenal.com**
+7. [Saviour Summerville is West Ham's man of the moment](https://www.bbc.com/sport/football/articles/cd03e8xnkypo) - **BBC News**
+8. [Cymru Premier: TNS, Barry and Haverfordwest claim wins](https://www.bbc.com/sport/football/articles/cre07rn3y8vo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-02-16 01:35:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-16 02:01:19 (KST) / (하루 100회 제한 준수 중)*
