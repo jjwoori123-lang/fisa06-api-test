@@ -1,14 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Livestream FA Cup Soccer: Watch Liverpool vs. Brighton From Anywhere](https://www.cnet.com/tech/services-and-software/livestream-fa-cup-soccer-watch-liverpool-vs-brighton-from-anywhere/) - **CNET**
-2. [First team duo support youngsters during allyship workshop](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d2a2c668-7763-4a6e-af69-7dfdb07c442e) - **Yahoo Entertainment**
-3. [FA Cup : Service minimum pour Manchester City face à Salford, mais qualification pour les huitièmes de finale de la compétition](https://www.sofoot.com/breves/fa-cup-service-minimum-pour-manchester-city-face-a-salford-mais-se-qualifie-pour-les-huitiemes-de-finale-de-la-competition) - **SO FOOT**
-4. [Citizens ease to win at home to Salford City](https://www.playmakerstats.com/news/citizens-easy-to-win-at-home-to-salford-city/1053516) - **Playmakerstats.com**
-5. [Aston Villa vs Newcastle United live: Confirmed teams and lineups in 2025/26 FA Cup fourth round](https://www.101greatgoals.com/football/aston-villa-vs-newcastle-united-confirmed-teams-fa-cup/) - **101 Great Goals**
-6. [Arsenal v Wigan and the question of injuries](https://untold-arsenal.com/archives/119476) - **Untold-arsenal.com**
-7. [Saviour Summerville is West Ham's man of the moment](https://www.bbc.com/sport/football/articles/cd03e8xnkypo) - **BBC News**
-8. [Cymru Premier: TNS, Barry and Haverfordwest claim wins](https://www.bbc.com/sport/football/articles/cre07rn3y8vo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Man City 2-0 Salford City: Report, result, goals as Guehi goal seals win in 2025/26 FA Cup fourth round](https://www.101greatgoals.com/football/man-city-vs-salford-city-report-result-2025-26-fa-cup/) - **101 Great Goals**
+2. [James Trafford provides honest response to Man City game-time situation after FA Cup victory](https://cityxtra.co.uk/41717/james-trafford-provides-honest-response-to-man-city-game-time-situation-after-fa-cup-victory/) - **Cityxtra.co.uk**
+3. [Owen Elding and Jack Moylan on target as Donegal man Stephen McLaughlin stars in FA Cup upset](https://www.independent.ie/sport/soccer/owen-elding-and-jack-moylan-on-target-as-donegal-man-stephen-mclaughlin-stars-in-fa-cup-upset/a674416964.html) - **Independent.ie**
+4. [Mansfield's Reed scores fabulous free-kick to upset Burnley](https://www.bbc.com/sport/football/videos/cp8rn3v2lmgo) - **BBC News**
+5. [Report: Liverpool targeting £130m Premier League duo to replace Curtis Jones](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e88305c4-30fa-4672-878a-890405e35abc) - **Yahoo Entertainment**
+6. [League One Mansfield comeback to stun Burnley](https://www.bbc.com/sport/football/videos/c3dze2r3rv9o) - **BBC News**
+7. [Manchester City ease past Salford into Cup fifth round](https://www.rte.ie/sport/soccer/2026/0214/1558488-manchester-city-ease-past-salford-into-cup-fifth-round/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-02-16 02:01:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-16 02:45:53 (KST) / (하루 100회 제한 준수 중)*
