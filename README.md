@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Arsenal offered the chance to sign Real Madrid star this summer](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_839b7f32-8e74-41f4-9088-a07c101e795a) - **Yahoo Entertainment**
-2. [Ghana Premier League matchday 22: Asante Kotoko vs Hearts of Oak, a historic showdown!](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_79b88ca0-cc0c-47b4-b141-465edc09d97a) - **Yahoo Entertainment**
-3. [How to watch Aston Villa v Newcastle, team news, predicted line-ups and more](https://hayters.com/how-to-watch-aston-villa-v-newcastle-team-news-predicted-line-ups-and-more/) - **Hayters.com**
-4. [Burton vs West Ham: Confirmed line-ups for FA Cup clash](https://www.101greatgoals.com/football/burton-vs-west-ham-confirmed-line-ups-for-fa-cup-clash/) - **101 Great Goals**
-5. [Chivu shines, Spalletti returns: Inter-Juve on NOW, 14 February ](https://onefootball.com/en/news/chivu-shines-spalletti-returns-inter-juve-on-now-14-february-42408653) - **Onefootball.com**
-6. [What channel is UConn vs. Georgetown on? Time, TV schedule, live stream to watch Big East men's basketball game](https://www.sportingnews.com/us/ncaa-basketball/news/what-channel-uconn-georgetown-time-schedule-live-stream-watch/c49c24856ffaf1ac92b9f677) - **Sporting News**
-7. [Ornstein: Chelsea “direct contact” over Premier League midfielder rebuffed](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ee6f1298-fd79-4ae1-96ee-43bd1b4df120) - **Yahoo Entertainment**
-8. [Lions' top 10 most impactful injuries of 2025: No. 8, Sam LaPorta](https://lionswire.usatoday.com/story/sports/nfl/lions/2026/02/14/detroit-lions-injuries-2025-season-sam-laporta/88404082007/) - **USA Today**
-9. [Ireland vs Italy Free Streams: How to watch Six Nations 2026 game, TV Channels, Preview](https://www.techradar.com/how-to-watch/rugby/ireland-vs-italy-six-nations-2026-free) - **TechRadar**
+1. [Report: Former Spurs boss could be set to return to replace Thomas Frank](https://eplindex.com/142849/report-former-spurs-boss-could-be-set-to-return-to-replace-thomas-frank.html) - **English Premier League Index - Opta Stats**
+2. [Tottenham confirm Igor Tudor as interim head coach](https://www.playmakerstats.com/news/tottenham-confirm-igor-tudor-as-interim-head-coach/1053371) - **Playmakerstats.com**
+3. [Seventies European Specials – Ajax v Celtic, 1971](https://thecelticstar.com/seventies-european-specials-ajax-v-celtic-1971/) - **The Celtic Star**
+4. [HOFer Tony Dungy Sees a Future Head Coach in Bengals WR Coach Troy Walters](https://www.cincyjungle.com/cincinnati-bengals-news/185768/hofer-tony-dungy-sees-a-future-head-coach-in-bengals-wr-coach-troy-walters) - **Cincy Jungle**
+5. ['Delap is like a throwback, he can do anything'](https://www.bbc.com/sport/football/articles/cy8gymj1x35o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Tottenham names Igor Tudor interim manager till end of season](https://sports.yahoo.com/articles/tottenham-names-igor-tudor-interim-124013628.html) - **Yahoo Entertainment**
+7. [How to watch Man City vs Salford: Live Streams, TV Channels for FA Cup 4th Round Tie](https://www.techradar.com/how-to-watch/football/man-city-vs-salford-fa-cup-4th-round-tie) - **TechRadar**
+8. [Igor Tudor hired as Tottenham interim manager](https://sports.yahoo.com/articles/igor-tudor-hired-tottenham-interim-122506354.html) - **Yahoo Entertainment**
+9. [Tottenham announce ex-Juventus boss Igor Tudor as interim head coach for remainder of season](https://www.independent.ie/sport/soccer/premier-league/tottenham-announce-ex-juventus-boss-igor-tudor-as-interim-head-coach-for-remainder-of-season/a278694572.html) - **Independent.ie**
 
 
 ---
-*최근 업데이트: 2026-02-15 20:53:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-15 21:58:49 (KST) / (하루 100회 제한 준수 중)*
