@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [“It was around the corner” – Pep Guardiola assesses Phil Foden’s inconsistencies in form](https://cityxtra.co.uk/41688/it-was-around-the-corner-pep-guardiola-assesses-phil-fodens-inconsistencies-in-form/) - **Cityxtra.co.uk**
-2. [Liverpool 3-0 Brighton: What Slot and Jones said](https://www.bbc.com/sport/football/articles/cn71gzge85po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Rayo Vallecano vs Atletico Madrid – Match preview and team news](https://thefootballfaithful.com/rayo-vallecano-vs-atletico-madrid-match-preview-and-team-news/) - **The Football Faithful**
-4. [Liverpool lead Arsenal and City in race for £95m Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_97f3d8f9-473c-47c2-9e0b-a11c60e1bb7c) - **Yahoo Entertainment**
-5. [How can I watch City v Newcastle on TV?](https://www.mancity.com/news/mens/city-v-newcastle-tv-listings-pl-21-feb-63906672) - **Manchester City FC**
-6. [Igor Thiago: United learn Brentford striker’s massive asking price](https://thepeoplesperson.com/2026/02/15/igor-thiago-united-learn-brentford-strikers-massive-asking-price-306527/) - **The Peoples Person**
-7. [Luis Diaz holds the key for sensational £87m forward deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-luis-diaz-holds-the-key-for-sensational-yan-diomande-87m-forward-deal/) - **Anfieldwatch.co.uk**
-8. [Richard Hughes gets green light to pursue £35m left-back deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-richard-hughes-gets-green-light-to-pursue-daniel-svensson-left-back-deal/) - **Anfieldwatch.co.uk**
-9. [The NFL just wrapped a record-breaking season. Here’s why next year’s going to be even bigger](https://www.cnbc.com/2026/02/15/nfl-just-had-record-breaking-season-next-year-will-be-bigger.html) - **CNBC**
-10. [FA Cup winners' medal, Odegaard's armband and Pictionary with Arteta](https://www.bbc.com/sport/football/articles/c87r285p1x7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Women's Asia Cup Rising Stars: India A beat Pakistan A by eight wickets](https://timesofindia.indiatimes.com/sports/cricket/news/womens-asia-cup-rising-stars-india-a-beat-pakistan-a-by-eight-wickets/articleshow/128379166.cms) - **The Times of India**
+2. ['They will have to be careful' – Former India wicketkeeper issues caution](https://timesofindia.indiatimes.com/sports/cricket/icc-mens-t20-world-cup/they-will-have-to-be-careful-former-india-wicketkeeper-issues-caution-ahead-of-pakistan-clash/articleshow/128379353.cms) - **The Times of India**
+3. [Arsenal vs Wigan – Match preview and team news](https://thefootballfaithful.com/arsenal-vs-wigan-match-preview-and-team-news/) - **The Football Faithful**
+4. [Kim shocks Rahm & DeChambeau for first win in 16 years](https://www.rte.ie/sport/golf/2026/0215/1558593-kim-shocks-rahm-dechambeau-for-first-win-in-16-years/) - **RTE**
+5. [Man City Manchester City Newcastle Newcastle United](https://www.mancity.com/news/mens/city-v-newcastle-match-preview-pl-21-feb-63906671) - **Manchester City FC**
+6. [Where to watch Arsenal vs. Wigan live stream, TV channel, start time for FA Cup match](https://www.sportingnews.com/us/soccer/news/watch-arsenal-vs-wigan-live-stream-tv-channel-start-time-fa-cup/c322d5a4ce4c46014366c5d1) - **Sporting News**
+7. [Ally McCoist has his say on whether Arsenal can bottle the league title](https://www.justarsenal.com/ally-mccoist-has-his-say-on-whether-arsenal-can-bottle-the-league-title/410019) - **Just Arsenal News**
+8. [Liverpool favourites for £95m Premier League and England star](https://anfieldindex.com/91267/liverpool-favourites-for-95m-premier-league-and-england-star.html) - **Anfieldindex.com**
+9. [Arsenal v Wigan: Match Preview, Latest Team News and Score Prediction](https://eplindex.com/142885/arsenal-v-wigan-match-preview-latest-team-news-and-score-prediction.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-02-16 18:35:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-16 19:32:45 (KST) / (하루 100회 제한 준수 중)*
