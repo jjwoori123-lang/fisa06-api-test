@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [FA Cup round-up: Arsenal ease past Wigan to keep quadruple hopes alive](https://www.irishtimes.com/sport/soccer/2026/02/15/fa-cup-round-up-arsenal-ease-past-wigan-to-keep-quadruple-hopes-alive/) - **The Irish Times**
-2. [Arsenal: Arteta concedes to squad worries after more injuries in FA Cup win](https://www.101greatgoals.com/football/premier-league/arteta-concern-arsenal-squad-injuries/) - **101 Great Goals**
-3. [Manchester United Have Set Their Sights On This Juventus Defender: Good Option For Carrick?](https://the4thofficial.net/2026/02/manchester-united-have-set-their-sights-on-this-juventus-defender-good-option-for-carrick/) - **The4thofficial.net**
-4. [Arteta concerned over Arsenal's mounting injury list](https://sports.yahoo.com/articles/arteta-concerned-over-arsenals-mounting-200005654.html) - **Yahoo Entertainment**
-5. [Virgil van Dijk delivers firm stance on Mohamed Salah’s future at Liverpool amid transfer rumors](https://worldsoccertalk.com/news/virgil-van-dijk-delivers-firm-stance-on-mohamed-salahs-future-at-liverpool-amid-transfer-rumors/) - **Worldsoccertalk.com**
-6. [Madueke urges Arsenal fans to ‘get excited’ about trophy chase](https://thefootballfaithful.com/madueke-urges-arsenal-fans-to-get-excited-about-trophy-chase/) - **The Football Faithful**
-7. [FA Cup Team of the Week – Tonali, Reed, Neto](https://thefootballfaithful.com/fa-cup-team-of-the-week-tonali-reed-neto/) - **The Football Faithful**
-8. [Report: Liverpool frontrunners to sign Dutch midfielder](https://eplindex.com/142903/report-liverpool-frontrunners-to-sign-dutch-midfielder.html) - **English Premier League Index - Opta Stats**
-9. [Liverpool star ‘dreams’ of joining Real Madrid claims head coach](https://anfieldindex.com/91287/liverpool-star-dreams-of-joining-real-madrid-claims-head-coach.html) - **Anfieldindex.com**
+1. [Manchester City stance on summer departure for James Trafford revealed](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_92e54b88-4cdd-46a3-ae0a-521528cfd787) - **Yahoo Entertainment**
+2. [PREVIEW: Macclesfield aim for another FA Cup shock as Brentford visit](https://wp.fromthespot.co.uk/26630/preview-macclesfield-aim-for-another-fa-cup-shock-as-brentford-visit/) - **Fromthespot.co.uk**
+3. [Eze “ready to play big role,” says Arteta as Arsenal reach FA Cup fifth round](https://wp.fromthespot.co.uk/26626/eze-ready-to-play-big-role-says-arteta-as-arsenal-reach-fa-cup-fifth-round/) - **Fromthespot.co.uk**
+4. [Manchester City Are In Pole Position To Land This Nottingham Forest Star: Dream Signing For Pep?](https://the4thofficial.net/2026/02/manchester-city-are-in-pole-position-to-land-this-nottingham-forest-star/) - **The4thofficial.net**
+5. [Cole Palmer back in top 3 for vital stat after return to form in Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1da9058b-1448-4081-88cf-ec7616a779dd) - **Yahoo Entertainment**
+6. [Irish player tracker: Troy Parrott to the rescue for AZ and ex-Sligo star off mark in Scotland](https://www.irishtimes.com/sport/soccer/2026/02/15/irish-player-tracker-troy-parrott-to-the-rescue-for-az-and-ex-sligo-star-makes-mark-for-hibs/) - **The Irish Times**
+7. [Report: Two Premier League clubs eyeing £35m move for Liverpool star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_cfea7e2f-cfd4-4776-9417-e4451d58154d) - **Yahoo Entertainment**
+8. [Chelsea keen on Murillo - Monday's gossip](https://www.bbc.com/sport/football/articles/crl4k08e0z4o) - **BBC News**
+9. [FA Cup round-up: Arsenal ease past Wigan to keep quadruple hopes alive](https://www.irishtimes.com/sport/soccer/2026/02/15/fa-cup-round-up-arsenal-ease-past-wigan-to-keep-quadruple-hopes-alive/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-02-17 05:41:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-17 06:32:22 (KST) / (하루 100회 제한 준수 중)*
