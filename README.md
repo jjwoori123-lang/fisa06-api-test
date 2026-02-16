@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Captain Van Dijk wants 'so important' Salah to stay](https://www.bbc.com/sport/football/articles/c0k158g7700o) - **BBC News**
-2. [Odegaard explains how Brentford stopped them from winning](https://www.justarsenal.com/odegaard-explains-how-brentford-stopped-them-from-winning/410030) - **Just Arsenal News**
-3. [Where to live stream the NBA All-Star Game: Schedule, start time, format & rosters for 2026](https://www.sportingnews.com/us/nba/news/nba-all-star-game-live-stream-schedule-time-format/a7ab22476b08a629d9226662) - **Sporting News**
-4. [Pereira confirmed as new Forest head coach](https://www.skysports.com/football/news/11095/13507371/vitor-pereira-announced-as-new-nottingham-forest-head-coach-replacing-sean-dyche-at-the-city-ground) - **Sky Sports**
-5. [Curtis Jones adamant that Liverpool are clicking](https://anfieldindex.com/91269/curtis-jones-adamant-that-liverpool-are-clicking.html) - **Anfieldindex.com**
-6. [Is Parker's time up at Burnley?](https://www.bbc.com/sport/football/articles/c1d6gn3qlr7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [“Leads by example” – Robert Sanchez reveals which Chelsea player is always first out to training](https://chelsea.news/2026/02/robert-sanchez-reece-james-chelsea/) - **Chelsea.news**
-8. [Mikaela Shiffrin live stream, watch Olympic women’s giant slalom online free](https://www.thebiglead.com/mikaela-shiffrin-live-stream-watch-olympic-womens-giant-slalom-online-free/) - **The Big Lead**
-9. [Rohit Sharma's viral airport video sparks buzz ahead of India-Pakistan showdown](https://timesofindia.indiatimes.com/sports/cricket/icc-mens-t20-world-cup/rohit-sharmas-viral-airport-video-sparks-buzz-ahead-of-india-pakistan-showdown/articleshow/128380835.cms) - **The Times of India**
-10. [Former Man United star tells Chelsea they have the strongest player in world football](https://chelsea.news/2026/02/antonio-valencia-moises-caicedo-claim/) - **Chelsea.news**
+1. [Why is there talk about a Pakistan spinner's action?](https://www.bbc.com/sport/cricket/articles/cddn9zpj6jdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Kevin Palmer: The revealing statistics that suggest Arsenal’s strides forward this season aren’t as big as they seem](https://www.independent.ie/sport/soccer/premier-league/kevin-palmer-the-revealing-statistics-that-suggest-arsenals-strides-forward-this-season-arent-as-big-as-they-seem/a823772829.html) - **Independent.ie**
+3. [Arsenal u18s finally win & goalscorer receives senior call-up](https://dailycannon.com/2026/02/arsenal-u18s-birmingham-report/) - **Dailycannon.com**
+4. [Nottingham Forest appoint Pereira as fourth manager this season](https://punchng.com/nottingham-forest-appoint-pereira-as-fourth-manager-this-season/) - **The Punch**
+5. [Confirmed: Vitor Pereira is the new Nottingham Forest manager – and here’s what he says about his tactics](https://www.101greatgoals.com/football/premier-league/vitor-pereira-nottingham-forest-manager-confirmed-tactics/) - **101 Great Goals**
+6. [‘For anybody that's struggling, you can get through anything’ – Anthony Kim completes fairytale comeback with LIV Adelaide win](https://www.independent.ie/sport/golf/for-anybody-thats-struggling-you-can-get-through-anything-anthony-kim-completes-fairytale-comeback-with-liv-adelaide-win/a386201565.html) - **Independent.ie**
+7. [Anthony Kim completes stunning comeback from golfing obscurity to win LIV Golf win at Adelaide](https://www.irishtimes.com/sport/golf/2026/02/15/anthony-kim-completes-stunning-comeback-from-golfing-obscurity-to-win-liv-golf-win-at-adelaide/) - **The Irish Times**
+8. [Anthony Kim completes stunning comeback from golfing obscurity to win LIV Golf Adelaide](https://www.irishtimes.com/sport/golf/2026/02/15/anthony-kim-completes-stunning-comeback-from-golfing-obscurity-to-win-liv-golf-adelaide/) - **The Irish Times**
+9. [£40m summer signing continues to shine for Liverpool](https://anfieldindex.com/91270/40m-summer-signing-continues-to-shine-for-liverpool.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-02-16 21:03:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-16 22:41:37 (KST) / (하루 100회 제한 준수 중)*
