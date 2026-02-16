@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal v Wigan: Gunners take 4-0 lead after injury forces Arteta into late change](https://www.101greatgoals.com/football/arsenal-wigan-goals-injury-setback/) - **101 Great Goals**
-2. [Leipzig star Diomande responds to Bayern and Liverpool links](https://bulinews.com/leipzig-star-diomande-responds-bayern-and-liverpool-links) - **Bulinews.com**
-3. [Curtis Jones: Three Goals And A Clean Sheet “All You Can Ask For”](https://liverpooloffside.sbnation.com/liverpool-fa-cup-coverage/78745/curtis-jones-three-goals-and-a-clean-sheet-all-you-can-ask-for-liverpool-brighton-fa-cup-26) - **SB Nation**
-4. [Bueno earns Wolves FA Cup win at muddy Grimsby](https://www.bbc.com/sport/football/videos/cwy8j7pxwkgo) - **BBC News**
-5. [Martinelli's remarkable cup form continues with strike vs. Wigan ](https://onefootball.com/en/news/martinellis-remarkable-cup-form-continues-with-strike-vs-wigan-42415143) - **Onefootball.com**
-6. [FA Cup fourth round today: Reports, results, goals, video highlights including Wolves, Sunderland and Fulham](https://www.101greatgoals.com/football/fa-cup-fourth-round-reports-results-goals-wolves-sunderland-fulham/) - **101 Great Goals**
-7. [Littler to miss PDC's latest Players Championship double header in Wigan](https://www.sportingnews.com/us/darts/news/littler-miss-pdcs-latest-players-championship-double-header-wigan/2233fe0296cbe1556638b847) - **Sporting News**
-8. [Bryan Mbeumo: Cunha names Cameroonian’s most special quality](https://thepeoplesperson.com/2026/02/15/bryan-mbeumo-cunha-names-cameroonians-most-special-quality-306529/) - **The Peoples Person**
-9. [ Worse than Sunday league: PL club stuck in the mud](https://onefootball.com/en/news/worse-than-sunday-league-pl-club-stuck-in-the-mud-42415074) - **Onefootball.com**
+1. [The real winners from Arsenal’s FA Cup victory over Wigan Athletic](https://hayters.com/arsenals-fa-cup-winners/) - **Hayters.com**
+2. [Report: Arsenal 4-0 Wigan Athletic](http://www.arsenal.com/fixture/arsenal/2026-Feb-15/arsenal-4-0-wigan-athletic-match-report) - **Arsenal.com**
+3. [Report: Arsenal 4-0 Wigan Athletic](http://www.arsenal.com/fixture/arsenal/2026-Feb-15/arsenal-wigan-athletic-match-report) - **Arsenal.com**
+4. [Liverpool learn price for 'cornerstone' Ibrahima Konate replacement](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-learn-price-for-cornerstone-ibrahima-konate-replacement-gleison/) - **Anfieldwatch.co.uk**
+5. [Rooney reacts: Villa v Newcastle drama, and are refs really hiding behind VAR?](https://www.bbc.co.uk/sounds/play/p0myv154) - **BBC News**
+6. [Report: Arsenal and Man United interested in move for former Chelsea star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5f7b85c8-4c44-41b4-8b18-1b58cabbad18) - **Yahoo Entertainment**
+7. [T20 World Cup: Opener’s fiery 77 means India-Pak tie is no contest again, SKY’s side win by 61 runs](https://economictimes.indiatimes.com/news/sports/t20-world-cup-openers-fiery-77-means-india-pak-tie-is-no-contest-again-skys-side-win-by-61-runs/articleshow/128391952.cms) - **The Times of India**
+8. [AC Milan risk losing Christian Pulisic as Premier League team reportedly takes firm stance on USMNT star signing](https://worldsoccertalk.com/news/ac-milan-risk-losing-christian-pulisic-as-premier-league-team-reportedly-takes-firm-stance-on-usmnt-star-signing/) - **Worldsoccertalk.com**
+9. [Arsenal v Wigan: Gunners take 4-0 lead after injury forces Arteta into late change](https://www.101greatgoals.com/football/arsenal-wigan-goals-injury-setback/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-02-17 02:40:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-17 03:22:49 (KST) / (하루 100회 제한 준수 중)*
