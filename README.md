@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The real winners from Arsenal’s FA Cup victory over Wigan Athletic](https://hayters.com/arsenals-fa-cup-winners/) - **Hayters.com**
-2. [Report: Arsenal 4-0 Wigan Athletic](http://www.arsenal.com/fixture/arsenal/2026-Feb-15/arsenal-4-0-wigan-athletic-match-report) - **Arsenal.com**
-3. [Report: Arsenal 4-0 Wigan Athletic](http://www.arsenal.com/fixture/arsenal/2026-Feb-15/arsenal-wigan-athletic-match-report) - **Arsenal.com**
-4. [Liverpool learn price for 'cornerstone' Ibrahima Konate replacement](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-learn-price-for-cornerstone-ibrahima-konate-replacement-gleison/) - **Anfieldwatch.co.uk**
-5. [Rooney reacts: Villa v Newcastle drama, and are refs really hiding behind VAR?](https://www.bbc.co.uk/sounds/play/p0myv154) - **BBC News**
-6. [Report: Arsenal and Man United interested in move for former Chelsea star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5f7b85c8-4c44-41b4-8b18-1b58cabbad18) - **Yahoo Entertainment**
-7. [T20 World Cup: Opener’s fiery 77 means India-Pak tie is no contest again, SKY’s side win by 61 runs](https://economictimes.indiatimes.com/news/sports/t20-world-cup-openers-fiery-77-means-india-pak-tie-is-no-contest-again-skys-side-win-by-61-runs/articleshow/128391952.cms) - **The Times of India**
-8. [AC Milan risk losing Christian Pulisic as Premier League team reportedly takes firm stance on USMNT star signing](https://worldsoccertalk.com/news/ac-milan-risk-losing-christian-pulisic-as-premier-league-team-reportedly-takes-firm-stance-on-usmnt-star-signing/) - **Worldsoccertalk.com**
-9. [Arsenal v Wigan: Gunners take 4-0 lead after injury forces Arteta into late change](https://www.101greatgoals.com/football/arsenal-wigan-goals-injury-setback/) - **101 Great Goals**
+1. [Report: Liverpool are in the race to sign £50m defender](https://anfieldindex.com/91292/report-liverpool-are-in-the-race-to-sign-50m-defender.html) - **Anfieldindex.com**
+2. [Aston Villa Plan Major £65m Move As Future Of Talismanic Star Remains Uncertain: The Right Move?](https://the4thofficial.net/2026/02/aston-villa-plan-major-65m-move-as-future-of-talismanic-star-remains-uncertain-the-right-move/) - **The4thofficial.net**
+3. [Golfers sue Donald Trump over plan to transform historic Washington D.C. Public Golf Course](https://www.marca.com/en/golf/2026/02/15/699217ba268e3e3f548b45d7.html) - **Marca**
+4. [183 team changes in 14 ties - but does it really matter for the FA Cup?](https://www.bbc.com/sport/football/articles/cp32wxe0p42o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [183 team changes in 14 ties - but does it really matter for the FA Cup?](https://www.bbc.com/sport/football/articles/cp32wxe0p42o) - **BBC News**
+6. [Former Premier League star heaps praise on Liverpool defender](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_338a1887-4be8-44d0-b61b-46699a76c909) - **Yahoo Entertainment**
+7. [Report: Tottenham Hotspur eyeing move to sign £78m French defender](https://eplindex.com/142901/report-tottenham-hotspur-eyeing-move-to-sign-78m-french-defender.html) - **English Premier League Index - Opta Stats**
+8. [Flying start sees Arsenal cruise past Wigan into FA Cup fifth round](https://www.independent.ie/sport/soccer/premier-league/flying-start-sees-arsenal-cruise-past-wigan-into-fa-cup-fifth-round/a1587437460.html) - **Independent.ie**
+9. [‘We need some players back’ – Mikel Arteta admits injuries a worry for Arsenal’s bid for silverware](https://www.independent.ie/sport/soccer/premier-league/we-need-some-players-back-mikel-arteta-admits-injuries-a-worry-in-arsenals-bid-for-silverware/a1587437460.html) - **Independent.ie**
 
 
 ---
-*최근 업데이트: 2026-02-17 03:22:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-17 04:20:44 (KST) / (하루 100회 제한 준수 중)*
