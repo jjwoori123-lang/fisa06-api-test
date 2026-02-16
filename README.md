@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Real Madrid draw up plans to make five summer signings](https://www.football-espana.net/2026/02/14/real-madrid-five-summer-signings) - **Football Espana**
-2. [FA Cup fourth round today: Reports, results, goals, video highlights including Burnley vs Mansfield](https://www.101greatgoals.com/football/fa-cup-fourth-round-today-reports-results-goals-highlights/) - **101 Great Goals**
-3. [Giannis Antetokounmpo makes his choice between Cristiano Ronaldo and Lionel Messi on the All Star stage](https://www.marca.com/en/basketball/nba/milwaukee-bucks/2026/02/15/6990f32e22601d407e8b45a4.html) - **Marca**
-4. [Why Ted Lasso Stands Out Among Contemporary TV Comedies](https://screenrant.com/ted-lasso-apple-tv-best-modern-comedy-show/) - **Screen Rant**
-5. [Liverpool 3-0 Brighton: Report, result, goals and video highlights as Reds cruise in FA Cup fourth round 2025/26](https://www.101greatgoals.com/football/liverpool-brighton-report-result-goals-video-fa-cup/) - **101 Great Goals**
-6. [Papers: Man Utd players want new contract for Maguire](https://www.skysports.com/football/transfer-paper-talk/12709/13507751/manchester-united-players-want-harry-maguire-to-be-offered-a-new-contract-paper-talk) - **Sky Sports**
-7. [Salah calls Liverpool teammate ‘one of the best in the world’](https://thefootballfaithful.com/mo-salah-liverpool-dominik-szoboszlai/) - **The Football Faithful**
-8. [Pep Guardiola criticizes Manchester City players after narrow FA Cup win over Salford City: ‘It was boring’](https://worldsoccertalk.com/news/pep-guardiola-criticizes-manchester-city-players-after-narrow-fa-cup-win-over-salford-city-it-was-boring/) - **Worldsoccertalk.com**
-9. [Analysis: Premier League the priority for Emery](https://www.bbc.com/sport/football/articles/crm872wzk3do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Three senior bankers including country head at Raine Group are said to depart advisory firm](https://economictimes.indiatimes.com/industry/banking/finance/banking/three-senior-bankers-including-country-head-at-raine-group-are-said-to-depart-advisory-firm/articleshow/128369166.cms) - **The Times of India**
+2. [3 senior bankers depart Raine Group India to launch new investment firm](https://www.business-standard.com/companies/news/3-senior-bankers-depart-raine-group-india-to-launch-new-investment-firm-126021500054_1.html) - **Business Standard**
+3. [Tottenham Hotspur appoints Igor Tudor as interim manager after Thomas Frank's sacking](https://www.marca.com/en/football/tottenham/2026/02/15/69913184e2704e487d8b4583.html) - **Marca**
+4. [Medicine Hat Tigers Clinch WHL Playoffs](https://thehockeynews.com/whl/latest-news/medicine-hat-tigers-clinch-whl-playoffs) - **The Hockey News**
+5. [Shams Charania roasted for phone obsession during NBA Celebrity All-Star Game](https://www.marca.com/en/basketball/nba/2026/02/15/6991044a22601d9b278b459a.html) - **Marca**
+6. [Remo begin Akure spell with Abia visit](https://punchng.com/remo-begin-akure-spell-with-abia-visit/) - **The Punch**
+7. [Digging Deeper Into Liverpool’s FA Cup Win Over Brighton](https://liverpooloffside.sbnation.com/liverpool-fa-cup-coverage/78733/digging-deeper-into-liverpools-fa-cup-win-over-brighton-kerkez-salah-jones-szoboszlai) - **SB Nation**
+8. [3SC host Wolves in Abeokuta](https://punchng.com/3sc-host-wolves-in-abeokuta/) - **The Punch**
+9. [Kwara, Pillars clash in survival battle](https://punchng.com/kwara-pillars-clash-in-survival-battle/) - **The Punch**
+10. [Why did Tottenham appoint Igor Tudor? #sports](https://alltoc.com/sports/why-did-tottenham-appoint-igor-tudor) - **Alltoc.com**
 
 
 ---
-*최근 업데이트: 2026-02-16 08:57:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-16 11:54:47 (KST) / (하루 100회 제한 준수 중)*
