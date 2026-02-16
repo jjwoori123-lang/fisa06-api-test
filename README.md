@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Patrice Evra isn't afraid of Lionel Messi fans' "hate" and reveals why he prefers Cristiano Ronaldo](https://www.marca.com/en/football/manchester-united/2026/02/15/6991daf9268e3eb7178b45ae.html) - **Marca**
-2. [How Everton’s Hill Dickinson Stadium fares in Premier League average home attendance](https://www.hitc.com/how-evertons-hill-dickinson-stadium-fares-in-premier-league-average-home-attendance/) - **HITC - Football, Gaming, Movies, TV, Music**
-3. [Amad Diallo shares United players’ favourite Old Trafford anthem](https://thepeoplesperson.com/2026/02/15/amad-diallo-shares-united-players-favourite-old-trafford-anthem-306540/) - **The Peoples Person**
-4. [Vítor Pereira becomes Nottingham Forest's fourth coach of a turbulent season](https://sports.yahoo.com/articles/v-tor-pereira-becomes-nottingham-140853054.html) - **Yahoo Entertainment**
-5. [Reed hits winner as Fulham hit back to dump Stoke out](https://www.skysports.com/football/news/34651/13507245/stoke-city-1-2-fulham-harrison-reeds-late-winner-sends-marco-silvas-cottagers-into-fa-cup-fifth-round) - **Sky Sports**
-6. [Martin O’Neill breaks bad news on Arne Engels injury](https://thecelticstar.com/martin-oneill-breaks-bad-news-on-arne-engels-injury/) - **The Celtic Star**
-7. [Arsenal outclass and overwhelm Wigan in dominant FA Cup win](https://www.skysports.com/football/news/11095/13507250/arsenal-4-0-wigan-gunners-cruise-into-fa-cup-fifth-round-with-dominant-victory-against-league-one-opponents) - **Sky Sports**
-8. [Vitor Pereira confirmed as Nottingham Forest's fourth manager of the 2025-26 season](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_02e12761-14cf-4eb0-8222-c7f1189d5d59) - **Yahoo Entertainment**
-9. [Why is there talk about a Pakistan spinner's action?](https://www.bbc.com/sport/cricket/articles/cddn9zpj6jdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Arsenal vs Wigan Athletic: Confirmed teams and line ups in FA Cup fourth round 2025/26](https://www.101greatgoals.com/football/arsenal-vs-wigan-live-confirmed-teams-fa-cup-2025-26/) - **101 Great Goals**
+2. [After Rooney, Cunha criticizes the Frank Illet phenomenon](https://foot-africa.com/en/news/after-rooney-cunha-criticizes-the-frank-illet-phenomenon-1087277/) - **Foot-africa.com**
+3. [Leeds beat Birmingham on penalties to reach FA Cup fifth round](https://www.channelnewsasia.com/sport/leeds-beat-birmingham-penalties-reach-fa-cup-fifth-round-5932931) - **CNA**
+4. [Why Mohamed Salah’s words on Dominik Szoboszlai could irk Chelsea supporters](https://www.hitc.com/why-mohamed-salahs-words-on-dominik-szoboszlai-could-irk-chelsea-supporters/) - **HITC - Football, Gaming, Movies, TV, Music**
+5. [Bueno the hero as Wolves beat valiant Grimsby to earn FA Cup fifth round spot](https://www.skysports.com/football/news/11769/13507238/grimsby-0-1-wolves-santiago-bueno-heroics-secures-rob-edwards-side-an-fa-cup-fifth-round-spot) - **Sky Sports**
+6. [Grimsby Town x Wolverhampton - Highlights, Summary and Match Report](https://www.playmakerstats.com/news/grimsby-town-x-wolverhampton-highlights-summary-and-match-report/1054224) - **Playmakerstats.com**
+7. [Bruno Fernandes’ Manchester United may welcome back a key player as Serie A star reportedly pushes for Premier League return](https://worldsoccertalk.com/news/bruno-fernandes-manchester-united-may-welcome-back-a-key-player-as-serie-a-star-reportedly-pushes-for-premier-league-return/) - **Worldsoccertalk.com**
+8. [ Saliba back in Arsenal’s starting XI against Wigan in the FA Cup](https://onefootball.com/en/news/saliba-back-in-arsenals-starting-xi-against-wigan-in-the-fa-cup-42414569) - **Onefootball.com**
+9. [Audit of gambling dominance in English football](http://www.toffeeweb.com/season/25-26/news/47285.html) - **Toffeeweb**
 
 
 ---
-*최근 업데이트: 2026-02-16 23:44:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-17 00:44:04 (KST) / (하루 100회 제한 준수 중)*
