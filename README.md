@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Harry Maguire injury update will delight fans](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ce2d4c1c-f103-48dd-adc9-7e077078d1ee) - **Yahoo Entertainment**
-2. [Carlow battle past Tipp to stay top of Division 4](https://www.rte.ie/sport/football/2026/0215/1558583-carlow-battle-past-tipp-to-stay-top-of-division-4/) - **RTE**
-3. [No more FA Cup upsets as Fulham, Leeds, Sunderland and Wolves reach 5th round. Arsenal faces Wigan](https://sports.yahoo.com/articles/no-more-fa-cup-upsets-163245114.html) - **Yahoo Entertainment**
-4. [Milan delegates visit Hill Dickinson Stadium to take inspiration for San Siro project](http://www.toffeeweb.com/season/25-26/news/47287.html) - **Toffeeweb**
-5. [Newcastle United: Nick Woltemade beendet Durststrecke](https://www.sueddeutsche.de/sport/newcastle-united-nick-woltemade-beendet-durststrecke-li.3388010) - **Süddeutsche Zeitung**
-6. [Grimsby 0-1 Wolves - analysis](https://www.bbc.com/sport/football/articles/c80j53r4m00o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [“The messages he’s brought” – Liam Delap reveals how Chelsea squad really feel about Rosenior’s tactics](https://chelsea.news/2026/02/liam-delap-liam-rosenior-tactics/) - **Chelsea.news**
-8. [Liverpool to battle Manchester United for £50m wonderkid](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-to-battle-manchester-united-for-ps50m-wonderkid-mateus-mane/) - **Anfieldwatch.co.uk**
+1. [Arsenal v Wigan: Gunners take 4-0 lead after injury forces Arteta into late change](https://www.101greatgoals.com/football/arsenal-wigan-goals-injury-setback/) - **101 Great Goals**
+2. [Leipzig star Diomande responds to Bayern and Liverpool links](https://bulinews.com/leipzig-star-diomande-responds-bayern-and-liverpool-links) - **Bulinews.com**
+3. [Curtis Jones: Three Goals And A Clean Sheet “All You Can Ask For”](https://liverpooloffside.sbnation.com/liverpool-fa-cup-coverage/78745/curtis-jones-three-goals-and-a-clean-sheet-all-you-can-ask-for-liverpool-brighton-fa-cup-26) - **SB Nation**
+4. [Bueno earns Wolves FA Cup win at muddy Grimsby](https://www.bbc.com/sport/football/videos/cwy8j7pxwkgo) - **BBC News**
+5. [Martinelli's remarkable cup form continues with strike vs. Wigan ](https://onefootball.com/en/news/martinellis-remarkable-cup-form-continues-with-strike-vs-wigan-42415143) - **Onefootball.com**
+6. [FA Cup fourth round today: Reports, results, goals, video highlights including Wolves, Sunderland and Fulham](https://www.101greatgoals.com/football/fa-cup-fourth-round-reports-results-goals-wolves-sunderland-fulham/) - **101 Great Goals**
+7. [Littler to miss PDC's latest Players Championship double header in Wigan](https://www.sportingnews.com/us/darts/news/littler-miss-pdcs-latest-players-championship-double-header-wigan/2233fe0296cbe1556638b847) - **Sporting News**
+8. [Bryan Mbeumo: Cunha names Cameroonian’s most special quality](https://thepeoplesperson.com/2026/02/15/bryan-mbeumo-cunha-names-cameroonians-most-special-quality-306529/) - **The Peoples Person**
+9. [ Worse than Sunday league: PL club stuck in the mud](https://onefootball.com/en/news/worse-than-sunday-league-pl-club-stuck-in-the-mud-42415074) - **Onefootball.com**
 
 
 ---
-*최근 업데이트: 2026-02-17 01:51:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-17 02:40:05 (KST) / (하루 100회 제한 준수 중)*
