@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Coventry retake top spot in Championship as Wright hat-trick sees off Boro](https://www.skysports.com/football/news/11095/13507165/coventry-city-3-1-middlesbrough-haji-wright-hat-trick-steers-sky-blues-back-to-top-of-championship) - **Sky Sports**
-2. [Own goal dispatches giant-killer Macclesfield as Brentford moves into FA Cup fifth round](https://japantoday.com/category/sports/own-goal-dispatches-giant-killer-macclesfield-as-brentford-moves-into-fa-cup-fifth-round) - **Japan Today**
-3. [Haji Wright hat trick: USMNT forward leads huge Coventry City win over Middlesbrough (video)](https://www.nbcsports.com/soccer/news/haji-wright-hat-trick-usmnt-forward-leads-huge-coventry-city-win-over-middlesbrough-video) - **NBCSports.com**
-4. [Own goal ends Macclesfield's FA Cup fairytale against Brentford](https://www.abc.net.au/news/2026-02-17/fa-cup-macclesfield-brentford-fourth-round/106352296) - **ABC News (AU)**
-5. [Own goal ends Macclesfields FA Cup Dream](https://www.playmakerstats.com/news/own-goal-ends-macclesfield-s-fa-cup-dream/1055230) - **Playmakerstats.com**
-6. [UEFA Champions League expert predictions, picks for playoffs: Will PSG and Real Madrid be title contenders?](https://www.cbssports.com/soccer/news/uefa-champions-league-expert-predictions-picks-playoffs-psg-real-madrid/) - **CBS Sports**
-7. [Wrexham set for a blockbuster FA Cup tie against 8-time champion Chelsea](https://japantoday.com/category/sports/wrexham-set-for-a-blockbuster-fa-cup-tie-against-8-time-champion-chelsea) - **Japan Today**
-8. [Aston Villa In Tough Competition For €60m Valued Winger: Do The Birmingham Club Need Him?](https://the4thofficial.net/2026/02/aston-villa-in-tough-competition-for-e60m-valued-winger-do-the-birmingham-club-need-him/) - **The4thofficial.net**
-9. [Granit Xhaka Provides Decisive Update On His Sunderland Return: How Will He Tactically Change The Black Cats?](https://the4thofficial.net/2026/02/granit-xhaka-provides-decisive-update-on-his-sunderland-return-how-will-he-tactically-change-the-black-cats/) - **The4thofficial.net**
-10. [Brentford do enough to see off non-league Macclesfield](https://www.rte.ie/sport/soccer/2026/0216/1558851-brentford-do-enough-to-see-off-non-league-macclesfield/) - **RTE**
+1. [Brentford boss Andrews hails players after claims ‘everyone’ wanted bees to lose FA Cup clash](https://www.101greatgoals.com/football/brentford-boss-andrews-fa-cup/) - **101 Great Goals**
+2. [Manchester United name their price for Altay Bayindir as Besiktas circle](https://thepeoplesperson.com/2026/02/16/manchester-united-name-their-price-for-altay-bayindir-as-besiktas-circle-306596/) - **The Peoples Person**
+3. [FA Cup last 16: contrasting draws for Arsenal and City](https://foot-africa.com/en/news/fa-cup-last-16-contrasting-draws-for-arsenal-and-city-1089182/) - **Foot-africa.com**
+4. [Rooney “couldn’t be prouder” of his giant-killers after FA Cup exit for Macclesfield against Brentford](https://wp.fromthespot.co.uk/26652/rooney-couldnt-be-prouder-of-his-giant-killers-after-fa-cup-exit-for-macclesfield-against-brentford/) - **Fromthespot.co.uk**
+5. [Man Utd consider swoop for Mac Allister - Tuesday's gossip](https://www.bbc.com/sport/football/articles/c93wk7ypnpno) - **BBC News**
+6. [Alexis Mac Allister will only join Man Utd if one thing happens this season](https://www.anfieldwatch.co.uk/liverpool-fc/news/alexis-mac-allister-will-only-join-man-utd-if-one-thing-happens-this-season/) - **Anfieldwatch.co.uk**
+7. [Lionel Messi’s Argentina teammate targeted by a Premier League team in bold post-2026 World Cup move](https://worldsoccertalk.com/news/lionel-messis-argentina-teammate-targeted-by-a-premier-league-team-in-bold-post-2026-world-cup-move/) - **Worldsoccertalk.com**
+8. [Premier League Giants Challenge Everton For £50m Star’s Signature: Why The Toffees Will Still Be Ahead?](https://the4thofficial.net/2026/02/premier-league-giants-challenge-everton-for-50m-stars-signature-why-the-toffees-will-still-be-ahead/) - **The4thofficial.net**
+9. [Macclesfield 0-1 Brentford: What Andrews and Collins said](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_76d974e7-59af-4d5f-b5d0-b964cdb0c5e2) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-18 07:01:50 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-18 07:53:58 (KST) / (하루 100회 제한 준수 중)*
