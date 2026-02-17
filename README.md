@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Former Liverpool Coach Heitinga Out At Spurs After 33 Days](https://liverpooloffside.sbnation.com/liverpool-fc-news-coverage/78758/former-liverpool-coach-heitinga-out-at-spurs-after-33-days) - **SB Nation**
-2. [Rüdiger set for Premier League return?](https://foot-africa.com/en/news/rudiger-set-for-premier-league-return-noadsense-1088723/) - **Foot-africa.com**
-3. [Pep Guardiola responds to FA charge issued to Rodri over referee comments](https://cityxtra.co.uk/41763/pep-guardiola-responds-to-fa-charge-issued-to-rodri-over-referee-comments/) - **Cityxtra.co.uk**
-4. [Who is playing at the 2026 Poland Darts Open?](https://www.sportingnews.com/us/darts/news/who-playing-2026-poland-darts-open/06b76c9a8def0509feea64c0) - **Sporting News**
-5. [Who will survive the Premier League relegation battle?](https://hayters.com/who-will-survive-the-premier-league-relegation-battle/) - **Hayters.com**
-6. [Everton v United: TV info, team news & more](https://www.manutd.com/en/news/detail/how-to-watch-and-follow-everton-v-man-utd-23-feb-2026) - **Manchester United**
-7. [Liverpool go toe-to-toe with Premier League rivals to sign £50m star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-go-toe-to-toe-with-premier-league-rivals-to-sign-ps50m-star/) - **Anfieldwatch.co.uk**
-8. [Weston McKennie’s future in doubt as USMNT star reportedly stalls Juventus renewal talks with massive demand](https://worldsoccertalk.com/news/weston-mckennies-future-in-doubt-as-usmnt-star-reportedly-stalls-juventus-renewal-talks-with-massive-demand/) - **Worldsoccertalk.com**
+1. ['Sometimes sticking with your man is the right call'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4480060c-fa80-480b-b19d-7dfcf01024fa) - **Yahoo Entertainment**
+2. [Arsenal’s Eberechi Eze strikes Fremantle agreement for branded, digital and TV content](https://www.c21media.net/news/arsenals-eberechi-eze-strikes-fremantle-agreement-for-branded-digital-and-tv-content/) - **C21media.net**
+3. [Liverpool face competition for £50m Premier League defender](https://anfieldindex.com/91300/liverpool-face-competition-for-50m-premier-league-defender.html) - **Anfieldindex.com**
+4. [Szoboszlai laying the path for Kerkez and others at Liverpool](https://anfieldindex.com/91306/szoboszlai-laying-the-path-for-kerkez-and-others-at-liverpool.html) - **Anfieldindex.com**
+5. [Liverpool star urged to consider joining two Premier League sides](https://anfieldindex.com/91296/liverpool-star-urged-to-consider-joining-two-premier-league-sides.html) - **Anfieldindex.com**
+6. [Arsenal player praised after his home debut](https://dailycannon.com/2026/02/setford-norgaard-debut-praise/) - **Dailycannon.com**
+7. [Liverpool have an advantage in transfer chase for 'outstanding' attacker](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-have-an-advantage-in-transfer-chase-for-outstanding-attacker/) - **Anfieldwatch.co.uk**
+8. [Why Bastoni should not face Italy punishment after Inter vs. Juventus chaos](https://football-italia.net/italy-gattuso-right-no-drop-bastoni-inter-juve/) - **Football Italia**
+9. [Trouble for Nwaneri as the Marseille off-field situation deteriorates](https://www.justarsenal.com/trouble-for-nwaneri-as-the-marseille-off-field-situation-deteriorates/410125) - **Just Arsenal News**
+10. [Macclesfield vs Brentford Live Streams: How to watch FA Cup 2025/26 from anywhere in the world](https://www.techradar.com/how-to-watch/football/macclesfield-vs-brentford-free-streams-fa-cup-2025-26) - **TechRadar**
 
 
 ---
-*최근 업데이트: 2026-02-18 01:38:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-18 02:41:06 (KST) / (하루 100회 제한 준수 중)*
