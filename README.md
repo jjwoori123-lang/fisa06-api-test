@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Fuchs: I tried to get Vardy to Newport!](https://www.skysports.com/football/news/11095/13508181/christian-fuchs-interview-taking-the-newport-county-role-calling-upon-brendan-rodgers-and-trying-to-recruit-jamie-vardy) - **Sky Sports**
-2. [Report: Chelsea and Liverpool currently in the race for £50m Premier League defender](https://eplindex.com/142909/report-chelsea-and-liverpool-currently-in-the-race-for-50m-premier-league-defender.html) - **English Premier League Index - Opta Stats**
-3. [Coventry vs Middlesbrough – Predicted lineup and team news](https://thefootballfaithful.com/coventry-vs-middlesbrough-predicted-lineup-and-team-news/) - **The Football Faithful**
-4. [Transfer rumour roundup: Man City eye Gibbs-White as Bernardo heir, Premier League giants circle Pulisic](https://www.footballmuse.com/features/transfer-rumour-roundup-man-city-eye-gibbs-white-as-bernardo-heir-premier-league-giants-circle-pulisic) - **Footballmuse.com**
-5. [Three Premier League clubs line up summer move for Real Madrid defender](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_20c7703e-f4b1-4855-8679-497e0a2a0d00) - **Yahoo Entertainment**
-6. [How to watch Wolves vs Arsenal live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-wolves-vs-arsenal-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
-7. [27-year-old Man Utd man retaining contact with European suitor to make summer move as straightforward as possible](https://strettynews.com/2026/02/16/altay-bayindir-contact-besiktas-manchester-united-transfer/) - **Strettynews.com**
-8. [James Trafford unsure over his Man City future due to Gianluigi Donnarumma](https://www.independent.ie/sport/soccer/james-trafford-unsure-over-his-man-city-future-due-to-gianluigi-donnarumma/a1578698289.html) - **Independent.ie**
-9. [T20 World Cup: Rashid Khan becomes first bowler to reach 700 T20 wickets](https://indianexpress.com/article/sports/cricket/t20-world-cup-rashid-khan-becomes-first-bowler-to-reach-700-t20-wickets-10534927/) - **The Indian Express**
+1. [Chelsea linked Premier League star in bottom 10% of players in Europe for key defensive stat](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1c8f9805-dabe-446f-bbfa-fb7fb2272e61) - **Yahoo Entertainment**
+2. [Brighton pushing for a decision on 1.FC Köln’s Said El Mala after €30m offer was rejected](https://www.getfootballnewsgermany.com/2026/brighton-koln-el-mala/) - **Getfootballnewsgermany.com**
+3. [Loan watch: Vieira and Kabia shine again](http://www.arsenal.com/news/loan-watch-vieira-and-kabia-shine-again) - **Arsenal.com**
+4. [How to solve VAR problem: Keep, reform or remove?](https://www.skysports.com/football/news/11095/13508165/var-absence-in-fa-cup-intensifies-debate-around-technology-should-we-keep-reform-or-remove-it) - **Sky Sports**
+5. [Toney says numbers speak for themselves in World Cup bid](https://thefootballfaithful.com/toney-says-numbers-speak-for-themselves-in-world-cup-bid/) - **The Football Faithful**
+6. [Outdoor Power Equipment Global Outlook Report 2026: A $48.2 Billion Market by 2030 from $35 Billion in 2024 with Deere & Co., Husqvarna, HONDA, Stanley Black & Decker, and Toro Group Dominating](https://www.globenewswire.com/news-release/2026/02/16/3238609/28124/en/Outdoor-Power-Equipment-Global-Outlook-Report-2026-A-48-2-Billion-Market-by-2030-from-35-Billion-in-2024-with-Deere-Co-Husqvarna-HONDA-Stanley-Black-Decker-and-Toro-Group-Dominatin.html) - **GlobeNewswire**
+7. [“Everyone knows what’s going on” says James Trafford on Manchester City future](https://cityxtra.co.uk/41749/everyone-knows-whats-going-on-says-james-trafford-on-manchester-city-future/) - **Cityxtra.co.uk**
+8. ['We should have won that match' - Davies](https://www.bbc.com/sport/football/articles/cqxd95rqdpgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [FULL LIST: FA Cup winners since 2015](https://punchng.com/full-list-fa-cup-winners-since-2015/) - **The Punch**
+10. [Thomas Frank already attracting Premier League interest](https://foot-africa.com/en/news/thomas-frank-already-attracting-premier-league-interest-1088210/) - **Foot-africa.com**
 
 
 ---
-*최근 업데이트: 2026-02-17 19:09:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-17 20:09:14 (KST) / (하루 100회 제한 준수 중)*
