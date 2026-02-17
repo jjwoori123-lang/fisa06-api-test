@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool’s Late-Goal Problem Is Putting Champions League Qualification at Risk](https://www.empireofthekop.com/2026/02/16/liverpool-late-goal-problem-is-putting-champions-league-qualification-at-risk/) - **Empire of The Kop**
-2. [Brentford beat non-league Macclesfield to avoid FA Cup upset](https://www.skysports.com/football/news/11748/13507258/macclesfield-town-0-1-brentford-sam-heathcote-own-goal-sends-bees-into-fa-cup-fifth-round) - **Sky Sports**
-3. [Liverpool look to agree deal with £100m Premier League star open to summer move](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-look-to-agree-deal-with-ps100m-premier-league-star-over-summer-move-morgan-rogers/) - **Anfieldwatch.co.uk**
-4. [‘Liverpool are watching’ – Reliable journalist says Reds are ‘definitely’ eyeing £87m roadrunner](https://www.empireofthekop.com/2026/02/16/david-lynch-liverpool-are-watching-yan-diomande/) - **Empire of The Kop**
-5. [Cristiano Ronaldo: Benni McCarthy on working with United legend](https://thepeoplesperson.com/2026/02/16/cristiano-ronaldo-benni-mccarthy-on-working-with-united-legend-306584/) - **The Peoples Person**
-6. [Arsenal Are Keeping Tabs On This Real Madrid Prospect: One For The Future?](https://the4thofficial.net/2026/02/arsenal-are-keeping-tabs-on-this-real-madrid-prospect-one-for-the-future/) - **The4thofficial.net**
-7. [Arsenal star insists the club’s fans should dream](https://www.justarsenal.com/arsenal-star-insists-the-clubs-fans-should-dream/410148) - **Just Arsenal News**
-8. [New wingers, fixture demands and cup finals – Pep Guardiola shines light on ‘difficult’ three weeks](https://cityxtra.co.uk/41767/new-wingers-fixture-demands-and-cup-finals-pep-guardiola-shines-light-on-difficult-three-weeks/) - **Cityxtra.co.uk**
-9. [Liverpool made ‘serious enquiry’ over move for Leeds United star in January](https://anfieldindex.com/91318/liverpool-made-serious-enquiry-over-move-for-leeds-united-star-in-january.html) - **Anfieldindex.com**
-10. [Chelsea injury latest: Cole Palmer, Romeo Lavia and more](https://eplindex.com/142946/chelsea-injury-latest-cole-palmer-romeo-lavia-and-more-2.html) - **English Premier League Index - Opta Stats**
+1. [Coventry retake top spot in Championship as Wright hat-trick sees off Boro](https://www.skysports.com/football/news/11095/13507165/coventry-city-3-1-middlesbrough-haji-wright-hat-trick-steers-sky-blues-back-to-top-of-championship) - **Sky Sports**
+2. [Own goal dispatches giant-killer Macclesfield as Brentford moves into FA Cup fifth round](https://japantoday.com/category/sports/own-goal-dispatches-giant-killer-macclesfield-as-brentford-moves-into-fa-cup-fifth-round) - **Japan Today**
+3. [Haji Wright hat trick: USMNT forward leads huge Coventry City win over Middlesbrough (video)](https://www.nbcsports.com/soccer/news/haji-wright-hat-trick-usmnt-forward-leads-huge-coventry-city-win-over-middlesbrough-video) - **NBCSports.com**
+4. [Own goal ends Macclesfield's FA Cup fairytale against Brentford](https://www.abc.net.au/news/2026-02-17/fa-cup-macclesfield-brentford-fourth-round/106352296) - **ABC News (AU)**
+5. [Own goal ends Macclesfields FA Cup Dream](https://www.playmakerstats.com/news/own-goal-ends-macclesfield-s-fa-cup-dream/1055230) - **Playmakerstats.com**
+6. [UEFA Champions League expert predictions, picks for playoffs: Will PSG and Real Madrid be title contenders?](https://www.cbssports.com/soccer/news/uefa-champions-league-expert-predictions-picks-playoffs-psg-real-madrid/) - **CBS Sports**
+7. [Wrexham set for a blockbuster FA Cup tie against 8-time champion Chelsea](https://japantoday.com/category/sports/wrexham-set-for-a-blockbuster-fa-cup-tie-against-8-time-champion-chelsea) - **Japan Today**
+8. [Aston Villa In Tough Competition For €60m Valued Winger: Do The Birmingham Club Need Him?](https://the4thofficial.net/2026/02/aston-villa-in-tough-competition-for-e60m-valued-winger-do-the-birmingham-club-need-him/) - **The4thofficial.net**
+9. [Granit Xhaka Provides Decisive Update On His Sunderland Return: How Will He Tactically Change The Black Cats?](https://the4thofficial.net/2026/02/granit-xhaka-provides-decisive-update-on-his-sunderland-return-how-will-he-tactically-change-the-black-cats/) - **The4thofficial.net**
+10. [Brentford do enough to see off non-league Macclesfield](https://www.rte.ie/sport/soccer/2026/0216/1558851-brentford-do-enough-to-see-off-non-league-macclesfield/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-02-18 06:39:28 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-18 07:01:50 (KST) / (하루 100회 제한 준수 중)*
