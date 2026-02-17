@@ -1,15 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Romano: Summer transfer ‘battle’ now anticipated for attacking sensation who Man Utd want and ‘can afford’](https://strettynews.com/2026/02/16/yan-diomande-interest-manchester-united-rb-leipzig-premier-league/) - **Strettynews.com**
-2. [Toney leaves door open for PL return and reveals England World Cup hopes](https://www.skysports.com/football/news/11095/13507852/ivan-toney-england-striker-leaves-door-open-for-premier-league-return-and-reveals-world-cup-hopes) - **Sky Sports**
-3. [Matheson on Old Trafford heroics, 'torrid time' as £1m teenager & McLeod death](https://www.bbc.com/sport/football/articles/cvg18xrw2rwo) - **BBC News**
-4. [The Bobby Collins story – Celtic, Everton and Leeds Utd, born 95 years ago today](https://thecelticstar.com/the-bobby-collins-story-celtic-everton-and-leeds-utd-born-95-years-ago-today/) - **The Celtic Star**
-5. [Former Blue names Chelsea’s “most improved” player under Liam Rosenior so far](https://chelsea.news/2026/02/former-blue-names-chelseas-most-improved-player-under-liam-rosenior-so-far/) - **Chelsea.news**
-6. [Brentford XI vs Macclesfield – Predicted lineup and team news](https://thefootballfaithful.com/brentford-xi-vs-macclesfield-predicted-lineup-and-team-news/) - **The Football Faithful**
-7. [Macclesfield vs Brentford – Match preview and team news](https://thefootballfaithful.com/macclesfield-vs-brentford-match-preview-and-team-news/) - **The Football Faithful**
-8. [All in the Game: Far from impressed by Benjamin Sesko goal, Roy Keane was triggered by it](https://www.irishtimes.com/sport/2026/02/16/all-in-the-game-far-from-impressed-by-benjamin-sesko-goal-roy-keane-was-triggered-by-it/) - **The Irish Times**
-9. [Matchday Musings: Diarra Makes The Difference As Sunderland See Off Oxford!](https://rokerreport.sbnation.com/opinion/126520/matchday-musings-diarra-makes-the-difference-as-sunderland-see-off-oxford) - **SB Nation**
+1. [West Ham vs. Arsenal final score: Premier League result, stats as Gunners hit five before halftime to go second](https://www.sportingnews.com/us/soccer/news/west-ham-vs-arsenal-live-score-result-updates-premier-league/71d8c11042153d4603d507a6) - **Sporting News**
+2. [Atalanta vs. Real Madrid score, result: Bellingham, Blancos secure critical victory but lose Mbappe to injury](https://www.sportingnews.com/us/soccer/news/atalanta-vs-real-madrid-live-score-result-champions-league/bd9bde06de6d2f5bfc01d0ce) - **Sporting News**
+3. [Croatia vs. Portugal final score: UEFA Nations League result, stats as Gvardiol cancels out Joao Felix strike to seal qualification](https://www.sportingnews.com/us/soccer/news/croatia-vs-portugal-live-score-result-updates-uefa-nations-league/f8b9a6b7b6ef58b1535f2c85) - **Sporting News**
+4. [Toby Collyer: Man United loanee season from hell continues at Hull City](https://thepeoplesperson.com/2026/02/16/toby-collyer-man-united-loanee-season-from-hell-continues-at-hull-city-306566/) - **The Peoples Person**
+5. [Three players named: Chelsea open to selling three centre backs in the summer](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6478b851-923b-4923-894f-6088e4c2d086) - **Yahoo Entertainment**
+6. [James Trafford reveals truth on Manchester City return and Gianluigi Donnarumma signing](https://cityxtra.co.uk/41745/james-trafford-reveals-truth-on-manchester-city-return-and-gianluigi-donnarumma-signing/) - **Cityxtra.co.uk**
+7. [‘Intangible magic’: Why Guinness is investing in women’s football](https://www.marketingweek.com/guinness-investing-womens-football/) - **Marketing Week**
 
 
 ---
-*최근 업데이트: 2026-02-17 16:03:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-17 17:01:53 (KST) / (하루 100회 제한 준수 중)*
