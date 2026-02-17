@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Brighton pushing for clarity on future of Köln starlet Said El Mala](https://bulinews.com/brighton-pushing-for-clarity-future-koln-starlet-said-mala) - **Bulinews.com**
-2. [When is the FA Cup fifth round draw? Date, time, TV channel, live stream, ball numbers for 2025/26 round five](https://www.101greatgoals.com/football/fa-cup-fifth-round-draw-date-time-tv-channel-live-stream-ball-numbers-2025-26/) - **101 Great Goals**
-3. [Parker 'needs to keep his whole squad happy'](https://www.bbc.com/sport/football/articles/cx2rjwnn795o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [ Does Oxford's FA Cup performance offer hope?](https://www.bbc.com/sport/football/articles/c20lkq9vnnyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Edmond Tapsoba’s summer valuation emerges amid exit speculation](https://bulinews.com/edmond-tapsoba-summer-valuation-emerges-amid-exit-speculation) - **Bulinews.com**
-6. [U18s preview: Arsenal v Tottenham Hotspur](http://www.arsenal.com/news/u18s-preview-arsenal-v-tottenham-hotspur-1) - **Arsenal.com**
-7. [Chelsea linked Premier League star in bottom 10% of players in Europe for key defensive stat](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1c8f9805-dabe-446f-bbfa-fb7fb2272e61) - **Yahoo Entertainment**
-8. [Brighton pushing for a decision on 1.FC Köln’s Said El Mala after €30m offer was rejected](https://www.getfootballnewsgermany.com/2026/brighton-koln-el-mala/) - **Getfootballnewsgermany.com**
-9. [Loan watch: Vieira and Kabia shine again](http://www.arsenal.com/news/loan-watch-vieira-and-kabia-shine-again) - **Arsenal.com**
+1. [USA vs Sweden live stream, watch Winter Olympics women’s hockey online free](https://www.thebiglead.com/usa-sweden-live-stream-watch-winter-olympics-womens-hockey-online-free/) - **The Big Lead**
+2. [Under-21s' Premier League 2 clash against Wolves rearranged](https://www.newcastleunited.com/en/news/under-21s-premier-league-2-clash-against-wolves-rearranged) - **Newcastleunited.com**
+3. [Top 10 wide receivers in free agency via Spotrac](https://www.thebiglead.com/top-10-wide-receivers-in-free-agency-via-spotrac-v/) - **The Big Lead**
+4. [FA Youth Cup preview: Oxford v United](https://www.manutd.com/en/news/detail/fa-youth-cup-preview-oxford-united-v-man-utd-u18s) - **Manchester United**
+5. [Star midfielder reaffirms commitment to Premier League club after Arsenal links](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ce3455b5-7909-4c01-8b62-55c648283817) - **Yahoo Entertainment**
+6. [Ratcliffe, Man Utd and the immigration comments fallout](https://www.bbc.com/sport/football/articles/c309dj3vm7do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Manchester United defender Matthijs de Ligt sets his sights on a return to action next month](https://sportsview.co.uk/2026/02/manchester-united-defender-matthijs-de-ligt-sets-his-sights-on-a-return-to-action-next-month?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-defender-matthijs-de-ligt-sets-his-sights-on-a-return-to-action-next-month) - **Sportsview.co.uk**
+8. [Matthijs de Ligt return timeline will be great news for Carrick](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_24197803-6ba9-4773-8be3-4c67ae7a819f) - **Yahoo Entertainment**
+9. [FA Cup 5th-round draw: When is it, who can Arsenal face?](https://dailycannon.com/2026/02/arsenal-fa-cup-fifth-round-draw/) - **Dailycannon.com**
 
 
 ---
-*최근 업데이트: 2026-02-17 20:56:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-17 22:20:35 (KST) / (하루 100회 제한 준수 중)*
