@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Who will come out on top as ailing Coventry face buoyant Boro?](https://www.bbc.com/sport/football/articles/cn8zlzz8v8do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [As some sink to the depths, Eze shines and AFC are in the last 16](https://untold-arsenal.com/archives/119490) - **Untold-arsenal.com**
-3. [Kim Min-jae on the radar of English clubs](https://foot-africa.com/en/news/kim-min-jae-on-the-radar-of-english-clubs-1088048/) - **Foot-africa.com**
-4. [Analysis: Gunners make rapid start and ease through](https://www.bbc.com/sport/football/articles/cp8r2087gnyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [NHL free agency tracker 2025: Live updates on news, rumors, signings and trades](https://www.sportingnews.com/us/nhl/news/nhl-free-agency-tracker-2025-updates-news-signings-trades/503731856cb55be750a1a2cb) - **Sporting News**
-6. [Hírhétfő – Finding Her Edge 2. évad! Good Cop/Bad Cop-kasza!](https://www.sorozatjunkie.hu/2026/02/16/hirhetfo-finding-her-edge-2-evad-good-cop-bad-cop-kasza/) - **Sorozatjunkie.hu**
-7. [West Ham vs. Arsenal final score: Premier League result, stats as Gunners hit five before halftime to go second](https://www.sportingnews.com/us/soccer/news/west-ham-vs-arsenal-live-score-result-updates-premier-league/71d8c11042153d4603d507a6) - **Sporting News**
-8. [Atalanta vs. Real Madrid score, result: Bellingham, Blancos secure critical victory but lose Mbappe to injury](https://www.sportingnews.com/us/soccer/news/atalanta-vs-real-madrid-live-score-result-champions-league/bd9bde06de6d2f5bfc01d0ce) - **Sporting News**
-9. [Croatia vs. Portugal final score: UEFA Nations League result, stats as Gvardiol cancels out Joao Felix strike to seal qualification](https://www.sportingnews.com/us/soccer/news/croatia-vs-portugal-live-score-result-updates-uefa-nations-league/f8b9a6b7b6ef58b1535f2c85) - **Sporting News**
-10. [Toby Collyer: Man United loanee season from hell continues at Hull City](https://thepeoplesperson.com/2026/02/16/toby-collyer-man-united-loanee-season-from-hell-continues-at-hull-city-306566/) - **The Peoples Person**
+1. [Fuchs: I tried to get Vardy to Newport!](https://www.skysports.com/football/news/11095/13508181/christian-fuchs-interview-taking-the-newport-county-role-calling-upon-brendan-rodgers-and-trying-to-recruit-jamie-vardy) - **Sky Sports**
+2. [Report: Chelsea and Liverpool currently in the race for £50m Premier League defender](https://eplindex.com/142909/report-chelsea-and-liverpool-currently-in-the-race-for-50m-premier-league-defender.html) - **English Premier League Index - Opta Stats**
+3. [Coventry vs Middlesbrough – Predicted lineup and team news](https://thefootballfaithful.com/coventry-vs-middlesbrough-predicted-lineup-and-team-news/) - **The Football Faithful**
+4. [Transfer rumour roundup: Man City eye Gibbs-White as Bernardo heir, Premier League giants circle Pulisic](https://www.footballmuse.com/features/transfer-rumour-roundup-man-city-eye-gibbs-white-as-bernardo-heir-premier-league-giants-circle-pulisic) - **Footballmuse.com**
+5. [Three Premier League clubs line up summer move for Real Madrid defender](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_20c7703e-f4b1-4855-8679-497e0a2a0d00) - **Yahoo Entertainment**
+6. [How to watch Wolves vs Arsenal live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-wolves-vs-arsenal-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
+7. [27-year-old Man Utd man retaining contact with European suitor to make summer move as straightforward as possible](https://strettynews.com/2026/02/16/altay-bayindir-contact-besiktas-manchester-united-transfer/) - **Strettynews.com**
+8. [James Trafford unsure over his Man City future due to Gianluigi Donnarumma](https://www.independent.ie/sport/soccer/james-trafford-unsure-over-his-man-city-future-due-to-gianluigi-donnarumma/a1578698289.html) - **Independent.ie**
+9. [T20 World Cup: Rashid Khan becomes first bowler to reach 700 T20 wickets](https://indianexpress.com/article/sports/cricket/t20-world-cup-rashid-khan-becomes-first-bowler-to-reach-700-t20-wickets-10534927/) - **The Indian Express**
 
 
 ---
-*최근 업데이트: 2026-02-17 18:07:39 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-17 19:09:19 (KST) / (하루 100회 제한 준수 중)*
