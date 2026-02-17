@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['Sometimes sticking with your man is the right call'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4480060c-fa80-480b-b19d-7dfcf01024fa) - **Yahoo Entertainment**
-2. [Arsenal’s Eberechi Eze strikes Fremantle agreement for branded, digital and TV content](https://www.c21media.net/news/arsenals-eberechi-eze-strikes-fremantle-agreement-for-branded-digital-and-tv-content/) - **C21media.net**
-3. [Liverpool face competition for £50m Premier League defender](https://anfieldindex.com/91300/liverpool-face-competition-for-50m-premier-league-defender.html) - **Anfieldindex.com**
-4. [Szoboszlai laying the path for Kerkez and others at Liverpool](https://anfieldindex.com/91306/szoboszlai-laying-the-path-for-kerkez-and-others-at-liverpool.html) - **Anfieldindex.com**
-5. [Liverpool star urged to consider joining two Premier League sides](https://anfieldindex.com/91296/liverpool-star-urged-to-consider-joining-two-premier-league-sides.html) - **Anfieldindex.com**
-6. [Arsenal player praised after his home debut](https://dailycannon.com/2026/02/setford-norgaard-debut-praise/) - **Dailycannon.com**
-7. [Liverpool have an advantage in transfer chase for 'outstanding' attacker](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-have-an-advantage-in-transfer-chase-for-outstanding-attacker/) - **Anfieldwatch.co.uk**
-8. [Why Bastoni should not face Italy punishment after Inter vs. Juventus chaos](https://football-italia.net/italy-gattuso-right-no-drop-bastoni-inter-juve/) - **Football Italia**
-9. [Trouble for Nwaneri as the Marseille off-field situation deteriorates](https://www.justarsenal.com/trouble-for-nwaneri-as-the-marseille-off-field-situation-deteriorates/410125) - **Just Arsenal News**
-10. [Macclesfield vs Brentford Live Streams: How to watch FA Cup 2025/26 from anywhere in the world](https://www.techradar.com/how-to-watch/football/macclesfield-vs-brentford-free-streams-fa-cup-2025-26) - **TechRadar**
+1. [‘There is no tomorrow so that’s why I am back today’ – Tyson Fury says Anthony Joshua car crash prompted return to ring](https://www.independent.ie/sport/other-sports/boxing/there-is-no-tomorrow-so-thats-why-i-am-back-today-tyson-fury-says-anthony-joshua-car-crash-prompted-return-to-ring/a1294213979.html) - **Independent.ie**
+2. [Why are Wolves v Arsenal the only Premier League game this week?](https://www.justarsenal.com/why-are-wolves-v-arsenal-the-only-premier-league-game-this-week/410127) - **Just Arsenal News**
+3. [Report: Chelsea and Man City still keen on Brentford attacker](https://eplindex.com/142942/report-chelsea-and-man-city-still-keen-on-brentford-attacker.html) - **English Premier League Index - Opta Stats**
+4. [City discover FA Cup fifth round opponents](https://www.mancity.com/news/mens/man-city-fa-cup-fifth-round-opponent-confirmed-2026-63906862) - **Manchester City FC**
+5. [Confirmed Macclesfield v Brentford team news: Furo starts as Andrews makes seven changes](https://www.brentfordfc.com/en/news/article/first-team-confirmed-macclesfield-v-brentford-team-news-fa-cup-kaye-furo) - **Brentfordfc.com**
+6. [“Today was not good” – Pep Guardiola explains Phil Foden substitution in FA Cup fourth round win](https://cityxtra.co.uk/41759/today-was-not-good-pep-guardiola-explains-phil-foden-substitution-in-fa-cup-fourth-round-win/) - **Cityxtra.co.uk**
+7. [Madueke defends Arsenal fans’ right to be excited](https://dailycannon.com/2026/02/madueke-arsenal-fans-excited/) - **Dailycannon.com**
+8. [Referee and assistant stood down after FA Cup mistakes](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f34d105c-36f9-4fbf-bb4d-34c5e00356f3) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-18 02:41:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-18 04:01:58 (KST) / (하루 100회 제한 준수 중)*
