@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Women’s football clubs must go beyond ‘family friendly’ – ‘Figuring out our identity is crucial’](https://sports.yahoo.com/articles/women-football-clubs-must-beyond-053105219.html) - **Yahoo Entertainment**
-2. [Where to watch USA vs. Sweden women's hockey: Live stream, channel, time, TV schedule for 2026 Olympics semifinal](https://www.sportingnews.com/us/olympics/news/watch-usa-sweden-womens-hockey-stream-channel-time-schedule-olympics/248863edd27f4361c79f1166) - **Sporting News**
-3. [Bayern Munich pushing to beat Premier League clubs for Yan Diomande](https://footballtoday.com/2026/02/16/bayern-munich-pushing-to-beat-premier-league-clubs-for-yan-diomande/) - **Footballtoday.com**
-4. [Ranking the 5 Toughest Players on the Detroit Lions](https://roundtable.io/sports/nfl/lions/players/ranking-the-5-toughest-players-on-the-detroit-lions) - **Roundtable.io**
-5. [Why did new NBA All-Star Game format work? Victor Wembanyama 'sets tone' and players 'step up'](https://www.cbssports.com/nba/news/why-did-new-nba-all-star-game-format-work-victor-wembanyama/) - **CBS Sports**
-6. [Japan’s Streaming Market Hits $7.2 Billion as Netflix, Prime Video and U-Next Dominate, Report Finds](https://variety.com/2026/tv/news/japan-streaming-market-7-billion-1236663822/) - **Variety**
-7. [Review: ‘Off The Record & On The Ball’ - Tim Percival’s book reveals relationship between coaches and media](https://www.nzherald.co.nz/sport/review-off-the-record-on-the-ball-tim-percivals-book-reveals-relationship-between-coaches-and-media/7M3DY7HYBNE5HCLAOIGFYHZXX4/) - **New Zealand Herald**
-8. [Check out the Reds roster projection as spring training starts](https://www.cincinnati.com/story/sports/mlb/reds/2026/02/15/cincinnati-reds-roster-projection-1-0-mlb-spring-training/88693047007/) - **The Cincinnati Enquirer**
-9. [Spain midfielder confirms Atletico Madrid contacts – “I know there have been calls”](https://www.football-espana.net/2026/02/16/spain-midfielder-atletico-madrid-contacts) - **Football Espana**
-10. [Ikorodu beat Enyimba in Aba as 3SC tame Wolves](https://punchng.com/ikorodu-beat-enyimba-in-aba-as-3sc-tame-wolves/) - **The Punch**
+1. [Romano: Summer transfer ‘battle’ now anticipated for attacking sensation who Man Utd want and ‘can afford’](https://strettynews.com/2026/02/16/yan-diomande-interest-manchester-united-rb-leipzig-premier-league/) - **Strettynews.com**
+2. [Toney leaves door open for PL return and reveals England World Cup hopes](https://www.skysports.com/football/news/11095/13507852/ivan-toney-england-striker-leaves-door-open-for-premier-league-return-and-reveals-world-cup-hopes) - **Sky Sports**
+3. [Matheson on Old Trafford heroics, 'torrid time' as £1m teenager & McLeod death](https://www.bbc.com/sport/football/articles/cvg18xrw2rwo) - **BBC News**
+4. [The Bobby Collins story – Celtic, Everton and Leeds Utd, born 95 years ago today](https://thecelticstar.com/the-bobby-collins-story-celtic-everton-and-leeds-utd-born-95-years-ago-today/) - **The Celtic Star**
+5. [Former Blue names Chelsea’s “most improved” player under Liam Rosenior so far](https://chelsea.news/2026/02/former-blue-names-chelseas-most-improved-player-under-liam-rosenior-so-far/) - **Chelsea.news**
+6. [Brentford XI vs Macclesfield – Predicted lineup and team news](https://thefootballfaithful.com/brentford-xi-vs-macclesfield-predicted-lineup-and-team-news/) - **The Football Faithful**
+7. [Macclesfield vs Brentford – Match preview and team news](https://thefootballfaithful.com/macclesfield-vs-brentford-match-preview-and-team-news/) - **The Football Faithful**
+8. [All in the Game: Far from impressed by Benjamin Sesko goal, Roy Keane was triggered by it](https://www.irishtimes.com/sport/2026/02/16/all-in-the-game-far-from-impressed-by-benjamin-sesko-goal-roy-keane-was-triggered-by-it/) - **The Irish Times**
+9. [Matchday Musings: Diarra Makes The Difference As Sunderland See Off Oxford!](https://rokerreport.sbnation.com/opinion/126520/matchday-musings-diarra-makes-the-difference-as-sunderland-see-off-oxford) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-02-17 14:45:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-17 16:03:40 (KST) / (하루 100회 제한 준수 중)*
