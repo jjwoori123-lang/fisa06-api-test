@@ -1,13 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mandhana named BBC Indian Sportswoman of the Year](https://www.bbc.com/sport/cricket/articles/cwyxwdxz5v0o) - **BBC News**
-2. [‘In the first training sessions, we saw it’ – Michael Kayode’s long throw is launching Brentford into European contention](https://hayters.com/michael-kayode-long-throw-is-launching-brentford-into-european-contention/) - **Hayters.com**
-3. [The Highest-Scoring Games in Europes Top Leagues: Numbers and Facts](https://www.playmakerstats.com/news/the-highest-scoring-games-in-europe-s-top-leagues-numbers-and-facts/1054963) - **Playmakerstats.com**
-4. [Premier League to permit pauses for Ramadan breaks](https://thefootballfaithful.com/premier-league-to-permit-pauses-for-ramadan-breaks/) - **The Football Faithful**
-5. [Report: FSG identify ‘ideal Salah heir’ for Liverpool, but there’s one critical snag](https://www.empireofthekop.com/2026/02/16/fsg-identify-ideal-salah-heir-for-liverpool-but-theres-one-critical-snag/) - **Empire of The Kop**
-6. [AFTERNOON RECAP: El-Rufai charged over NSA phone tapping, US hits eight Nigerians with terror sanctions, other top stories](https://punchng.com/afternoon-recap-el-rufai-charged-over-nsa-phone-tapping-us-hits-eight-nigerians-with-terror-sanctions-other-top-stories/) - **The Punch**
-7. [Real Madrid play Benfica in Champions League playoff: Team news and lineups](https://www.aljazeera.com/sports/2026/2/16/real-madrid-play-benfica-in-champions-league-playoff-team-news-and-lineups) - **Al Jazeera English**
+1. [Former Liverpool Coach Heitinga Out At Spurs After 33 Days](https://liverpooloffside.sbnation.com/liverpool-fc-news-coverage/78758/former-liverpool-coach-heitinga-out-at-spurs-after-33-days) - **SB Nation**
+2. [Rüdiger set for Premier League return?](https://foot-africa.com/en/news/rudiger-set-for-premier-league-return-noadsense-1088723/) - **Foot-africa.com**
+3. [Pep Guardiola responds to FA charge issued to Rodri over referee comments](https://cityxtra.co.uk/41763/pep-guardiola-responds-to-fa-charge-issued-to-rodri-over-referee-comments/) - **Cityxtra.co.uk**
+4. [Who is playing at the 2026 Poland Darts Open?](https://www.sportingnews.com/us/darts/news/who-playing-2026-poland-darts-open/06b76c9a8def0509feea64c0) - **Sporting News**
+5. [Who will survive the Premier League relegation battle?](https://hayters.com/who-will-survive-the-premier-league-relegation-battle/) - **Hayters.com**
+6. [Everton v United: TV info, team news & more](https://www.manutd.com/en/news/detail/how-to-watch-and-follow-everton-v-man-utd-23-feb-2026) - **Manchester United**
+7. [Liverpool go toe-to-toe with Premier League rivals to sign £50m star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-go-toe-to-toe-with-premier-league-rivals-to-sign-ps50m-star/) - **Anfieldwatch.co.uk**
+8. [Weston McKennie’s future in doubt as USMNT star reportedly stalls Juventus renewal talks with massive demand](https://worldsoccertalk.com/news/weston-mckennies-future-in-doubt-as-usmnt-star-reportedly-stalls-juventus-renewal-talks-with-massive-demand/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-02-18 00:34:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-18 01:38:01 (KST) / (하루 100회 제한 준수 중)*
