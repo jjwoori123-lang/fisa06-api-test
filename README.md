@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['A no-excuse culture is needed... time for this team to prove their mettle'](https://www.bbc.com/sport/football/articles/c93wq1e62llo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [The NFL is upset with NBC because it pays $500 million more to the NBA](https://www.marca.com/en/nfl/2026/02/17/69945856ca474107638b4583.html) - **Marca**
-3. [AC Milan’s stance on selling star man to Arsenal](https://www.justarsenal.com/ac-milans-stance-on-selling-star-man-to-arsenal/410181) - **Just Arsenal News**
-4. [Champions League Play-Offs 2025/26 Free Streams: TV Channels, Schedule & Preview](https://www.techradar.com/how-to-watch/football/champions-league-play-offs-2025-26-free) - **TechRadar**
-5. [Aldridge comments on Salah future as Liverpool face big summer decision](https://www.empireofthekop.com/2026/02/17/aldridge-comments-on-salah-future-as-liverpool-face-big-summer-decision/) - **Empire of The Kop**
-6. [Report: Liverpool transfer target could be available for £50m this summer](https://anfieldindex.com/91329/report-liverpool-transfer-target-could-be-available-for-50m-this-summer.html) - **Anfieldindex.com**
-7. [Tottenham supporters trust accuse club of censoring fan meeting notes](https://www.101greatgoals.com/football/premier-league/tottenham-supporters-trust-accuse-club-censoring-fan-meeting-notes/) - **101 Great Goals**
-8. [‘At the moment…’ – Dominik Szoboszlai’s agent publicly addresses Real Madrid rumours](https://www.empireofthekop.com/2026/02/17/at-the-moment-dominik-szoboszlais-agent-publicly-addresses-real-madrid-rumours/) - **Empire of The Kop**
-9. [“He could play for Celtic regularly,” Bolton boss on Johnny Kenny](https://thecelticstar.com/he-could-play-for-celtic-regularly-bolton-boss-on-johnny-kenny/) - **The Celtic Star**
-10. [Sunderland will be 'very happy' with FA Cup draw](https://www.bbc.com/sport/football/articles/c4g47z3zx4po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Vitor Pereira on his relationship with Evangelos Marinakis and becoming Nottingham Forest’s fourth head coach of the season](https://hayters.com/vitor-pereira-on-his-relationship-with-evangelos-marinakis/) - **Hayters.com**
+2. [The most-watched NBA All-Star Games over the last 15 years, and where 2026 ranks](https://www.thebiglead.com/the-most-watched-nba-all-star-games-over-the-last-15-years-and-where-2026-ranks/) - **The Big Lead**
+3. [New Nottingham Forest boss Pereira admits he ‘cannot change a lot’ in survival fight](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_69d40078-25bf-4f55-b194-f907effd937d) - **Yahoo Entertainment**
+4. [Agent shuts down Real Madrid talk: Szoboszlai focused on Liverpool as contract talks continue](https://www.footballmuse.com/news/agent-shuts-down-real-madrid-talk-szoboszlai-focused-on-liverpool-as-contract-talks-continue) - **Footballmuse.com**
+5. [Pereira 'trusts' Forest owner Marinakis despite three sackings this season](https://sports.yahoo.com/articles/pereira-trusts-forest-owner-marinakis-131930726.html) - **Yahoo Entertainment**
+6. [Tottenham boss Igor Tudor gives first interview ahead of Premier League relegation scrap](https://www.101greatgoals.com/football/premier-league/tottenham-igor-tudor-first-interview/) - **101 Great Goals**
+7. [‘Every player needs to give something extra’ – Igor Tudor hoping to instil confidence in Spurs squad](https://hayters.com/igor-tudor-hoping-to-instil-confidence-in-spurs-squad/) - **Hayters.com**
+8. [Nottingham Forest: New boss Pereira insists he ‘trusts’ unpredictable Marinakis](https://www.101greatgoals.com/football/premier-league/nottingham-forest-new-boss-pereira-insists-he-trusts-unpredictable-marinakis/) - **101 Great Goals**
+9. [“There’s only one Jorge Cadete, he puts the ball in the netty…”](https://thecelticstar.com/theres-only-one-jorge-cadete-he-puts-the-ball-in-the-netty/) - **The Celtic Star**
+10. [Champions League prediction, odds, picks: Qarabag vs. Newcastle among best bets for Wednesday, Feb. 18](https://www.cbssports.com/soccer/news/champions-league-prediction-odds-picks-qarabag-vs-newcastle-among-best-bets-for-wednesday-feb-18/) - **CBS Sports**
 
 
 ---
-*최근 업데이트: 2026-02-18 21:03:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-18 22:43:11 (KST) / (하루 100회 제한 준수 중)*
