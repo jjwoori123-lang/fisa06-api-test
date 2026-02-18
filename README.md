@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [What channel is Purdue vs. Michigan on today? Time, TV schedule, live stream to watch Big Ten men's basketball game](https://www.sportingnews.com/us/ncaa-basketball/news/what-channel-purdue-michigan-time-schedule-live-stream-watch/f5177a6e6e2b4a129090ce44) - **Sporting News**
-2. ['We really messed up' - does European football need more balance?](https://www.bbc.com/sport/football/articles/cgmzylx4004o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Newcastle should pounce for Trafford this summer after Ramsdale’s loan expires](https://sportsview.co.uk/2026/02/newcastle-should-pounce-for-trafford-this-summer-after-ramsdales-loan-expires?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-should-pounce-for-trafford-this-summer-after-ramsdales-loan-expires) - **Sportsview.co.uk**
-4. [Does Canada hockey play today? Schedule, time, TV channel, live stream for next Winter Olympics men's game](https://www.sportingnews.com/ca/nhl/news/canada-hockey-play-today-schedule-time-channel-stream-olympics/3eda64430caca055045d4a27) - **Sporting News**
-5. [Dortmund rule out Ryerson summer exit despite Man United & Barcelona links](https://footballtoday.com/2026/02/17/dortmund-rule-out-ryerson-summer-exit-despite-man-united-barcelona-links/) - **Footballtoday.com**
-6. [Analysis:Global private equity firms bowled over by Indian cricket league IPL](https://www.channelnewsasia.com/sport/analysisglobal-private-equity-firms-bowled-over-indian-cricket-league-ipl-5935471) - **CNA**
-7. [Ghana Premier League Match day 22 Delivers Historic Rivalries and Narrow Escapes](https://thechronicle.com.gh/ghana-premier-league-match-day-22-delivers-historic-rivalries-and-narrow-escapes/) - **Thechronicle.com.gh**
-8. [Newcastle midfielder Sandro Tonali breaks silence on Arsenal transfer speculation](https://sportsview.co.uk/2026/02/newcastle-midfielder-sandro-tonali-breaks-silence-on-arsenal-transfer-speculation?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-midfielder-sandro-tonali-breaks-silence-on-arsenal-transfer-speculation) - **Sportsview.co.uk**
-9. [Five fine wins from our previous trips to Wolves](http://www.arsenal.com/news/five-fine-wins-our-previous-trips-wolves) - **Arsenal.com**
-10. [Hollywood meets football: Wrexham to host Chelsea, leaving Ryan Reynolds speechless](https://www.marca.com/en/football/premier-league/2026/02/17/6993f82d46163f5c288b456e.html) - **Marca**
+1. ['Holy crap' - Ryan Reynolds & Hugh Jackman left stunned after Wrexham handed dream FA Cup draw against Chelsea - Goal.com](https://slashdot.org/firehose.pl?op=view&amp;id=180809518) - **Slashdot.org**
+2. [Lisandro Martinez: Owen Hargreaves weighs in on Man United star](https://thepeoplesperson.com/2026/02/17/lisandro-martinez-owen-hargreaves-weighs-in-on-man-united-star-306608/) - **The Peoples Person**
+3. [Can Cherries dare to European dream again?](https://www.bbc.com/sport/football/articles/cq57g58x2y3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. ['Konate has turned a real corner'- how important is renewing his contract?](https://www.bbc.com/sport/football/articles/cnv6q08ygzyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Wolves vs Arsenal: Match Preview, Latest Team News and Score Prediction](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e599ca83-82c0-40a0-b036-a77325fe8c60) - **Yahoo Entertainment**
+6. [Former Liverpool star reveals what could ‘save’ Arne Slot’s job](https://anfieldindex.com/91325/former-liverpool-star-reveals-what-could-save-arne-slots-job.html) - **Anfieldindex.com**
+7. [Man Utd keen to sign the ‘assist king’ who’s outperforming Dalot in every way](https://strettynews.com/2026/02/17/man-utd-julian-ryerson-borussia-dortmund-diogo-dalot/) - **Strettynews.com**
+8. [‘An unbelievable touch’ – Keith Andrews hailed for ‘classy’ visit to Macclesfield dressing room after Brentford’s FA Cup win](https://www.independent.ie/sport/soccer/an-unbelievable-touch-keith-andrews-hailed-for-classy-visit-to-macclesfield-dressing-room-after-brentfords-fa-cup-win/a1413835360.html) - **Independent.ie**
+9. [Araujo open to extending Celtic stay - gossip](https://www.bbc.com/sport/football/articles/cx2le4gx91go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Araujo open to extending Celtic stay - gossip](https://www.bbc.com/sport/football/articles/cx2le4gx91go) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-02-18 16:29:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-18 17:24:49 (KST) / (하루 100회 제한 준수 중)*
