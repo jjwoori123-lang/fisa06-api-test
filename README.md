@@ -1,14 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Spurs accused of editing minutes of meeting with fans](https://www.rte.ie/sport/soccer/2026/0217/1558896-spurs-accused-of-editing-minutes-of-meeting-with-fans/) - **RTE**
-2. [Roberto De Zerbi: heading for a new challenge in Italy?](https://foot-africa.com/en/news/roberto-de-zerbi-heading-for-a-new-challenge-in-italy-1089443/) - **Foot-africa.com**
-3. [Johan Mjallby tips Celtic for final day title triumph](https://thecelticstar.com/johan-mjallby-tips-celtic-for-final-day-title-triumph/) - **The Celtic Star**
-4. [Arsenal is interested in a move for Rangers defender](https://www.justarsenal.com/arsenal-is-interested-in-a-move-for-rangers-defender/410165) - **Just Arsenal News**
-5. [Former Premier League manager still expects Mo Salah to leave Liverpool](https://anfieldindex.com/91326/former-premier-league-manager-still-expects-mo-salah-to-leave-liverpool.html) - **Anfieldindex.com**
-6. [Wolverhampton v Arsenal: Wolves are NOT bottom of the “last six” league.](https://untold-arsenal.com/archives/119500) - **Untold-arsenal.com**
-7. ['This is the identity I want to create' - Pereira's blueprint for Forest survival](https://www.bbc.com/sport/football/articles/cd03nd0g3dpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. ['Holy crap' - Ryan Reynolds & Hugh Jackman left stunned after Wrexham handed dream FA Cup draw against Chelsea - Goal.com](https://slashdot.org/firehose.pl?op=view&amp;id=180809518) - **Slashdot.org**
+1. [Spurs accused of editing meeting minutes by fans](https://www.bbc.com/sport/football/articles/c178qpevy59o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Spurs accused of editing meeting minutes by fans](https://www.bbc.com/sport/football/articles/c178qpevy59o) - **BBC News**
+3. [The five favourites for the Champions League as knockout stages begin](https://thefootballfaithful.com/champions-league-winner-odds-favourites-for-trophy/) - **The Football Faithful**
+4. [John Aldridge sets clear conditions for Slot staying as Liverpool manager](https://www.empireofthekop.com/2026/02/17/john-aldridge-sets-clear-conditions-for-slot-staying-as-liverpool-manager/) - **Empire of The Kop**
+5. [2026/27 men's ticketing guide](http://www.arsenal.com/news/202627-mens-ticketing-guide) - **Arsenal.com**
+6. [Chance for 'a little bit of sweet revenge' against Man City](https://www.bbc.com/sport/football/articles/cde4lg71rl2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Wolves v Arsenal – Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/premier-league-odds/wolves-v-arsenal-line-ups-stats-and-preview/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-02-18 18:28:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-18 19:26:32 (KST) / (하루 100회 제한 준수 중)*
