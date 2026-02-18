@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [2026 Champions League knockout preview, model picks, best bets, predictions](https://www.cbssports.com/general/news/2026-champions-league-knockout-preview-model-picks-best-bets-predictions/) - **CBS Sports**
-2. [Anthony Gordon: Man United aim to beat Liverpool to sign Newcastle star](https://thepeoplesperson.com/2026/02/17/anthony-gordon-man-united-aim-to-beat-liverpool-to-sign-newcastle-star-306617/) - **The Peoples Person**
-3. [Why is Wolves v Arsenal on Wednesday evening?](https://www.bbc.com/sport/football/articles/cx2rg0e95k0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [FULL LIST: Fixture of CAF Champions League quarter-finals, semi-finals](https://punchng.com/full-list-fixture-of-caf-champions-league-quarter-finals-semi-finals/) - **The Punch**
-5. [Arsenal make Saka best-paid player with new deal](https://www.bbc.com/sport/football/articles/c4gje501g51o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Report: Liverpool ‘the most advanced’ in chase for Brazilian ‘fighter’; club braced for his exit](https://www.empireofthekop.com/2026/02/17/liverpool-chelsea-most-advanced-in-murillo-transfer-race/) - **Empire of The Kop**
-7. [Why is Wolves v Arsenal on Wednesday evening?](https://www.bbc.com/sport/football/articles/cx2rg0e95k0o) - **BBC News**
-8. [Tudor has 'no time for excuses' at Tottenham](https://sports.yahoo.com/articles/tudor-no-time-excuses-tottenham-143023733.html) - **Yahoo Entertainment**
-9. [Arsenal make Saka best-paid player with new five-year deal](https://www.bbc.com/sport/football/articles/c4gje501g51o) - **BBC News**
-10. [Edwards on team news, work towards summer plans and Arsenal](https://www.bbc.com/sport/football/articles/c0mgwp2y3n9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Aldridge points to recent Konate performances amid contract uncertainty](https://www.empireofthekop.com/2026/02/17/aldridge-points-to-recent-konate-performances-amid-contract-uncertainty/) - **Empire of The Kop**
+2. [Report: Tottenham Hotspur keen on £78m-rated defender](https://eplindex.com/142967/report-tottenham-hotspur-keen-on-78m-rated-defender.html) - **English Premier League Index - Opta Stats**
+3. [Sources: the English Premier League extends its South America and Caribbean broadcast contract with ESPN through 2031 in a £450M deal, up 25% from the last deal (Matt Hughes/The Guardian)](https://mediagazer.com/260217/p10) - **Mediagazer.com**
+4. [Wayne Rooney comes to Arsenal's defense, criticizes comments from former Gunners legend](https://www.marca.com/en/football/arsenal/2026/02/17/699489a1e2704ed7028b45b9.html) - **Marca**
+5. [Tudor says 'no time for excuses' about Spurs form](https://www.bbc.com/sport/football/articles/cj0dqndpej5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Arteta on Calafiori, Saka and warm-up injuries](https://www.bbc.com/sport/football/articles/cly86gd38v5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Newcastle v Man City again! What is the all-time most played cup tie?](https://www.bbc.com/sport/articles/c309m1qpy8do) - **BBC News**
+8. [Cole Palmer’s technique trick worked 14 of 19 times and nobody knows how he does it](https://chelsea.news/2026/02/palmer-technique-trick-worked-times-knows-how/) - **Chelsea.news**
+9. [Manchester City targeting Championship loan for goalkeeper amid Premier League interest](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5a7af7fe-5309-4aa9-af5d-ae05096509a5) - **Yahoo Entertainment**
+10. [Brighton continue to push hard for rumored Bayern Munich target Saïd El Mala](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/168888/brighton-continue-to-push-hard-for-rumored-bayern-munich-target-said-el-mala) - **Bavarian Football Works**
 
 
 ---
-*최근 업데이트: 2026-02-18 23:49:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-19 00:56:01 (KST) / (하루 100회 제한 준수 중)*
