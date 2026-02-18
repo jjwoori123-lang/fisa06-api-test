@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sunderland will be 'very happy' with FA Cup draw](https://www.bbc.com/sport/football/articles/c4g47z3zx4po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Match Officials: Thomas Bramall to referee Manchester City vs Newcastle](https://cityxtra.co.uk/41782/match-officials-thomas-bramall-to-referee-manchester-city-vs-newcastle/) - **Cityxtra.co.uk**
-3. [Wolves v Arsenal Match Preview and Prediction](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_84f16d65-a8af-4729-a4a3-bef9285a3c47) - **Yahoo Entertainment**
-4. [Wolves v Arsenal Match Preview and Prediction](https://www.justarsenal.com/wolves-v-arsenal-match-preview-and-prediction/410167) - **Just Arsenal News**
-5. [Report: Leeds United are in the race to sign Man City star on loan](https://eplindex.com/142956/report-leeds-united-are-in-the-race-to-sign-man-city-star-on-loan.html) - **English Premier League Index - Opta Stats**
-6. [Man Utd sources deny interest in Jürgen Klopp](https://www.playmakerstats.com/news/man-utd-sources-deny-interest-in-jurgen-klopp/1055607) - **Playmakerstats.com**
-7. [Liverpool January signing set to return from injury](https://anfieldindex.com/91327/liverpool-january-signing-set-to-return-from-injury.html) - **Anfieldindex.com**
-8. [Real Madrid have already made a decision on former winger’s buyback clause – report](https://madriduniversal.com/real-madrid-have-already-made-a-decision-on-former-wingers-buyback-clause-report/) - **Madriduniversal.com**
-9. [Lampard claims Coventry ‘can’t get carried away’ after huge win over Middlesbrough](https://www.101greatgoals.com/football/lampard-claims-coventry-cant-get-carried-away/) - **101 Great Goals**
+1. ['A no-excuse culture is needed... time for this team to prove their mettle'](https://www.bbc.com/sport/football/articles/c93wq1e62llo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [The NFL is upset with NBC because it pays $500 million more to the NBA](https://www.marca.com/en/nfl/2026/02/17/69945856ca474107638b4583.html) - **Marca**
+3. [AC Milan’s stance on selling star man to Arsenal](https://www.justarsenal.com/ac-milans-stance-on-selling-star-man-to-arsenal/410181) - **Just Arsenal News**
+4. [Champions League Play-Offs 2025/26 Free Streams: TV Channels, Schedule & Preview](https://www.techradar.com/how-to-watch/football/champions-league-play-offs-2025-26-free) - **TechRadar**
+5. [Aldridge comments on Salah future as Liverpool face big summer decision](https://www.empireofthekop.com/2026/02/17/aldridge-comments-on-salah-future-as-liverpool-face-big-summer-decision/) - **Empire of The Kop**
+6. [Report: Liverpool transfer target could be available for £50m this summer](https://anfieldindex.com/91329/report-liverpool-transfer-target-could-be-available-for-50m-this-summer.html) - **Anfieldindex.com**
+7. [Tottenham supporters trust accuse club of censoring fan meeting notes](https://www.101greatgoals.com/football/premier-league/tottenham-supporters-trust-accuse-club-censoring-fan-meeting-notes/) - **101 Great Goals**
+8. [‘At the moment…’ – Dominik Szoboszlai’s agent publicly addresses Real Madrid rumours](https://www.empireofthekop.com/2026/02/17/at-the-moment-dominik-szoboszlais-agent-publicly-addresses-real-madrid-rumours/) - **Empire of The Kop**
+9. [“He could play for Celtic regularly,” Bolton boss on Johnny Kenny](https://thecelticstar.com/he-could-play-for-celtic-regularly-bolton-boss-on-johnny-kenny/) - **The Celtic Star**
+10. [Sunderland will be 'very happy' with FA Cup draw](https://www.bbc.com/sport/football/articles/c4g47z3zx4po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-02-18 20:25:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-18 21:03:58 (KST) / (하루 100회 제한 준수 중)*
