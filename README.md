@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Leon Bailey regretful of Roma experience: “I missed everything about Aston Villa.”](https://romapress.net/leon-bailey-regretful-of-roma-experience-i-missed-everything-about-aston-villa/) - **RomaPress**
-2. [Premier League: Arsenal collapse at Wolverhampton!](https://onefootball.com/en/news/premier-league-arsenal-collapse-at-wolverhampton-42431768) - **Onefootball.com**
-3. [Late goal sees Arsenal slip up at bottom-placed Wolves](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c783d56a-e96a-466a-9bed-04c74b674ebf) - **Yahoo Entertainment**
-4. [Report: Wolverhampton Wanderers 2-2 Arsenal](http://www.arsenal.com/fixture/arsenal/2026-Feb-18/wolves-2-2-arsenal-match-report) - **Arsenal.com**
-5. [Late DRAMA! Calafiori OG hands Wolves 90+4' equaliser!](https://www.skysports.com/football/video/12606/13509312/goal-r-calafiori-90-4-og-wolves-2-2-arsenal) - **Sky Sports**
-6. [Official | Habib Beye replaces Roberto De Zerbi as Olympique de Marseille head coach](https://www.getfootballnewsfrance.com/2026/official-habib-beye-replaces-roberto-de-zerbi-as-olympique-de-marseille-head-coach/) - **Get French Football News**
-7. [Pyramids, squash and famous names — what Salah and Marmoush said about Egypt](https://foot-africa.com/en/news/pyramids-squash-and-famous-names-what-salah-and-marmoush-said-about-egypt-1092044/) - **Foot-africa.com**
-8. [Game on?! Bueno curls in sensational strike to halve Wolves' deficit against Arsenal](https://www.skysports.com/football/video/12606/13509303/goal-h-bueno-61-wolves-1-2-arsenal) - **Sky Sports**
-9. [Central defender confirms he wants to play for Liverpool as soon as possible](https://www.anfieldwatch.co.uk/liverpool-fc/news/central-defender-confirms-he-wants-to-play-for-liverpool-as-soon-as-possible-carter-pinnington/) - **Anfieldwatch.co.uk**
-10. [Maiden PL scorers set up tense finale between Arsenal and Wolves ](https://onefootball.com/en/news/maiden-pl-scorers-set-up-tense-finale-between-arsenal-and-wolves-42431647) - **Onefootball.com**
+1. [NPFL: Kwara fans cause chaos as Rivers United snatch late draw](https://punchng.com/npfl-kwara-fans-cause-chaos-as-rivers-united-snatch-late-draw/) - **The Punch**
+2. [‘We dropped our standards’: Saka on Arsenal’s shock Wolves slip-up as Arteta says Gunners ‘too emotional’](https://www.101greatgoals.com/football/premier-league/arsenal-wolves-reaction-bukayo-saka-premier-league/) - **101 Great Goals**
+3. [Gordon channels Shearer after breaking his record](https://www.bbc.com/sport/football/articles/c20z9xqdz2lo) - **BBC News**
+4. [Arsenal perd deux points précieux dans la course au titre contre le dernier Wolverhampton](https://www.sofoot.com/breves/arsenal-perd-deux-points-precieux-dans-la-course-au-titre-contre-le-dernier-wolverhampton) - **SO FOOT**
+5. [Rashford’s permanent move to Barcelona could be easier as Manchester United reportedly eye Spanish player](https://worldsoccertalk.com/news/rashfords-permanent-move-to-barcelona-could-be-easier-as-manchester-united-reportedly-eye-spanish-player/) - **Worldsoccertalk.com**
+6. [Saka Gets 9, Hincapie With 8 | Arsenal Players Rated In Lackluster Draw Vs Wolves](https://the4thofficial.net/2026/02/saka-gets-9-hincapie-with-8-arsenal-players-rated-in-lackluster-draw-vs-wolves/) - **The4thofficial.net**
+7. [Arsenal suffer new blow in title race after late equaliser boosts Wolves](https://www.irishtimes.com/sport/soccer/2026/02/18/arsenal-suffer-new-blow-in-title-race-after-late-equaliser-boosts-wolves/) - **The Irish Times**
+8. [Arsenal blow it vs. last-place Wolves. Premier League slipping away?](https://www.usatoday.com/story/sports/soccer/epl/2026/02/18/arsenal-vs-wolves-premier-league-standings/88746584007/) - **USA Today**
+9. [Arsenal blow two-goal lead as stoppage-time Tom Edozie strike on debut hands Wolves dramatic draw](https://www.independent.ie/sport/soccer/premier-league/arsenal-blow-two-goal-lead-as-stoppage-time-tom-edozie-strike-on-debut-hands-wolves-dramatic-draw/a656571076.html) - **Independent.ie**
 
 
 ---
-*최근 업데이트: 2026-02-20 07:01:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-20 07:54:32 (KST) / (하루 100회 제한 준수 중)*
