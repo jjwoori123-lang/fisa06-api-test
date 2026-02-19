@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool captain Van Dijk hails Szoboszlai as future 'leader'](https://sports.yahoo.com/articles/liverpool-captain-van-dijk-hails-133110293.html) - **Yahoo Entertainment**
-2. [“The position we are in is a privilege” – Arteta confident as Arsenal prepare for Wolves test](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7a0c20b8-18ef-4cc0-886c-a35e5e997a4c) - **Yahoo Entertainment**
-3. [Sandro Tonali: Newcastle star’s feelings on Man United transfer unveiled](https://thepeoplesperson.com/2026/02/18/sandro-tonali-newcastle-stars-feelings-on-man-united-transfer-unveiled-306654/) - **The Peoples Person**
-4. [Kobbie is showing his class](https://www.manutd.com/en/news/detail/kobbie-mainoo-looking-the-part-under-michael-carrick) - **Manchester United**
-5. [Opinion: Gakpo in danger of being Liverpool’s new Darwin Nunez](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d17ccf8c-97f2-4f85-9e9c-feb1a45a0783) - **Yahoo Entertainment**
-6. [Travis Etienne has the versatility and playmaking skills to be a difference maker for the Denver Broncos](https://www.milehighreport.com/denver-broncos-free-agency/171998/nfl-free-agent-profile-travis-etienne) - **Mile High Report**
-7. [Atlético Ottawa fall to Nashville in 1st international match](https://www.cbc.ca/news/canada/ottawa/concacaf-champions-cup-ottawa-nashville-9.7094754) - **CBC News**
-8. [Bayer Leverkusen interested in summer move for Leon Goretzka](https://footballtoday.com/2026/02/18/bayer-leverkusen-interested-in-summer-move-for-leon-goretzka/) - **Footballtoday.com**
-9. [Liam Delap: Chelsea’s stance on United target’s future emerges](https://thepeoplesperson.com/2026/02/18/liam-delap-chelseas-stance-on-united-targets-future-emerges-306656/) - **The Peoples Person**
-10. [Man Utd join Chelsea and Spurs in interest to sign colossal midfield powerhouse](https://chelsea.news/2026/02/man-utd-join-chelsea-and-spurs-in-interest-to-sign-colossal-midfield-powerhouse/) - **Chelsea.news**
+1. [‘It stopped being fun when Gary Speed died’ – Ex-Premier League striker reveals himself as ‘The Secret Footballer’](https://www.independent.ie/sport/soccer/it-stopped-being-fun-when-gary-speed-died-ex-premier-league-striker-reveals-himself-as-the-secret-footballer/a328475901.html) - **Independent.ie**
+2. [Qarabag vs Newcastle Free Streams: How to watch Champions League 2025/26 1st leg from anywhere in the world](https://www.techradar.com/how-to-watch/football/qarabag-vs-newcastle-champions-league-2025-26-1st-leg-free) - **TechRadar**
+3. [Match Preview: Brentford v Brighton and Hove Albion](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_45284017-2103-4dd2-9c8f-ecd662aa72cd) - **Yahoo Entertainment**
+4. [Do players need an NFL Scouting Combine invitation to get drafted?](https://www.canalstreetchronicles.com/nfl-combine/106718/do-players-need-an-nfl-scouting-combine-invitation-to-get-drafted) - **Canal Street Chronicles**
+5. [Matt Law: What Liam Rosenior is doing so much better than Enzo Maresca with midfielder](https://chelsea.news/2026/02/rosenior-maresca-doing-so-much-better/) - **Chelsea.news**
+6. [Liam Rosenior press conference LIVE: Chelsea boss on Cucurella injury, Palmer fitness, Burnley](https://www.football.london/chelsea-fc/news/liam-rosenior-press-conference-live-33447969) - **Football.London**
+7. [Five clubs on alert as Chelsea consider Liam Delap sale](https://thefootballfaithful.com/five-clubs-on-alert-as-chelsea-consider-liam-delap-sale/) - **The Football Faithful**
+8. [Bayern open to defender departure as Chelsea and Spurs circle](https://thefootballfaithful.com/bayern-open-to-defender-departure-as-chelsea-and-spurs-circle/) - **The Football Faithful**
+9. [Pressure Mounts on Liverpool to Turn Strong Spells Into Full Results](https://www.empireofthekop.com/2026/02/18/pressure-mounts-on-liverpool-to-turn-strong-spells-into-results/) - **Empire of The Kop**
+10. [City v Newcastle: FPL Gameweek 27 Scout Report](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e44bce23-9d05-4751-888a-05bf6e62086d) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-19 22:44:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-19 23:51:43 (KST) / (하루 100회 제한 준수 중)*
