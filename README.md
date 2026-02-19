@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Big Bash League in India? Cricket Australia eyes historic BBL match at Chennai’s Chepauk](https://economictimes.indiatimes.com/news/new-updates/big-bash-league-in-india-cricket-australia-eyes-historic-bbl-match-at-chennais-chepauk/articleshow/128493646.cms) - **The Times of India**
-2. [Former Los Angeles Dodgers Ace Walker Buehler Joins NL West Rival](https://roundtable.io/sports/mlb/dodgers/news/former-los-angeles-dodgers-ace-walker-buehler-joins-nl-west-rival) - **Roundtable.io**
-3. [‘It’s a cut-throat business but it’s character building’ – Dubliner Craig Mahon thriving in sixth tier of English football](https://www.independent.ie/sport/soccer/its-a-cut-throat-business-but-its-character-building-dubliner-craig-mahon-thriving-in-sixth-tier-of-english-football/a1823114666.html) - **Independent.ie**
-4. [PGA Tour financial reports reveal much about Tour's present, future | EXCLUSIVE](https://golf.com/news/pga-tour-financial-reports-reveal-about-present-future/) - **Golf.com**
-5. [Where to watch Slovakia vs. Germany men's hockey: Live stream, channel, time, TV schedule for 2026 Olympics quarterfinal](https://www.sportingnews.com/us/olympics/news/watch-slovakia-germany-hockey-stream-channel-time-schedule-olympics/c0fafb084c8db5e9226a11ad) - **Sporting News**
-6. [Dallas Cowboys eyeing Myles Garrett and Trey Hendrickson to revamp struggling defense, per ESPN analyst](https://www.marca.com/en/nfl/dallas-cowboys/2026/02/18/6995318222601d17228b4585.html) - **Marca**
-7. [Powers, premiers and poles](https://berwicknews.starcommunity.com.au/sport/2026-02-18/powers-premiers-and-poles/) - **Starcommunity.com.au**
-8. [2026 Premier League Darts Night 3 draw, match predictions and 3 storylines to watch in Glasgow](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_82be0fe0-6716-4790-b2f5-206802a5ac1b) - **Yahoo Entertainment**
-9. [Puka Nacua sparks controversy: Why NFL fans compare him to Antonio Brown](https://www.marca.com/en/nfl/los-angeles-rams/2026/02/18/69952e4446163f097e8b45ad.html) - **Marca**
+1. [Is Wolves vs Arsenal on TV? Channel, kick-off time and how to watch Premier League clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_963c91d3-6796-4d3e-a475-ae83004b98be) - **Yahoo Entertainment**
+2. [Brighton plotting to lure both Said and Malek El Mala from 1.FC Köln](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6dd392a9-d9e9-4016-86a3-35d587d0fbde) - **Yahoo Entertainment**
+3. [Arteta urges Arsenal to embrace title-race pressure as Gunners aim to extend lead at Wolves](https://www.footballmuse.com/news/arteta-urges-arsenal-to-embrace-title-race-pressure-as-gunners-aim-to-extend-lead-at-wolves) - **Footballmuse.com**
+4. [Is VAR any better in the rest of Europe's top leagues?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2e3514b3-78f5-4052-84b8-bb9b7ed49619) - **Yahoo Entertainment**
+5. [Is VAR any better in the rest of Europe's top leagues?](https://www.bbc.com/sport/football/articles/cdxz2ey2lz2o) - **BBC News**
+6. [West Ham wanted €15m Liverpool star in January and may return in summer](https://anfieldindex.com/91354/west-ham-wanted-e15m-liverpool-star-in-january-and-may-return-in-summer.html) - **Anfieldindex.com**
+7. [Wolves predicted XI v Arsenal: Rob Edwards’ side face daunting challenge as eager Gunners roll into town (3-5-2)](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c88038c6-b173-48a4-a4ff-3ddf074704e6) - **Yahoo Entertainment**
+8. [Matt Law reveals what Liam Rosenior has done to give Chelsea ace “massive jolt of confidence”](https://chelsea.news/2026/02/matt-law-liam-rosenior-joao-pedro-chelsea/) - **Chelsea.news**
 
 
 ---
-*최근 업데이트: 2026-02-19 15:02:28 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-19 16:29:12 (KST) / (하루 100회 제한 준수 중)*
