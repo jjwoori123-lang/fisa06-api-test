@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Is Wolves vs Arsenal on TV? Channel, kick-off time and how to watch Premier League clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_963c91d3-6796-4d3e-a475-ae83004b98be) - **Yahoo Entertainment**
-2. [Brighton plotting to lure both Said and Malek El Mala from 1.FC Köln](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6dd392a9-d9e9-4016-86a3-35d587d0fbde) - **Yahoo Entertainment**
-3. [Arteta urges Arsenal to embrace title-race pressure as Gunners aim to extend lead at Wolves](https://www.footballmuse.com/news/arteta-urges-arsenal-to-embrace-title-race-pressure-as-gunners-aim-to-extend-lead-at-wolves) - **Footballmuse.com**
-4. [Is VAR any better in the rest of Europe's top leagues?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2e3514b3-78f5-4052-84b8-bb9b7ed49619) - **Yahoo Entertainment**
-5. [Is VAR any better in the rest of Europe's top leagues?](https://www.bbc.com/sport/football/articles/cdxz2ey2lz2o) - **BBC News**
-6. [West Ham wanted €15m Liverpool star in January and may return in summer](https://anfieldindex.com/91354/west-ham-wanted-e15m-liverpool-star-in-january-and-may-return-in-summer.html) - **Anfieldindex.com**
-7. [Wolves predicted XI v Arsenal: Rob Edwards’ side face daunting challenge as eager Gunners roll into town (3-5-2)](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c88038c6-b173-48a4-a4ff-3ddf074704e6) - **Yahoo Entertainment**
-8. [Matt Law reveals what Liam Rosenior has done to give Chelsea ace “massive jolt of confidence”](https://chelsea.news/2026/02/matt-law-liam-rosenior-joao-pedro-chelsea/) - **Chelsea.news**
+1. [Daniel Beichler is new head coach of FC Red Bull Salzburg](https://www.redbullsalzburg.at/en/recent/news/daniel-beichler-neuer-cheftrainer) - **Redbullsalzburg.at**
+2. [Liverpool’s Champions League path has become clearer after dramatic plot twist](https://www.empireofthekop.com/2026/02/18/liverpool-champions-league-path-has-become-clearer-after-extraordinary-plot-twist/) - **Empire of The Kop**
+3. ['We'd be a far poorer club without O'Nien'](https://www.bbc.com/sport/football/articles/c93jl3j9d3lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Just how far can this Manchester City side go this season?](https://www.bbc.com/sport/football/articles/ckg3817r54go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Frimpong injury update emerges with Liverpool still short at right-back](https://www.empireofthekop.com/2026/02/18/frimpong-injury-update-emerges-with-liverpool-still-short-at-right-back/) - **Empire of The Kop**
+6. [Preview: Wolves v Arsenal](http://www.arsenal.com/news/preview-wolves-v-arsenal-1) - **Arsenal.com**
+7. [Rayan Cherki reflects on emotional Lyon homecoming after Manchester City transfer](https://cityxtra.co.uk/41822/rayan-cherki-reflects-on-emotional-lyon-homecoming-after-manchester-city-transfer/) - **Cityxtra.co.uk**
+8. [Report: Liverpool Amongst Clubs Interested In Brazilian Wonderkid](https://anfieldindex.com/91352/report-liverpool-amongst-clubs-interested-in-brazilian-wonderkid.html) - **Anfieldindex.com**
+9. [Wolves vs Arsenal – Match preview and team news](https://thefootballfaithful.com/wolves-vs-arsenal-match-preview-and-team-news/) - **The Football Faithful**
+10. [Arsenal XI vs Wolves – Predicted lineup and team news](https://thefootballfaithful.com/arsenal-xi-vs-wolves-predicted-lineup-and-team-news-2/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-02-19 16:29:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-19 17:24:44 (KST) / (하루 100회 제한 준수 중)*
