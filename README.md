@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arne Slot previews Forest and points to Pereira factor](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_abf7d1e7-33f0-49eb-a1e7-f61f6737fda3) - **Yahoo Entertainment**
-2. [Former Premier League forward reveals the truth behind Anfield’s famous atmosphere](https://anfieldindex.com/91393/former-premier-league-forward-reveals-the-truth-behind-anfields-famous-atmosphere.html) - **Anfieldindex.com**
-3. [Report: West Ham United favourites to sign 24-year-old forward](https://eplindex.com/143020/report-west-ham-united-favourites-to-sign-24-year-old-forward.html) - **English Premier League Index - Opta Stats**
-4. [One of Barcelona's most expensive signings terminates his contract for mental health reasons](https://www.marca.com/en/football/spanish-football/2026/02/19/6996f301ca4741600f8b4598.html) - **Marca**
-5. [No Celtic return for Ange Postecoglou, Jens Berthel Askou one to watch](https://thecelticstar.com/no-celtic-return-for-ange-postecoglou-jens-berthel-askou-one-to-watch/) - **The Celtic Star**
-6. [Free agent number nine target will prioritise move to Barcelona](https://www.football-espana.net/2026/02/19/free-agent-number-nine-target-will-prioritise-move-to-barcelona) - **Football Espana**
-7. [Fantasy Premier League 2025/26: Five players to sell ahead of Gameweek 27](https://www.101greatgoals.com/football/fantasy/fantasy-premier-league-2025-26-five-players-to-sell-ahead-of-gameweek-27/) - **101 Great Goals**
-8. [Talks ongoing: Man United and ‘complete’ midfielder now ‘equally eager’ to agree long-term deal](https://strettynews.com/2026/02/19/kobbie-mainoo-manchester-united-new-contract-agreement-transfer/) - **Strettynews.com**
-9. [Andy Farrell names his side to face England at Twickenham](https://www.irishtimes.com/sport/2026/02/19/andy-farrell-names-his-side-to-face-england-at-twickenham/) - **The Irish Times**
+1. [Newcastle’s Anthony Gordon responds to Man United transfer links](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_866e5ac8-d686-4d42-954a-a5ca069899e0) - **Yahoo Entertainment**
+2. [How Arsenal’s dressing room reacted to their draw against Wolves](https://www.justarsenal.com/how-arsenals-dressing-room-reacted-to-their-draw-against-wolves/410327) - **Just Arsenal News**
+3. [Di Canio destroys Italian football: ‘Sorry’ to hear Vialli compared to Malen](https://football-italia.net/di-canio-italian-football-sorry-malen-vialli/) - **Football Italia**
+4. [Where to watch Olympic men's curling semifinals: Schedule, times, TV channels, live streams for 2026 playoffs](https://www.sportingnews.com/us/olympics/news/watch-olympic-mens-curling-semifinals-schedule-times-channels-streams/21f61952fb89b9b452569220) - **Sporting News**
+5. [Still favourites but less convincingly - have your say on the title race](https://www.bbc.com/sport/football/articles/cm2r59ydme1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Ange Postecoglou explains what went wrong in nightmare 39-day Nottingham Forest reign](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d1d554b9-9146-4b1e-8557-e11f1f43f1ec) - **Yahoo Entertainment**
+7. [11 days that blew the Premier League title race wide open](https://sports.yahoo.com/articles/11-days-blew-premier-league-123835473.html) - **Yahoo Entertainment**
+8. [Premier League: Arsenal losing momentum, stats paint a bleak picture for the Gunners](https://foot-africa.com/en/news/premier-league-arsenal-losing-momentum-stats-paint-a-bleak-picture-for-the-gunners-1092704/) - **Foot-africa.com**
 
 
 ---
-*최근 업데이트: 2026-02-20 20:59:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-20 22:19:51 (KST) / (하루 100회 제한 준수 중)*
