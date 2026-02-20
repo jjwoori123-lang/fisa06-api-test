@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The Top 12 Universities Advance to the Collegiate Cricket National Championship, The Collegiate Cup® in Fort Lauderdale, FL on March 12–15](https://www.globenewswire.com/news-release/2026/02/19/3241278/0/en/The-Top-12-Universities-Advance-to-the-Collegiate-Cricket-National-Championship-The-Collegiate-Cup-in-Fort-Lauderdale-FL-on-March-12-15.html) - **GlobeNewswire**
-2. [Saka becomes Arsenal's best-paid player after signing new deal](https://www.skysports.com/football/news/11670/13508596/bukayo-saka-contract-arsenal-winger-signs-new-five-year-deal-to-keep-him-at-club-until-2030) - **Sky Sports**
-3. [“It’s been painful,” Keown says Arsenal is missing one key player](https://www.justarsenal.com/its-been-painful-keown-says-arsenal-is-missing-one-key-player/410340) - **Just Arsenal News**
-4. [Enjoy all 78 of Saka's Gunners goals - so far!](http://www.arsenal.com/news/enjoy-all-78-sakas-gunners-goals-so-far) - **Arsenal.com**
-5. [Farke on Okafor injury, Buonanotte's role and Justin's captaincy](https://www.bbc.com/sport/football/articles/ce82gjg0mpgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [After fall, Gaon Choi wondered 'Is this how it ends?' But Olympic champion is just getting started](https://sports.yahoo.com/articles/fall-gaon-choi-wondered-ends-145719726.html) - **Yahoo Entertainment**
-7. [Report: Liverpool eyeing move to sign Tottenham Hotspur star](https://eplindex.com/143028/report-liverpool-eyeing-move-to-sign-tottenham-hotspur-star-2.html) - **English Premier League Index - Opta Stats**
-8. [Liam Rosenior gives Chelsea injury update before Burnley clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1762a4ba-ba8f-4dbb-8dcd-33587a442a9a) - **Yahoo Entertainment**
-9. [Barcelona take measures to reduce risk of second Dro Fernandez case](https://www.football-espana.net/2026/02/19/barcelona-take-measures-to-reduce-risk-of-second-dro-fernandez-case) - **Football Espana**
-10. [Aston Villa keen on signing Harry Wilson](https://www.playmakerstats.com/news/aston-villa-keen-on-signing-harry-wilson/1057232) - **Playmakerstats.com**
+1. [Premier League defender does not rule out Barcelona move amid widespread interest](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0409fa06-8c3d-4382-bc6b-2ff60b4b3a33) - **Yahoo Entertainment**
+2. [The stats behind Bukayo Saka's rise](http://www.arsenal.com/news/stats-behind-bukayo-sakas-rise) - **Arsenal.com**
+3. [Are Arsenal in danger of repeating history?](https://www.bbc.com/sport/football/articles/c5yk6vgppydo) - **BBC News**
+4. [BBC: Man United defender ruled out for between ‘four and eight weeks’ after sustaining untimely knee injury](https://strettynews.com/2026/02/19/manchester-united-women-anna-sandberg-injury/) - **Strettynews.com**
+5. [Buyako Saka rejects talk of Arsenal wilting but scars of title near-misses run deep](https://www.irishtimes.com/sport/soccer/2026/02/19/buyako-saka-rejects-talk-of-arsenal-wilting-but-scars-of-title-near-misses-run-deep/) - **The Irish Times**
+6. [‘Remarkably well’ – Burnley manager Parker praises Chelsea boss Rosenior](https://hayters.com/remarkably-well-burnley-manager-parker-praises-chelsea-boss-rosenior/) - **Hayters.com**
+7. ['Kick the players out' - Allardyce slams Spurs and questions Dyche's Forest sacking](https://www.skysports.com/football/news/11661/13509578/sam-allardyce-former-premier-league-boss-has-his-say-on-tottenhams-relegation-battle-igor-tudor-and-sean-dyches-nottingham-forest-sacking) - **Sky Sports**
+8. [Amad Diallo names one Manchester United legend he would ‘love’ to play with](https://www.hitc.com/amad-diallo-names-one-manchester-united-legend-he-would-love-to-play-with/) - **HITC - Football, Gaming, Movies, TV, Music**
+9. [Rayan Ait-Nouri discusses injury struggles and adapting to Pep Guardiola’s demands at Manchester City](https://cityxtra.co.uk/41859/rayan-ait-nouri-discusses-injury-struggles-and-adapting-to-pep-guardiolas-demands-at-manchester-city/) - **Cityxtra.co.uk**
 
 
 ---
-*최근 업데이트: 2026-02-21 00:03:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-21 00:55:39 (KST) / (하루 100회 제한 준수 중)*
