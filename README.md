@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal fans defend Calafiori after involvement in late Wolves equaliser](https://football-italia.net/arsenal-fans-defend-calafiori-wolves-equaliser/) - **Football Italia**
-2. [Zrinjski Mostar vs Crystal Palace: Confirmed line-ups for Europa Conference League play-off](https://www.101greatgoals.com/football/zrinjski-mostar-vs-crystal-palace-confirmed-line-ups/) - **101 Great Goals**
-3. [Fenerbahce vs Nottingham Forest: Confirmed line-ups for Europa League play-off](https://www.101greatgoals.com/football/europa-league/fenerbahce-vs-nottingham-forest-confirmed-line-ups/) - **101 Great Goals**
-4. [Chelsea boss Rosenior calls for bans over racist behaviour amid Madrid row](https://thefootballfaithful.com/chelsea-rosenior-bans-racism-real-madrid-vinicius-jr/) - **The Football Faithful**
-5. [Messi among 13 Argentina stars reportedly confirmed in Scaloni’s squad for Finalissima and World Cup](https://worldsoccertalk.com/news/messi-among-13-argentina-stars-reportedly-confirmed-in-scalonis-squad-for-finalissima-and-world-cup/) - **Worldsoccertalk.com**
-6. [Good Friday fixture scheduled](https://www.manutd.com/en/news/detail/leeds-under-21s-clash-rearranged-to-good-friday) - **Manchester United**
-7. [Liverpool will face Wolves twice in four days and it’s only happened once before](https://www.empireofthekop.com/2026/02/19/liverpool-will-face-wolves-twice-in-four-days-and-its-only-happened-once-before/) - **Empire of The Kop**
-8. [Sandro Tonali: Shay Given makes bold claim about United target](https://thepeoplesperson.com/2026/02/19/sandro-tonali-shay-given-makes-bold-claim-about-united-target-306728/) - **The Peoples Person**
-9. [Arsenal lock up superstar winger Bukayo Saka to long-term deal as Gunners continue Premier League pursuit](https://www.cbssports.com/soccer/news/arsenal-bukayo-saka-contract-extension-premier-league/) - **CBS Sports**
-10. [‘People need to be held a lot more accountable’ – Liam Rosenior says no place in football for anyone found guilty of racism](https://www.independent.ie/sport/soccer/premier-league/people-need-to-be-held-a-lot-more-accountable-liam-rosenior-says-no-place-in-football-for-anyone-found-guilty-of-racism/a1440922174.html) - **Independent.ie**
+1. [PREVIEW | West Ham vs Bournemouth - team news, lineups, predictions](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ee839bcc-5a89-4317-ae30-ab4e83475b6b) - **Yahoo Entertainment**
+2. [Baleba: I feel more relaxed after early-season pressure](https://www.skysports.com/football/news/11741/13509402/carlos-baleba-brighton-midfielder-outlines-how-he-is-getting-back-to-his-best-after-early-season-struggles) - **Sky Sports**
+3. [Why now is when we find out if Arsenal have learned from previous title collapses](https://www.nbcsports.com/soccer/news/why-now-is-when-we-find-out-if-arsenal-have-learned-from-previous-title-collapses) - **NBCSports.com**
+4. [Real Madrid-linked Liverpool star has no desire to leave, agent confirms](https://madriduniversal.com/real-madrid-linked-liverpool-star-has-no-desire-to-leave-agent-confirms/) - **Madriduniversal.com**
+5. [Chelsea boss Rosenior says no place in football for racists](https://sports.yahoo.com/articles/chelsea-boss-rosenior-says-no-171957855.html) - **Yahoo Entertainment**
+6. [2026 Premier League Darts Night 3 Glasgow live results, scores and schedule](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_88241333-e9ab-4b4a-874f-40fd8e64bfe7) - **Yahoo Entertainment**
+7. ['Eisner's fondness for Pompey is clear'](https://www.bbc.com/sport/football/articles/cd6zj8qe4yeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Richard Hughes must focus on signing ‘extraordinary’ star for Liverpool after major transfer update](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_72645e0d-48d2-4753-90f5-c43e83dbb5d1) - **Yahoo Entertainment**
+9. [Piers Morgan advises Mikel Arteta to do this with Arsenal players](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0183ffe4-8909-4d2f-91f0-2537599ebd28) - **Yahoo Entertainment**
+10. [Arsenal and Man City fans have their say on the title race](https://www.bbc.com/sport/football/articles/cz6ed4d8yy2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-02-21 01:47:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-21 02:40:18 (KST) / (하루 100회 제한 준수 중)*
