@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Crypto Snack Unveils Five-Pillar Ecosystem Spanning Sports, RWA Tokenisation, iGaming, Consumer Rewards, and Payments](https://www.globenewswire.com/news-release/2026/02/19/3240809/0/en/Crypto-Snack-Unveils-Five-Pillar-Ecosystem-Spanning-Sports-RWA-Tokenisation-iGaming-Consumer-Rewards-and-Payments.html) - **GlobeNewswire**
-2. [Weekly sports quiz: How long did Dyche last at Forest?](https://www.bbc.com/sport/articles/cn71xy53e4zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Mikel Arteta explains what went wrong v Wolves](https://dailycannon.com/2026/02/arteta-responds-wolves-arsenal/) - **Dailycannon.com**
-4. [Weekly sports quiz: How long did Dyche last at Forest?](https://www.bbc.com/sport/articles/cn71xy53e4zo) - **BBC News**
-5. [Como’s Fabregas, Milan’s Allegri and an alleged pull of Saelemaekers’ shirt](https://www.aljazeera.com/sports/2026/2/19/comos-fabregas-milans-allegri-and-an-alleged-pull-of-saelemaekers-shirt) - **Al Jazeera English**
-6. [Mikel Arteta admits Arsenal only have themselves to blame as Wolves draw opens up Premier League title race](https://www.independent.ie/sport/soccer/premier-league/mikel-arteta-admits-arsenal-only-have-themselves-to-blame-as-wolves-draw-opens-up-premier-league-title-race/a688700253.html) - **Independent.ie**
-7. ['Gordon brought back one or two memories of Shearer'](https://www.bbc.com/sport/football/articles/cvgj7n8ng8wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Transfer rumour roundup: Chelsea contemplate Delap departure; PSG join Rogers race](https://www.footballmuse.com/features/transfer-rumour-roundup-chelsea-contemplate-delap-departure-psg-join-rogers-race) - **Footballmuse.com**
-9. [ More Vini, more Champions... 5 stories to start your Thursday](https://onefootball.com/en/news/more-vini-more-champions-5-stories-to-start-your-thursday-42432909) - **Onefootball.com**
-10. [From Stoke to the Arctic Circle - 30 years of BBC's Murray behind mic](https://www.bbc.com/sport/football/articles/c5yg064dp7zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [“We need to stay ready” – Rayan Ait-Nouri talks title race as Arsenal invite Manchester City hijack](https://cityxtra.co.uk/41858/we-need-to-stay-ready-rayan-ait-nouri-talks-title-race-as-arsenal-invite-manchester-city-hijack/) - **Cityxtra.co.uk**
+2. [Argyle beat Exeter to boost bid to reach WSL 2](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_94973a9e-f7a5-40b4-affa-f2370f36c47f) - **Yahoo Entertainment**
+3. [Lynch 'not satisfied' with Derry City start](https://www.bbc.com/sport/football/articles/c8egpdzezdjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Captain Palmer or Joao Pedro? FPL team of the week](https://www.bbc.com/sport/football/articles/cwy9ejg5zepo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Littler into semi-finals after Van Gerwen withdrawal](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_85921f5a-6622-4764-a6c5-a61470cf8753) - **Yahoo Entertainment**
+6. [Littler into semi-finals after Van Gerwen withdrawal](https://www.bbc.com/sport/darts/articles/cn48w8dvpmjo) - **BBC News**
+7. [Harmanpreet Kaur becomes most capped international player in women’s cricket history](https://economictimes.indiatimes.com/news/sports/harmanpreet-kaur-becomes-most-capped-international-player-in-womens-cricket-history/articleshow/128549459.cms) - **The Times of India**
+8. [Etta Eyong: Man United’s pursuit of Levante striker takes sharp twist](https://thepeoplesperson.com/2026/02/19/etta-eyong-man-uniteds-pursuit-of-levante-striker-takes-sharp-twist-306701/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-02-20 17:54:20 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-20 18:45:31 (KST) / (하루 100회 제한 준수 중)*
