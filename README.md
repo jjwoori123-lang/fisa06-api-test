@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Expert reveals when Giovanni Leoni will return from injury](https://anfieldindex.com/91404/expert-reveals-when-giovanni-leoni-will-return-from-injury.html) - **Anfieldindex.com**
-2. [Pereira gets dream start as Forest overpower Fenerbahce](https://www.rte.ie/sport/soccer/2026/0219/1559317-pereira-gets-dream-start-as-forest-overpower-fenerbahce/) - **RTE**
-3. [How should Chelsea line up against Burnley after four days off?](https://weaintgotnohistory.sbnation.com/premier-league/166306/how-should-chelsea-line-up-against-burnley-after-four-days-off) - **SB Nation**
-4. [Forest boss Pereira makes perfect start with Fenerbahce rout in Europa play-offs](https://sports.yahoo.com/articles/forest-boss-pereira-makes-perfect-195039595.html) - **Yahoo Entertainment**
-5. [Man City vs Newcastle United: Match Preview, Latest Team News and How to Watch](https://eplindex.com/143043/man-city-vs-newcastle-united-match-preview-latest-team-news-and-how-to-watch.html) - **English Premier League Index - Opta Stats**
-6. [Haaland To Spearhead Guardiola’s Attack | 4-3-3 Manchester City Predicted Lineup Vs Newcastle United](https://the4thofficial.net/2026/02/haaland-to-spearhead-guardiolas-attack-4-3-3-manchester-city-predicted-lineup-vs-newcastle-united/) - **The4thofficial.net**
-7. [Barcelona academy graduate wants to stay at club amid Manchester United interest](https://barcauniversal.com/barcelona-academy-graduate-wants-to-stay-at-club-amid-manchester-united-interest/) - **Barcauniversal.com**
-8. [FPL GW26 Team of the Week: Best players to target in Gameweek 27](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3e3a8cb9-a0d2-46f7-abee-c3ba9e8a190d) - **Yahoo Entertainment**
+1. [Fenerbahce 0-3 Nottingham Forest: What Pereira said](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c231b0a1-b4e1-410f-ac30-065f507c2c23) - **Yahoo Entertainment**
+2. [Estevao on his “hardest challenge” since arriving at Chelsea – it’s not opposition full backs](https://chelsea.news/2026/02/estevao-hardest-challenge-arriving-chelsea/) - **Chelsea.news**
+3. [Premier League star breaks silence on reported Liverpool transfer interest](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_494702d2-2bac-4088-a2c3-f7ae7fe125dd) - **Yahoo Entertainment**
+4. [Liverpool Are Showing Interest In Recruiting This Juventus Midfielder: Good Option For Slot?](https://the4thofficial.net/2026/02/liverpool-are-showing-interest-in-recruiting-this-juventus-midfielder/) - **The4thofficial.net**
+5. [Hansi Flick’s Barcelona could fast-track signing as Serie A star reportedly prioritizes move to LaLiga side](https://worldsoccertalk.com/news/hansi-flicks-barcelona-could-fast-track-signing-as-serie-a-star-reportedly-prioritizes-move-to-laliga-side/) - **Worldsoccertalk.com**
+6. [Three Winners and Three Losers of EPL Game Week 26](https://www.nevermanagealone.com/playerpicks/15534/three-winners-and-three-losers-of-epl-game-week-26) - **Nevermanagealone.com**
+7. [Crysytal Palace rue missed chances after Zrinjski Mostar come from behind to draw Conference League clash in Bosnia](https://www.independent.ie/sport/soccer/crysytal-palace-rue-missed-chances-after-zrinjski-mostar-come-from-behind-to-draw-conference-league-clash-in-bosnia/a850832417.html) - **Independent.ie**
+8. [Texans CB Kamari Lassiter named to PFF's Top 101 players of 2025](https://texanswire.usatoday.com/story/sports/nfl/texans/2026/02/19/texans-cb-kamari-lassiter-named-to-pffs-top-101-players-of-2025/88762090007/) - **USA Today**
+9. [Vitor Pereira enjoys dream start to reign as Forest thump Fenerbahce in first leg of Europa League play-off](https://www.independent.ie/sport/soccer/vitor-pereira-enjoys-dream-start-to-reign-as-forest-thump-fenerbahce-in-first-leg-of-europa-league-play-off/a1886189447.html) - **Independent.ie**
 
 
 ---
-*최근 업데이트: 2026-02-21 04:59:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-21 05:44:41 (KST) / (하루 100회 제한 준수 중)*
