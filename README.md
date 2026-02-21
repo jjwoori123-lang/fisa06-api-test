@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal's to lose? What do the stats say before derby...](https://www.bbc.com/sport/football/articles/c2041dkml28o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Liverpool told they made mistake in £15m summer transfer deal](https://anfieldindex.com/91421/liverpool-told-they-made-mistake-in-15m-summer-transfer-deal.html) - **Anfieldindex.com**
-3. [From Hooghly to high seas: Boost for Kolkata PSU amid defence boom](https://economictimes.indiatimes.com/news/defence/garden-reach-shipbuilders-engineers-grse-navratna-status-from-hooghly-to-high-seas-boost-for-kolkata-psu-amid-defence-boom/articleshow/128601407.cms) - **The Times of India**
-4. [Marc Guehi receives glowing report from Manchester City and England teammate](https://cityxtra.co.uk/41891/marc-guehi-receives-glowing-report-from-manchester-city-and-england-teammate/) - **Cityxtra.co.uk**
-5. [Julian Ryerson attracted to Serie A move amid exit speculation](https://bulinews.com/julian-ryerson-attracted-serie-move-amid-exit-speculation) - **Bulinews.com**
-6. [EPL: Rooney backs Arsenal to win title over Man City](https://punchng.com/epl-rooney-backs-arsenal-to-win-title-over-man-city/) - **The Punch**
-7. [Carlos Baleba: Man United target explains what he must work on](https://thepeoplesperson.com/2026/02/20/carlos-baleba-man-united-target-explains-what-he-must-work-on-306761/) - **The Peoples Person**
-8. [Opta predict Liverpool victory at Forest as Pereira begins Premier League reign](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c155954d-59fd-4228-b5a1-d26b3617cb66) - **Yahoo Entertainment**
-9. [Arteta admits talk is cheap and Arsenal must show a response against Tottenham](https://www.justarsenal.com/arteta-admits-talk-is-cheap-and-arsenal-must-show-a-response-against-tottenham/410374) - **Just Arsenal News**
-10. [“Quite the opposite” – Man Utd striker lifts the lid on Amorim’s ‘obsession’ in ‘honest’ admission](https://strettynews.com/2026/02/20/matheus-cunha-ruben-amorim-man-utd/) - **Strettynews.com**
+1. [Hurzeler on March's return, board support and Brentford](https://www.bbc.com/sport/football/articles/c0q3g10j39po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [From the vault: Our greatest trips to Tottenham](http://www.arsenal.com/news/vault-our-greatest-trips-tottenham) - **Arsenal.com**
+3. [Kentucky Women’s Basketball vs. Vanderbilt gets a new start time and TV channel](https://www.aseaofblue.com/kentucky-womens-basketball/163544/uk-vanderbilt-start-time-tv-channel) - **A Sea Of Blue**
+4. [Chelsea v Burnley – Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/premier-league-odds/chelsea-v-burnley-line-ups-stats-and-preview/) - **101 Great Goals**
+5. [5 things to know about Kareem Ahmed, the new U20 starlet](https://foot-africa.com/en/news/5-things-to-know-about-kareem-ahmed-the-new-u20-starlet-1094024/) - **Foot-africa.com**
+6. [Howe: Man City are the Premier League benchmark](https://www.skysports.com/football/video/12606/13509931/eddie-howe-believes-man-city-have-set-the-benchmark-in-the-premier-league-as-he-prepares-to-face-pep-guardiolas-side-on-saturday) - **Sky Sports**
+7. [Rosenior’s Blues host Burnley with sights set on leapfrogging United](https://footballtoday.com/2026/02/20/roseniors-blues-host-burnley-with-sights-set-on-leapfrogging-united/) - **Footballtoday.com**
+8. [ OneFootball x L.P. Rhythm: Under Le Bris, Sunderland can get Europe](https://onefootball.com/en/news/onefootball-x-lp-rhythm-under-le-bris-sunderland-can-get-europe-42438618) - **Onefootball.com**
+9. [Daniel Oyetunde joins Fort Wayne](http://www.arsenal.com/news/daniel-oyetunde-joins-fort-wayne) - **Arsenal.com**
+10. [Arsenal midfield target compared to Andrea Pirlo](https://www.justarsenal.com/arsenal-midfield-target-compared-to-andrea-pirlo/410378) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-02-21 18:56:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-21 19:34:23 (KST) / (하루 100회 제한 준수 중)*
