@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea Are Keen On Recruiting This Nottingham Forest Defender: What Will He Add To Rosenior’s Team?](https://the4thofficial.net/2026/02/chelsea-are-keen-on-recruiting-this-nottingham-forest-defender/) - **The4thofficial.net**
-2. [Amadou Onana: United eye return for one of the Premier League’s most exciting midfielders](https://thepeoplesperson.com/2026/02/20/amadou-onana-united-eye-return-for-one-of-the-premier-leagues-most-exciting-midfielders-306800/) - **The Peoples Person**
-3. [Lille Want To Sign This Aston Villa Star In The Summer: Should The Midlands Club Cash In?](https://the4thofficial.net/2026/02/lille-want-to-sign-this-aston-villa-star-in-the-summer-should-the-midlands-club-cash-in/) - **The4thofficial.net**
-4. [“I could not care less” – Pep Guardiola not distracted by title talk despite poor Arsenal form](https://cityxtra.co.uk/41920/i-could-not-care-less-pep-guardiola-not-distracted-by-title-talk-despite-poor-arsenal-form/) - **Cityxtra.co.uk**
-5. [Not Salah — Ngumoha picks the best winger in football](https://foot-africa.com/en/news/not-salah-ngumoha-picks-the-best-winger-in-football-1094849/) - **Foot-africa.com**
-6. [Pundit breaks down why Arsenal do not have a world-class player](https://www.justarsenal.com/pundit-breaks-down-why-arsenal-do-not-have-a-world-class-player/410411) - **Just Arsenal News**
-7. [Man United's Jim Ratcliffe reminded of his responsibilities but no FA charge for 'colonized' claim](https://japantoday.com/category/sports/carrick-says-man-united-is-proud-of-its-culture-after-ratcliffe%27s-comments) - **Japan Today**
-8. [Arsenal aims to banish title jitters in Spurs showdown](https://japantoday.com/category/sports/arsenal-aim-to-banish-title-jitters-in-spurs-showdown) - **Japan Today**
-9. [“We will see” – Oliver Glasner speaks out on Crystal Palace future](https://eplindex.com/143078/we-will-see-oliver-glasner-speaks-out-on-crystal-palace-future.html) - **English Premier League Index - Opta Stats**
-10. [Odegaard To Start, Madueke On The Bench | 4-3-3 Arsenal Predicted Lineup Vs Tottenham Hotspur](https://the4thofficial.net/2026/02/odegaard-to-start-madueke-on-the-bench-4-3-3-arsenal-predicted-lineup-vs-tottenham-hotspur/) - **The4thofficial.net**
+1. [Late drama as Drogheda’s Conor Keeley rescues a point from fiery Louth derby at Dundalk](https://www.independent.ie/sport/soccer/league-of-ireland/late-drama-as-droghedas-conor-keeley-rescues-a-point-from-fiery-louth-derby-at-dundalk/a166405873.html) - **Independent.ie**
+2. [Journalist confirms ‘weird’ Liverpool approach for surprise Premier League signing](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c869190f-ae4e-4f9d-a1b6-86e44f3f8fba) - **Yahoo Entertainment**
+3. [Papers: Carrick 'firmly in the running' for Man Utd job](https://www.skysports.com/football/transfer-paper-talk/12709/13510188/michael-carrick-firmly-in-the-running-for-man-utd-job-as-robbie-keane-eyed-for-crystal-palace-paper-talk-and-football-transfer-gossip) - **Sky Sports**
+4. [Galway United earn well deserved point at Shelbourne](https://www.irishtimes.com/sport/soccer/2026/02/20/galway-united-earn-well-deserved-point-at-shelbourne/) - **The Irish Times**
+5. [Sunderland Starlet Vows To Push On After Regis Le Bris Call-Up: Can He Transition From Academy Leader To Senior Regular?](https://the4thofficial.net/2026/02/sunderland-starlet-vows-to-push-on-after-regis-le-bris-call-up-can-he-transition-from-academy-leader-to-senior-regular/) - **The4thofficial.net**
+6. [Clyde up for the challenge](https://berwicknews.starcommunity.com.au/sport/2026-02-21/clyde-up-for-the-challenge/) - **Starcommunity.com.au**
+7. [Everton vs Man United: Match Preview, Latest Team News and How to Watch](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_dfd42740-86ae-4670-95b3-72c0f5392828) - **Yahoo Entertainment**
+8. [Sir Kenny Dalglish shares his thoughts on Arne Slot’s future at Liverpool](https://anfieldindex.com/91442/sir-kenny-dalglish-shares-his-thoughts-on-arne-slots-future-at-liverpool.html) - **Anfieldindex.com**
+9. [Chelsea Are Keen On Recruiting This Nottingham Forest Defender: What Will He Add To Rosenior’s Team?](https://the4thofficial.net/2026/02/chelsea-are-keen-on-recruiting-this-nottingham-forest-defender/) - **The4thofficial.net**
+10. [Amadou Onana: United eye return for one of the Premier League’s most exciting midfielders](https://thepeoplesperson.com/2026/02/20/amadou-onana-united-eye-return-for-one-of-the-premier-leagues-most-exciting-midfielders-306800/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-02-22 06:53:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-22 07:27:57 (KST) / (하루 100회 제한 준수 중)*
