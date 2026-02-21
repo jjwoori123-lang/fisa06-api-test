@@ -1,15 +1,12 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle United midfielder McQuade signs new deal](https://fawslfulltime.co.uk/2026/02/20/newcastle-united-midfielder-mcquade-signs-new-deal/) - **Fawslfulltime.co.uk**
-2. [Al Ahly: concern grows over Leltsin Camões](https://foot-africa.com/en/news/al-ahly-concern-grows-over-leltsin-cames-1094546/) - **Foot-africa.com**
-3. [Malick Thiaw: Newcastle star is United’s “top target” to replace key man](https://thepeoplesperson.com/2026/02/20/malick-thiaw-newcastle-star-is-uniteds-top-target-to-replace-key-man-306793/) - **The Peoples Person**
-4. [Oxlade-Chamberlain can get Celtic 'over the line' at the end of the season](https://www.bbc.com/sport/articles/ckg1nlzrwvyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [The Best Premier League Ball Designs From The Last Five Years](https://worldfootballindex.com/2026/02/the-best-premier-league-ball-designs-from-the-last-five-years/) - **World Football Index**
-6. [PREVIEW | Tottenham vs Arsenal - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-tottenham-vs-arsenal-team-news-lineups-predictions/1058222) - **Playmakerstats.com**
-7. [Arsenal exactly where we want to be - Arteta](https://www.bbc.com/sport/football/articles/cy0djw2zwe9o) - **BBC News**
-8. [United States Sports Intelligent Marketing Software Market ROI, Size & Trends 2026-2033](https://www.linkedin.com/pulse/united-states-sports-intelligent-marketing-software-ndivf) - **Linkedin.com**
-9. [FA reminds Man Utd co-owner Ratcliffe of responsibilities after immigration comments](https://news.sky.com/story/fa-reminds-man-utd-co-owner-sir-jim-ratcliffe-of-responsibilities-after-immigration-comments-13509375) - **Sky.com**
+1. [Survival to spotlight: How MLS built a more than 30-year run to 2026 World Cup with risks, a plan and hope](https://www.cbssports.com/soccer/news/survival-to-spotlight-how-mls-built-a-30-year-run-to-world-cup-with-risks-a-plan-and-hope/) - **CBS Sports**
+2. [Mark Patterson On Bolton, Sheffield United And Playing Under Bruce Rioch And Howard Kendall](https://worldfootballindex.com/2026/02/mark-patterson-on-bolton-sheffield-united-and-playing-under-bruce-rioch-and-howard-kendall/) - **World Football Index**
+3. [Michael Carrick on Man Utd’s 22-day gap: ‘There’s no black and white answer’](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a75d19dd-13c5-4cbd-882a-1e4e2d87179c) - **Yahoo Entertainment**
+4. [Premier League relegation state of play as Tottenham, West Ham, Nottingham Forest, and Leeds battle to stay up](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f5700d39-fc42-4abc-a3a4-0e832c7e83f4) - **Yahoo Entertainment**
+5. [Liverpool's only other Brazilian wonderkid as €35m deal reportedly pursued for a new one](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-only-other-brazilian-wonderkid-as-eur35m-deal-reportedly-pursued-for-a-new-one/) - **Anfieldwatch.co.uk**
+6. [Premier League: date, time, channels and probable lineups for Tottenham – Arsenal](https://foot-africa.com/en/news/premier-league-date-time-channels-and-probable-lineups-for-tottenham-arsenal-1094591/) - **Foot-africa.com**
 
 
 ---
-*최근 업데이트: 2026-02-22 01:59:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-22 02:35:11 (KST) / (하루 100회 제한 준수 중)*
