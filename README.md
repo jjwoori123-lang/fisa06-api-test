@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Hurzeler on March's return, board support and Brentford](https://www.bbc.com/sport/football/articles/c0q3g10j39po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [From the vault: Our greatest trips to Tottenham](http://www.arsenal.com/news/vault-our-greatest-trips-tottenham) - **Arsenal.com**
-3. [Kentucky Women’s Basketball vs. Vanderbilt gets a new start time and TV channel](https://www.aseaofblue.com/kentucky-womens-basketball/163544/uk-vanderbilt-start-time-tv-channel) - **A Sea Of Blue**
-4. [Chelsea v Burnley – Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/premier-league-odds/chelsea-v-burnley-line-ups-stats-and-preview/) - **101 Great Goals**
-5. [5 things to know about Kareem Ahmed, the new U20 starlet](https://foot-africa.com/en/news/5-things-to-know-about-kareem-ahmed-the-new-u20-starlet-1094024/) - **Foot-africa.com**
-6. [Howe: Man City are the Premier League benchmark](https://www.skysports.com/football/video/12606/13509931/eddie-howe-believes-man-city-have-set-the-benchmark-in-the-premier-league-as-he-prepares-to-face-pep-guardiolas-side-on-saturday) - **Sky Sports**
-7. [Rosenior’s Blues host Burnley with sights set on leapfrogging United](https://footballtoday.com/2026/02/20/roseniors-blues-host-burnley-with-sights-set-on-leapfrogging-united/) - **Footballtoday.com**
-8. [ OneFootball x L.P. Rhythm: Under Le Bris, Sunderland can get Europe](https://onefootball.com/en/news/onefootball-x-lp-rhythm-under-le-bris-sunderland-can-get-europe-42438618) - **Onefootball.com**
-9. [Daniel Oyetunde joins Fort Wayne](http://www.arsenal.com/news/daniel-oyetunde-joins-fort-wayne) - **Arsenal.com**
-10. [Arsenal midfield target compared to Andrea Pirlo](https://www.justarsenal.com/arsenal-midfield-target-compared-to-andrea-pirlo/410378) - **Just Arsenal News**
+1. [Report: Aston Villa interested in signing Premier League midfielder in free transfer](https://eplindex.com/143051/report-aston-villa-interested-in-signing-premier-league-midfielder-in-free-transfer.html) - **English Premier League Index - Opta Stats**
+2. ['Set-pieces key to winning games' - Boardman](https://www.bbc.com/sport/football/articles/cde4d2y66npo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Michael Carrick hints at longer stay at Manchester United and says manager’s job is ‘ultimate role’](https://www.101greatgoals.com/football/premier-league/michael-carrick-hints-at-longer-stay-manchester-united-job-is-ultimate-role/) - **101 Great Goals**
+4. [Pick of the stats: Watford v Derby County](https://www.bbc.com/sport/football/articles/cnv61zgz499o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Newcastle boss Howe urges Gordon to retain selfish streak](https://sports.yahoo.com/articles/newcastle-boss-howe-urges-gordon-104555106.html) - **Yahoo Entertainment**
+6. [How West Ham have turned things around and given themselves a chance of survival](https://hayters.com/how-west-ham-have-turned-things-around/) - **Hayters.com**
+7. [Howe on Wissa knock, 4am return and Gordon delight](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0b5b2747-3cfd-419c-8018-b25be4e18227) - **Yahoo Entertainment**
+8. [Manchester City vs Newcastle: Premier League – team news, start, lineups](https://www.aljazeera.com/sports/2026/2/20/manchester-city-vs-newcastle-premier-league-team-news-start-lineups) - **Al Jazeera English**
+9. [Premier League: date, time, channels and probable lineups for Chelsea vs Burnley](https://foot-africa.com/en/news/premier-league-date-time-channels-and-probable-lineups-for-chelsea-vs-burnley-1094045/) - **Foot-africa.com**
 
 
 ---
-*최근 업데이트: 2026-02-21 19:34:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-21 19:58:04 (KST) / (하루 100회 제한 준수 중)*
