@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Guardiola gives fitness update on Savinho and Doku](https://www.mancity.com/news/mens/pep-guardiola-newcastle-injury-update-63907179) - **Manchester City FC**
-2. [ Y! Sports AM: Golden girls](https://sports.yahoo.com/articles/y-sports-am-golden-girls-124944149.html) - **Yahoo Entertainment**
-3. [The biggest scandal in football today is still unresolved](https://untold-arsenal.com/archives/119558) - **Untold-arsenal.com**
-4. [Fabrizio Romano shares big update on Arne Slot’s Liverpool future](https://www.anfieldwatch.co.uk/liverpool-fc/news/fabrizio-romano-shares-big-update-on-arne-slots-liverpool-future/) - **Anfieldwatch.co.uk**
-5. [Pep Guardiola press conference: Savinho and Jeremy Doku fitness updates ahead of Newcastle](https://cityxtra.co.uk/41896/pep-guardiola-press-conference-savinho-and-jeremy-doku-fitness-updates-ahead-of-newcastle/) - **Cityxtra.co.uk**
-6. [Roma the have best defensive record in Europe as Milan, Arsenal and Real Madrid follow](https://football-italia.net/roma-best-defensive-record-milan-arsenal-real/) - **Football Italia**
-7. [Wayne Rooney names preferred Manchester City replacement for Pep Guardiola](https://cityxtra.co.uk/41907/wayne-rooney-names-preferred-manchester-city-replacement-for-pep-guardiola/) - **Cityxtra.co.uk**
-8. [Glasner on his future, not being 'good enough' and 'reality'](https://www.bbc.com/sport/football/articles/cm21yd0xr8no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [I’m not good enough, admits Glasner as reports suggest he will depart Crystal Palace ahead of schedule](https://www.101greatgoals.com/football/premier-league/oliver-glasner-crystal-palace/) - **101 Great Goals**
+2. [Every word of Michael Carrick’s Everton press conference](https://thepeoplesperson.com/2026/02/20/every-word-of-michael-carricks-everton-press-conference-306786/) - **The Peoples Person**
+3. [Guardiola 'couldn't care less' about Arsenal stumble in title race](https://sports.yahoo.com/articles/guardiola-couldnt-care-less-arsenal-133716211.html) - **Yahoo Entertainment**
+4. ['I'm not good enough' - Glasner on Palace plight](https://www.rte.ie/sport/soccer/2026/0220/1559539-im-not-good-enough-glasner-on-palace-plight/) - **RTE**
+5. [Bayern transfer stance revealed as Man Utd could sell £87m star](https://cfbayerninsider.com/2026/02/bayern-munich-manchester-united-bruno-fernandes/) - **Cfbayerninsider.com**
+6. [Mourinho 'got it wrong' - McCarthy critical of reaction to Vinicius incident](https://www.bbc.com/sport/football/videos/cm2r66j1737o) - **BBC News**
+7. [Kennedy exit more damaging to Celtic than Rodgers resigning](https://thecelticstar.com/kennedy-exit-more-damaging-to-celtic-than-rodgers-resigning/) - **The Celtic Star**
+8. [Glasner's Crystal Palace future in serious doubt](https://www.bbc.com/sport/football/articles/cdjm99g32exo) - **BBC News**
+9. [“Obviously going up against Liam” – Scott Parker sends message to Rosenior ahead of Chelsea vs Burnley](https://chelsea.news/2026/02/scott-parker-liam-rosenior-praise/) - **Chelsea.news**
 
 
 ---
-*최근 업데이트: 2026-02-21 21:55:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-21 22:46:17 (KST) / (하루 100회 제한 준수 중)*
