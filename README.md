@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Everton edging towards West Ham record with Monday night games this season](https://www.hitc.com/everton-edging-towards-west-ham-record-with-monday-night-games-this-season/) - **HITC - Football, Gaming, Movies, TV, Music**
-2. [Carrick hails Man United ‘diversity’ after Ratcliffe remarks](https://punchng.com/carrick-hails-man-united-diversity-after-ratcliffe-remarks/) - **The Punch**
-3. [Michael Carrick gets brutally honest on his chances of landing Manchester United’s permanent job amid rising uncertainty](https://worldsoccertalk.com/news/michael-carrick-gets-brutally-honest-on-his-chances-of-landing-manchester-uniteds-permanent-job-amid-rising-uncertainty/) - **Worldsoccertalk.com**
-4. [Paul Joyce explains when Isak could be back for Liverpool](https://www.empireofthekop.com/2026/02/20/paul-joyce-explains-when-isak-could-be-back-for-liverpool/) - **Empire of The Kop**
-5. [EPL: Arteta urges players to 'live in the present'](https://www.rediff.com/sports/report/english-premier-league-arteta-wants-arsenal-to-live-in-the-present-before-tottenham-trip/20260220.htm) - **Rediff.com**
-6. [Napoli star Scott McTominay on his future: “My agent has spoken to nobody else”](https://www.getfootballnewsitaly.com/2026/napoli-star-scott-mctominay-on-his-future-my-agent-has-spoken-to-nobody-else/) - **Getfootballnewsitaly.com**
-7. [5️⃣ spicy fixtures you must watch this weekend ](https://thefootballfaithful.com/five-spicy-fixtures-to-watch-arsenal-spurs-chelsea-man-utd-city-newcastle/) - **The Football Faithful**
-8. [PREVIEW: Brentford host struggling Brighton with Europe on the radar](https://wp.fromthespot.co.uk/26740/preview-brentford-host-struggling-brighton-with-europe-on-the-radar/) - **Fromthespot.co.uk**
-9. [Lionel Messi to face former Barcelona teammate in MLS as Columbus Crew announce signing of Portuguese star](https://worldsoccertalk.com/news/lionel-messi-to-face-former-barcelona-teammate-in-mls-as-columbus-crew-announce-signing-of-portuguese-star/) - **Worldsoccertalk.com**
-10. [Wales' Rees-Zammit inspired by Man United turnaround](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4eb31623-dcce-42de-88f6-b8d7998111dd) - **Yahoo Entertainment**
+1. [Julian Alvarez receives endorsement from Barcelona star Pau Cubarsi amid transfer rumors: ‘He’s Barça level’](https://worldsoccertalk.com/news/julian-alvarez-receives-endorsement-from-barcelona-star-pau-cubarsi-amid-transfer-rumors-hes-barca-level/) - **Worldsoccertalk.com**
+2. [Relegated in February? Why Sheff Wed are on brink of history](https://www.bbc.com/sport/football/articles/cp81l0krk3wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Rio Ngumoha says Mohamed Salah isn’t the greatest winger ever](https://www.hitc.com/rio-ngumoha-says-mohamed-salah-isnt-the-greatest-winger-ever/) - **HITC - Football, Gaming, Movies, TV, Music**
+4. [Scott McTominay: Man United’s top summer target addresses persistent Old Trafford links](https://thepeoplesperson.com/2026/02/20/scott-mctominay-man-uniteds-top-summer-target-addresses-persistent-old-trafford-links-306797/) - **The Peoples Person**
+5. [Rate My FPL GW27 Team: What’s Next After a Failed Triple Captain?](https://www.nevermanagealone.com/playerpicks/15552/rate-my-fpl-gw27-team-whats-next-after-a-failed-triple-captain) - **Nevermanagealone.com**
+6. [Pundit names two strikers Arsenal should have signed instead of Gyokeres](https://www.justarsenal.com/pundit-names-two-strikers-arsenal-should-have-signed-instead-of-gyokeres/410409) - **Just Arsenal News**
+7. [League of Ireland: Galway first team off the mark after scoreless first half in all five Premier Division fixtures](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-galway-first-team-off-the-mark-after-scoreless-first-half-in-all-five-premier-division-fixtures/a296949766.html) - **Independent.ie**
+8. [League of Ireland: Scoreless first half across all five Premier Division fixtures](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-scoreless-first-half-across-all-five-premier-division-fixtures/a296949766.html) - **Independent.ie**
+9. [League of Ireland: Galway first team off the maek after scoreless first half in all five Premier Division fixtures](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-galway-first-team-off-the-maek-after-scoreless-first-half-in-all-five-premier-division-fixtures/a296949766.html) - **Independent.ie**
+10. [Igor Tudor ‘100% confident’ Spurs avoid relegation ahead of North London derby](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b9fddd08-f246-4bef-87dd-c693e2a60d79) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-22 03:41:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-22 04:27:24 (KST) / (하루 100회 제한 준수 중)*
