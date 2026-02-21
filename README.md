@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [“He’s more of a goal threat” – Danny Murphy questions Chelsea over summer transfer activity](https://chelsea.news/2026/02/danny-murphy-liam-delap-nicolas-jackson/) - **Chelsea.news**
-2. [Chelsea have approached Ousmane Diomande’s representatives, Sporting CP star could leave this summer](https://sportsview.co.uk/2026/02/chelsea-have-approached-ousmane-diomandes-representatives-sporting-cp-star-could-leave-this-summer?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-have-approached-ousmane-diomandes-representatives-sporting-cp-star-could-leave-this-summer) - **Sportsview.co.uk**
-3. [“You have to try” – Sam Allardyce drops verdict on Liam Rosenior as Chelsea boss](https://chelsea.news/2026/02/you-have-to-try-sam-allardyce-drops-verdict-on-liam-rosenior-as-chelsea-boss/) - **Chelsea.news**
-4. [Carlos Baleba responds to criticism at Brighton](https://foot-africa.com/en/news/carlos-baleba-responds-to-criticism-at-brighton-1093799/) - **Foot-africa.com**
-5. [‘Unbelievable’ Gibbs-White dazzles for Nottingham Forest in Pereira’s first game](https://sportsview.co.uk/2026/02/unbelievable-gibbs-white-dazzles-for-nottingham-forest-in-pereiras-first-game?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=unbelievable-gibbs-white-dazzles-for-nottingham-forest-in-pereiras-first-game) - **Sportsview.co.uk**
-6. [I want Guardiola to stay at Man City - Rooney](https://www.bbc.com/sport/football/articles/c3v79g57kppo) - **BBC News**
-7. [Mateus Mane: Wolves star’s preferred move revealed amid United interest](https://thepeoplesperson.com/2026/02/20/mateus-mane-wolves-stars-preferred-move-revealed-amid-united-interest-306754/) - **The Peoples Person**
-8. [Liverpool to sign 'the most gifted player' for less than £80m if one thing happens](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-to-sign-the-most-gifted-player-for-less-than-ps80m-if-one-thing-happens/) - **Anfieldwatch.co.uk**
-9. [Trusting Mainoo, academy pride and the 'ultimate role'](https://www.bbc.com/sport/football/articles/ceqvrv29pzvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. ['Bigger does not mean better' - why more matches is not for good of the game](https://www.bbc.com/sport/football/articles/cdjmly2rgp2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. ['Bigger does not mean better' - why more matches is not for good of the game](https://www.bbc.com/sport/football/articles/cdjmly2rgp2o) - **BBC News**
+3. [Target Liverpool, Brentford & Bournemouth - the FPL talking point](https://www.bbc.com/sport/football/articles/cwy67024kleo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Target Liverpool, Brentford & Bournemouth - the FPL talking point](https://www.bbc.com/sport/football/articles/cwy67024kleo) - **BBC News**
+5. [How do Brentford keep appointing the right managers?](https://www.bbc.com/sport/football/articles/c15x9nlykg2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Possible names for Tottenham’s stadium, and the season compared](https://untold-arsenal.com/archives/119547) - **Untold-arsenal.com**
+7. [“That’s his best position” – Paul Merson sends message to Liam Rosenior over Chelsea ace](https://chelsea.news/2026/02/paul-merson-cole-palmer-best-position/) - **Chelsea.news**
+8. [I came here for another promotion - Mpanzu](https://www.bbc.com/sport/football/articles/cqlg6wx6y71o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Manchester City v Newcastle – Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/premier-league-odds/manchester-city-v-newcastle-line-ups-stats-and-preview/) - **101 Great Goals**
+10. [The highest scoring teams in Europe's top five leagues this season](https://www.footballmuse.com/features/the-highest-scoring-teams-in-europes-top-five-leagues-this-season) - **Footballmuse.com**
 
 
 ---
-*최근 업데이트: 2026-02-21 16:57:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-21 17:41:26 (KST) / (하루 100회 제한 준수 중)*
