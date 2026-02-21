@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Liverpool favourites to sign £50m Premier League star](https://eplindex.com/143072/report-liverpool-favourites-to-sign-50m-premier-league-star.html) - **English Premier League Index - Opta Stats**
-2. [Man Utd owner Ratcliffe avoids charge by FA for ‘colonised’ comment](https://www.aljazeera.com/sports/2026/2/20/man-utd-owner-ratcliffe-avoids-charge-by-fa-for-colonized-comment) - **Al Jazeera English**
-3. [On3 Sports analyst says Texas A&M should be happiest with move to SEC](https://aggieswire.usatoday.com/story/sports/college/aggies/football/2026/02/20/texas-aggies-football-andy-staples-happiest-conference-realignment-sec/88778615007/) - **USA Today**
-4. [Leeds at Villa Park, match facts and the season is getting interesting](https://www.thevillablog.co.uk/aston-villa-blog/avfc-opinion/leeds-at-villa-park-match-facts-and-the-season-is-getting-interesting) - **Thevillablog.co.uk**
-5. [Survival to spotlight: How MLS built a more than 30-year run to 2026 World Cup with risks, a plan and hope](https://www.cbssports.com/soccer/news/survival-to-spotlight-how-mls-built-a-30-year-run-to-world-cup-with-risks-a-plan-and-hope/) - **CBS Sports**
-6. [Mark Patterson On Bolton, Sheffield United And Playing Under Bruce Rioch And Howard Kendall](https://worldfootballindex.com/2026/02/mark-patterson-on-bolton-sheffield-united-and-playing-under-bruce-rioch-and-howard-kendall/) - **World Football Index**
-7. [Michael Carrick on Man Utd’s 22-day gap: ‘There’s no black and white answer’](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a75d19dd-13c5-4cbd-882a-1e4e2d87179c) - **Yahoo Entertainment**
-8. [Premier League relegation state of play as Tottenham, West Ham, Nottingham Forest, and Leeds battle to stay up](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f5700d39-fc42-4abc-a3a4-0e832c7e83f4) - **Yahoo Entertainment**
+1. [Everton edging towards West Ham record with Monday night games this season](https://www.hitc.com/everton-edging-towards-west-ham-record-with-monday-night-games-this-season/) - **HITC - Football, Gaming, Movies, TV, Music**
+2. [Carrick hails Man United ‘diversity’ after Ratcliffe remarks](https://punchng.com/carrick-hails-man-united-diversity-after-ratcliffe-remarks/) - **The Punch**
+3. [Michael Carrick gets brutally honest on his chances of landing Manchester United’s permanent job amid rising uncertainty](https://worldsoccertalk.com/news/michael-carrick-gets-brutally-honest-on-his-chances-of-landing-manchester-uniteds-permanent-job-amid-rising-uncertainty/) - **Worldsoccertalk.com**
+4. [Paul Joyce explains when Isak could be back for Liverpool](https://www.empireofthekop.com/2026/02/20/paul-joyce-explains-when-isak-could-be-back-for-liverpool/) - **Empire of The Kop**
+5. [EPL: Arteta urges players to 'live in the present'](https://www.rediff.com/sports/report/english-premier-league-arteta-wants-arsenal-to-live-in-the-present-before-tottenham-trip/20260220.htm) - **Rediff.com**
+6. [Napoli star Scott McTominay on his future: “My agent has spoken to nobody else”](https://www.getfootballnewsitaly.com/2026/napoli-star-scott-mctominay-on-his-future-my-agent-has-spoken-to-nobody-else/) - **Getfootballnewsitaly.com**
+7. [5️⃣ spicy fixtures you must watch this weekend ](https://thefootballfaithful.com/five-spicy-fixtures-to-watch-arsenal-spurs-chelsea-man-utd-city-newcastle/) - **The Football Faithful**
+8. [PREVIEW: Brentford host struggling Brighton with Europe on the radar](https://wp.fromthespot.co.uk/26740/preview-brentford-host-struggling-brighton-with-europe-on-the-radar/) - **Fromthespot.co.uk**
+9. [Lionel Messi to face former Barcelona teammate in MLS as Columbus Crew announce signing of Portuguese star](https://worldsoccertalk.com/news/lionel-messi-to-face-former-barcelona-teammate-in-mls-as-columbus-crew-announce-signing-of-portuguese-star/) - **Worldsoccertalk.com**
+10. [Wales' Rees-Zammit inspired by Man United turnaround](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4eb31623-dcce-42de-88f6-b8d7998111dd) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-22 02:55:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-22 03:41:54 (KST) / (하루 100회 제한 준수 중)*
