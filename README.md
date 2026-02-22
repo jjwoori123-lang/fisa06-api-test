@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Inter Milan Ready To Tie Down Italy Sensation With New Contract & Pay Rise Amid Arsenal Rumours](https://sempreinter.com/2026/02/21/inter-milan-pio-esposito-agent-contract/) - **SempreInter**
-2. [Ryan Gravenberch heaps praise on ‘special’ Liverpool teammate](https://anfieldindex.com/91465/ryan-gravenberch-heaps-praise-on-special-liverpool-teammate.html) - **Anfieldindex.com**
-3. [Premier League: Date, time, channels and probable line-ups for Everton – Manchester United](https://foot-africa.com/en/news/premier-league-date-time-channels-and-probable-line-ups-for-everton-manchester-united-1095779/) - **Foot-africa.com**
-4. [Red card, penalty, & late winner: Arsenal edge dramatic Villa u18 clash](https://dailycannon.com/2026/02/villa-arsenal-u18-report/) - **Dailycannon.com**
-5. [Chelsea vs Burnley Preview: Team News, Predicted Lineups, Predictions and Where to Watch Livestream](https://www.ibtimes.com.au/chelsea-vs-burnley-preview-team-news-predicted-lineups-predictions-where-watch-livestream-1861864) - **Ibtimes.com.au**
-6. [Estevao injury news: Chelsea and Brazil star out, set for scan](https://www.nbcsports.com/soccer/news/estevao-injury-news-chelsea-and-brazil-star-out-set-for-scan) - **NBCSports.com**
-7. [Michael Vaughan urges ECB to ‘act fast’ on Indian owners’ controversial stance ahead of The Hundred auctions](https://www.hitc.com/michael-vaughan-urges-ecb-to-act-fast-on-indian-owners-controversial-stance-ahead-of-the-hundred-auctions/) - **HITC - Football, Gaming, Movies, TV, Music**
-8. [Confirmed XIs: Joao Pedro and Neto, Rosenior’s picks](https://onefootball.com/en/news/confirmed-xis-joao-pedro-and-neto-roseniors-picks-42444870) - **Onefootball.com**
-9. [Milner set to break Premier League appearance record with 654th game](https://www.channelnewsasia.com/sport/milner-set-break-premier-league-appearance-record-654th-game-5944611) - **CNA**
-10. [Brighton's Milner breaks Premier League appearance record](https://www.channelnewsasia.com/sport/brighton-james-milner-breaks-premier-league-appearance-record-5944611) - **CNA**
+1. [ Chelsea's João Pedro leads summer signings in PL goals race](https://onefootball.com/en/news/chelseas-joao-pedro-leads-summer-signings-in-pl-goals-race-42445178) - **Onefootball.com**
+2. [2026 Olympic figure skating Exhibition Gala live stream, start time, TV channel](https://www.thebiglead.com/2026-olympic-figure-skating-exhibition-gala-live-stream-start-time-tv-channel/) - **The Big Lead**
+3. [Bruno Fernandes going nowhere as CL giants exit the race](https://thepeoplesperson.com/2026/02/21/bruno-fernandes-going-nowhere-as-cl-giants-exit-the-race-306827/) - **The Peoples Person**
+4. [Arsenal at Tottenham Premier League Preview: Put up or shut up](https://theshortfuse.sbnation.com/premier-league/36582/arsenal-at-tottenham-premier-league-preview-match-thread-lineups-predictions-how-to-watch-saka-rice) - **SB Nation**
+5. [Brighton's Milner breaks Premier League appearance record](https://sports.yahoo.com/articles/brightons-milner-breaks-premier-league-150735134.html) - **Yahoo Entertainment**
+6. [Man City Starting XI vs Newcastle United: Confirmed Team News and Predicted Lineup](https://eplindex.com/143096/man-city-starting-xi-vs-newcastle-united-confirmed-team-news-and-predicted-lineup-2.html) - **English Premier League Index - Opta Stats**
+7. [Diogo Dalot explains what separated Marcus Rashford from Anthony Martial during their time at Manchester United](https://www.hitc.com/diogo-dalot-explains-what-separated-marcus-rashford-from-anthony-martial-during-their-time-at-manchester-united/) - **HITC - Football, Gaming, Movies, TV, Music**
+8. [Milner breaks Premier League appearance record](https://www.bbc.com/sport/football/articles/cjrqdnj2199o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Milner breaks Premier League appearance record](https://www.bbc.com/sport/football/articles/cjrqdnj2199o) - **BBC News**
+10. [Premier League: Three games under way as Milner breaks appearance record](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a1463ba1-097a-4f3b-8c42-a4d15faf1d68) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-22 23:57:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-23 00:34:09 (KST) / (하루 100회 제한 준수 중)*
