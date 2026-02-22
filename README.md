@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tyler Adams make first appearance of 2026](https://sbisoccer.com/2026/02/tyler-adams-make-first-appearance-of-2026) - **Sbisoccer.com**
-2. [‘Keep going forward’ – Emery optimistic despite mixed form continuing with Leeds draw](https://hayters.com/keep-going-forward-emery-optimistic-despite-mixed-form-continuing-with-leeds-draw/) - **Hayters.com**
-3. [Sports stars Sloane Stephens and Jozy Altidore divorcing after 4 years of marriage](https://pagesix.com/2026/02/21/entertainment/sports-stars-sloane-stephens-jozy-altidore-divorcing/) - **Page Six**
-4. [Chelsea vs. Burnley, Premier League: Confirmed lineups; how to watch - We Ain't Got No History](https://slashdot.org/firehose.pl?op=view&amp;id=180839644) - **Slashdot.org**
-5. [U18s Report: Leeds United 0-3 Stoke City](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_be25480f-075a-4af9-a2d1-c92b3fe527c5) - **Yahoo Entertainment**
-6. [Harvey Elliott transfer mystery deepens as £35m clause condition emerges](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-harvey-elliott-mystery-deepens-as-aston-villa-clause-condition-emerges/) - **Anfieldwatch.co.uk**
-7. [James Milner breaks Premier League record](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_61ed7a16-b1e4-4ce3-af07-2d230cfdc477) - **Yahoo Entertainment**
-8. [Manchester United and Inter interested in €40m deal for Barcelona’s Alejandro Balde](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/113297/manchester-united-and-inter-interested-in-e40m-deal-for-barcelonas-alejandro-balde) - **Barca Blaugranes**
-9. [Arteta knows Arsenal needs to keep calm as it seems their season could implode](https://www.justarsenal.com/arteta-knows-arsenal-needs-to-keep-calm-as-it-seems-their-season-could-implode/410484) - **Just Arsenal News**
+1. [West Ham miss opportunity to give Premier League survival hopes boost after Bournemouth draw](https://www.independent.ie/sport/soccer/premier-league/west-ham-miss-opportunity-to-give-premier-league-survival-hopes-boost-after-bournemouth-draw/a1793087286.html) - **Independent.ie**
+2. [Liverpool star ruled out for the season after loan injury](https://anfieldindex.com/91475/liverpool-star-ruled-out-for-the-season-after-loan-injury.html) - **Anfieldindex.com**
+3. [Osasuna 2-1 Real Madrid: Hosts stun LaLiga leaders in stoppage time](https://www.101greatgoals.com/football/la-liga/osasuna-real-madrid-result-report-goals/) - **101 Great Goals**
+4. [Man City vs. Newcastle score, stats, talking points, highlights as Guardiola's men look to close on Arsenal in Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4726465d-c69c-46ab-8910-85a05808659c) - **Yahoo Entertainment**
+5. [Hammers held in goalless draw with Bournemouth](https://www.skysports.com/football/video/16426/13510561/west-ham-0-0-bournemouth-premier-league-highlights) - **Sky Sports**
+6. [The time is finally right for Richard Hughes to strike Anthony Gordon deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-richard-hughes-to-strike-anthony-gordon-deal/) - **Anfieldwatch.co.uk**
+7. [10-man Chelsea lack ‘ruthless’ streak as Burnley steal late point](https://thefootballfaithful.com/10-man-chelsea-lack-ruthless-streak-as-burnley-steal-late-point/) - **The Football Faithful**
+8. [Red cards and poor home form - Chelsea 'set fire to points'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3aa8d6e2-cac5-4734-bfb5-e00e1b6f4b1c) - **Yahoo Entertainment**
+9. [West Ham 0-0 Bournemouth: Points shared as Hammers remain in relegation zone](https://www.101greatgoals.com/football/premier-league/west-ham-bournemouth-result-report-goals-highlights/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-02-23 04:28:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-23 04:53:05 (KST) / (하루 100회 제한 준수 중)*
