@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [First steps taken towards signing £57m wonderkid for Liverpool](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f6f8ee77-cd5e-4b98-ba4e-50f29eb58c3c) - **Yahoo Entertainment**
-2. [(Video) Kieran Morrison makes his case to Arne Slot with two majestic goals in Liverpool U21 win](https://www.empireofthekop.com/2026/02/21/kieran-morrison-makes-his-case-to-slot-with-two-majestic-goals-in-liverpool-u21-win/) - **Empire of The Kop**
-3. [Chelsea fans’ preferred lineup against Burnley: Estêvão ahead of Neto](https://weaintgotnohistory.sbnation.com/premier-league/166353/chelsea-fans-preferred-lineup-against-burnley-estevao-ahead-of-neto) - **SB Nation**
-4. [Rangers to open contract talks with Raskin - gossip](https://www.bbc.com/sport/football/articles/c0mgrpgkv2eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Rangers to open contract talks with Raskin - gossip](https://www.bbc.com/sport/football/articles/c0mgrpgkv2eo) - **BBC News**
-6. [“I truly believe that” – Liam Rosenior makes major claim about “outstanding” Joao Pedro](https://chelsea.news/2026/02/liam-rosenior-joao-pedro-claim/) - **Chelsea.news**
-7. [Aston Villa vs Leeds United – Match preview and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_909cf96d-c106-4bdb-9da8-c4cb86ea3709) - **Yahoo Entertainment**
-8. [Brighton XI vs Brentford – Predicted lineup and team news](https://thefootballfaithful.com/brighton-xi-vs-brentford-predicted-lineup-and-team-news/) - **The Football Faithful**
-9. [Chelsea vs Burnley – Match preview and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_29ecfe54-0f59-4e4b-a2ac-4c25d0e9b487) - **Yahoo Entertainment**
-10. [Brentford vs Brighton – Match preview and team news](https://thefootballfaithful.com/brentford-vs-brighton-match-preview-and-team-news/) - **The Football Faithful**
+1. [Chelsea vs Burnley – Predicted lineup and team news](https://thefootballfaithful.com/chelsea-vs-burnley-predicted-lineup-and-team-news/) - **The Football Faithful**
+2. [Burnley XI vs Chelsea – Predicted lineup and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7b21efe8-aad2-49f3-92b5-77cccaffcbed) - **Yahoo Entertainment**
+3. [Engine-room stars: The 10 best Premier League midfielders right now, ranked](https://www.footballmuse.com/features/engine-room-stars-the-10-best-premier-league-midfielders-right-now-ranked) - **Footballmuse.com**
+4. [Tottenham v Arsenal – Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/premier-league-odds/tottenham-v-arsenal-line-ups-stats-and-preview/) - **101 Great Goals**
+5. [Tottenham v Arsenal match preview and prediction](https://www.justarsenal.com/tottenham-v-arsenal-match-preview-and-prediction/410438) - **Just Arsenal News**
+6. [Former Arsenal star claims Real Madrid would finish eighth in Premier League – “Will struggle against Leeds”](https://madriduniversal.com/former-arsenal-star-claims-real-madrid-would-finish-eighth-in-premier-league-will-struggle-against-leeds/) - **Madriduniversal.com**
+7. [Why Carrick has to make his first change in three matches for maiden Hill Dickinson trip – opinion](https://strettynews.com/2026/02/21/benjamin-sesko-is-knocking-on-the-door-to-be-granted-his-first-start-under-michael-carrick-view/) - **Strettynews.com**
+8. [Team News: Five Liverpool stars set to miss Nottingham Forest clash](https://anfieldindex.com/91454/team-news-five-liverpool-stars-set-to-miss-nottingham-forest-clash.html) - **Anfieldindex.com**
+9. [Carrick: Hostile Everton reception a good test](https://www.manutd.com/en/news/detail/michael-carrick-speaks-to-club-media-about-everton-atmosphere-expected-at-hill-dickinson-stadium) - **Manchester United**
 
 
 ---
-*최근 업데이트: 2026-02-22 17:44:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-22 18:34:56 (KST) / (하루 100회 제한 준수 중)*
