@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Andrews makes big Brentford claim following Brighton defeat](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4676d996-26f0-4655-929c-e22739ba7036) - **Yahoo Entertainment**
-2. [Man City send title message with hard-fought Newcastle win](https://www.skysports.com/football/news/11095/13509099/man-city-2-1-newcastle-nico-oreilly-double-sees-pep-guardiolas-side-move-closer-to-arsenal-in-premier-league-title-race) - **Sky Sports**
-3. [Aston Villa and Chelsea drop points in the Premier League after being held to draws](https://japantoday.com/category/sports/aston-villa-and-chelsea-drop-points-in-the-premier-league-after-being-held-to-draws) - **Japan Today**
-4. [Wolves star Mateus Mane’s transfer stance emerges amid United and PSG interest](https://thepeoplesperson.com/2026/02/21/wolves-star-mateus-manes-transfer-stance-emerges-amid-united-and-psg-interest-306849/) - **The Peoples Person**
-5. [49ers Pledge £100m Transfer Fund For Leeds United: 5 Players They Can Get In For This Project](https://the4thofficial.net/2026/02/49ers-pledge-100m-transfer-fund-for-leeds-united-5-players-they-can-get-in-for-this-project/) - **The4thofficial.net**
-6. [EPL: Burnley condemn racist abuse of Hannibal after Chelsea draw](https://punchng.com/?p=2071326) - **The Punch**
-7. [Liverpool move in for generational £61m Tottenham talent](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-generational-luka-vuskovic-tottenham-talent/) - **Anfieldwatch.co.uk**
-8. [PREVIEW | Everton vs Manchester United - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-everton-vs-manchester-united-team-news-lineups-predictions/1059135) - **Playmakerstats.com**
-9. [Hits and misses: Chelsea not ready to challenge as Milner makes PL history](https://www.skysports.com/football/news/32461/13510253/chelsea-not-ready-to-challenge-as-james-milner-makes-history-in-brighton-win-premier-league-hits-and-misses) - **Sky Sports**
+1. [Tottenham Hotspur Eye €40m Defender As Romero’s Replacement: The Right Fit For Spurs?](https://the4thofficial.net/2026/02/tottenham-hotspur-eye-e40m-defender-as-romeros-replacement-the-right-fit-for-spurs/) - **The4thofficial.net**
+2. [Analysis: Nervous but job done](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_aee251ee-4598-41d3-8af3-0c80386ff8c9) - **Yahoo Entertainment**
+3. [Over to you, Arsenal! Man City edge Newcastle to cut gap at top](https://www.skysports.com/football/video/16426/13510613/manchester-city-2-1-newcastle-premier-league-highlights) - **Sky Sports**
+4. [Nico O’Reilly’s latest reinvention brings momentum to Man City’s title charge](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8b458e7b-fe30-474f-bafe-d07c35975baa) - **Yahoo Entertainment**
+5. [Manchester City 2-1 Newcastle: O’Reilly brace brings City within touching distance of leaders Arsenal](https://www.101greatgoals.com/football/premier-league/manchester-city-newcastle-result-report-goals-highlights/) - **101 Great Goals**
+6. [Match Report and Player Ratings: Manchester City 2-1 Newcastle United (Premier League)](https://cityxtra.co.uk/41952/match-report-and-player-ratings-manchester-city-2-1-newcastle-united-premier-league/) - **Cityxtra.co.uk**
+7. [Fofana and Hannibal subjected to racist abuse after Chelsea-Burnley draw](https://www.skysports.com/football/news/11095/13510606/wesley-fofana-and-hannibal-subjected-to-racist-abuse-after-chelseas-draw-against-burnley) - **Sky Sports**
+8. [Manchester City cut Arsenal’s Premier League lead to two points after Newcastle victory](https://www.independent.ie/sport/soccer/premier-league/manchester-city-cut-arsenals-premier-league-lead-to-two-points-after-newcastle-victory/a975364456.html) - **Independent.ie**
+9. [Man City close in on Arsenal after nervy Newcastle win](https://www.rte.ie/sport/soccer/2026/0221/1559692-man-city-close-in-on-arsenal-after-nervy-newcastle-win/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-02-23 06:54:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-23 07:28:35 (KST) / (하루 100회 제한 준수 중)*
