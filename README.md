@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Louth derby draw after Drogheda drama off the pitch – what we learned from League of Ireland](https://www.irishtimes.com/sport/soccer/2026/02/21/louth-derby-draw-after-drogheda-drama-off-the-pitch-what-we-learned-from-league-of-ireland/) - **The Irish Times**
-2. [Preview: Tottenham Hotspur v Arsenal](http://www.arsenal.com/news/preview-tottenham-hotspur-v-arsenal-3) - **Arsenal.com**
-3. [5 obscure stats about north London derby history](http://www.arsenal.com/news/5-obscure-stats-about-north-london-derby-history) - **Arsenal.com**
-4. [本格インドア・ピックルボール施設 DPC KOBE メンバーシップ制、始動。"PLAY"を、イベントから日常へ。](https://prtimes.jp/main/html/rd/p/000000347.000021838.html) - **Prtimes.jp**
-5. [What's eating Arsenal? North London derby now a test of Gunners' 'bottle'](https://www.bbc.com/sport/football/articles/cjwzqn3e193o) - **BBC News**
-6. [Nottingham Forest v Liverpool – Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/premier-league-odds/nottingham-forest-v-liverpool-line-ups-stats-preview/) - **101 Great Goals**
-7. [How to watch Spurs vs Arsenal](https://www.skysports.com/football/news/11675/13510079/watch-spurs-vs-arsenal-tv-channel-live-stream-now-tv-team-news-and-score-prediction) - **Sky Sports**
-8. [Rice issues Arsenal warning and reveals dressing-room talks after Wolves draw](https://www.skysports.com/football/news/11670/13510121/declan-rice-on-arsenals-current-form-the-draw-at-wolves-and-his-100th-premier-league-appearance-for-gunners-in-north-london-derby) - **Sky Sports**
+1. [First steps taken towards signing £57m wonderkid for Liverpool](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f6f8ee77-cd5e-4b98-ba4e-50f29eb58c3c) - **Yahoo Entertainment**
+2. [(Video) Kieran Morrison makes his case to Arne Slot with two majestic goals in Liverpool U21 win](https://www.empireofthekop.com/2026/02/21/kieran-morrison-makes-his-case-to-slot-with-two-majestic-goals-in-liverpool-u21-win/) - **Empire of The Kop**
+3. [Chelsea fans’ preferred lineup against Burnley: Estêvão ahead of Neto](https://weaintgotnohistory.sbnation.com/premier-league/166353/chelsea-fans-preferred-lineup-against-burnley-estevao-ahead-of-neto) - **SB Nation**
+4. [Rangers to open contract talks with Raskin - gossip](https://www.bbc.com/sport/football/articles/c0mgrpgkv2eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Rangers to open contract talks with Raskin - gossip](https://www.bbc.com/sport/football/articles/c0mgrpgkv2eo) - **BBC News**
+6. [“I truly believe that” – Liam Rosenior makes major claim about “outstanding” Joao Pedro](https://chelsea.news/2026/02/liam-rosenior-joao-pedro-claim/) - **Chelsea.news**
+7. [Aston Villa vs Leeds United – Match preview and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_909cf96d-c106-4bdb-9da8-c4cb86ea3709) - **Yahoo Entertainment**
+8. [Brighton XI vs Brentford – Predicted lineup and team news](https://thefootballfaithful.com/brighton-xi-vs-brentford-predicted-lineup-and-team-news/) - **The Football Faithful**
+9. [Chelsea vs Burnley – Match preview and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_29ecfe54-0f59-4e4b-a2ac-4c25d0e9b487) - **Yahoo Entertainment**
+10. [Brentford vs Brighton – Match preview and team news](https://thefootballfaithful.com/brentford-vs-brighton-match-preview-and-team-news/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-02-22 16:58:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-22 17:44:57 (KST) / (하루 100회 제한 준수 중)*
