@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [India needs a national migration policy, not election-season rhetoric](https://www.livemint.com/opinion/online-views/india-national-migration-policy-election-season-rhetoric-labour-markets-immigration-politics-11771698950960.html) - **Livemint**
-2. [Nottingham Forest vs. Liverpool: Premier League 2025-26 Live Coverage & How to Watch](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b848fe6e-d24a-421a-9c29-58371b37ca83) - **Yahoo Entertainment**
-3. [Sutton’s Liverpool prediction comes with warning about Forest](https://www.empireofthekop.com/2026/02/22/suttons-liverpool-prediction-comes-with-warning-about-forest/) - **Empire of The Kop**
-4. [Liverpool Starting XI vs Nottingham Forest: Confirmed Team News and Predicted Lineup](https://anfieldindex.com/91479/liverpool-starting-xi-vs-nottingham-forest-confirmed-team-news-and-predicted-lineup-2.html) - **Anfieldindex.com**
-5. [Report: Spurs and Newcastle look at former Liverpool attacker for summer](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9e5b1955-37d7-4415-94f3-18ff1461dd31) - **Yahoo Entertainment**
-6. [Liverpool pushed closer to signing 'amazing' ace after major transfer update](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-pushed-closer-to-signing-amazing-ace-after-major-transfer-update/) - **Anfieldwatch.co.uk**
-7. [Everton vs Manchester United: Match preview, predicted line-ups, team news and prediction](https://footballtoday.com/2026/02/22/everton-vs-manchester-united-match-preview-predicted-line-ups-team-news-and-prediction/) - **Footballtoday.com**
-8. [Five Things Learned: Manchester City 2-1 Newcastle United (Premier League)](https://cityxtra.co.uk/41953/five-things-learned-manchester-city-2-1-newcastle-united-premier-league/) - **Cityxtra.co.uk**
-9. [Vincent Kompany describes his favorite moment as manager at Bayern Munich](https://www.bavarianfootballworks.com/bayern-munich-bundesliga/169913/vincent-kompany-manchester-city-stuttgart-kingsley-coman) - **Bavarian Football Works**
+1. [Starmer Is Toast. But the Dark Forces that Brought Him to Power Are as Strong as Ever](https://www.middleeasteye.net/opinion/starmer-toast-dark-forces-brought-him-power-are-strong-ever) - **Middle East Eye**
+2. [Cleworth's gratitude after surpassing Mullin record](https://www.bbc.com/sport/football/articles/cy4we0l9xy3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [LOI Preview: Rovers looking to complete perfect weekend](https://www.rte.ie/sport/soccer/2026/0222/1559792-loi-preview-rovers-looking-to-complete-perfect-weekend/) - **RTE**
+4. [Premier League Soccer: Stream Nottingham Forest vs. Liverpool Live From Anywhere](https://www.cnet.com/tech/services-and-software/premier-league-soccer-stream-nottingham-forest-vs-liverpool-live-from-anywhere/) - **CNET**
+5. [Arsenal is looking to sign highly rated AC Milan man](https://www.justarsenal.com/arsenal-is-looking-to-sign-highly-rated-ac-milan-man/410512) - **Just Arsenal News**
+6. [Pep Guardiola lauds ‘unbelievable’ Manchester City performance in Newcastle United win](https://cityxtra.co.uk/41957/pep-guardiola-lauds-unbelievable-manchester-city-performance-in-newcastle-united-win/) - **Cityxtra.co.uk**
+7. [Ahead of Steelers’ Kenneth Gainwell decision, Javonte Williams deal shows RB market](https://www.behindthesteelcurtain.com/pittsburgh-steelers-news/166870/kenneth-gainwell-2026-steelers-free-agent-market-contract-javonte-williams-cowboys-extension) - **Behind the Steel Curtain**
+8. [Report: Bayern Munich and AC Milan both looking at 28-year-old Liverpool defender](https://eplindex.com/143127/report-bayern-munich-and-ac-milan-both-looking-at-28-year-old-liverpool-defender.html) - **English Premier League Index - Opta Stats**
+9. [ Have your say: where would Real Madrid finish in the Premier League?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9b5cbe56-e7b6-4af0-bb44-a9d2d3d3a02b) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-02-23 19:33:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-23 20:26:06 (KST) / (하루 100회 제한 준수 중)*
