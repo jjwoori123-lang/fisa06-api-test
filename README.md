@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tottenham and Arsenal name teams for North London derby](https://thefootballfaithful.com/tottenham-and-arsenal-name-teams-for-north-london-derby/) - **The Football Faithful**
-2. [Game on! Le Fee converts from the spot to half Sunderland's deficit](https://www.skysports.com/football/video/11095/13510805/goal-e-le-fee-76-pen-sunderland-1-2-fulham) - **Sky Sports**
-3. [Veteran Fulham striker extends PL-best penalty record ](https://onefootball.com/en/news/veteran-fulham-striker-extends-pl-best-penalty-record-42450710) - **Onefootball.com**
-4. [Jimenez double helps Fulham stay in hunt for European spots](https://www.skysports.com/football/news/11661/13509107/sunderland-1-3-fulham-raul-jimenez-double-earns-marco-silvas-side-valuable-victory-in-race-for-european-spots) - **Sky Sports**
-5. [Mac Allister scores 97th-minute winner for Liverpool in 'robbery'](https://www.skysports.com/football/news/11661/13509103/nottingham-forest-0-1-liverpool-alexis-mac-allister-scores-97th-minute-winner-in-robbery-after-late-var-drama) - **Sky Sports**
-6. [Christian Pulisic could receive major defensive boost as AC Milan reportedly chase Premier League star for 2026-27 season](https://worldsoccertalk.com/news/christian-pulisic-could-receive-major-defensive-boost-as-ac-milan-reportedly-chase-premier-league-star-for-2026-27-season/) - **Worldsoccertalk.com**
-7. ['What was he thinking?' | Krejci sent off for delaying the restart!](https://www.skysports.com/football/video/12606/13510794/off-l-krejci-61-crystal-palace-0-0-wolves) - **Sky Sports**
-8. [ BREAKING: Spurs and Arsenal name lineups for huge North London derby](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8f424420-3723-4c7d-87ea-4b9685e4d123) - **Yahoo Entertainment**
-9. [Spurs vs Arsenal team news: Confirmed lineups for huge North London derby](https://www.101greatgoals.com/football/premier-league/spurs-arsenal-team-news-confirmed-lineups-north-london-derby/) - **101 Great Goals**
-10. [Confirmed Arsenal team v Tottenham – Eze and Saka start](https://www.justarsenal.com/confirmed-arsenal-team-v-tottenham-eze-and-saka-start/410545) - **Just Arsenal News**
+1. [Fulham were 'clinical' & showed 'maturity' - Silva](https://www.bbc.com/sport/football/videos/ce8w03jjx4ro) - **BBC News**
+2. [Three sporting events to watch this week: Your handy guide to sport on television](https://www.irishtimes.com/sport/2026/02/22/three-sporting-events-to-watch-this-week-your-handy-guide-to-sport-on-television/) - **The Irish Times**
+3. [EPL: Allister strikes late as Liverpool edge Nottingham Forest 1-0](https://punchng.com/epl-allister-strikes-late-as-liverpool-edge-nottingham-forest-1-0/) - **The Punch**
+4. [Mac Allister criticises Liverpool intensity despite late win at Nottingham Forest](https://thefootballfaithful.com/mac-allister-criticises-liverpool-intensity-despite-late-win-at-nottingham-forest/) - **The Football Faithful**
+5. [Sunderland analysis: Consecutive home losses for Black Cats](https://www.bbc.com/sport/football/articles/c8d560g8m07o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Neymar Jr. 2026 World Cup hopes in doubt as Carlo Ancelotti reportedly eyes Premier League star for Brazil call-up](https://worldsoccertalk.com/news/neymar-jr-2026-world-cup-hopes-in-doubt-as-carlo-ancelotti-reportedly-eyes-premier-league-star-for-brazil-call-up/) - **Worldsoccertalk.com**
+7. [Fulham analysis: Jimenez's quality the difference](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e142ed5b-0130-4251-ada3-40fcfa0709f1) - **Yahoo Entertainment**
+8. [Mac Allister delighted with winner but says Liverpool ‘didn’t play well’](https://www.101greatgoals.com/football/premier-league/mac-allister-delighted-with-winner-but-says-liverpool-didnt-play-well/) - **101 Great Goals**
+9. [Mac Allister rescues Liverpool with stoppage-time winner at the City Ground](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c4fdb1c5-ab04-4426-bf27-69b36eaf921c) - **Yahoo Entertainment**
+10. [Premier League wrap: Wins for Fulham and Palace](https://www.rte.ie/sport/soccer/2026/0222/1559828-premier-league-wrap-wins-for-fulham-and-palace/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-02-24 00:50:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-24 02:02:22 (KST) / (하루 100회 제한 준수 중)*
