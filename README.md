@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man United lining up move for 35km/h “total professional” to turbocharge their midfield](https://strettynews.com/2026/02/22/man-united-want-felix-nmecha/) - **Strettynews.com**
-2. [Where to watch Tottenham vs. Arsenal live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-tottenham-arsenal-live-stream-tv-channel-start-time-premier-league/ef7294c9c29ee64ad85cc334) - **Sporting News**
-3. [Where to watch Nottingham Forest vs. Liverpool live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-nottingham-forest-vs-liverpool-live-stream-channel-time-premier-league/2b0375a6902e2b3267cec8df) - **Sporting News**
-4. [Man United prepare blockbuster bid for “amazing talent” with 79 goals and 64 assists](https://strettynews.com/2026/02/22/man-united-want-rafael-leao/) - **Strettynews.com**
-5. [Everything that needed to be shown by Manchester City was on display against Newcastle](https://esteemedkompany.com/2026/02/22/everything-that-needed-to-be-shown-by-manchester-city-was-on-display-against-newcastle/) - **Esteemedkompany.com**
-6. [Which United goalkeepers did Lammens look up to?](https://www.manutd.com/en/news/detail/senne-lammens-reveals-two-former-man-united-goalkeepers-who-he-looked-up-to-growing-up) - **Manchester United**
-7. [Crystal Palace predicted XI vs Wolves: Movable Eagles meet stoppable Wolves (3-4-2-1)](https://sportsview.co.uk/2026/02/crystal-palace-predicted-xi-vs-wolves-movable-eagles-meet-stoppable-wolves-3-4-2-1?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=crystal-palace-predicted-xi-vs-wolves-movable-eagles-meet-stoppable-wolves-3-4-2-1) - **Sportsview.co.uk**
-8. [Haaland delivers battling display as Man City beat Newcastle 2-1, he was just as key as MOTM O’Reilly](https://sportsview.co.uk/2026/02/haaland-delivers-battling-display-as-man-city-beat-newcastle-2-1-he-was-just-as-key-as-motm-oreilly?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=haaland-delivers-battling-display-as-man-city-beat-newcastle-2-1-he-was-just-as-key-as-motm-oreilly) - **Sportsview.co.uk**
-9. [Rosenior deserves flak for starting Gusto at left-back as Chelsea drop points again](https://sportsview.co.uk/2026/02/rosenior-deserves-flak-for-starting-gusto-at-left-back-as-chelsea-drop-points-again?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=rosenior-deserves-flak-for-starting-gusto-at-left-back-as-chelsea-drop-points-again) - **Sportsview.co.uk**
-10. [Liverpool predicted XI vs Nottingham Forest: Reds aim to break barren duck against Tricky Trees (4-2-3-1)](https://sportsview.co.uk/2026/02/liverpool-predicted-xi-vs-nottingham-forest-reds-aim-to-break-barren-duck-against-tricky-trees-4-2-3-1?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=liverpool-predicted-xi-vs-nottingham-forest-reds-aim-to-break-barren-duck-against-tricky-trees-4-2-3-1) - **Sportsview.co.uk**
+1. [Celtic vs Hibernian – Match preview and team news](https://thefootballfaithful.com/celtic-vs-hibernian-match-preview-and-team-news-2/) - **The Football Faithful**
+2. [Transfer rumour roundup: Nunez set for Premier League return; Liverpool plot giant Gordon bid](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_10c21d36-366f-4d1e-a84e-f1195f3d730c) - **Yahoo Entertainment**
+3. [Klopp reveals what Milner took with him when he left Liverpool](https://www.empireofthekop.com/2026/02/22/klopp-reveals-what-milner-took-with-him-when-he-left-liverpool/) - **Empire of The Kop**
+4. [What channel is the Olympics closing ceremony on? Time, TV schedule to watch 2026 Winter Games finale](https://www.sportingnews.com/us/olympics/news/what-channel-olympics-closing-ceremony-time-schedule-2026/4dfbfee77136894347101fb1) - **Sporting News**
+5. [UEFA Champions League Last-16 knockout stage draw: When, how to watch, who could Manchester City face?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_feb7ffff-3eb1-40d5-99c7-3c588ccd1bb5) - **Yahoo Entertainment**
+6. [“Mini-Mourinho” tops Manchester United wishlist as Carrick faces summer exit](https://strettynews.com/2026/02/22/man-united-linked-julian-nagelsmann/) - **Strettynews.com**
+7. [Report: Liverpool face Manchester City and others in €70m Premier League starlet race](https://anfieldindex.com/91476/report-liverpool-face-manchester-city-and-others-in-e70m-premier-league-starlet-race.html) - **Anfieldindex.com**
+8. [Haway The Podcast | MATCHDAY PREVIEW | How Will The Lads Get On Today Against Fulham?!](https://rokerreport.sbnation.com/haway-the-podcast/127307/haway-the-podcast-matchday-preview-how-will-the-lads-get-on-today-against-fulham) - **SB Nation**
+9. [Man United lining up move for 35km/h “total professional” to turbocharge their midfield](https://strettynews.com/2026/02/22/man-united-want-felix-nmecha/) - **Strettynews.com**
 
 
 ---
-*최근 업데이트: 2026-02-23 16:35:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-23 17:26:19 (KST) / (하루 100회 제한 준수 중)*
