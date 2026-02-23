@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool XI vs Nottingham Forest – Predicted lineup and team news](https://thefootballfaithful.com/liverpool-xi-vs-nottingham-forest-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-2. [Wolves XI vs Crystal Palace – Predicted lineup and team news](https://thefootballfaithful.com/wolves-xi-vs-crystal-palace-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-3. [Tottenham Hotspur vs Arsenal – Predicted lineup and team news](https://thefootballfaithful.com/tottenham-hotspur-vs-arsenal-predicted-lineup-and-team-news/) - **The Football Faithful**
-4. [Crystal Palace vs Wolves – Predicted lineup and team news](https://thefootballfaithful.com/crystal-palace-vs-wolves-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-5. [Sunderland vs Fulham – Predicted lineup and team news](https://thefootballfaithful.com/sunderland-vs-fulham-predicted-lineup-and-team-news/) - **The Football Faithful**
-6. [Nottingham Forest vs Liverpool – Match preview and team news](https://thefootballfaithful.com/nottingham-forest-vs-liverpool-match-preview-and-team-news-2/) - **The Football Faithful**
-7. [Crystal Palace vs Wolves – Match preview and team news](https://thefootballfaithful.com/crystal-palace-vs-wolves-match-preview-and-team-news/) - **The Football Faithful**
-8. [Watch: A day in the life of the mobile library serving the people of the Beara Peninsula in Cork](https://www.irishtimes.com/culture/books/2026/02/22/watch-a-day-in-the-life-of-the-mobile-library-serving-the-people-of-the-beara-peninsula-in-cork/) - **The Irish Times**
-9. [What’s behind the new winter sports arena in south Dublin?](https://www.irishtimes.com/sport/2026/02/22/whats-behind-the-new-winter-sports-arena-in-south-dublin/) - **The Irish Times**
-10. [Bay Area sports calendar, Feb. 22-23](https://www.sfchronicle.com/sports/article/sportscal-21368638.php) - **San Francisco Chronicle**
+1. [Man United lining up move for 35km/h “total professional” to turbocharge their midfield](https://strettynews.com/2026/02/22/man-united-want-felix-nmecha/) - **Strettynews.com**
+2. [Where to watch Tottenham vs. Arsenal live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-tottenham-arsenal-live-stream-tv-channel-start-time-premier-league/ef7294c9c29ee64ad85cc334) - **Sporting News**
+3. [Where to watch Nottingham Forest vs. Liverpool live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-nottingham-forest-vs-liverpool-live-stream-channel-time-premier-league/2b0375a6902e2b3267cec8df) - **Sporting News**
+4. [Man United prepare blockbuster bid for “amazing talent” with 79 goals and 64 assists](https://strettynews.com/2026/02/22/man-united-want-rafael-leao/) - **Strettynews.com**
+5. [Everything that needed to be shown by Manchester City was on display against Newcastle](https://esteemedkompany.com/2026/02/22/everything-that-needed-to-be-shown-by-manchester-city-was-on-display-against-newcastle/) - **Esteemedkompany.com**
+6. [Which United goalkeepers did Lammens look up to?](https://www.manutd.com/en/news/detail/senne-lammens-reveals-two-former-man-united-goalkeepers-who-he-looked-up-to-growing-up) - **Manchester United**
+7. [Crystal Palace predicted XI vs Wolves: Movable Eagles meet stoppable Wolves (3-4-2-1)](https://sportsview.co.uk/2026/02/crystal-palace-predicted-xi-vs-wolves-movable-eagles-meet-stoppable-wolves-3-4-2-1?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=crystal-palace-predicted-xi-vs-wolves-movable-eagles-meet-stoppable-wolves-3-4-2-1) - **Sportsview.co.uk**
+8. [Haaland delivers battling display as Man City beat Newcastle 2-1, he was just as key as MOTM O’Reilly](https://sportsview.co.uk/2026/02/haaland-delivers-battling-display-as-man-city-beat-newcastle-2-1-he-was-just-as-key-as-motm-oreilly?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=haaland-delivers-battling-display-as-man-city-beat-newcastle-2-1-he-was-just-as-key-as-motm-oreilly) - **Sportsview.co.uk**
+9. [Rosenior deserves flak for starting Gusto at left-back as Chelsea drop points again](https://sportsview.co.uk/2026/02/rosenior-deserves-flak-for-starting-gusto-at-left-back-as-chelsea-drop-points-again?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=rosenior-deserves-flak-for-starting-gusto-at-left-back-as-chelsea-drop-points-again) - **Sportsview.co.uk**
+10. [Liverpool predicted XI vs Nottingham Forest: Reds aim to break barren duck against Tricky Trees (4-2-3-1)](https://sportsview.co.uk/2026/02/liverpool-predicted-xi-vs-nottingham-forest-reds-aim-to-break-barren-duck-against-tricky-trees-4-2-3-1?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=liverpool-predicted-xi-vs-nottingham-forest-reds-aim-to-break-barren-duck-against-tricky-trees-4-2-3-1) - **Sportsview.co.uk**
 
 
 ---
-*최근 업데이트: 2026-02-23 15:17:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-23 16:35:19 (KST) / (하루 100회 제한 준수 중)*
