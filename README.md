@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Buccaneers trade rumors: Chris Godwin for Maxx Crosby in blockbuster NFL deal?](https://www.marca.com/en/nfl/tampa-bay-buccaneers/2026/02/22/699a739f268e3e30228b4572.html) - **Marca**
-2. [Chelsea, Burnley condemn racist abuse of Fofana, Mejbri](https://www.channelnewsasia.com/sport/chelsea-burnley-condemn-racist-abuse-fofana-mejbri-5945181) - **CNA**
-3. [Man City 2 Newcastle 1 — Where does it leave the title race? How good is O’Reilly? Was Burn pushed offside? - The New York Times](https://slashdot.org/firehose.pl?op=view&amp;id=180840916) - **Slashdot.org**
-4. [Man City closes gap on Arsenal after O'Reilly sinks Newcastle](https://japantoday.com/category/sports/man-city-close-gap-on-arsenal-after-o%27reilly-sinks-newcastle) - **Japan Today**
-5. [Fredrick nears injury return](https://punchng.com/fredrick-nears-injury-return/) - **The Punch**
-6. [Lamine Yamal holds U-23 goal contribution record with Barcelona, Serie A star close behind](https://worldsoccertalk.com/news/lamine-yamal-holds-u-23-goal-contribution-record-with-barcelona-serie-a-star-close-behind/) - **Worldsoccertalk.com**
-7. [Son Heung-min surrenders to Lionel Messi ahead of LAFC vs. Inter Miami in 2026 MLS opener](https://worldsoccertalk.com/news/son-heung-min-surrenders-to-lionel-messi-ahead-of-lafc-vs-inter-miami-in-2026-mls-opener/) - **Worldsoccertalk.com**
-8. [Enyimba, Rivers clash in heavyweight battle](https://punchng.com/enyimba-rivers-clash-in-heavyweight-battle/) - **The Punch**
+1. [Liverpool XI vs Nottingham Forest – Predicted lineup and team news](https://thefootballfaithful.com/liverpool-xi-vs-nottingham-forest-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+2. [Wolves XI vs Crystal Palace – Predicted lineup and team news](https://thefootballfaithful.com/wolves-xi-vs-crystal-palace-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+3. [Tottenham Hotspur vs Arsenal – Predicted lineup and team news](https://thefootballfaithful.com/tottenham-hotspur-vs-arsenal-predicted-lineup-and-team-news/) - **The Football Faithful**
+4. [Crystal Palace vs Wolves – Predicted lineup and team news](https://thefootballfaithful.com/crystal-palace-vs-wolves-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+5. [Sunderland vs Fulham – Predicted lineup and team news](https://thefootballfaithful.com/sunderland-vs-fulham-predicted-lineup-and-team-news/) - **The Football Faithful**
+6. [Nottingham Forest vs Liverpool – Match preview and team news](https://thefootballfaithful.com/nottingham-forest-vs-liverpool-match-preview-and-team-news-2/) - **The Football Faithful**
+7. [Crystal Palace vs Wolves – Match preview and team news](https://thefootballfaithful.com/crystal-palace-vs-wolves-match-preview-and-team-news/) - **The Football Faithful**
+8. [Watch: A day in the life of the mobile library serving the people of the Beara Peninsula in Cork](https://www.irishtimes.com/culture/books/2026/02/22/watch-a-day-in-the-life-of-the-mobile-library-serving-the-people-of-the-beara-peninsula-in-cork/) - **The Irish Times**
+9. [What’s behind the new winter sports arena in south Dublin?](https://www.irishtimes.com/sport/2026/02/22/whats-behind-the-new-winter-sports-arena-in-south-dublin/) - **The Irish Times**
+10. [Bay Area sports calendar, Feb. 22-23](https://www.sfchronicle.com/sports/article/sportscal-21368638.php) - **San Francisco Chronicle**
 
 
 ---
-*최근 업데이트: 2026-02-23 14:01:08 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-23 15:17:15 (KST) / (하루 100회 제한 준수 중)*
