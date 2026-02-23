@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Dean to the rescue! Henderson saves Arokodare penalty to keep score level](https://www.skysports.com/football/video/12606/13510777/save-d-henderson-crystal-palace-0-0-wolves) - **Sky Sports**
-2. [What furious Florian Wirtz was spotted doing on Liverpool bench 10 mins into Nottingham Forest clash](https://www.empireofthekop.com/2026/02/22/what-furious-florian-wirtz-was-spotted-doing-on-liverpool-bench-10-mins-into-nottingham-forest-clash/) - **Empire of The Kop**
-3. [Team news: Eze starts north London derby](http://www.arsenal.com/news/team-news-eze-starts-north-london-derby) - **Arsenal.com**
-4. [Will Man City or Arsenal win all their remaining matches?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4d84079d-9fbc-4184-ad62-459e26ec0d9a) - **Yahoo Entertainment**
-5. [Mikel Arteta’s wife tells Arsenal fans not to pin their PL Championship hopes on her husband](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c1559036-2b1e-4f87-88d9-5144a3db2386) - **Yahoo Entertainment**
-6. [Will Man City or Arsenal win all their remaining matches?](https://www.justarsenal.com/will-man-city-or-arsenal-win-all-their-remaining-matches/410526) - **Just Arsenal News**
-7. [Sugarman's Wrexham lifted by worldwide support](https://www.bbc.com/sport/articles/cj4z2e2yy85o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [How Sheff Wed's earliest-ever relegation unfolded](https://www.bbc.com/sport/football/articles/cx2gv8n8ex0o) - **BBC News**
-9. [Florian Wirtz injury news: German star hurt in warm-ups at Nottingham Forest](https://www.nbcsports.com/soccer/news/florian-wirtz-injury-news-german-star-hurt-in-warm-ups-at-nottingham-forest) - **NBCSports.com**
-10. [Juventus could rival Inter for Tottenham keeper after continuous Di Gregorio errors](https://football-italia.net/juventus-rival-inter-for-tottenham-keeper/) - **Football Italia**
+1. [Tottenham and Arsenal name teams for North London derby](https://thefootballfaithful.com/tottenham-and-arsenal-name-teams-for-north-london-derby/) - **The Football Faithful**
+2. [Game on! Le Fee converts from the spot to half Sunderland's deficit](https://www.skysports.com/football/video/11095/13510805/goal-e-le-fee-76-pen-sunderland-1-2-fulham) - **Sky Sports**
+3. [Veteran Fulham striker extends PL-best penalty record ](https://onefootball.com/en/news/veteran-fulham-striker-extends-pl-best-penalty-record-42450710) - **Onefootball.com**
+4. [Jimenez double helps Fulham stay in hunt for European spots](https://www.skysports.com/football/news/11661/13509107/sunderland-1-3-fulham-raul-jimenez-double-earns-marco-silvas-side-valuable-victory-in-race-for-european-spots) - **Sky Sports**
+5. [Mac Allister scores 97th-minute winner for Liverpool in 'robbery'](https://www.skysports.com/football/news/11661/13509103/nottingham-forest-0-1-liverpool-alexis-mac-allister-scores-97th-minute-winner-in-robbery-after-late-var-drama) - **Sky Sports**
+6. [Christian Pulisic could receive major defensive boost as AC Milan reportedly chase Premier League star for 2026-27 season](https://worldsoccertalk.com/news/christian-pulisic-could-receive-major-defensive-boost-as-ac-milan-reportedly-chase-premier-league-star-for-2026-27-season/) - **Worldsoccertalk.com**
+7. ['What was he thinking?' | Krejci sent off for delaying the restart!](https://www.skysports.com/football/video/12606/13510794/off-l-krejci-61-crystal-palace-0-0-wolves) - **Sky Sports**
+8. [ BREAKING: Spurs and Arsenal name lineups for huge North London derby](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8f424420-3723-4c7d-87ea-4b9685e4d123) - **Yahoo Entertainment**
+9. [Spurs vs Arsenal team news: Confirmed lineups for huge North London derby](https://www.101greatgoals.com/football/premier-league/spurs-arsenal-team-news-confirmed-lineups-north-london-derby/) - **101 Great Goals**
+10. [Confirmed Arsenal team v Tottenham – Eze and Saka start](https://www.justarsenal.com/confirmed-arsenal-team-v-tottenham-eze-and-saka-start/410545) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-02-23 23:51:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-24 00:50:40 (KST) / (하루 100회 제한 준수 중)*
