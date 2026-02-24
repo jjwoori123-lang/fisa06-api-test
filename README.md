@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Why Licha isn't involved at Everton](https://www.manutd.com/en/news/detail/why-lisandro-martinez-not-involved-at-hill-dickinson-stadium-v-everton) - **Manchester United**
-2. [Arsenal set to confirm finish above Spurs earlier than ever before](https://dailycannon.com/2026/02/arsenal-spurs-st-totteringhams-day/) - **Dailycannon.com**
-3. [Newcastle Would Sell Nick Woltemade Under One Condition: Report](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/20631/newcastle-would-sell-nick-woltemade-under-one-condition-report) - **SB Nation**
-4. [Arsenal might need a striker to leave before they spend big on that spot](https://www.justarsenal.com/arsenal-might-need-a-striker-to-leave-before-they-spend-big-on-that-spot/410634) - **Just Arsenal News**
-5. [Liverpool slammed over ‘horrendous’ performance against Nottingham Forest](https://anfieldindex.com/91525/liverpool-slammed-over-horrendous-performance-against-nottingham-forest.html) - **Anfieldindex.com**
-6. [Everton v Manchester United: Confirmed line-ups as Martinez misses out](https://www.101greatgoals.com/football/premier-league/everton-manchester-united-lineups/) - **101 Great Goals**
-7. [Newcastle United hold firm on Tino Livramento amid expected revival in Manchester City interest](https://cityxtra.co.uk/42012/newcastle-united-hold-firm-on-tino-livramento-amid-expected-revival-in-manchester-city-interest/) - **Cityxtra.co.uk**
-8. [Everton vs Manchester United: Starting Lineups, TV and Live Streams, How to Watch Online](https://royalbluemersey.sbnation.com/everton-gamethread-live-blog/78172/everton-vs-manchester-united-starting-lineups-tv-and-live-streams-how-to-watch-online) - **SB Nation**
-9. [Man Utd-linked Yan Diomande excels in pressing stat also dominated by Elliot Anderson](https://www.hitc.com/man-utd-linked-yan-diomande-excels-in-pressing-stat-also-dominated-by-elliot-anderson/) - **HITC - Football, Gaming, Movies, TV, Music**
-10. [Karim Benzema’s Al Hilal teammate reportedly nears a Premier League return for the 2026-27 season](https://worldsoccertalk.com/news/karim-benzemas-al-hilal-teammate-reportedly-nears-a-premier-league-return-for-the-2026-27-season/) - **Worldsoccertalk.com**
+1. [Journalist: Liverpool ‘in talks’ to end ongoing transfer saga](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_021edd42-5be2-4f6b-b373-7081f4980c88) - **Yahoo Entertainment**
+2. [Iheanacho mystery – Martin’s just easing Kelechi back to match fitness](https://thecelticstar.com/iheanacho-mystery-martins-just-easing-kelechi-back-to-match-fitness/) - **The Celtic Star**
+3. [Liverpool urged to make move to sign England midfielder](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_044a73d2-85c4-4448-a782-5a38bbbb0fee) - **Yahoo Entertainment**
+4. [Manchester City Are Planning To Move In For This Newcastle United Defender: Should Pep Snap Him Up?](https://the4thofficial.net/2026/02/manchester-city-are-planning-to-move-in-for-this-newcastle-united-defender/) - **The4thofficial.net**
+5. [Everton vs. Man United score, talking points, highlights as Carrick's men aim to bolster Premier League top-four hopes](https://www.sportingnews.com/us/soccer/news/everton-man-united-score-talking-points-highlights-premier-league/bad25af6d22a4a1433f0e9af) - **Sporting News**
+6. [Jaylen Brown for MVP? LeBron James makes compelling case for Celtics star, and he has a point](https://www.cbssports.com/nba/news/celtics-jaylen-brown-mvp-lebron-james-lakers/) - **CBS Sports**
+7. [Why Licha isn't involved at Everton](https://www.manutd.com/en/news/detail/why-lisandro-martinez-not-involved-at-hill-dickinson-stadium-v-everton) - **Manchester United**
+8. [Arsenal set to confirm finish above Spurs earlier than ever before](https://dailycannon.com/2026/02/arsenal-spurs-st-totteringhams-day/) - **Dailycannon.com**
+9. [Newcastle Would Sell Nick Woltemade Under One Condition: Report](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/20631/newcastle-would-sell-nick-woltemade-under-one-condition-report) - **SB Nation**
+10. [Arsenal might need a striker to leave before they spend big on that spot](https://www.justarsenal.com/arsenal-might-need-a-striker-to-leave-before-they-spend-big-on-that-spot/410634) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-02-25 04:14:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-25 04:54:22 (KST) / (하루 100회 제한 준수 중)*
