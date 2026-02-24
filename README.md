@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sexual harassment row in Bangladesh cricket: BCB bans ex-women’s selector Monjurul Islam](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fef19dc8-3e9a-4681-afd2-e27615e7aafb) - **Yahoo Entertainment**
-2. [Former Manchester United coach urges club to move for £37m Chelsea defender](https://eplindex.com/143153/former-manchester-united-coach-urges-club-to-move-for-37m-chelsea-defender.html) - **English Premier League Index - Opta Stats**
-3. [Report: Bayern Munich and AC Milan both looking at 28-year-old Liverpool star](https://anfieldindex.com/91498/report-bayern-munich-and-ac-milan-both-looking-at-28-year-old-liverpool-star.html) - **Anfieldindex.com**
-4. [Report: Former Liverpool favourite targeted by Spurs and Newcastle](https://anfieldindex.com/91482/report-former-liverpool-favourite-targeted-by-spurs-and-newcastle.html) - **Anfieldindex.com**
-5. [Liverpool snatch victory in Mac Allister VAR drama at City Ground](https://anfieldindex.com/91486/liverpool-snatch-victory-in-mac-allister-var-drama-at-city-ground.html) - **Anfieldindex.com**
-6. [Report: Liverpool eyeing £83m Premier League star as potential Mo Salah replacement](https://anfieldindex.com/91496/report-liverpool-eyeing-83m-premier-league-star-as-potential-mo-salah-replacement.html) - **Anfieldindex.com**
-7. [David Lynch’s Key Takeaways: Fans should “relish what they’ve seen today”](https://anfieldindex.com/91503/david-lynchs-key-takeaways-fans-should-relish-what-theyve-seen-today.html) - **Anfieldindex.com**
-8. [Liverpool Confirmed XI vs Nottingham Forest](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f0a203b6-9d30-4b0e-bd6a-b1c10f2500b5) - **Yahoo Entertainment**
-9. [Liverpool legend goes in on Gakpo, Jones and Salah post Forest victory](https://anfieldindex.com/91504/liverpool-legend-goes-in-on-gakpo-jones-and-salah-post-forest-victory.html) - **Anfieldindex.com**
-10. [Player Ratings: Resilient Liverpool Grind Out Crucial Away Victory](https://anfieldindex.com/91492/player-ratings-resilient-liverpool-grind-out-crucial-away-victory.html) - **Anfieldindex.com**
+1. [Marc Guehi opens up on Manchester City adaptation challenges amid Arsenal title battle](https://cityxtra.co.uk/41962/marc-guehi-opens-up-on-manchester-city-adaptation-challenges-amid-arsenal-title-battle/) - **Cityxtra.co.uk**
+2. [Aston Villa 1-1 Leeds - the fans' verdict](https://www.bbc.com/sport/football/articles/cvg18vyv35xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Two more Premier League players suffer racist abuse on ‘appalling weekend’](https://www.independent.ie/sport/soccer/premier-league/two-more-premier-league-players-suffer-racist-abuse-on-appalling-weekend/a2094441174.html) - **Independent.ie**
+4. [ Barça top, Mbappé saga... 5️⃣ stories to kick off your Monday](https://onefootball.com/en/news/barca-top-mbappe-saga-5-stories-to-kick-off-your-monday-42453616) - **Onefootball.com**
+5. [Papers: Saka injury concern emerges for Arsenal](https://www.skysports.com/football/news/11095/13511013/bukayo-saka-injury-concern-emerges-for-arsenal-after-limping-off-during-tottenham-win-paper-talk-and-football-transfer-gossip) - **Sky Sports**
+6. [The media sinks into the mud as Arsenal rise to the heights](https://untold-arsenal.com/archives/119583) - **Untold-arsenal.com**
+7. [Loan watch: Vieira goal extends Hamburg run](http://www.arsenal.com/news/loan-watch-vieira-goal-extends-hamburg-run) - **Arsenal.com**
+8. [Sexual harassment row in Bangladesh cricket: BCB bans ex-women’s selector Monjurul Islam](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fef19dc8-3e9a-4681-afd2-e27615e7aafb) - **Yahoo Entertainment**
+9. [Former Manchester United coach urges club to move for £37m Chelsea defender](https://eplindex.com/143153/former-manchester-united-coach-urges-club-to-move-for-37m-chelsea-defender.html) - **English Premier League Index - Opta Stats**
+10. [Report: Bayern Munich and AC Milan both looking at 28-year-old Liverpool star](https://anfieldindex.com/91498/report-bayern-munich-and-ac-milan-both-looking-at-28-year-old-liverpool-star.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-02-24 16:04:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-24 17:02:54 (KST) / (하루 100회 제한 준수 중)*
