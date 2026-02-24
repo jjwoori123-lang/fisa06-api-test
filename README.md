@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Christian Norgaard is always one of the last to leave the Arsenal training ground](https://sportsview.co.uk/2026/02/christian-norgaard-is-always-one-of-the-last-to-leave-the-arsenal-training-ground?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=christian-norgaard-is-always-one-of-the-last-to-leave-the-arsenal-training-ground) - **Sportsview.co.uk**
-2. [Would Christian Pulisic Be Right Fit To Replace Liverpool's Mohamed Salah?](https://www.foxsports.com/stories/soccer/liverpool-cult-hero-emile-heskey-names-christian-pulisic-as-potential-mohamed-salah-replacement-backs-usmnt-star-to-show-chelsea-spell-was-just-a-little-blip) - **Fox Sports**
-3. [U21s report: Reading 1-4 Arsenal](http://www.arsenal.com/fixture/under-21/2026-Feb-23/reading-u21-1-4-under-21-match-report) - **Arsenal.com**
-4. [A key player for Manchester City is getting back to his best](https://esteemedkompany.com/2026/02/23/a-key-player-for-manchester-city-is-getting-back-to-his-best/) - **Esteemedkompany.com**
-5. [Marcus Rashford future seems complex as Barcelona reportedly target a Premier League star as stellar reinforcement](https://worldsoccertalk.com/news/marcus-rashford-future-seems-complex-as-barcelona-reportedly-target-a-premier-league-star-as-stellar-reinforcement/) - **Worldsoccertalk.com**
-6. [MIAA boys basketball tournament preview: Contenders have plenty of challengers](https://www.bostonherald.com/2026/02/23/miaa-boys-basketball-tournament-preview-contenders-have-plenty-of-challengers/) - **Boston Herald**
-7. [Tottenham Hotspur Are In Talks To Sign This Talented Forward: Good Choice For Tudor?](https://the4thofficial.net/2026/02/tottenham-hotspur-are-in-talks-to-sign-this-talented-forward/) - **The4thofficial.net**
-8. [Who are the biggest 2026 NFL combine snubs? History says don't count them out](https://www.cbssports.com/nfl/draft/news/2026-nfl-combine-snubs-history/) - **CBS Sports**
-9. [Watch: Sportscene - Sunday's SWPL highlights](https://www.bbc.co.uk/iplayer/episode/m002s05w/sportscene-scottish-womens-premier-league-highlights-202526-23022026?at_medium=RSS&at_campaign=rss) - **BBC News**
-10. [Was the Tottenham game the best Viktor Gyokeres performance?](https://www.justarsenal.com/was-the-tottenham-game-the-best-viktor-gyokeres-performance/410642) - **Just Arsenal News**
+1. [Campaigners demand action after 4 Premier League players racially abused on 'appalling weekend'](https://japantoday.com/category/sports/campaigners-demand-action-after-4-premier-league-players-racially-abused-on-%27appalling-weekend%27) - **Japan Today**
+2. [‘He’s incredible’ — Luis Díaz explains Vincent Kompany’s role in his transfer to Bayern Munich](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/170298/hes-incredible-luis-diaz-explains-vincent-kompanys-role-in-his-transfer-to-bayern-munich) - **Bavarian Football Works**
+3. [Premier League referees announced: Matchweek 28](https://www.playmakerstats.com/news/premier-league-referees-announced-matchweek-28/1061032) - **Playmakerstats.com**
+4. [U21s: Leicester 1 United 4](https://www.manutd.com/en/news/detail/leicester-u21s-v-man-utd-u21s-premier-league-2-match-report-23-feb) - **Manchester United**
+5. [Liverpool Are Hoping To Land This Newcastle United Winger: Dream Option For Slot?](https://the4thofficial.net/2026/02/liverpool-are-hoping-to-land-this-newcastle-united-winger-dream-option-for-slot/) - **The4thofficial.net**
+6. [CONCACAF monitoring violence in Mexico as Champions Cup continues](https://www.cbc.ca/sports/soccer/concacaf-monitoring-violence-in-mexico-as-champions-cup-continues-9.7103028) - **CBC News**
+7. [Arsenal and Manchester City are each others' main quadruple obstacles — Who will win more trophies?](https://www.nbcsports.com/soccer/news/arsenal-and-manchester-city-each-others-main-rivals-with-quadruple-dreams-alive-who-will-win-more-trophies) - **NBCSports.com**
+8. [Lionel Messi’s star Argentina teammate reveals who he ranks above them ahead of 2026 World Cup](https://worldsoccertalk.com/news/lionel-messis-star-argentina-teammate-reveals-who-he-ranks-above-them-ahead-of-2026-world-cup/) - **Worldsoccertalk.com**
+9. [Michael Owen gives his reaction to Gyokeres performance against Spurs](https://www.justarsenal.com/michael-owen-gives-his-reaction-to-gyokeres-performance-against-spurs/410645) - **Just Arsenal News**
+10. [Top pundit has Chelsea out of the Champions League places at the end of the season](https://chelsea.news/2026/02/top-pundit-chelsea-champions-league-places/) - **Chelsea.news**
 
 
 ---
-*최근 업데이트: 2026-02-25 05:40:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-25 06:38:49 (KST) / (하루 100회 제한 준수 중)*
