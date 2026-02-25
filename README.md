@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Papers: Man Utd join chase for Gibbs-White](https://www.skysports.com/football/transfer-paper-talk/12709/13511725/man-utd-join-chase-for-nottingham-forests-morgan-gibbs-white-paper-talk-and-football-transfer-gossip) - **Sky Sports**
-2. [Diogo Dalot receives top recognition after his stunning performance vs. Everton](https://thepeoplesperson.com/2026/02/24/diogo-dalot-receives-top-recognition-after-his-stunning-performance-vs-everton-306984/) - **The Peoples Person**
-3. [Everton Set To Lose Free Agent Quality Defender To Barcelona: Will It Be A Big Loss?](https://the4thofficial.net/2026/02/everton-set-to-lose-free-agent-quality-defender-to-barcelona-will-it-be-a-big-loss/) - **The4thofficial.net**
-4. [Southampton thump five past QPR](https://www.skysports.com/football/news/11095/13511607/southampton-5-0-queens-park-rangers-saints-boost-play-off-credentials-with-emphatic-win) - **Sky Sports**
-5. [Exclusive: Sergio Aguero heaps praise on “very good” Abdukodir Khusanov](https://cityxtra.co.uk/41928/exclusive-sergio-aguero-heaps-praise-on-very-good-abdukodir-khusanov/) - **Cityxtra.co.uk**
-6. [Aston Villa Provide Stern Response To Manchester United For £50m Star: Is It The Right Decision?](https://the4thofficial.net/2026/02/aston-villa-provide-stern-response-to-manchester-united-for-50m-star-is-it-the-right-decision/) - **The4thofficial.net**
-7. [49ers struggling to amend Trent Williams contract, could lead to him becoming FA](https://www.ninersnation.com/san-francisco-49ers-news/156478/san-francisco-49ers-news-trent-williams-contract-struggles-potential-free-agent-kyle-shanahan) - **Niners Nation**
-8. [Man Utd & Chelsea eye Dortmund's Nmecha - Wednesday's gossip](https://www.bbc.com/sport/football/articles/cgqgnpvj4dxo) - **BBC News**
-9. [49ers get bad news on Trent Williams amid looming $39 million decision](https://www.sportingnews.com/us/nfl/san-francisco-49ers/news/49ers-bad-news-trent-williams-looming-39-million-decision/4343074603098019fc4a8c07) - **Sporting News**
-10. [Liverpool now have the best right-back in the Premier League](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-now-have-the-best-right-back-in-the-premier-league/) - **Anfieldwatch.co.uk**
+1. [Director Explains Player’s Situation After Sunderland’s Bid For €40m Man: Should The Black Cats Break The Bank?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1e620c11-d62b-4c96-b75b-d09787ff3496) - **Yahoo Entertainment**
+2. [Champions League: Atletico Madrid and Leverkusen into last 16](https://www.101greatgoals.com/football/champions-league/champions-league-atletico-madrid-and-leverkusen-into-last-16/) - **101 Great Goals**
+3. [Bodø/Glimt humble Inter as Leverkusen, Atleti and Newcastle progress](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260224-99-638060/) - **Dpa-international.com**
+4. [Galway's Murphy starts as Newcastle see off Qarabag](https://www.rte.ie/sport/soccer/2026/0224/1560088-galways-murphy-starts-as-newcastle-see-off-qarabag/) - **RTE**
+5. [Leeds United Are Facing Tough Competition For This Eredivisie Full-Back: Is He Worth The Fight?](https://the4thofficial.net/2026/02/leeds-united-are-facing-tough-competition-for-this-eredivisie-full-back/) - **The4thofficial.net**
+6. [Newcastle 3-2 Qarabag: Magpies ease into last 16 after lightning start](https://www.101greatgoals.com/football/champions-league/newcastle-3-2-qarabag-magpies-ease-into-last-16-after-lightning-start/) - **101 Great Goals**
+7. [Leverkusen through to Champions League last 16 after Olympiacos draw](https://sports.yahoo.com/articles/leverkusen-champions-league-last-16-220033519.html) - **Yahoo Entertainment**
+8. [Premier League clubs 50 per cent clearer on who they could face in CL](https://www.skysports.com/football/news/11945/13511136/champions-league-premier-league-clubs-to-learn-last-16-opponents-in-fridays-draw) - **Sky Sports**
+9. [Premier League clubs 50 per cent clearer on who they could face in CL](https://www.skysports.com/football/news/11945/13511136/champions-league-premier-league-clubs-to-learn-last-16-opponents-in-fridays-draw) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-02-26 06:43:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-26 07:37:35 (KST) / (하루 100회 제한 준수 중)*
