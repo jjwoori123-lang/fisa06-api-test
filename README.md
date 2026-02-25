@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Senne Lammens: David Moyes makes bold claim about United goalkeeper](https://thepeoplesperson.com/2026/02/24/senne-lammens-david-moyes-makes-bold-claim-about-united-goalkeeper-306937/) - **The Peoples Person**
-2. [What channel is Cavs vs. Knicks on today? Time, TV schedule, live stream to watch Tuesday NBA game](https://www.sportingnews.com/us/nba/news/what-channel-cavs-knicks-time-schedule-stream-watch-nba/ab3a76e22ea8ecd0146e475e) - **Sporting News**
-3. [How Can We Improve The Atmosphere At Sunderland’s Home Games?](https://rokerreport.sbnation.com/opinion/127915/how-can-we-improve-the-atmosphere-at-sunderlands-home-games) - **SB Nation**
-4. [Finding belonging through Girls Kicks](http://www.arsenal.com/community/stories/girls-kicks-belonging) - **Arsenal.com**
-5. [The Drogba fan, the Lions stalwart & playing with CR7 - Five EFL stories](https://www.skysports.com/football/news/11095/13511153/the-didier-drogba-fan-the-millwall-stalwart-and-playing-with-cristiano-ronaldo-five-efl-stories) - **Sky Sports**
-6. [Dodgers’ Yoshinobu Yamamoto reveals the next trophy he’s eyeing after World Series MVP](https://clutchpoints.com/mlb/los-angeles-dodgers/dodgers-news-yoshinobu-yamamoto-reveals-the-next-trophy-hes-eyeing-after-world-series-mvp) - **ClutchPoints**
-7. [Barcelona star Lamine Yamal was targeted by PSG with record bid to replace Kylian Mbappe, says Joan Laporta](https://worldsoccertalk.com/news/barcelona-star-lamine-yamal-was-targeted-by-psg-with-record-bid-to-replace-kylian-mbappe-says-joan-laporta/) - **Worldsoccertalk.com**
-8. [Someone will be killed by flares, warns Sports Minister Patrick O’Donovan after Dundalk incident](https://www.independent.ie/sport/soccer/league-of-ireland/someone-will-be-killed-by-flares-warns-sports-minister-patrick-odonovan-after-dundalk-incident/a254723328.html) - **Independent.ie**
-9. [Snoop Dogg and Swansea – the story behind football's unlikeliest link-up](https://www.bbc.com/sport/football/articles/cpw0yzvk1l7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Snoop Dogg and Swansea – the story behind football's unlikeliest link-up](https://www.bbc.com/sport/football/articles/cpw0yzvk1l7o) - **BBC News**
+1. [Super-sub Sesko fires Man United to latest win as interim boss Carrick extends unbeaten start](https://www.the42.ie/everton-man-united-report-6965592-Feb2026/) - **The42**
+2. [Sesko attitude earns Carrick praise after United winner](https://www.rte.ie/sport/soccer/2026/0224/1560080-sesko-attitude-earns-carrick-praise-after-united-winner/) - **RTE**
+3. [How hand-drawn thinking is reconnecting designers with creativity in a precision-first industry](https://www.creativeboom.com/insight/how-hand-drawn-thinking-reconnecting-designers-with-creativity-in-a-precision-first-industry/) - **Creative Boom**
+4. [Jersey cricketers train with Chennai Super Kings](https://www.bbc.com/sport/cricket/articles/cm2rv4lmlreo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Goalhanger Boss Tony Pastor Says “Millions” Of Young People Tuning Into Podcasts: “No TV Commissioner Would Dream Of This”](http://deadline.com/2026/02/goalhanger-podcasts-rest-is-history-myths-1236733392/) - **Deadline**
+6. [Transfer rumour roundup: Man Utd expand midfield shortlist; Barca prefer Savinho to Rashford](https://www.footballmuse.com/features/transfer-rumour-roundup-man-utd-expand-midfield-shortlist-barca-prefer-savinho-to-rashford) - **Footballmuse.com**
+7. [£400k per week Liverpool cult hero wanted for Premier League return](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f07a81ba-5aba-45db-8bcf-80e91201f20a) - **Yahoo Entertainment**
+8. [Senne Lammens: David Moyes makes bold claim about United goalkeeper](https://thepeoplesperson.com/2026/02/24/senne-lammens-david-moyes-makes-bold-claim-about-united-goalkeeper-306937/) - **The Peoples Person**
+9. [What channel is Cavs vs. Knicks on today? Time, TV schedule, live stream to watch Tuesday NBA game](https://www.sportingnews.com/us/nba/news/what-channel-cavs-knicks-time-schedule-stream-watch-nba/ab3a76e22ea8ecd0146e475e) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-02-25 15:34:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-25 16:37:27 (KST) / (하루 100회 제한 준수 중)*
