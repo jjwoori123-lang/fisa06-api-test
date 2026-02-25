@@ -1,13 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Speedy Sesko!! How fast did striker run for superb strike at Everton?](https://www.skysports.com/football/video/30998/13511485/explained-how-fast-did-man-utd-striker-benjamin-sesko-run-for-superb-strike-at-everton) - **Sky Sports**
-2. [I want to show everyone what I can do for Liverpool - Ngumoha](https://www.bbc.com/sport/football/articles/cy038lz7088o) - **BBC News**
-3. [Maalik Hashi signs first professional contract](http://www.arsenal.com/news/maalik-hashi-signs-first-professional-contract) - **Arsenal.com**
-4. [Opinion: The matches that could be the most significant for Arsenal](https://www.justarsenal.com/opinion-the-matches-that-could-be-the-most-significant-for-arsenal/410666) - **Just Arsenal News**
-5. [Roma inquire about Vicario in case of Svilar’s farewell](https://romapress.net/roma-inquire-about-vicario-in-case-of-svilars-farewell/) - **RomaPress**
-6. [Will EFL Cup final affect Premier League title race?](https://www.bbc.com/sport/football/videos/c8r1y1k21nzo) - **BBC News**
-7. [Prandelli: Juventus should sign ‘at least two’ Italy internationals including Calafiori](https://football-italia.net/prandelli-juventus-sign-two-italy-intnls/) - **Football Italia**
+1. [Liverpool wonderkid Ngumoha ready to show fans what he can do](https://www.101greatgoals.com/football/premier-league/liverpool-wonderkid-ngumoha-ready-show-fans-what-he-can-do/) - **101 Great Goals**
+2. [6 G/A in 6 games puts “grateful” £19m man back on Chelsea fans’ radar and back on road to Premier League](https://chelsea.news/2026/02/kellyman-chelsea-fans-radar-19m-g-a/) - **Chelsea.news**
+3. [PREVIEW: Coventry aim to remain in control at the top as they travel to Sheffield United](https://wp.fromthespot.co.uk/26843/preview-coventry-aim-to-remain-in-control-at-the-top-as-they-travel-to-sheffield-united/) - **Fromthespot.co.uk**
+4. ['Europe is an anomaly about to be exposed'](https://www.bbc.com/sport/football/articles/cd03dg3d272o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. ['Gyokeres put too much pressure on himself'](https://www.bbc.com/sport/football/articles/c2046kezgedo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Josh Rock return to Belfast for the latest chapter of PDC Premier League darts](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_12d9f531-0c4c-41c8-b883-adaa65bb8804) - **Yahoo Entertainment**
+7. [Matt Scrafton, Burnley Express: Clarets have given themselves fighting chance of Premier League survival](https://www.brentfordfc.com/en/news/article/analysis-burnley-v-brentford-premier-league-matt-scrafton-burnley-express) - **Brentfordfc.com**
+8. [Premier League players who have suffered stark drop-offs this season](https://www.footballmuse.com/features/premier-league-players-who-have-suffered-stark-drop-offs-this-season) - **Footballmuse.com**
+9. [Premier League embarrass themselves with latest fixture scheduling failure](https://dailycannon.com/2026/02/premier-league-arsenal-everton-scheduling-failure/) - **Dailycannon.com**
+10. ['City's issue is quantity over quality'](https://www.bbc.com/sport/football/articles/cd9gjgzlk3yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-02-25 21:04:50 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-25 22:45:53 (KST) / (하루 100회 제한 준수 중)*
