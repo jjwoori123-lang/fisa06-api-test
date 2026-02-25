@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Journalist: Liverpool must offer contract to ‘phenomenal’ star](https://anfieldindex.com/91558/journalist-liverpool-must-offer-contract-to-phenomenal-star.html) - **Anfieldindex.com**
-2. [PREVIEW | Nottingham Forest vs Fenerbahçe - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-nottingham-forest-vs-fenerbahce-team-news-lineups-predictions/1061929) - **Playmakerstats.com**
-3. [Paramount+ and CBS Sports lock up Concacaf women's soccer rights through 2029-2030](https://www.cbssports.com/soccer/news/paramount-cbs-sports-concacaf-womens-soccer-rights-2029-2030/) - **CBS Sports**
-4. [Richard Hughes gets unexpected second chance to sign dream Serie A star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-richard-hughes-gets-unexpected-second-chance-to-sign-zeki-celik-roma/) - **Anfieldwatch.co.uk**
-5. [Virgil van Dijk replacement nears as Liverpool reportedly target $135m Premier League defender amid Manchester United battle](https://worldsoccertalk.com/news/virgil-van-dijk-replacement-nears-as-liverpool-reportedly-target-135m-premier-league-defender-amid-manchester-united-battle/) - **Worldsoccertalk.com**
-6. [Tottenham Hotspur Are Eyeing A Move For This Real Madrid Defender: Should Tudor Get Him On Board?](https://the4thofficial.net/2026/02/tottenham-hotspur-are-eyeing-a-move-for-this-real-madrid-defender/) - **The4thofficial.net**
-7. [Chelsea: Racism against Wesley Fofana, the French federation breaks the silence](https://foot-africa.com/en/news/chelsea-racism-against-wesley-fofana-the-french-federation-breaks-the-silence-1100162/) - **Foot-africa.com**
-8. [Scott McTominay: Man United’s plot forces rival to target Napoli star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ae40f29b-7aa1-4be6-b25c-8f5be96e82ad) - **Yahoo Entertainment**
-9. [PREVIEW | Crystal Palace vs Zrinjski Mostar - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-crystal-palace-vs-zrinjski-mostar-team-news-lineups-predictions/1061879) - **Playmakerstats.com**
-10. [Manchester City remain well-placed in the title race after an eventful weekend](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_11e885d1-94ca-4468-b676-f2ebbe8dbafa) - **Yahoo Entertainment**
+1. [Papers: Man Utd join chase for Gibbs-White](https://www.skysports.com/football/transfer-paper-talk/12709/13511725/man-utd-join-chase-for-nottingham-forests-morgan-gibbs-white-paper-talk-and-football-transfer-gossip) - **Sky Sports**
+2. [Diogo Dalot receives top recognition after his stunning performance vs. Everton](https://thepeoplesperson.com/2026/02/24/diogo-dalot-receives-top-recognition-after-his-stunning-performance-vs-everton-306984/) - **The Peoples Person**
+3. [Everton Set To Lose Free Agent Quality Defender To Barcelona: Will It Be A Big Loss?](https://the4thofficial.net/2026/02/everton-set-to-lose-free-agent-quality-defender-to-barcelona-will-it-be-a-big-loss/) - **The4thofficial.net**
+4. [Southampton thump five past QPR](https://www.skysports.com/football/news/11095/13511607/southampton-5-0-queens-park-rangers-saints-boost-play-off-credentials-with-emphatic-win) - **Sky Sports**
+5. [Exclusive: Sergio Aguero heaps praise on “very good” Abdukodir Khusanov](https://cityxtra.co.uk/41928/exclusive-sergio-aguero-heaps-praise-on-very-good-abdukodir-khusanov/) - **Cityxtra.co.uk**
+6. [Aston Villa Provide Stern Response To Manchester United For £50m Star: Is It The Right Decision?](https://the4thofficial.net/2026/02/aston-villa-provide-stern-response-to-manchester-united-for-50m-star-is-it-the-right-decision/) - **The4thofficial.net**
+7. [49ers struggling to amend Trent Williams contract, could lead to him becoming FA](https://www.ninersnation.com/san-francisco-49ers-news/156478/san-francisco-49ers-news-trent-williams-contract-struggles-potential-free-agent-kyle-shanahan) - **Niners Nation**
+8. [Man Utd & Chelsea eye Dortmund's Nmecha - Wednesday's gossip](https://www.bbc.com/sport/football/articles/cgqgnpvj4dxo) - **BBC News**
+9. [49ers get bad news on Trent Williams amid looming $39 million decision](https://www.sportingnews.com/us/nfl/san-francisco-49ers/news/49ers-bad-news-trent-williams-looming-39-million-decision/4343074603098019fc4a8c07) - **Sporting News**
+10. [Liverpool now have the best right-back in the Premier League](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-now-have-the-best-right-back-in-the-premier-league/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-02-26 05:58:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-26 06:43:57 (KST) / (하루 100회 제한 준수 중)*
