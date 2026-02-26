@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Anderson focused on Forest amid Man Utd and Man City links](https://www.bbc.com/sport/football/articles/c24drq2j28yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [The stats behind our 1000 away PL goals](http://www.arsenal.com/news/stats-behind-our-1000-away-pl-goals) - **Arsenal.com**
-3. [Away day delight! Stats on our 1000 PL away goals](http://www.arsenal.com/news/away-day-delight-stats-our-1000-pl-away-goals) - **Arsenal.com**
-4. [Taoiseach says clubs ‘should not be punished’ for Dundalk flare incident after sports minister’s threat to cut LOI funding](https://www.independent.ie/irish-news/taoiseach-says-clubs-should-not-be-punished-for-dundalk-flare-incident-after-sports-ministers-threat-to-cut-loi-funding/a131350371.html) - **Independent.ie**
-5. [Vanoli ‘An opportunity to improve’ for Fiorentina in Jagiellonia second leg](https://football-italia.net/vanoli-opportunity-to-improve-for-fiorentina/) - **Football Italia**
-6. [From Serie A’s Golden Age to potential last-16 lockout: Inter’s shock exit shows decline of Italian football](https://www.footballmuse.com/features/from-serie-as-golden-age-to-potential-last-16-lockout-inters-shock-exit-shows-decline-of-italian-football) - **Footballmuse.com**
-7. [Chelsea among several clubs interested in 20-year-old Real Madrid academy graduate](https://madriduniversal.com/chelsea-among-several-clubs-interested-in-20-year-old-real-madrid-academy-graduate/) - **Madriduniversal.com**
-8. [Inside Arjun Tendulkar-Saaniya Chandhok’s pre-wedding celebrations: Ambanis host the couple in Jamnagar. Watch](https://indianexpress.com/article/entertainment/bollywood/inside-arjun-tendulkar-saaniya-chandhok-pre-wedding-celebrations-ambani-jamnagar-watch-10552223/) - **The Indian Express**
-9. [Rock ready to roll as Premier League hits Belfast](https://www.rte.ie/sport/darts/2026/0225/1560422-rock-ready-to-roll-as-premier-league-hits-belfast/) - **RTE**
-10. [Arsenal makes financial improvements as the club releases its accounts](https://www.justarsenal.com/arsenal-makes-financial-improvements-as-the-club-releases-its-accounts/410765) - **Just Arsenal News**
+1. [Manchester United post operating profit but debt approaches £1.3billion](https://www.independent.ie/sport/soccer/premier-league/manchester-united-post-operating-profit-but-debt-approaches-13billion/a190818661.html) - **Independent.ie**
+2. [When is the Europa League draw? Full details for round of 16, quarter-finals and semi-finals 2025/26 including date, time, TV channel and online live stream](https://www.101greatgoals.com/football/europa-league/when-is-europa-league-draw-round-of-16-quarter-finals-semi-finals-2025-26/) - **101 Great Goals**
+3. [When is the Conference League draw? Full details for round of 16, quarter-finals and semi-finals 2025/26 including date, time, TV channel and online live stream](https://www.101greatgoals.com/football/conference-league/when-is-conference-league-draw-round-16-quarter-finals-semi-finals-2025-26/) - **101 Great Goals**
+4. [When is the Champions League draw? Full details for round of 16, quarter-finals and semi-finals 2025/26 including date, time, TV channel and online live stream](https://www.101greatgoals.com/football/champions-league/when-is-champions-league-draw-round-of-16-quarter-finals-semi-finals-2025-26/) - **101 Great Goals**
+5. [2026 College Basketball, EPL, MLB Odds: Chris ‘The Bear’ Fallica’s Best Bets](https://www.foxsports.com/stories/college-basketball/chris-the-bear-fallica-best-bets) - **Fox Sports**
+6. [Man City star at risk of being suspended for Arsenal game](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6cb7c672-7391-43b9-98ff-2f0c11a8cc76) - **Yahoo Entertainment**
+7. [How to watch PSG vs Monaco: Free Streams, TV Channels & Preview for Champions League 2nd Leg](https://www.techradar.com/how-to-watch/football/psg-vs-monaco-champions-league-2nd-leg-free) - **TechRadar**
+8. [Deeney names Van Dijk in Premier League team of the week after Forest display](https://www.empireofthekop.com/2026/02/25/deeney-names-van-dijk-in-premier-league-team-of-the-week-after-forest-display/) - **Empire of The Kop**
+9. [Real Madrid vs Benfica Free Streams: How to watch Champions League 2025/26 2nd leg from anywhere in the world](https://www.techradar.com/how-to-watch/football/real-madrid-vs-benfica-free-champions-league-2025-26-2nd-leg) - **TechRadar**
+10. [Julian Alvarez may not be the only target as Barcelona reportedly chase Manchester City star for the 2026-27 season](https://worldsoccertalk.com/news/julian-alvarez-may-not-be-the-only-target-as-hansi-flicks-barcelona-reportedly-chase-manchester-city-star-for-2026-27/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-02-27 01:36:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-27 02:43:53 (KST) / (하루 100회 제한 준수 중)*
