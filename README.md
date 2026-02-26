@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Wednesday’s Everton News: Alcaraz injury update, Tarkowski recognized](https://royalbluemersey.sbnation.com/everton-news/78280/alcaraz-injury-update-tarkowski-recognized) - **SB Nation**
-2. [10 years ago today: Rashford's legendary debut](https://www.bbc.com/sport/football/articles/cm2j2zejgvlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Will Spurs have enough to survive?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_54093f70-de73-4f50-8926-219d71bfc9e3) - **Yahoo Entertainment**
-4. [SWPL post-split fixtures revealed amid tense title race!](https://www.skysports.com/football/news/37370/13511458/scottish-womens-premier-league-post-split-fixtures-revealed-as-glasgow-city-rangers-celtic-hearts-hibs-battle-for-the-title) - **Sky Sports**
-5. [Jamie O’Hara admits Arsenal were too good for Tottenham](https://www.justarsenal.com/jamie-ohara-admits-arsenal-were-too-good-for-tottenham/410734) - **Just Arsenal News**
-6. [Report: Midfield Return Talk Played Down by Manchester United](https://eplindex.com/143244/report-midfield-return-talk-played-down-by-manchester-united.html) - **English Premier League Index - Opta Stats**
-7. [Juventus vs Galatasaray – Predicted lineup and team news](https://thefootballfaithful.com/juventus-vs-galatasaray-predicted-lineup-and-team-news/) - **The Football Faithful**
-8. [PSG vs Monaco – Predicted lineup and team news](https://thefootballfaithful.com/psg-vs-monaco-predicted-lineup-and-team-news/) - **The Football Faithful**
-9. [Agent opens up on Felix Nmecha's future amid links to Manchester clubs, Chelsea and Tottenham](https://bulinews.com/agent-opens-felix-nmecha-future-amid-links-manchester-clubs-chelsea-and-tottenham) - **Bulinews.com**
-10. [ Are Leeds becoming a 'destination' club?](https://www.bbc.com/sport/football/articles/cx2g9y2zyw1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Arsenal face growing competition for Sporting defender](https://www.justarsenal.com/arsenal-face-growing-competition-for-sporting-defender/410743) - **Just Arsenal News**
+2. [Meet the manager whisperer: Confidant to the top coaches](https://www.skysports.com/football/news/11095/13505772/ray-power-on-life-as-a-coach-confidant-being-a-sounding-board-to-elite-football-managers-and-what-he-has-learned-from-it) - **Sky Sports**
+3. [The Price of Being Black and Proud in European Soccer](https://www.thenation.com/article/society/vinicius-jr-gianluca-restianni-racism-european-soccer/) - **Thenation.com**
+4. [Transfer rumour roundup: Manchester United return for McTominay? Juventus eye Alisson](https://www.footballmuse.com/features/transfer-rumour-roundup-manchester-united-return-for-mctominay-juventus-eye-alisson) - **Footballmuse.com**
+5. [Report: Arsenal ready to pay £45m to complete summer signing](https://eplindex.com/143246/report-arsenal-ready-to-pay-45m-to-complete-summer-signing.html) - **English Premier League Index - Opta Stats**
+6. [Liverpool star named the greatest in Premier League history by former player](https://anfieldindex.com/91567/liverpool-star-named-the-greatest-in-premier-league-history-by-former-player.html) - **Anfieldindex.com**
+7. [Borussia Dortmund XI vs Atalanta – Predicted lineup and team news](https://thefootballfaithful.com/borussia-dortmund-xi-vs-atalanta-predicted-lineup-and-team-news/) - **The Football Faithful**
+8. [Nottingham Forest vs Fenerbahce: Match preview, predicted line-ups, team news and prediction](https://footballtoday.com/2026/02/25/nottingham-forest-vs-fenerbahce-match-preview-predicted-line-ups-team-news-and-prediction/) - **Footballtoday.com**
+9. [Ticket Sales Marketing Intern - Premier Lacrosse League](https://www.jumpinsport.com/ticket-sales-marketing-intern-premier-lacrosse-league-218515) - **Jumpinsport.com**
 
 
 ---
-*최근 업데이트: 2026-02-26 18:08:08 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-26 19:09:46 (KST) / (하루 100회 제한 준수 중)*
