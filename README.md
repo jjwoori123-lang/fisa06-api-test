@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United post operating profit but debt approaches £1.3billion](https://www.independent.ie/sport/soccer/premier-league/manchester-united-post-operating-profit-but-debt-approaches-13billion/a190818661.html) - **Independent.ie**
-2. [When is the Europa League draw? Full details for round of 16, quarter-finals and semi-finals 2025/26 including date, time, TV channel and online live stream](https://www.101greatgoals.com/football/europa-league/when-is-europa-league-draw-round-of-16-quarter-finals-semi-finals-2025-26/) - **101 Great Goals**
-3. [When is the Conference League draw? Full details for round of 16, quarter-finals and semi-finals 2025/26 including date, time, TV channel and online live stream](https://www.101greatgoals.com/football/conference-league/when-is-conference-league-draw-round-16-quarter-finals-semi-finals-2025-26/) - **101 Great Goals**
-4. [When is the Champions League draw? Full details for round of 16, quarter-finals and semi-finals 2025/26 including date, time, TV channel and online live stream](https://www.101greatgoals.com/football/champions-league/when-is-champions-league-draw-round-of-16-quarter-finals-semi-finals-2025-26/) - **101 Great Goals**
-5. [2026 College Basketball, EPL, MLB Odds: Chris ‘The Bear’ Fallica’s Best Bets](https://www.foxsports.com/stories/college-basketball/chris-the-bear-fallica-best-bets) - **Fox Sports**
-6. [Man City star at risk of being suspended for Arsenal game](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6cb7c672-7391-43b9-98ff-2f0c11a8cc76) - **Yahoo Entertainment**
-7. [How to watch PSG vs Monaco: Free Streams, TV Channels & Preview for Champions League 2nd Leg](https://www.techradar.com/how-to-watch/football/psg-vs-monaco-champions-league-2nd-leg-free) - **TechRadar**
-8. [Deeney names Van Dijk in Premier League team of the week after Forest display](https://www.empireofthekop.com/2026/02/25/deeney-names-van-dijk-in-premier-league-team-of-the-week-after-forest-display/) - **Empire of The Kop**
-9. [Real Madrid vs Benfica Free Streams: How to watch Champions League 2025/26 2nd leg from anywhere in the world](https://www.techradar.com/how-to-watch/football/real-madrid-vs-benfica-free-champions-league-2025-26-2nd-leg) - **TechRadar**
-10. [Julian Alvarez may not be the only target as Barcelona reportedly chase Manchester City star for the 2026-27 season](https://worldsoccertalk.com/news/julian-alvarez-may-not-be-the-only-target-as-hansi-flicks-barcelona-reportedly-chase-manchester-city-star-for-2026-27/) - **Worldsoccertalk.com**
+1. [Before UIL integration, the all-Black PVIL housed top Texas high school football stars](https://www.statesman.com/sports/high-school/football/article/pvil-black-history-month-uil-ed-roby-21367599.php) - **Austin American-Statesman**
+2. [Rumour Mongering: Andy Robertson Targeted by Palace and Aston Villa](https://liverpooloffside.sbnation.com/liverpool-fc-transfer-news/78879/rumour-mongering-andy-robertson-targeted-by-palace-and-aston-villa) - **SB Nation**
+3. [ Calvert-Lewin and Justin talk all things Leeds](https://www.bbc.com/sport/football/articles/cj98z37kjx8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Lamine Yamal’s Barcelona reportedly receive major Serie A transfer update amid contract renewal rumors](https://worldsoccertalk.com/news/lamine-yamals-barcelona-reportedly-receive-major-serie-a-transfer-update-amid-contract-renewal-rumors/) - **Worldsoccertalk.com**
+5. [Real Madrid 27-year-old star not ruling out summer departure – report](https://madriduniversal.com/real-madrid-27-year-old-star-not-ruling-out-summer-departure-report/) - **Madriduniversal.com**
+6. [Snoop Dogg’s next episode: Rapper attends first Swansea game after Winter Olympics trip](https://www.bostonherald.com/2026/02/25/swansea-snoop-dogg/) - **Boston Herald**
+7. [Bruno Fernandes: Bournemouth’s Tyler Adams explains why United star is unstoppable](https://thepeoplesperson.com/2026/02/25/bruno-fernandes-bournemouths-tyler-adams-explains-why-united-star-is-unstoppable-307024/) - **The Peoples Person**
+8. [Journalist: Liverpool enter transfer race for 18-year-old Ajax wonderkid](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ab9faf65-4457-42dd-a930-c1f457c4cc71) - **Yahoo Entertainment**
+9. [Braintree bring in Fulham midfielder on loan](https://www.bbc.com/sport/football/articles/c7430w99gzvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Manchester United post operating profit but debt approaches £1.3billion](https://www.independent.ie/sport/soccer/premier-league/manchester-united-post-operating-profit-but-debt-approaches-13billion/a190818661.html) - **Independent.ie**
 
 
 ---
-*최근 업데이트: 2026-02-27 02:43:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-27 03:57:23 (KST) / (하루 100회 제한 준수 중)*
