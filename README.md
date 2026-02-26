@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Dortmund demand €70m for Man United and Chelsea target](https://thefootballfaithful.com/dortmund-demand-e70m-for-man-united-and-chelsea-target/) - **The Football Faithful**
-2. [Liverpool star told to stop blaming Arne Slot for poor performances](https://anfieldindex.com/91569/liverpool-star-told-to-stop-blaming-arne-slot-for-poor-performances.html) - **Anfieldindex.com**
-3. [Manchester United and Manchester City prepare battle for Forest duo](https://thefootballfaithful.com/manchester-united-and-manchester-city-prepare-battle-for-forest-duo/) - **The Football Faithful**
-4. [Burkina Faso: Rahimo FC remain unbeaten after 20 rounds of Faso Foot top league](https://foot-africa.com/en/news/burkina-faso-rahimo-fc-remain-unbeaten-after-20-rounds-of-faso-foot-top-league-1100858/) - **Foot-africa.com**
-5. [Ferguson inspiring Hearts' bid for Scottish title history](https://sports.yahoo.com/articles/ferguson-inspiring-hearts-bid-scottish-115049158.html) - **Yahoo Entertainment**
-6. ['We lost focus and took our foot of the gas' but 'great Alex Murphy debut'](https://www.bbc.com/sport/football/articles/c8r1vj4vpm7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Chelsea and West Ham fined heavily for mass brawl at end of London derby](https://www.channelnewsasia.com/sport/chelsea-and-west-ham-fined-heavily-mass-brawl-end-london-derby-5952451) - **CNA**
-8. [Snoop Dogg's Swansea party showcases Championship glow-up](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1234df7b-d676-42e3-97cd-87b2ea0f73f9) - **Yahoo Entertainment**
-9. [Bryan Mbeumo singles out Joshua Zirkzee as Man United’s biggest shock package](https://thepeoplesperson.com/2026/02/25/bryan-mbeumo-singles-out-joshua-zirkzee-as-man-uniteds-biggest-shock-package-307006/) - **The Peoples Person**
-10. ['No stomach for a relegation fight' - fiery O'Hara analyses Spurs' plight](https://www.skysports.com/football/news/11095/13511964/tottenham-relegation-battle-ex-spurs-midfielder-jamie-ohara-believes-squad-haven-t-got-the-stomach-for-a-fight) - **Sky Sports**
+1. [Man Utd financial results show profit increase after job cuts](https://sports.yahoo.com/articles/man-utd-financial-results-show-132101742.html) - **Yahoo Entertainment**
+2. [Man United chief hails transformation amid profit rise](https://www.rte.ie/sport/soccer/2026/0225/1560372-man-united-chief-hails-transformation-amid-profit-rise/) - **RTE**
+3. [Adam Wharton: Real Madrid decision leaves Man United scrambling](https://thepeoplesperson.com/2026/02/25/adam-wharton-real-madrid-decision-leaves-man-united-scrambling-307008/) - **The Peoples Person**
+4. [Besiktas and Galatasaray monitoring Bayern defender](https://bulinews.com/besiktas-and-galatasaray-monitoring-bayern-defender) - **Bulinews.com**
+5. [What this Chelsea leader did to inspire injured young player now flying in League One](https://chelsea.news/2026/02/chelsea-leader-inspire-young-player/) - **Chelsea.news**
+6. [Bathroom tips to fix the Vastu of the house](https://timesofindia.indiatimes.com/astrology/vastu-feng-shui/bathroom-tips-to-fix-the-vastu-of-the-house/articleshow/128419131.cms) - **The Times of India**
+7. [Sheffield United vs Coventry – Predicted lineup and team news](https://thefootballfaithful.com/sheffield-united-vs-coventry-predicted-lineup-and-team-news/) - **The Football Faithful**
+8. [Coventry XI vs Sheffield United – Predicted lineup and team news](https://thefootballfaithful.com/coventry-xi-vs-sheffield-united-predicted-lineup-and-team-news/) - **The Football Faithful**
+9. [Man Utd seeing 'positive impact' of redundancies and cost cutting, says Berrada](https://www.skysports.com/football/news/33694/13512009/man-utd-financial-results-omar-berrada-believes-club-seeing-benefits-of-redundancy-programme-as-profits-rise-despite-fall-in-revenues) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-02-26 20:57:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-26 22:26:33 (KST) / (하루 100회 제한 준수 중)*
