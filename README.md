@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Match preview: United v Crystal Palace](https://www.manutd.com/en/news/detail/how-to-watch-and-follow-man-utd-v-crystal-palace-1-march-2026) - **Manchester United**
-2. [Journalist reveals worries over Liverpool’s potential move for Premier League midfielder](https://anfieldindex.com/91597/media-matters-worry-liverpool-will-go-for-wharton-whereas-physicality-is-needed.html) - **Anfieldindex.com**
-3. [Report: Newcastle United to stand firm over the future of star player](https://eplindex.com/143295/report-newcastle-united-to-stand-firm-over-the-future-of-star-player.html) - **English Premier League Index - Opta Stats**
-4. [Former Chelsea star praises Rosenior for being ‘true to himself’ under ‘intense pressure’](https://hayters.com/the-pressure-is-intense-at-chelsea-ex-chelsea-player-on-roseniors-start/) - **Hayters.com**
-5. [One moment in time: Howey and Wiekens stun Leeds in 2000](https://www.mancity.com/news/mens/leeds-2000-one-moment-in-time-63907699) - **Manchester City FC**
-6. [Premier League TV revenue as much as European combined](https://www.rte.ie/sport/soccer/2026/0226/1560552-premier-league-tv-revenue-as-much-as-european-combined/) - **RTE**
-7. [Episode 865 - Statements (Tim Stillman)](https://shows.acast.com/arseblog/episodes/episode-865-statements-tim-stillman) - **Acast.com**
-8. [Marc Cucurella has to share the award for “biggest joker”; Chalobah given surprising striker nod](https://chelsea.news/2026/02/cucurella-chalobah-biggest-joker-nod/) - **Chelsea.news**
-9. [Stream our under-21s clash with Ipswich on Friday](http://www.arsenal.com/news/stream-our-under-21s-clash-ipswich-friday) - **Arsenal.com**
-10. [Are corners killing football?](https://theweek.com/sports/corners-football-arsenal-set-pieces) - **The Week Magazine**
+1. [FPL Focus: Eze and Gyokeres the derby destroyers](http://www.arsenal.com/news/fpl-focus-eze-and-gyokeres-derby-destroyers) - **Arsenal.com**
+2. [Guardiola can often get away with saying anything… but now…](https://untold-arsenal.com/archives/119637) - **Untold-arsenal.com**
+3. [Vitor Pereira comments on Man United links with Elliot Anderson and Morgan Gibbs-White](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4c4034ee-f10a-4e08-85e1-a432e748b907) - **Yahoo Entertainment**
+4. [Premier League news conferences: Tudor, Farke & Nuno address relegation fears](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_933b3d35-762c-44cb-9c32-98af50cbc15c) - **Yahoo Entertainment**
+5. [A 'normal guy' doing 'brilliant' things - Lammens on life at Man Utd](https://www.bbc.com/sport/football/articles/cx2l01g40ygo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Arsenal star delivers clear verdict on title race pressure](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7fe70a13-5610-4fa3-b457-176b2b3b14ff) - **Yahoo Entertainment**
+7. [VAR audio emerges after Chelsea vs Leeds handball controversy](https://www.hitc.com/var-audio-emerges-after-chelsea-vs-leeds-handball-controversy/) - **HITC - Football, Gaming, Movies, TV, Music**
+8. [A 'normal guy' doing 'brilliant' things - Lammens on life at Man Utd](https://www.bbc.com/sport/football/articles/cx2l01g40ygo) - **BBC News**
+9. [Why Arsenal is increasing its ticket price for next season](https://www.justarsenal.com/why-arsenal-is-increasing-its-ticket-price-for-next-season/410808) - **Just Arsenal News**
+10. [Match preview: United v Crystal Palace](https://www.manutd.com/en/news/detail/how-to-watch-and-follow-man-utd-v-crystal-palace-1-march-2026) - **Manchester United**
 
 
 ---
-*최근 업데이트: 2026-02-27 20:59:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-27 22:19:31 (KST) / (하루 100회 제한 준수 중)*
