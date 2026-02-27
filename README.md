@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Keith Andrews signs six-year deal to remain at Brentford](https://www.irishtimes.com/sport/soccer/2026/02/26/keith-andrews-signs-six-year-deal-to-remain-at-brentford/) - **The Irish Times**
-2. [Journalist: Liverpool hold ‘concrete interest’ in move for Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4bdea7c2-8c81-4cda-aa98-32adeceacf27) - **Yahoo Entertainment**
-3. [Liverpool vs West Ham United: Match Preview, Latest Team News and Score Prediction](https://eplindex.com/143314/liverpool-vs-west-ham-united-match-preview-latest-team-news-and-score-prediction.html) - **English Premier League Index - Opta Stats**
-4. [Crystal Palace v Zrinjski Mostar: Confirmed line-ups for Conference League clash](https://www.101greatgoals.com/football/conference-league/crystal-palace-zrinjski-mostar-team-news/) - **101 Great Goals**
-5. [Premier League to launch its own streaming platform in Singapore next season](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_839cf2a3-3a91-41d7-a9d6-fdd4dcf7869a) - **Yahoo Entertainment**
-6. [Premier League to launch its own streaming platform in Singapore next season](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1423ac23-dfe7-464f-b827-09a70b2510de) - **Yahoo Entertainment**
-7. [Sky: Juventus eyeing Wolves midfielder as Douglas Luiz replacement](https://www.juvefc.com/juventus-wolves-andre-douglas-luiz-aston-villa/) - **JuveFC**
-8. [Despite Manchester City’s four PL championships, Mikel Arteta has outshined Pep Guardiola since 2019](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d28996f1-5699-4268-9ffa-cb5f5cf681aa) - **Yahoo Entertainment**
-9. [How Rosenior's 'son' Sarr joined Chelsea after 'emotional' Afcon](https://www.bbc.com/sport/football/articles/cx2jqqvyv5jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Bears 2026 offseason preview: Where Chicago stands at wide receiver](https://bearswire.usatoday.com/story/sports/nfl/bears/2026/02/26/bears-2026-offseason-preview-receiver-dj-moore/88876585007/) - **USA Today**
+2. [Gordon To Lead The Line | 4-3-3 Newcastle United Predicted Lineup Vs Everton](https://the4thofficial.net/2026/02/gordon-to-lead-the-line-4-3-3-newcastle-united-predicted-lineup-vs-everton/) - **The4thofficial.net**
+3. [Liverpool line-up transfer for generational midfielder](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-line-up-transfer-for-generational-midfielder/) - **Anfieldwatch.co.uk**
+4. [Premier League Darts: Clayton beats Littler in Belfast opener](https://www.bbc.com/sport/darts/live/c07xmjkrvret?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Managing Madrid Podcast: Is Vinicius Back To His Best? Was Franco Worth It? Who Is The GOAT? MAILBAG!](https://www.managingmadrid.com/managing-madrid-podcast/104529/managing-madrid-podcast-is-vinicius-back-to-his-best-was-franco-worth-it-who-is-the-goat-mailbag) - **Managing Madrid**
+6. [Singapore to have Premier League streaming service](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e70cb066-63da-4fa0-95ca-abe696b54eda) - **Yahoo Entertainment**
+7. [Singapore to have Premier League streaming service](https://www.bbc.com/sport/football/articles/cdr261r3mnpo) - **BBC News**
+8. [Liverpool receive major injury boost ahead of West Ham United clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7b63c4c7-dc5d-4f2d-813c-cf8f70bc0b34) - **Yahoo Entertainment**
+9. [Will Farke Make Any Changes? | 5-4-1 Leeds United Predicted Lineup Vs Manchester City](https://the4thofficial.net/2026/02/will-farke-make-any-changes-5-4-1-leeds-united-predicted-lineup-vs-manchester-city/) - **The4thofficial.net**
+10. [Gyokeres closes in on Arteta player record](https://dailycannon.com/2026/02/gyokeres-arteta-scoring-record/) - **Dailycannon.com**
 
 
 ---
-*최근 업데이트: 2026-02-28 04:04:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-28 04:49:46 (KST) / (하루 100회 제한 준수 중)*
