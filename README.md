@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Contact made: Liverpool in the mix to sign Ekitike’s former teammate who ‘brings a lot of energy’](https://www.empireofthekop.com/2026/02/26/contact-made-liverpool-in-the-mix-to-sign-nnamdi-collins/) - **Empire of The Kop**
-2. [When is the Champions League draw? Draw date, details, and potential ties](https://www.footballmuse.com/features/when-is-the-champions-league-draw-draw-date-details-and-potential-ties) - **Footballmuse.com**
-3. [Flick sees Inigo Martinez’s traits in Premier League defender who is high on priority list](https://barcauniversal.com/flick-sees-inigo-martinezs-traits-in-premier-league-defender-who-is-high-on-priority-list/) - **Barcauniversal.com**
-4. [Does age really make a difference to discipline?](https://www.bbc.com/sport/football/articles/c0j598d0pg8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Vitor Pereira holds transfer belief around Morgan Gibbs-White amid Manchester City talk](https://cityxtra.co.uk/42111/vitor-pereira-holds-transfer-belief-around-morgan-gibbs-white-amid-manchester-city-talk/) - **Cityxtra.co.uk**
-6. ['You have to stay switched on every day'](https://www.bbc.com/sport/football/articles/cz0g89xyle4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Thursday’s Everton News: Garner reflects, golden Graham, PSR safety](https://royalbluemersey.sbnation.com/everton-news/78291/garner-reflects-golden-graham-psr-safety) - **SB Nation**
-8. [Didi Hamann would slightly favor Bayern Munich in rematch with Arsenal](https://www.bavarianfootballworks.com/bayern-munich-champions-league/171813/didi-hamann-would-slightly-favor-bayern-munich-in-rematch-with-arsenal) - **Bavarian Football Works**
-9. [Remembering Richards 15 years after his death](https://www.bbc.com/sport/football/articles/c98jw38jj0zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [“Every time we ask” – Matt Law reveals how Chelsea feel about issue driving him “insane”](https://chelsea.news/2026/02/matt-law-chelsea-discpline-problem/) - **Chelsea.news**
+1. [Champions League: Who we could play in knockouts](http://www.arsenal.com/news/champions-league-who-we-could-play-knockouts) - **Arsenal.com**
+2. [FAI boss explains decision to play Israel game in Dublin](https://www.irishtimes.com/sport/2026/02/26/fai-boss-explains-decision-to-play-israel-game-in-dublin-andy-farrell-builds-ireland-depth-with-world-cup-in-mind/) - **The Irish Times**
+3. [Joao Pedro thriving as Chelsea's No 9](https://www.skysports.com/football/news/11095/13512372/joao-pedro-impressing-under-liam-rosenior-and-evolving-into-the-striker-chelsea-need-the-radar) - **Sky Sports**
+4. [Can Villa hold off the chasing pack?](https://www.bbc.com/sport/football/articles/c4g4q5v7026o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Chelsea and West Ham sanctioned by FA over mass brawl in January clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7781fb9d-2d1a-4e17-afb0-aa1ac59fb100) - **Yahoo Entertainment**
+6. [Not just Allan: Liverpool want deal for another Brazilian wonderkid](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-want-deal-for-gabriel-mec-brazilian-wonderkid-gremio/) - **Anfieldwatch.co.uk**
+7. [Pick Ekitike, Sesko and Van Dijk - FPL team of the week](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_347c2208-49b5-4773-ba65-2c66c33ed18f) - **Yahoo Entertainment**
+8. [Pick Ekitike, Sesko and Van Dijk - FPL team of the week](https://www.bbc.com/sport/football/articles/cpw0y9x17n0o) - **BBC News**
+9. [Chelsea gets a fitness boost ahead of their game against Arsenal](https://www.justarsenal.com/chelsea-gets-a-fitness-boost-ahead-of-their-game-against-arsenal/410795) - **Just Arsenal News**
+10. [Transfer rumour roundup: Chelsea plot sensational Ronaldo swoop as Real Madrid eye Premier League duo](https://www.footballmuse.com/features/transfer-rumour-roundup-chelsea-plot-sensational-ronaldo-swoop-as-real-madrid-eye-premier-league-duo) - **Footballmuse.com**
 
 
 ---
-*최근 업데이트: 2026-02-27 17:47:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-27 18:46:40 (KST) / (하루 100회 제한 준수 중)*
