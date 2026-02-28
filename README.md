@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle eyeing Verbruggen as Trafford alternative](https://sportsview.co.uk/2026/02/newcastle-eyeing-verbruggen-as-trafford-alternative?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-eyeing-verbruggen-as-trafford-alternative) - **Sportsview.co.uk**
-2. [Real Madrid tracking Kees Smit ahead of summer transfer, Premier League giants also keen](https://footballtoday.com/2026/02/27/real-madrid-tracking-kees-smit-ahead-of-summer-transfer-premier-league-giants-also-in-the-race/) - **Footballtoday.com**
-3. [Aston Villa predicted XI vs Wolves: Villans eye derby statement at Molineux](https://sportsview.co.uk/2026/02/aston-villa-predicted-xi-vs-wolves-villans-eye-derby-statement-at-molineux?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=aston-villa-predicted-xi-vs-wolves-villans-eye-derby-statement-at-molineux) - **Sportsview.co.uk**
-4. [Wolves vs Aston Villa – Predicted lineup and team news](https://thefootballfaithful.com/wolves-vs-aston-villa-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-5. [Wolves vs Aston Villa – Match preview and team news](https://thefootballfaithful.com/wolves-vs-aston-villa-match-preview-and-team-news/) - **The Football Faithful**
-6. [EPL GW28: Team news, injury updates, live chat and score prediction](https://www.nevermanagealone.com/playerpicks/15587/epl-gw28-team-news-injury-updates-live-chat-and-score-prediction) - **Nevermanagealone.com**
-7. [Extraordinary lengths Benjamin Sesko went to to deliver Everton masterclass revealed](https://thepeoplesperson.com/2026/02/27/extraordinary-lengths-benjamin-sesko-went-to-to-deliver-everton-masterclass-revealed-307083/) - **The Peoples Person**
-8. [U21s preview: Arsenal v Ipswich Town](http://www.arsenal.com/news/u21s-preview-arsenal-v-ipswich-town) - **Arsenal.com**
-9. [In-form Bohemians out to finally make home advantage count in Dublin derby](https://www.irishtimes.com/sport/soccer/2026/02/27/in-form-bohemians-out-to-finally-make-home-advantage-count-in-dublin-derby/) - **The Irish Times**
-10. [Why Ireland’s absence of ski slopes is no barrier to success at the Winter Olympics](https://www.irishtimes.com/sport/2026/02/27/why-irelands-absence-of-ski-slopes-is-no-barrier-to-success-at-the-winter-olympics/) - **The Irish Times**
+1. [Stephen Bunting triumphs but Josh Rock nine-darter steals show in Belfast after Luke Littler suffers another setback](https://www.independent.ie/sport/other-sports/stephen-bunting-triumphs-but-josh-rock-nine-darter-steals-show-in-belfast-after-luke-littler-suffers-another-setback/a790444575.html) - **Independent.ie**
+2. [At Wolves, finding a third word and match facts from the BBC](https://www.thevillablog.co.uk/aston-villa-blog/avfc-opinion/at-wolves-finding-a-third-word-and-match-facts-from-the-bbc) - **Thevillablog.co.uk**
+3. [Today in Germany: A roundup of the latest news on Friday](https://www.thelocal.de/20260227/today-in-germany-a-roundup-of-the-latest-news-on-friday-114) - **The Local Germany**
+4. [Manchester City could make a move for Real Madrid megastar if Guardiola departs – report](https://madriduniversal.com/manchester-city-could-make-a-move-for-real-madrid-megastar-if-guardiola-departs-report/) - **Madriduniversal.com**
+5. [Wolves predicted XI vs Aston Villa: Old Gold seek derby spark under Molineux lights](https://sportsview.co.uk/2026/02/wolves-predicted-xi-vs-aston-villa-old-gold-seek-derby-spark-under-molineux-lights?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=wolves-predicted-xi-vs-aston-villa-old-gold-seek-derby-spark-under-molineux-lights) - **Sportsview.co.uk**
+6. [The story of Rashford's dream debut doubles 10 years on](https://www.skysports.com/football/news/11095/13511999/marcus-rashfords-man-utd-debut-the-making-of-the-now-on-loan-barcelona-stars-dream-start-at-old-trafford-10-years-on) - **Sky Sports**
+7. [Newcastle eyeing Verbruggen as Trafford alternative](https://sportsview.co.uk/2026/02/newcastle-eyeing-verbruggen-as-trafford-alternative?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-eyeing-verbruggen-as-trafford-alternative) - **Sportsview.co.uk**
+8. [Aston Villa predicted XI vs Wolves: Villans eye derby statement at Molineux](https://sportsview.co.uk/2026/02/aston-villa-predicted-xi-vs-wolves-villans-eye-derby-statement-at-molineux?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=aston-villa-predicted-xi-vs-wolves-villans-eye-derby-statement-at-molineux) - **Sportsview.co.uk**
 
 
 ---
-*최근 업데이트: 2026-02-28 15:43:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-28 16:29:57 (KST) / (하루 100회 제한 준수 중)*
