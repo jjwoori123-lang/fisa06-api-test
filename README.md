@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Coming Months Key To Inter Milan & Netherland Star’s Future Amid Liverpool Interest & Contract Dispute](https://sempreinter.com/2026/02/27/inter-decisive-months-dumfries-liverpool/) - **SempreInter**
-2. [Conference League draw: Crystal Palace to face Cypriot side AEK Larnaca while Fiorentina get Rakow](https://www.101greatgoals.com/football/conference-league/conference-league-draw-crystal-palace-to-face-cypriot-side-aek-larnaca-while-fiorentina-get-rakow/) - **101 Great Goals**
-3. [Arne Slot rules Florian Wirtz out of West Ham game; no timeframe for return](https://footballtoday.com/2026/02/27/arne-slot-rules-florian-wirtz-out-of-west-ham-game-no-timeframe-for-return/) - **Footballtoday.com**
-4. [Paramount to Acquire Warner Bros. Discovery to Form Next-Generation Global Media and Entertainment Company](http://www.thefutoncritic.com/news/2026/02/27/paramount-to-acquire-warner-bros-discovery-to-form-next-generation-global-media-and-entertainment-company-565512/20260227psky01/) - **Thefutoncritic.com**
-5. [Christian Norgaard is looking to leave Arsenal in the summer, Ben White also looking for more regular first-team football](https://sportsview.co.uk/2026/02/christian-norgaard-is-looking-to-leave-arsenal-in-the-summer-ben-white-also-looking-for-more-regular-first-team-football?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=christian-norgaard-is-looking-to-leave-arsenal-in-the-summer-ben-white-also-looking-for-more-regular-first-team-football) - **Sportsview.co.uk**
-6. [Premier League dominance: 5 English clubs in UEFA’s top 10 wage spending rankings](https://foot-africa.com/en/news/premier-league-dominance-5-english-clubs-in-uefas-top-10-wage-spending-rankings-1103936/) - **Foot-africa.com**
-7. [Man City have learnt lessons from Real Madrid clashes: Guardiola](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_98c31a66-22f0-45f7-a5a1-affbf21062d0) - **Yahoo Entertainment**
-8. [Who is Michele Hundley Smith? The mother of three found after going missing for 24 years — why was she arrested?](https://timesofindia.indiatimes.com/etimes/trending/who-is-michele-hundley-smith-the-mother-of-three-found-after-going-missing-for-24-years-why-was-she-arrested/articleshow/128852486.cms) - **The Times of India**
-9. [Guardiola speaking after Man City draw Real Madrid in Champions League last-16](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2c4ae66a-7238-44af-a6c6-b1565c9690d8) - **Yahoo Entertainment**
-10. [UEFA Champions League / Galatasaray - Liverpool: who is the favorite?](https://foot-africa.com/en/news/uefa-champions-league-galatasaray-liverpool-who-is-the-favorite-1103906/) - **Foot-africa.com**
+1. [Newcastle vs Everton: Match Preview | Toffees may be glad to get back on the road](https://royalbluemersey.sbnation.com/everton-2025-26-season-premier-league-fixtures-hill-dickinson-moyes/78331/newcastle-vs-everton-match-preview-toffees-may-be-glad-to-get-back-on-the-road) - **SB Nation**
+2. [Report: Liverpool star ‘seriously considering’ shock exit](https://anfieldindex.com/91634/report-liverpool-star-seriously-considering-shock-exit.html) - **Anfieldindex.com**
+3. [Arsenal v Chelsea match preview and prediction](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e2d26f7a-e725-4428-b04b-93fcb3c58a1d) - **Yahoo Entertainment**
+4. [Atletico Madrid and Barcelona shortlist same Julian Alvarez alternative](https://www.football-espana.net/2026/02/27/atletico-madrid-and-barcelona-shortlist-same-julian-alvarez-alternative) - **Football Espana**
+5. [Premier League star urges Man Utd to appoint ‘trustworthy’ Michael Carrick as permanent manager, he ‘deserves’ it](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_51ebac02-b603-4d20-8cb4-66aea933d85a) - **Yahoo Entertainment**
+6. [UEFA Champions League / Newcastle - Barcelona: who is the favorite?](https://foot-africa.com/en/news/uefa-champions-league-newcastle-barcelona-who-is-the-favorite-1103957/) - **Foot-africa.com**
+7. [UEFA Champions League / Atlético de Madrid - Tottenham: who is the favorite?](https://foot-africa.com/en/news/uefa-champions-league-atletico-de-madrid-tottenham-who-is-the-favorite-1103975/) - **Foot-africa.com**
+8. [Every word of Michael Carrick’s Crystal Palace press conference](https://thepeoplesperson.com/2026/02/27/every-word-of-michael-carricks-crystal-palace-press-conference-307113/) - **The Peoples Person**
+9. [Few words, big meaning: Guardiola on the Bernabeu challenge](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5bb85b09-5b87-4694-8a60-6a8bed11f087) - **Yahoo Entertainment**
+10. [Man City players back with fresh minds and legs after three-day break, Guardiola says](https://www.channelnewsasia.com/sport/man-city-players-back-fresh-minds-and-legs-after-three-day-break-guardiola-says-5958901) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-02-28 22:38:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-28 22:57:35 (KST) / (하루 100회 제한 준수 중)*
