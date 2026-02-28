@@ -1,14 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Guardiola brushes off title race pressure talk](https://www.rte.ie/sport/soccer/2026/0227/1560814-pep-guardiola-brushes-off-title-race-pressure-talk/) - **RTE**
-2. [Tudor admits Spurs face a "life and death" situation](https://www.rte.ie/sport/soccer/2026/0227/1560738-tudor-admits-spurs-face-a-life-and-death-situation/) - **RTE**
-3. [Newcastle brace for season-defining March: Barcelona, both Manchester giants, Chelsea and derby drama await](https://www.footballmuse.com/news/newcastle-brace-for-season-defining-march-barcelona-both-manchester-giants-chelsea-and-derby-drama-await) - **Footballmuse.com**
-4. [Senne Lammens: United ace responds to Edwin van der Sar’s compliment](https://thepeoplesperson.com/2026/02/27/senne-lammens-united-ace-responds-to-edwin-van-der-sars-compliment-307100/) - **The Peoples Person**
-5. [Giorgi Mamardashvili weighing up Liverpool future as Alisson contract situation clarified](https://www.hitc.com/giorgi-mamardashvili-weighing-up-liverpool-future-as-alisson-contract-situation-clarified/) - **HITC - Football, Gaming, Movies, TV, Music**
-6. [Transfer market: Arsène Kouassi targeted by four clubs](https://foot-africa.com/en/news/transfer-market-arsene-kouassi-targeted-by-four-clubs-1104035/) - **Foot-africa.com**
-7. [Sesko form a real positive for Man United, says Carrick](https://www.channelnewsasia.com/sport/sesko-form-real-positive-man-united-says-carrick-5959046) - **CNA**
-8. [Boro's accounts reveal £11.4m loss last season](https://www.bbc.com/sport/football/articles/cj4z1wy25pvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Recent wins over Chelsea mean nothing, says Arteta](https://www.channelnewsasia.com/sport/recent-wins-over-chelsea-mean-nothing-says-arteta-5959136) - **CNA**
+2. [Champions League draw winners and losers: Arsenal get golden path, Man City and Real Madrid face off again](https://www.cbssports.com/soccer/news/champions-league-draw-winners-and-losers-arsenal-get-golden-path-man-city-and-real-madrid-face-off-again/) - **CBS Sports**
+3. [How do Man City's Muslim players adapt to Ramadan and what help do they get?](https://www.bbc.com/sport/football/articles/c20lzy1n59lo) - **BBC News**
+4. [How to buy tickets for Arsenal vs. Chelsea](https://football-italia.net/how-to-buy-tickets-for-arsenal-vs-chelsea/) - **Football Italia**
+5. [Chelsea primed for another Arsenal showdown, Rosenior says](https://www.channelnewsasia.com/sport/chelsea-primed-another-arsenal-showdown-rosenior-says-5959076) - **CNA**
+6. [How Palace prepared for Sunday's game](https://www.manutd.com/en/news/detail/how-crystal-palace-prepared-for-meeting-with-man-utd-v-zrinjski-mostar) - **Manchester United**
+7. [Guardiola brushes off title race pressure talk](https://www.rte.ie/sport/soccer/2026/0227/1560814-pep-guardiola-brushes-off-title-race-pressure-talk/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-02-28 23:53:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-01 00:26:51 (KST) / (하루 100회 제한 준수 중)*
