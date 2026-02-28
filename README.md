@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Crystal Palace 2-0 Zrinjski (3-1 agg): Palace's chaotic season takes another twist](https://www.bbc.com/sport/football/articles/ckgzyvq8z9ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Hall of Fame NFL quarterback bidding against Warriors owner for MLB’s Padres: report](https://www.thebiglead.com/hall-of-fame-nfl-quarterback-bidding-against-warriors-owner-for-mlbs-padres-report/) - **The Big Lead**
-3. [English Premier League to debut streaming service in Singapore: Report](https://www.channelnewsasia.com/sport/english-premier-league-singapore-debut-streaming-service-5956376) - **CNA**
-4. [The case of Casemiro](https://thebusbybabe.sbnation.com/general/34011/the-case-of-casemiro) - **SB Nation**
-5. [Rock raises roof with stunning Belfast nine-darter](https://www.rte.ie/sport/darts/2026/0226/1560692-rock-raises-roof-with-stunning-belfast-nine-darter/) - **RTE**
-6. [Which players should the Rams offer extensions to?](https://www.turfshowtimes.com/los-angeles-rams-free-agency/135588/rams-players-extension-priority-ranking) - **Turf Show Times**
-7. [Sacking Amorim could cost Man Utd nearly £16m](https://www.bbc.com/sport/football/articles/cpv812n1w7vo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Arsenal vs Chelsea: Premier League title and top-four race at stake at Emirates](https://foot-africa.com/en/news/arsenal-vs-chelsea-premier-league-title-and-top-four-race-at-stake-at-emirates-1103273/) - **Foot-africa.com**
-9. [What you need to know about Friday's Europa League and Conference League draws](https://www.skysports.com/football/news/11095/13512400/europa-league-and-conference-league-aston-villa-nottingham-forest-and-crystal-palace-to-learn-last-16-opponents-in-fridays-draw) - **Sky Sports**
+1. [Arsenal face Chelsea title test, troubled Spurs in spotlight](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f38e1724-799b-47f1-b563-cef273c45189) - **Yahoo Entertainment**
+2. [Americans Abroad Midweek Rewind: Richards, McKennie, and more](https://sbisoccer.com/2026/02/americans-abroad-midweek-rewind-richards-mckennie-and-more-3) - **Sbisoccer.com**
+3. [Premier League title race: City chasing Arsenal as they face Leeds at Elland Road](https://foot-africa.com/en/news/premier-league-title-race-city-chasing-arsenal-as-they-face-leeds-at-elland-road-1103321/) - **Foot-africa.com**
+4. [MLB News: Brees to Buy Padres?, Scherzer Back to Jays, Braves Revenue Soars](https://dodgersnation.com/mlb-news-brees-to-buy-padres-scherzer-back-to-jays-braves-revenue-soars/2026/02/26/) - **Dodgers Nation**
+5. [JJ Gabriel: Steve Holland cannot stop gushing over teen superstar](https://thepeoplesperson.com/2026/02/27/jj-gabriel-steve-holland-cannot-stop-gushing-over-teen-superstar-307081/) - **The Peoples Person**
+6. [Suns owner Mat Ishbia looks to restore star power to NBA All-Star Weekend with $1 million prizes](https://gophnx.com/suns-owner-mat-ishbia-looks-restore-power-nba-all-star/) - **Gophnx.com**
+7. [Joins forces with Depay: Brazilian football signs a new European star](https://onefootball.com/en/news/joins-forces-with-depay-brazilian-football-signs-a-new-european-star-42473708) - **Onefootball.com**
+8. [Vinicius Jr to Man City? Premier League giants monitor Real Madrid contract stand-off](https://foot-africa.com/en/news/vinicius-jr-to-man-city-premier-league-giants-monitor-real-madrid-contract-stand-off-1103309/) - **Foot-africa.com**
+9. [Forest clinch spot in Europa League last 16 as Celtic go out](https://japantoday.com/category/sports/forest-clinch-spot-in-europa-league-last-16-as-celtic-go-out1) - **Japan Today**
+10. [Sandro Tonali has no intention of a Serie A switch amid United’s interest](https://thepeoplesperson.com/2026/02/27/sandro-tonali-has-no-intention-of-a-serie-a-switch-amid-uniteds-interest-307079/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-02-28 08:54:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-28 11:08:28 (KST) / (하루 100회 제한 준수 중)*
