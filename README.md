@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['It is a BEAUTY!' | Gomes' opener STUNS Aston Villa](https://www.skysports.com/football/video/12606/13513151/goal-j-gomes-61-wolves-1-0-aston-villa) - **Sky Sports**
-2. [FC Barcelona, Manchester United reach agreement for permanent Rashford deal](https://thebusbybabe.sbnation.com/manchester-united-transfer-rumors-news/34048/fc-barcelona-manchester-united-reach-agreement-for-permanent-rashford-deal) - **SB Nation**
-3. [Opta’s data creates a new Champions League frontrunner](https://foot-africa.com/en/news/optas-data-creates-a-new-champions-league-frontrunner-1104458/) - **Foot-africa.com**
-4. [“That’s the difference between the clubs” – Daniel Farke issues response to Pep Guardiola’s daiquiris comment](https://cityxtra.co.uk/42160/thats-the-difference-between-the-clubs-daniel-farke-issues-response-to-pep-guardiolas-daiquiris-comment/) - **Cityxtra.co.uk**
-5. [Le Fee reveals why he left Roma for Sunderland: ‘I was sad because I wasn’t enjoying playing’](https://football-italia.net/la-fee-reveals-why-he-left-roma-for-sunderland/) - **Football Italia**
-6. [Premier League legend’s prediction for Chelsea – Arsenal is bleak for Blues fans](https://chelsea.news/2026/02/alan-shearer-prediction-arsenal-chelsea-blues/) - **Chelsea.news**
-7. [Aston Villa Keen On Signing Bundesliga Sensation In Three-Way Bid: Do Midlands Club’s Third-Place Chase Give Him The Perfect Platform?](https://the4thofficial.net/2026/02/aston-villa-keen-on-signing-bundesliga-sensation-in-three-way-bid-do-midlands-clubs-third-place-chase-give-him-the-perfect-platform/) - **The4thofficial.net**
-8. [U21s report: Arsenal 0-1 Ipswich Town](http://www.arsenal.com/fixture/under-21/2026-Feb-27/under-21-ipswich-town-u21-match-report) - **Arsenal.com**
-9. [Real Madrid faces Man City, PSG draws Chelsea in Champions League last 16](https://japantoday.com/category/sports/real-madrid-face-man-city-psg-draw-chelsea-in-champions-league-last-161) - **Japan Today**
-10. [Report: Newcastle Interested In Chelsea Young Star](https://eplindex.com/143351/report-newcastle-interested-in-chelsea-young-star.html) - **English Premier League Index - Opta Stats**
+1. [West Ham Star Linked With Move To Premier League Giants](https://eplindex.com/143353/west-ham-star-linked-with-move-to-premier-league-giants.html) - **English Premier League Index - Opta Stats**
+2. [Liverpool Are Trailing Arsenal In Pursuit Of This Newcastle United Winger: What Should Slot Do?](https://the4thofficial.net/2026/02/liverpool-are-trailing-arsenal-in-pursuit-of-this-newcastle-united-winger/) - **The4thofficial.net**
+3. [Rashford nears permanent move as Barcelona reportedly devise financial strategy to trigger Manchester United clause](https://worldsoccertalk.com/news/rashford-nears-permanent-move-as-barcelona-reportedly-devise-financial-strategy-to-trigger-manchester-united-clause/) - **Worldsoccertalk.com**
+4. [Wolves stun third-placed Villa to overhaul Derby points record](https://www.skysports.com/football/news/11661/13512495/wolves-2-0-aston-villa-joao-gomes-and-rodrigo-gomes-score-for-bottom-club-as-villa-succumb-to-derby-defeat) - **Sky Sports**
+5. [Adarabioyo And Hato To Start | 4-2-3-1 Chelsea Predicted Lineup Vs Arsenal](https://the4thofficial.net/2026/02/adarabioyo-and-hato-to-start-4-2-3-1-chelsea-predicted-lineup-vs-arsenal/) - **The4thofficial.net**
+6. [Why Altay Bayindir is desperate to leave Manchester United](https://thepeoplesperson.com/2026/02/27/why-altay-bayindir-is-desperate-to-leave-manchester-united-307142/) - **The Peoples Person**
+7. [Arsenal v Chelsea: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/premier-league-odds/arsenal-v-chelsea-line-ups-stats-preview-2/) - **101 Great Goals**
+8. [Man City & Man Utd set for Anderson battle - Saturday's gossip](https://www.bbc.com/sport/football/articles/c4gjkv8x3dyo) - **BBC News**
+9. [Man United vs Crystal Palace: Match Preview, Latest Team News and How to Watch](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e4350070-9297-4e43-879f-5f73f09d2254) - **Yahoo Entertainment**
+10. [Arne Slot confirms major injury blow ahead of Liverpool’s clash with West Ham United](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_dcd8e694-2f4d-49e2-9b32-3f218ac0e511) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-01 06:24:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-01 06:50:46 (KST) / (하루 100회 제한 준수 중)*
