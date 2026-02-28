@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Is This FC Barcelona’s Best Chance To Win The Champions League In Years?](https://www.forbes.com/sites/tomsanderson/2026/02/27/is-this-fc-barcelonas-best-chance-to-win-the-champions-league-in-years/) - **Forbes**
-2. [“I’m praying” – Bacary Sagna backing Arsenal to pip Manchester City to Premier League glory](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a1816d05-bf94-4b46-9b3d-bec6ff47241a) - **Yahoo Entertainment**
-3. [Newcastle United and 8Xbet agree regional partnership](https://www.newcastleunited.com/en/news/newcastle-united-and-8xbet-agree-regional-partnership) - **Newcastleunited.com**
-4. ['He's a tough guy' - Rosenior supports Fofana after online racist abuse](https://www.bbc.com/sport/football/videos/cj6dnxl35wko) - **BBC News**
-5. [Premier League: Semenyo, Mbeumo... Top 5 African goal scorers](https://foot-africa.com/en/news/premier-league-semenyo-mbeumo-top-5-african-goal-scorers-1104155/) - **Foot-africa.com**
-6. [Dates confirmed for Champions League round of 16](http://www.arsenal.com/news/dates-confirmed-champions-league-round-16) - **Arsenal.com**
-7. [Silva on Kevin injury, Jimenez contract and new manager bounce](https://www.bbc.com/sport/football/articles/cm2re6d7mzyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Arteta hails ‘incredible’ Arsenal star who is a ‘nightmare’ for teammates](https://thefootballfaithful.com/mikel-arteta-arsenal-viktor-gyokeres/) - **The Football Faithful**
-9. [Arteta wants more game-deciding moments from £67m Arsenal signing](https://thefootballfaithful.com/arteta-arsenal-eze-premier-league/) - **The Football Faithful**
-10. [5️⃣ spicy fixtures you must watch this weekend ](https://thefootballfaithful.com/5%ef%b8%8f%e2%83%a3-spicy-fixtures-you-must-watch-this-weekend-%f0%9f%8c%b6-46/) - **The Football Faithful**
+1. ['Laser-focused' - is lack of European football helping Man United?](https://www.bbc.com/sport/football/videos/cx2rnne0rp1o) - **BBC News**
+2. [Aaron Wan-Bissaka drops bombshell admission about his Man United spell](https://thepeoplesperson.com/2026/02/27/aaron-wan-bissaka-drops-bombshell-admission-about-his-man-united-spell-307112/) - **The Peoples Person**
+3. [Michael Carrick speaks out on Harry Maguire’s future and contract situation at Man Utd](https://www.hitc.com/michael-carrick-speaks-out-on-harry-maguires-future-and-contract-situation-at-man-utd/) - **HITC - Football, Gaming, Movies, TV, Music**
+4. [Paramount-Warner Deal: Experts Say Trump Factor Will Have Bearing On EU Antitrust Process](http://deadline.com/2026/02/paramount-warner-deal-donald-trump-eu-regulation-1236738452/) - **Deadline**
+5. [Fulham winger Kevin to miss several weeks with foot injury](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6e2700c1-1f74-4af7-b061-4ff11ecd8564) - **Yahoo Entertainment**
+6. [Leeds' Marathe stands down as Rangers vice-chair after Uefa talks](https://www.bbc.com/sport/football/articles/c8egyyxw1l1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Leeds' Marathe stands down as Rangers vice-chair after Uefa talks](https://www.bbc.com/sport/football/articles/c8egyyxw1l1o) - **BBC News**
+8. [Carrick: Martinez not out for too long](https://www.manutd.com/en/news/detail/michael-carrick-provides-mutv-update-on-lisandro-martinez-before-man-utd-v-crystal-palace) - **Manchester United**
+9. [James Milner: Jurgen Klopp told me to have a break when I retire – but then I’m running marathons](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0290652e-f195-478e-a66a-7e78c487fa45) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-01 01:54:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-01 02:23:50 (KST) / (하루 100회 제한 준수 중)*
