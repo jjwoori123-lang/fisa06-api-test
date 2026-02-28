@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool back in black after title win but squad rebuild saw wage bill go highest in Premier League before summer arrivals](https://www.independent.ie/sport/soccer/premier-league/liverpool-back-in-black-after-title-win-but-squad-rebuild-saw-wage-bill-go-highest-in-premier-league-before-summer-arrivals/a433212816.html) - **Independent.ie**
-2. [Pep Guardiola issues Jeremy Doku fitness update ahead of Leeds United trip](https://cityxtra.co.uk/42165/pep-guardiola-issues-jeremy-doku-fitness-update-ahead-of-leeds-united/) - **Cityxtra.co.uk**
-3. [Atlético Madrid to meet Tottenham Hotspur in Champions League last 16](https://www.intothecalderon.com/atletico-madrid-news/21913/atletico-madrid-tottenham-hotspur-champions-league-draw-la-liga-premier-league) - **Into The Calderon**
-4. [UEFA Champions League knockout phase schedule: Fixtures, dates, kick off times, full details](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_44fda414-75a0-4263-9574-7f300d4588d2) - **Yahoo Entertainment**
-5. [Can Hincapie play for Arsenal against parent club Bayer Leverkusen?](https://dailycannon.com/2026/02/hincapie-arsenal-leverkusen-eligibility/) - **Dailycannon.com**
-6. [Lille drawn to face Aston Villa in the Europa League RO16; Lyon get Celta Vigo](https://www.getfootballnewsfrance.com/2026/lille-drawn-to-face-aston-villa-in-the-europa-league-ro16-lyon-get-celta-vigo/) - **Get French Football News**
-7. [GHR Infra’s simple 'Building responsibly' philosophy that makes a difference](https://timesofindia.indiatimes.com/entertainment/events/ghr-infras-simple-building-responsibly-philosophy-that-makes-a-difference/articleshow/128850024.cms) - **The Times of India**
-8. [REET Mains 2026 answer keys released for Primary and Upper Primary Teachers: Direct link to download here](https://timesofindia.indiatimes.com/education/news/reet-mains-2026-answer-keys-released-for-primary-and-upper-primary-teachers-direct-link-to-download-here/articleshow/128850064.cms) - **The Times of India**
-9. [Champions League Draw: Real Madrid Run Into City Again](https://www.rediff.com/sports/report/real-madrid-face-man-city-again-in-champions-league-knockouts/20260227.htm) - **Rediff.com**
-10. [Europa League draw: Nottingham Forest get Midtjylland reunion while Aston Villa take on Lille](https://www.101greatgoals.com/football/europa-league/europa-league-draw-nottingham-forest-get-midtjylland-reunion-while-aston-villa-take-on-lille/) - **101 Great Goals**
+1. [Coming Months Key To Inter Milan & Netherland Star’s Future Amid Liverpool Interest & Contract Dispute](https://sempreinter.com/2026/02/27/inter-decisive-months-dumfries-liverpool/) - **SempreInter**
+2. [Conference League draw: Crystal Palace to face Cypriot side AEK Larnaca while Fiorentina get Rakow](https://www.101greatgoals.com/football/conference-league/conference-league-draw-crystal-palace-to-face-cypriot-side-aek-larnaca-while-fiorentina-get-rakow/) - **101 Great Goals**
+3. [Arne Slot rules Florian Wirtz out of West Ham game; no timeframe for return](https://footballtoday.com/2026/02/27/arne-slot-rules-florian-wirtz-out-of-west-ham-game-no-timeframe-for-return/) - **Footballtoday.com**
+4. [Paramount to Acquire Warner Bros. Discovery to Form Next-Generation Global Media and Entertainment Company](http://www.thefutoncritic.com/news/2026/02/27/paramount-to-acquire-warner-bros-discovery-to-form-next-generation-global-media-and-entertainment-company-565512/20260227psky01/) - **Thefutoncritic.com**
+5. [Christian Norgaard is looking to leave Arsenal in the summer, Ben White also looking for more regular first-team football](https://sportsview.co.uk/2026/02/christian-norgaard-is-looking-to-leave-arsenal-in-the-summer-ben-white-also-looking-for-more-regular-first-team-football?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=christian-norgaard-is-looking-to-leave-arsenal-in-the-summer-ben-white-also-looking-for-more-regular-first-team-football) - **Sportsview.co.uk**
+6. [Premier League dominance: 5 English clubs in UEFA’s top 10 wage spending rankings](https://foot-africa.com/en/news/premier-league-dominance-5-english-clubs-in-uefas-top-10-wage-spending-rankings-1103936/) - **Foot-africa.com**
+7. [Man City have learnt lessons from Real Madrid clashes: Guardiola](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_98c31a66-22f0-45f7-a5a1-affbf21062d0) - **Yahoo Entertainment**
+8. [Who is Michele Hundley Smith? The mother of three found after going missing for 24 years — why was she arrested?](https://timesofindia.indiatimes.com/etimes/trending/who-is-michele-hundley-smith-the-mother-of-three-found-after-going-missing-for-24-years-why-was-she-arrested/articleshow/128852486.cms) - **The Times of India**
+9. [Guardiola speaking after Man City draw Real Madrid in Champions League last-16](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2c4ae66a-7238-44af-a6c6-b1565c9690d8) - **Yahoo Entertainment**
+10. [UEFA Champions League / Galatasaray - Liverpool: who is the favorite?](https://foot-africa.com/en/news/uefa-champions-league-galatasaray-liverpool-who-is-the-favorite-1103906/) - **Foot-africa.com**
 
 
 ---
-*최근 업데이트: 2026-02-28 21:53:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-28 22:38:45 (KST) / (하루 100회 제한 준수 중)*
