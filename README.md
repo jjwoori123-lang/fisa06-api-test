@@ -1,16 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool facing major injury concern ahead of West Ham United clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_408470eb-8696-466b-9d29-54b12346785a) - **Yahoo Entertainment**
-2. [Watch: League of Ireland gameweek four preview with Seán O'Connor and Aidan Fitzmaurice](https://www.independent.ie/sport/soccer/league-of-ireland/watch-league-of-ireland-gameweek-four-preview-with-sean-oconnor-and-aidan-fitzmaurice/a820100404.html) - **Independent.ie**
-3. [All your FPL stats and Premier League team news in one place](https://www.bbc.com/sport/articles/c8r1v87n62xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [All your FPL stats and Premier League team news in one place](https://www.bbc.com/sport/articles/c8r1v87n62xo) - **BBC News**
-5. [Exits & borrowed time - things to watch in the EFL](https://www.bbc.com/sport/football/articles/clyvdpy5zm5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Exits & borrowed time - things to watch in the EFL](https://www.bbc.com/sport/football/articles/clyvdpy5zm5o) - **BBC News**
-7. [ OneFootball x Turno: Why not give Michael Carrick the Man Utd job](https://onefootball.com/en/news/onefootball-x-turno-why-not-give-michael-carrick-the-man-utd-job-42474581) - **Onefootball.com**
-8. ['The players must do it themselves' - a fan's view on discipline issues](https://www.bbc.com/sport/football/articles/crrxjgrnwr2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [FPL talking point: Stick or twist with Haaland?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6728244d-fcf5-4f50-a440-afbbe98a2371) - **Yahoo Entertainment**
-10. [FPL talking point: Stick or twist with Haaland?](https://www.bbc.com/sport/football/articles/cpqw5q1we5ro) - **BBC News**
+1. [Chaos looms in the Champions League draw. Of course – what did you expect?](https://untold-arsenal.com/archives/119662) - **Untold-arsenal.com**
+2. [Slot on team fitness, Salah's drought and Ngumoha's improvement](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_497ac7c5-18af-4b35-97fa-9ded126d2531) - **Yahoo Entertainment**
+3. [Auqib Nabi claims 7th fifer, tops Ranji Trophy 2026 wicket charts](https://economictimes.indiatimes.com/news/sports/auqib-nabi-claims-7th-fifer-tops-ranji-trophy-2026-wicket-charts/articleshow/128843305.cms) - **The Times of India**
+4. [Juventus chase four free agents as Goretzka option emerges](https://football-italia.net/juventus-4-free-agents-goretzka-option-2026/) - **Football Italia**
+5. [Florian Wirtz injury update: Liverpool boss Slot sets no return date for stricken star](https://www.101greatgoals.com/football/premier-league/florian-wirtz-injury-update-liverpool-boss-slot-sets-no-return-date-for-stricken-star/) - **101 Great Goals**
+6. [Liverpool midfield target now available at £30m discount](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-carlos-baleba-midfield-target-now-available-at-ps30m-discount/) - **Anfieldwatch.co.uk**
+7. [Amorim sacking cost revealed in stock exchange filing](https://www.rte.ie/sport/soccer/2026/0227/1560728-amorim-sacking-cost-revealed-in-stock-exchange-filing/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-02-28 17:57:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-28 18:35:20 (KST) / (하루 100회 제한 준수 중)*
