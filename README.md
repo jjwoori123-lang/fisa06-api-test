@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [So much for three-year plan - what is the secret to manager longevity?](https://www.bbc.com/sport/football/articles/ckg1lzwegpgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [So much for three-year plan - what is the secret to manager longevity?](https://www.bbc.com/sport/football/articles/ckg1lzwegpgo) - **BBC News**
-3. [Liverpool boss Slot backs Salah to come through goal drought](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_86340163-2034-49f3-bfc8-33bc8b0465d4) - **Yahoo Entertainment**
-4. [Reliable transfer insider reacts to report Bayern could steal Liverpool defender this summer](https://cfbayerninsider.com/2026/02/reliable-transfer-insider-reacts-to-report-bayern-could-steal-liverpool-defender-this-summer/) - **Cfbayerninsider.com**
-5. [Ruben Amorim dismissal could cost Manchester United £16m](https://thefootballfaithful.com/ruben-amorim-dismissal-could-cost-manchester-united-16m/) - **The Football Faithful**
-6. [Murray hails Gibson-Park as one of the greats](https://www.irishtimes.com/sport/2026/02/27/murray-hails-gibson-park-as-one-of-the-greats/) - **The Irish Times**
-7. [Chaos looms in the Champions League draw. Of course – what did you expect?](https://untold-arsenal.com/archives/119662) - **Untold-arsenal.com**
-8. [Slot on team fitness, Salah's drought and Ngumoha's improvement](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_497ac7c5-18af-4b35-97fa-9ded126d2531) - **Yahoo Entertainment**
+1. [Liverpool v West Ham: Line-ups, stats and preview for Anfield clash](https://www.101greatgoals.com/betting-tips/premier-league-odds/liverpool-v-west-ham-line-ups-stats-preview-for-anfield-clash/) - **101 Great Goals**
+2. [Things to know if travelling to Turf Moor](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_171ccb6b-0fa6-4caa-baa7-742ba642a2c4) - **Yahoo Entertainment**
+3. [Liverpool turn a profit but wage bill balloons](https://www.rte.ie/sport/soccer/2026/0227/1560741-liverpool-turn-a-profit-but-wage-bill-balloons/) - **RTE**
+4. [Ruben Amorim sacking: Manchester United stare at £16 million bill](https://economictimes.indiatimes.com/news/sports/ruben-amorim-sacking-may-land-manchester-united-with-16-million-bill/articleshow/128844204.cms) - **The Times of India**
+5. [Serie A close to extra UCL spot, but Italy underdog against Germany and Spain](https://football-italia.net/serie-a-ucl-spot-italy-underdog-spain-germany/) - **Football Italia**
+6. [Journalist discusses who has the edge between Arsenal and Man City](https://www.justarsenal.com/journalist-discusses-who-has-the-edge-between-arsenal-and-man-city/410865) - **Just Arsenal News**
+7. [Arne Slot confirms Wirtz blow as Liverpool learn West Ham availability](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f1b35a66-239d-4af8-9f16-5436927fe25f) - **Yahoo Entertainment**
+8. [Ticket revenue continues to soar in Premier League](https://www.bbc.com/sport/football/articles/cre0x9v0j9yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Revealed: How much it cost Manchester United to sack Ruben Amorim](https://www.independent.ie/sport/soccer/premier-league/revealed-how-much-it-cost-manchester-united-to-sack-ruben-amorim/a1383470873.html) - **Independent.ie**
+10. ['We'll see where we end up' - Dunk on Brighton's season](https://www.bbc.com/sport/football/articles/cr73mz5zmv3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-02-28 18:52:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-28 19:27:23 (KST) / (하루 100회 제한 준수 중)*
