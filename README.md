@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bohemians go three clear at Premier Division summit with derby win over Shamrock Rovers](https://www.irishtimes.com/sport/soccer/2026/02/27/bohemians-go-three-clear-at-premier-division-summit-with-derby-win-over-shamrock-rovers/) - **The Irish Times**
-2. [Sancho, Rogers And Luiz Get 6.5 | Aston Villa Players Rated In Derby Defeat Vs Wolves](https://the4thofficial.net/2026/02/sancho-rogers-and-luiz-get-6-5-aston-villa-players-rated-in-derby-defeat-vs-wolves/) - **The4thofficial.net**
-3. [Wolves 0-2 Aston Villa: Report, result, goals from Premier League… and what went wrong for ‘abysmal’ Villans](https://www.101greatgoals.com/football/premier-league/wolves-aston-villa-report-result-goals-villans/) - **101 Great Goals**
-4. [Late DRAMA as Wolves STUN Aston Villa in West Midlands derby](https://www.skysports.com/football/video/12606/13513174/wolves-2-0-aston-villa-premier-league-highlights) - **Sky Sports**
-5. [Real Madrid target Jurgen Klopp considering shock managerial return? Red Bull director breaks silence on possible exit](https://worldsoccertalk.com/news/real-madrid-target-jurgen-klopp-considering-shock-managerial-return-red-bull-director-breaks-silence-on-possible-exit/) - **Worldsoccertalk.com**
-6. [Rovers late show not enough to deny league leaders Bohs](https://www.rte.ie/sport/soccer/2026/0227/1560821-rovers-late-show-not-enough-to-deny-league-leaders-bohs/) - **RTE**
-7. [PSG looking to postpone Ligue 1 game to provide extra rest days inbetween Champions League ties against Chelsea](https://www.getfootballnewsfrance.com/2026/psg-looking-to-postpone-ligue-1-game-to-provide-extra-rest-days-inbetween-champions-league-ties-against-chelsea/) - **Get French Football News**
-8. [Shelbourne see off Drogheda with second-half comeback](https://www.rte.ie/sport/soccer/2026/0227/1560818-shelbourne-see-off-drogheda-with-second-half-comeback/) - **RTE**
-9. [Herbert Hainer questions 50+1 as he suggests rule abolishment](https://bulinews.com/herbert-hainer-questions-50-1-suggests-rule-abolishment) - **Bulinews.com**
+1. [Wolves secure rare win to dent Villa's bid for Champions League place](https://sports.yahoo.com/articles/wolves-secure-rare-win-dent-220624717.html) - **Yahoo Entertainment**
+2. [An England international seems destined to land at Manchester City this summer.](https://esteemedkompany.com/2026/02/27/an-england-international-seems-destined-to-land-at-manchester-city-this-summer/) - **Esteemedkompany.com**
+3. [Spurs struggling physically admits Tudor](https://sports.yahoo.com/articles/spurs-struggling-physically-admits-tudor-224955070.html) - **Yahoo Entertainment**
+4. [Bears 2026 offseason preview: Where does Chicago stand at tight end?](https://bearswire.usatoday.com/story/sports/nfl/bears/2026/02/27/bears-2026-offseason-preview-tight-end-colston-loveland/88900378007/) - **USA Today**
+5. [Rare win moves Wolves past record low points tally](https://www.rte.ie/sport/soccer/2026/0227/1560824-rare-win-moves-wolves-past-record-low-points-tally/) - **RTE**
+6. [Wolves beat Aston Villa to avoid Premier League-low points record](https://www.bbc.com/sport/football/videos/cm217k34lg2o) - **BBC News**
+7. [Bottom club Wolves shock high-flying Aston Villa at Molineux](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1cbdb4dd-45ec-4f54-a04b-56c1f7d98e75) - **Yahoo Entertainment**
+8. [Arteta: Arsenal on the right path to getting best out of Gyokeres](https://www.skysports.com/football/news/11095/13513073/viktor-gyokeres-arsenal-on-the-right-path-to-getting-best-out-of-sweden-striker-says-mikel-arteta) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-03-01 07:26:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-01 07:54:19 (KST) / (하루 100회 제한 준수 중)*
