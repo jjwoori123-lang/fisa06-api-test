@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The American Basketball Association](https://everything-everywhere.com/the-american-basketball-association/) - **Everything-everywhere.com**
-2. [The U-18 rising stars aiming to light up the League of Ireland in 2026](https://www.independent.ie/sport/soccer/league-of-ireland/the-u-18-rising-stars-aiming-to-light-up-the-league-of-ireland-in-2026/a1649373260.html) - **Independent.ie**
-3. [Seidler Family Weighing Five Offers For Padres](https://www.mlbtraderumors.com/2026/02/seidler-family-weighing-five-offers-for-padres.html) - **MLB Trade Rumors**
-4. [Rotation risk almost costs Forest in Europa League](https://www.channelnewsasia.com/sport/rotation-risk-almost-costs-forest-in-europa-league-5957266) - **CNA**
-5. [Kentucky WBB’s hot start enough to hold off Auburn in low-scoring game](https://www.aseaofblue.com/kentucky-womens-basketball/164259/uk-wildcats-auburn-tigers-final-score-recap) - **A Sea Of Blue**
-6. [⚠️Alarm at the Nest: Israel Reyes may move to Europe post-World Cup](https://onefootball.com/en/news/alarm-at-the-nest-israel-reyes-may-move-to-europe-post-world-cup-42473926) - **Onefootball.com**
-7. [Arsenal face Chelsea title test, troubled Spurs in spotlight](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f38e1724-799b-47f1-b563-cef273c45189) - **Yahoo Entertainment**
-8. [Americans Abroad Midweek Rewind: Richards, McKennie, and more](https://sbisoccer.com/2026/02/americans-abroad-midweek-rewind-richards-mckennie-and-more-3) - **Sbisoccer.com**
-9. [Premier League title race: City chasing Arsenal as they face Leeds at Elland Road](https://foot-africa.com/en/news/premier-league-title-race-city-chasing-arsenal-as-they-face-leeds-at-elland-road-1103321/) - **Foot-africa.com**
-10. [MLB News: Brees to Buy Padres?, Scherzer Back to Jays, Braves Revenue Soars](https://dodgersnation.com/mlb-news-brees-to-buy-padres-scherzer-back-to-jays-braves-revenue-soars/2026/02/26/) - **Dodgers Nation**
+1. [Newcastle eyeing Verbruggen as Trafford alternative](https://sportsview.co.uk/2026/02/newcastle-eyeing-verbruggen-as-trafford-alternative?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-eyeing-verbruggen-as-trafford-alternative) - **Sportsview.co.uk**
+2. [Real Madrid tracking Kees Smit ahead of summer transfer, Premier League giants also keen](https://footballtoday.com/2026/02/27/real-madrid-tracking-kees-smit-ahead-of-summer-transfer-premier-league-giants-also-in-the-race/) - **Footballtoday.com**
+3. [Aston Villa predicted XI vs Wolves: Villans eye derby statement at Molineux](https://sportsview.co.uk/2026/02/aston-villa-predicted-xi-vs-wolves-villans-eye-derby-statement-at-molineux?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=aston-villa-predicted-xi-vs-wolves-villans-eye-derby-statement-at-molineux) - **Sportsview.co.uk**
+4. [Wolves vs Aston Villa – Predicted lineup and team news](https://thefootballfaithful.com/wolves-vs-aston-villa-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+5. [Wolves vs Aston Villa – Match preview and team news](https://thefootballfaithful.com/wolves-vs-aston-villa-match-preview-and-team-news/) - **The Football Faithful**
+6. [EPL GW28: Team news, injury updates, live chat and score prediction](https://www.nevermanagealone.com/playerpicks/15587/epl-gw28-team-news-injury-updates-live-chat-and-score-prediction) - **Nevermanagealone.com**
+7. [Extraordinary lengths Benjamin Sesko went to to deliver Everton masterclass revealed](https://thepeoplesperson.com/2026/02/27/extraordinary-lengths-benjamin-sesko-went-to-to-deliver-everton-masterclass-revealed-307083/) - **The Peoples Person**
+8. [U21s preview: Arsenal v Ipswich Town](http://www.arsenal.com/news/u21s-preview-arsenal-v-ipswich-town) - **Arsenal.com**
+9. [In-form Bohemians out to finally make home advantage count in Dublin derby](https://www.irishtimes.com/sport/soccer/2026/02/27/in-form-bohemians-out-to-finally-make-home-advantage-count-in-dublin-derby/) - **The Irish Times**
+10. [Why Ireland’s absence of ski slopes is no barrier to success at the Winter Olympics](https://www.irishtimes.com/sport/2026/02/27/why-irelands-absence-of-ski-slopes-is-no-barrier-to-success-at-the-winter-olympics/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-02-28 14:51:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-02-28 15:43:48 (KST) / (하루 100회 제한 준수 중)*
