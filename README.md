@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['Not fair to fans' - how VAR denied Burnley one of greatest comebacks](https://www.bbc.com/sport/football/articles/cdjm83ljpmno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. ['Not the sign of a top team' - Newcastle take huge step backwards](https://www.bbc.com/sport/football/articles/cly80vd4nvdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Manchester City: Antoine Semenyo reignites the title race](https://foot-africa.com/en/news/manchester-city-antoine-semenyo-reignites-the-title-race-1105694/) - **Foot-africa.com**
-4. ['Not fair to fans' - how VAR denied Burnley one of greatest comebacks](https://www.bbc.com/sport/football/articles/cdjm83ljpmno) - **BBC News**
-5. [Stach Gets 7, Ampadu With 6.5 | Leeds United Players Rated In Tough Loss Vs Manchester City](https://the4thofficial.net/2026/02/stach-gets-7-ampadu-with-6-5-leeds-united-players-rated-in-tough-loss-vs-manchester-city/) - **The4thofficial.net**
-6. ['Not the sign of a top team' - Newcastle take huge step backwards](https://www.bbc.com/sport/football/articles/cly80vd4nvdo) - **BBC News**
-7. [Ait-Nouri, Dias And Nunes Get 8 | Manchester City Players Rated In Narrow Win Vs Leeds United](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5ffbeabb-f322-4ed0-a3ff-98e52619c09c) - **Yahoo Entertainment**
-8. [Here's what happened today: Saturday](https://www.thejournal.ie/news-fix-saturday-81-6970825-Feb2026/) - **TheJournal.ie**
-9. [Pep unsure over Haaland injury as City boss complains about fixture schedule](https://www.skysports.com/football/news/11095/13513633/erling-haaland-injury-pep-guardiola-unsure-on-when-man-city-striker-will-return-and-complains-about-fixture-schedule) - **Sky Sports**
-10. [Semenyo makes the difference as Man City beat Leeds](https://www.bbc.com/sport/football/videos/ce8wg3zrr29o) - **BBC News**
+1. [Pep Guardiola issues message to Leeds fans after ‘booing’ Ramadan pause during Manchester City clash](https://cityxtra.co.uk/42292/pep-guardiola-issues-message-to-leeds-fans-after-booing-ramadan-pause-during-manchester-city-clash/) - **Cityxtra.co.uk**
+2. ['Manager of season contender' Andrews has Brentford dreaming of Europe](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e6d2154e-43ce-4097-861b-9fca755e1028) - **Yahoo Entertainment**
+3. ['Manager of season contender' Andrews has Brentford dreaming of Europe](https://www.bbc.com/sport/football/articles/c15x740p2wko) - **BBC News**
+4. [Erling Haaland injury latest: Guardiola uncertain on striker's return after Leeds clash](https://foot-africa.com/en/news/erling-haaland-injury-latest-guardiola-uncertain-on-strikers-return-after-leeds-clash-1105727/) - **Foot-africa.com**
+5. [Chargers free agent: Odafe Oweh named 'perfect' fit for NFC South team](https://chargerswire.usatoday.com/story/sports/nfl/chargers/2026/02/28/chargers-free-agency-odafe-oweh-buccaneers/88900168007/) - **USA Today**
+6. [Semenyo praises City's mentality after Leeds win](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_74b86682-80a4-49b8-bcd1-cebb950b4ab1) - **Yahoo Entertainment**
+7. [New set-piece kings Liverpool can still achieve 'something beautiful'](https://www.bbc.com/sport/football/articles/c4g2972nrpeo) - **BBC News**
+8. [Boos heard during Ramadan pause at Elland Road](https://www.bbc.com/sport/football/articles/c178x0jppelo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-02 05:31:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-02 05:55:21 (KST) / (하루 100회 제한 준수 중)*
