@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Turkey Talisman’s Inter Milan Future In Doubt As Club Weigh Up Contract Renewal Vs Summer Sale](https://sempreinter.com/2026/02/28/calhanoglu-future-inter-milan-doubt-sale/) - **SempreInter**
-2. [Lucca’s behaviour upsets Nottingham Forest fans after Napoli, says transfer expert](https://football-italia.net/lucca-behaviour-upsets-not-forest-fans-napoli/) - **Football Italia**
-3. [Arsenal vs Chelsea: Match preview, predicted line-ups, team news and prediction](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2effb83e-706d-4cb8-b025-ff46c36fde23) - **Yahoo Entertainment**
-4. [Injured Arsenal player builds fitness with u21 appearance](https://dailycannon.com/2026/02/max-dowman-arsenal-u21-ipswich/) - **Dailycannon.com**
-5. [Premier League Clubs & Atletico Madrid Compete With Inter Milan Over Expiring Bayern Munich Veteran](https://sempreinter.com/2026/02/28/premier-league-atletico-inter-race-bayern-goretzka/) - **SempreInter**
-6. [Another tense affair awaits Manchester City against Leeds United at Elland Road](https://esteemedkompany.com/2026/02/28/another-tense-affair-awaits-manchester-city-against-leeds-united-at-elland-road/) - **Esteemedkompany.com**
-7. [Bournemouth vs Sunderland: Confirmed line-ups in Premier League](https://www.101greatgoals.com/football/premier-league/bournemouth-vs-sunderland-confirmed-line-ups/) - **101 Great Goals**
-8. [“We have to show the right mentality” – Virgil van Dijk previews Liverpool’s clash with West Ham](https://anfieldindex.com/91680/we-have-to-show-the-right-mentality-virgil-van-dijk-previews-liverpools-clash-with-west-ham.html) - **Anfieldindex.com**
-9. [Liverpool's injury crisis takes center stage as chase for Champions League spots continues against West Ham](https://www.cbssports.com/soccer/news/liverpools-injury-crisis-champions-league-west-ham/) - **CBS Sports**
-10. [Michael Carrick makes passionate plea to Man United fans ahead of Crystal Palace clash](https://thepeoplesperson.com/2026/02/28/michael-carrick-makes-passionate-plea-to-man-united-fans-ahead-of-crystal-palace-clash-307162/) - **The Peoples Person**
+1. [Bournemouth vs Sunderland LIVE updates, watch live, score, analysis, highlights](https://www.nbcsports.com/soccer/news/bournemouth-vs-sunderland-live-updates-score-highlights-stats-watch) - **NBCSports.com**
+2. [Analysis: Individual form has plummeted](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_80ed595b-1640-4efe-b899-9cd6aeda940f) - **Yahoo Entertainment**
+3. [Premier League: Date, time, channels and lineups for the Arsenal – Chelsea clash](https://foot-africa.com/en/news/premier-league-date-time-channels-and-lineups-for-the-arsenal-chelsea-clash-1105055/) - **Foot-africa.com**
+4. [Premier League scores: Liverpool pushing for Champions League qualification against West Ham](https://www.independent.ie/sport/soccer/premier-league/premier-league-scores-liverpool-pushing-for-champions-league-qualification-against-west-ham/a1661613874.html) - **Independent.ie**
+5. [Premier League scores: Man City aim to close gap at top in visit to Leeds](https://www.independent.ie/sport/soccer/premier-league/premier-league-scores-man-city-aim-to-close-gap-at-top-in-visit-to-leeds/a1661613874.html) - **Independent.ie**
+6. [Premier League scores: Bournemouth and Sunderland get the action underway](https://www.independent.ie/sport/soccer/premier-league/premier-league-scores-bournemouth-and-sunderland-get-the-action-underway/a1661613874.html) - **Independent.ie**
+7. [How to watch Liverpool vs West Ham: Free Streams, TV Channels, Preview](https://www.techradar.com/how-to-watch/football/liverpool-vs-west-ham-premier-league-2025-26) - **TechRadar**
+8. [Le Havre vs PSG – Match preview and team news](https://thefootballfaithful.com/le-havre-vs-psg-match-preview-and-team-news/) - **The Football Faithful**
+9. [Unai Emery is having nightmares at the thought of what Michael Carrick could do with this United side](https://thepeoplesperson.com/2026/02/28/unai-emery-is-having-nightmares-at-the-thought-of-what-michael-carrick-could-do-with-this-united-side-307165/) - **The Peoples Person**
+10. [Harry Wilson to Liverpool deal is on after latest insider update](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-harry-wilson-deal-is-on-after-latest-insider-update/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-03-01 20:50:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-01 21:55:42 (KST) / (하루 100회 제한 준수 중)*
