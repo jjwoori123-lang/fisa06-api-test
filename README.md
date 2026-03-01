@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Match Preview: No excuses for Liverpool ahead of crucial West Ham United clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_76fe2d26-75e5-4d0e-a4e8-78e7de65d66c) - **Yahoo Entertainment**
-2. [Man United vs Crystal Palace: Three plotlines to get pumped for Sunday](https://thepeoplesperson.com/2026/02/28/man-united-vs-crystal-palace-three-plotlines-to-get-pumped-for-sunday-307154/) - **The Peoples Person**
-3. [How should Chelsea line up against league-leaders Arsenal?](https://weaintgotnohistory.sbnation.com/166489/how-should-chelsea-line-up-against-league-leaders-arsenal) - **SB Nation**
-4. [Liverpool ready to replace Federico Chiesa with €60m transfer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-ready-to-replace-federico-chiesa-with-eur60m-transfer/) - **Anfieldwatch.co.uk**
-5. [Anthony Gordon returns to Newcastle XI as Eddie Howe makes six changes vs Everton](https://sportsview.co.uk/2026/02/anthony-gordon-returns-to-newcastle-xi-as-eddie-howe-makes-six-changes-vs-everton?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=anthony-gordon-returns-to-newcastle-xi-as-eddie-howe-makes-six-changes-vs-everton) - **Sportsview.co.uk**
-6. [Not only Mainoo – ‘Terrific’ Man Utd star liked by Carrick destined to stay after major U-turn](https://strettynews.com/2026/02/28/kobbie-mainoo-manuel-ugarte-man-utd/) - **Strettynews.com**
-7. [1976 Revisited | Tueart 50](https://www.mancity.com/features/1976-revisted) - **Manchester City FC**
-8. [What happened to the Class of 1976?](https://www.mancity.com/news/mens/league-cup-anniversary-player-profiles-what-happened-next-63907805) - **Manchester City FC**
-9. [A Manchester City youngster is thriving with more responsibility and he has shown that he belongs](https://esteemedkompany.com/2026/02/28/a-manchester-city-youngster-is-thriving-with-more-responsibility-and-he-has-shown-that-he-belongs/) - **Esteemedkompany.com**
-10. [How to watch Arsenal vs Chelsea](https://www.skysports.com/football/news/11670/13512481/watch-arsenal-vs-chelsea-tv-channel-live-stream-now-tv-and-score-prediction) - **Sky Sports**
+1. [Is Leeds vs Manchester City on TV? Kick-off time, channel and how to watch Premier League clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ab141c54-7d7f-4e2a-b1dd-2e48f9221d3e) - **Yahoo Entertainment**
+2. [Arsenal v Chelsea: a game where home advantage really ought to count](https://untold-arsenal.com/archives/119670) - **Untold-arsenal.com**
+3. [‘I will leave…’ – Liverpool player confirms he won’t renew rapidly expiring Anfield contract](https://www.empireofthekop.com/2026/02/28/cannonier-will-leave-liverpool-at-end-of-contract/) - **Empire of The Kop**
+4. [‘Speak to the club’ – Stephen Bradley stonewalls questions on off-field matters after Shamrock Rovers defeat](https://www.independent.ie/sport/soccer/league-of-ireland/speak-to-the-club-stephen-bradley-stonewalls-questions-on-off-field-matters-after-shamrock-rovers-defeat/a1544976557.html) - **Independent.ie**
+5. [What is Shah Rukh Khan’s secret to his IPL team KKR’s success? Karan Johar breaks it down](https://economictimes.indiatimes.com/magazines/panache/what-is-shah-rukh-khans-secret-to-his-ipl-team-kkrs-success-karan-johar-breaks-it-down/articleshow/128876322.cms) - **The Times of India**
+6. [Where to watch Liverpool vs. West Ham live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-liverpool-vs-west-ham-stream-channel-time-premier-league-match/15b28c4446f58faa8c5f8b5f) - **Sporting News**
+7. [FA Youth Cup: Date and location of Man United vs Sunderland confirmed](https://thepeoplesperson.com/2026/02/28/fa-youth-cup-date-and-location-of-man-united-vs-sunderland-confirmed-307156/) - **The Peoples Person**
+8. [How to Watch Liverpool vs. West Ham: Channel, Live Stream & Start Time for Premier League Match](https://nesn.com/liverpool/news/watch-liverpool-vs-west-ham-channel-stream-start-time/c337ba52a1a11ffde10f466a) - **NESN**
+9. [Bryan Mbeumo reaches the milestone of 50 Premier League goals](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8122bfff-d432-44d8-a74f-d2f17a69fe73) - **Yahoo Entertainment**
+10. [Pep Guardiola credits Manchester City nutritionists for supporting Muslim stars through Ramadan fasting](https://cityxtra.co.uk/42203/pep-guardiola-credits-manchester-city-nutritionists-for-supporting-muslim-stars-through-ramadan-fasting/) - **Cityxtra.co.uk**
 
 
 ---
-*최근 업데이트: 2026-03-01 16:55:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-01 17:38:26 (KST) / (하루 100회 제한 준수 중)*
