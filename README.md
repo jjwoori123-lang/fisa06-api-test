@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea will be without two key men against Arsenal](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_92d395e6-ea7f-4113-85ef-f206e3d355c0) - **Yahoo Entertainment**
-2. [Chelsea will be without two key men against Arsenal](https://www.justarsenal.com/chelsea-will-be-without-two-key-men-against-arsenal/410925) - **Just Arsenal News**
-3. [Which United moment most impressed Palace boss Glasner?](https://www.manutd.com/en/news/detail/which-bit-of-man-utd-play-most-impressed-oliver-glasner) - **Manchester United**
-4. [Report: Everton Interested in Championship Young Star](https://eplindex.com/143363/report-everton-interested-in-championship-young-star.html) - **English Premier League Index - Opta Stats**
-5. [Hits and misses: Liverpool finally learn value of set pieces; Xhaka's classy return](https://www.skysports.com/football/news/11661/13513237/liverpool-finally-exploit-value-of-set-pieces-and-granit-xhakas-impact-key-in-sunderland-improvement-premier-league-hits-and-misses) - **Sky Sports**
-6. [Dane Murray has played himself into Celtic team for Ibrox](https://thecelticstar.com/dane-murray-has-played-himself-into-celtic-team-for-ibrox/) - **The Celtic Star**
-7. [Cunha, Casemiro and Mbeumo: United trio earn Premier League awards](https://thepeoplesperson.com/2026/02/28/cunha-casemiro-and-mbeumo-united-trio-earn-premier-league-awards-307157/) - **The Peoples Person**
-8. [Is Leeds vs Manchester City on TV? Kick-off time, channel and how to watch Premier League clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ab141c54-7d7f-4e2a-b1dd-2e48f9221d3e) - **Yahoo Entertainment**
-9. [Arsenal v Chelsea: a game where home advantage really ought to count](https://untold-arsenal.com/archives/119670) - **Untold-arsenal.com**
-10. [‘I will leave…’ – Liverpool player confirms he won’t renew rapidly expiring Anfield contract](https://www.empireofthekop.com/2026/02/28/cannonier-will-leave-liverpool-at-end-of-contract/) - **Empire of The Kop**
+1. [Now We See The Real Aston Villa](https://www.forbes.com/sites/zakgarnerpurkis/2026/02/28/now-we-see-the-real-aston-villa/) - **Forbes**
+2. [“Elland Road is Elland Road” – Pep Guardiola sends stark title race warning to Manchester City squad](https://cityxtra.co.uk/42216/elland-road-is-elland-road-pep-guardiola-sends-stark-title-race-warning-to-manchester-city-squad/) - **Cityxtra.co.uk**
+3. [Paul Merson predicts whether ‘great talent’ Rio Ngumoha will get first Premier League start today](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3898e736-2b5c-4d02-8dd1-f2f5fe300ffe) - **Yahoo Entertainment**
+4. [Manchester City: Is Omar Marmoush on the market?](https://foot-africa.com/en/news/manchester-city-is-omar-marmoush-on-the-market-1104848/) - **Foot-africa.com**
+5. [Report: Chelsea set be frustrated in pursuit of 22-year-old despite making enquiries](https://chelsea.news/2026/02/barcelona-chelsea-marc-casado-latest/) - **Chelsea.news**
+6. [Morgan Rogers to United? Major update on Aston Villa star’s future](https://thepeoplesperson.com/2026/02/28/morgan-rogers-to-united-major-update-on-aston-villa-stars-future-307152/) - **The Peoples Person**
+7. [‘So much to like’ – Reported Liverpool target put in a ‘spectacular’ performance on Friday night](https://www.empireofthekop.com/2026/02/28/liverpool-target-mane-spectacular-performance-wolves-villa/) - **Empire of The Kop**
+8. [Chelsea will be without two key men against Arsenal](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_92d395e6-ea7f-4113-85ef-f206e3d355c0) - **Yahoo Entertainment**
+9. [Chelsea will be without two key men against Arsenal](https://www.justarsenal.com/chelsea-will-be-without-two-key-men-against-arsenal/410925) - **Just Arsenal News**
+10. [Which United moment most impressed Palace boss Glasner?](https://www.manutd.com/en/news/detail/which-bit-of-man-utd-play-most-impressed-oliver-glasner) - **Manchester United**
 
 
 ---
-*최근 업데이트: 2026-03-01 18:00:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-01 18:46:50 (KST) / (하루 100회 제한 준수 중)*
