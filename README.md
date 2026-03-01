@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Preview: Arsenal v Chelsea](http://www.arsenal.com/news/preview-arsenal-v-chelsea-3) - **Arsenal.com**
-2. [What next for Salah and Liverpool?](https://www.bbc.com/sport/football/articles/ce8w4r130z8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [What next for Salah and Liverpool?](https://www.bbc.com/sport/football/articles/ce8w4r130z8o) - **BBC News**
-4. [Eddie Howe shuts down Anthony Gordon Newcastle exit rumours as Arsenal links gather pace](https://sportsview.co.uk/2026/02/eddie-howe-shuts-down-anthony-gordon-newcastle-exit-rumours-as-arsenal-links-gather-pace?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=eddie-howe-shuts-down-anthony-gordon-newcastle-exit-rumours-as-arsenal-links-gather-pace) - **Sportsview.co.uk**
-5. [Manchester City vs Leeds United: Latest City injury news and predicted City starting XI](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c2a5bc2e-9022-4bbf-a825-b604a4709e1c) - **Yahoo Entertainment**
-6. [Match preview: Manchester United v Crystal Palace](https://thebusbybabe.sbnation.com/latest-news/34036/match-preview-manchester-united-v-crystal-palace) - **SB Nation**
-7. [Match Preview: Bournemouth v Sunderland — Can The Lads Get Back On Track On The South Coast?](https://rokerreport.sbnation.com/match-previews/128358/match-preview-bournemouth-v-sunderland-can-the-lads-get-back-on-track-on-the-south-coast) - **SB Nation**
-8. [What Could Sunderland’s Post-2025/2026 Plan Look Like?](https://rokerreport.sbnation.com/opinion/128466/in-editorial-what-could-sunderlands-post-2025-2026-plan-look-like) - **SB Nation**
-9. [Fan Focus: What can we expect from Andoni Iraola’s Bournemouth side today?](https://rokerreport.sbnation.com/fan-focus/128500/fan-focus-what-can-we-expect-from-andoni-iraolas-bournemouth-side-today) - **SB Nation**
-10. [Egyptian Premier League: date, time, channel and head-to-head record for Pyramids vs Zamalek](https://foot-africa.com/en/news/egyptian-premier-league-date-time-channel-and-head-to-head-record-for-pyramids-vs-zamalek-1104644/) - **Foot-africa.com**
+1. [Anthony Gordon returns to Newcastle XI as Eddie Howe makes six changes vs Everton](https://sportsview.co.uk/2026/02/anthony-gordon-returns-to-newcastle-xi-as-eddie-howe-makes-six-changes-vs-everton?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=anthony-gordon-returns-to-newcastle-xi-as-eddie-howe-makes-six-changes-vs-everton) - **Sportsview.co.uk**
+2. [Not only Mainoo – ‘Terrific’ Man Utd star liked by Carrick destined to stay after major U-turn](https://strettynews.com/2026/02/28/kobbie-mainoo-manuel-ugarte-man-utd/) - **Strettynews.com**
+3. [1976 Revisited | Tueart 50](https://www.mancity.com/features/1976-revisted) - **Manchester City FC**
+4. [What happened to the Class of 1976?](https://www.mancity.com/news/mens/league-cup-anniversary-player-profiles-what-happened-next-63907805) - **Manchester City FC**
+5. [A Manchester City youngster is thriving with more responsibility and he has shown that he belongs](https://esteemedkompany.com/2026/02/28/a-manchester-city-youngster-is-thriving-with-more-responsibility-and-he-has-shown-that-he-belongs/) - **Esteemedkompany.com**
+6. [Champions League round of 16 draw: PSG seek revenge against Chelsea as Arsenal get easy path](https://sportsview.co.uk/2026/02/champions-league-round-of-16-draw-psg-seek-revenge-against-chelsea-as-arsenal-get-easy-path?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=champions-league-round-of-16-draw-psg-seek-revenge-against-chelsea-as-arsenal-get-easy-path) - **Sportsview.co.uk**
+7. [How to watch Arsenal vs Chelsea](https://www.skysports.com/football/news/11670/13512481/watch-arsenal-vs-chelsea-tv-channel-live-stream-now-tv-and-score-prediction) - **Sky Sports**
+8. [Gareth Southgate Breaks Silence on Man United Manager Speculation](https://eplindex.com/143359/gareth-southgate-breaks-silence-on-man-united-manager-speculation.html) - **English Premier League Index - Opta Stats**
+9. [Bournemouth vs Sunderland – Match preview and team news](https://thefootballfaithful.com/bournemouth-vs-sunderland-match-preview-and-team-news/) - **The Football Faithful**
+10. [Burnley vs Brentford – Match preview and team news](https://thefootballfaithful.com/burnley-vs-brentford-match-preview-and-team-news/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-03-01 15:28:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-01 16:21:34 (KST) / (하루 100회 제한 준수 중)*
