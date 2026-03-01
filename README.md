@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Free-scoring Semenyo takes burden off Haaland](https://www.bbc.com/sport/football/articles/cg5nm2n9zzpo) - **BBC News**
-2. [Papers: Barca making progress over Rashford summer move](https://www.skysports.com/football/transfer-paper-talk/12709/13513684/marcus-rashford-barcelona-making-progress-over-signing-manchester-united-forward-paper-talk-and-transfer-gossip) - **Sky Sports**
-3. [Three Italian clubs are also challenging for experienced Arsenal target](https://www.justarsenal.com/three-italian-clubs-are-also-challenging-for-experienced-arsenal-target/410972) - **Just Arsenal News**
-4. [Saturday night update: Man Utd insider reveals what he heard on Mainoo injury](https://strettynews.com/2026/02/28/man-utd-kobbie-mainoo-premier-league-crysal-palace/) - **Strettynews.com**
-5. [Guardiola lauds ‘best game’ from £30m Man City star against Leeds](https://thefootballfaithful.com/guardiola-man-city-cherki-leeds/) - **The Football Faithful**
-6. [Man City wins without Haaland to keep pressure on Arsenal in Premier League title race](https://japantoday.com/category/sports/bournemouth-draws-1-1-with-sunderland-to-stretch-unbeaten-premier-league-run-to-8-games) - **Japan Today**
-7. [Man City newcomer Semenyo senses team's shift into title-winning mentality](https://www.channelnewsasia.com/sport/man-city-newcomer-semenyo-senses-teams-shift-title-winning-mentality-5961121) - **CNA**
-8. [Sydney Sweeney pays a compliment to Man Utd star Bruno Fernandes in surprise appearance at soccer match](https://www.marca.com/en/football/manchester-united/2026/02/28/69a35dcbe2704e3b438b459c.html) - **Marca**
-9. [Arsenal Don’t Need Viktor Gyokeres To Be World Class](https://www.forbes.com/sites/zakgarnerpurkis/2026/02/28/arsenal-dont-need-viktor-gyokeres-to-be-world-class/) - **Forbes**
+1. [Manchester City’s win at Leeds revealed Pep Guardiola’s most important player – and it’s not Erling Haaland](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_26058de1-7002-4885-ad84-f7ec8a249ed8) - **Yahoo Entertainment**
+2. [Manchester United Have Set Their Sights On This West Ham United Star: Good Choice For Carrick?](https://the4thofficial.net/2026/02/manchester-united-have-set-their-sights-on-this-west-ham-united-star/) - **The4thofficial.net**
+3. [Pep Guardiola hails ‘huge victory’ at Leeds as Man City reel in leaders Arsenal](https://www.independent.ie/sport/soccer/premier-league/pep-guardiola-hails-huge-victory-at-leeds-as-man-city-reel-in-leaders-arsenal/a1180455124.html) - **Independent.ie**
+4. [Kellen Fisher: Man United plot to beat rivals to sign Norwich City defender](https://thepeoplesperson.com/2026/02/28/kellen-fischer-man-united-plot-to-beat-rivals-to-sign-norwich-city-defender-307182/) - **The Peoples Person**
+5. [Carrick not interested in personal Glasner duel](https://www.bbc.com/sport/football/articles/cd03402x4edo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Carrick not interested in personal Glasner duel](https://www.bbc.com/sport/football/articles/cd03402x4edo) - **BBC News**
+7. [Digging Deeper Into Liverpool’s 5-2 Victory Over West Ham United](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/78934/liverpool-5-2-west-ham-united-premier-league-ekitike-gravenberch-analysis) - **SB Nation**
+8. [Arteta backs Arsenal star to ‘smash it’ in title race run in](https://hayters.com/arteta-backs-arsenal-star-to-smash-it-in-title-race-run-in/) - **Hayters.com**
+9. [Free-scoring Semenyo takes burden off Haaland](https://www.bbc.com/sport/football/articles/cg5nm2n9zzpo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-02 07:28:11 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-02 07:55:33 (KST) / (하루 100회 제한 준수 중)*
