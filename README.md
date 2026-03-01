@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man of the Match: Hugo Ekitike Shines as Liverpool’s Five-Star Display Buries West Ham](https://anfieldindex.com/91697/man-of-the-match-hugo-ekitike-shines-as-liverpools-five-star-display-buries-west-ham.html) - **Anfieldindex.com**
-2. [High drama at Turf Moor as Burnley’s fightback against Brentford falls short in seven-goal thriller](https://www.independent.ie/sport/soccer/premier-league/high-drama-at-turf-moor-as-burnleys-fightback-against-brentford-falls-short-in-seven-goal-thriller/a2079019536.html) - **Independent.ie**
-3. [Five-star Liverpool hold off West Ham to claim three points](https://www.skysports.com/football/video/12606/13513482/liverpool-5-2-west-ham-premier-league-highlights) - **Sky Sports**
-4. [Ekitike Gets 9, Van Dijk With 8 | Liverpool Players Rated In Impressive Win Vs West Ham United](https://the4thofficial.net/2026/02/ekitike-gets-9-van-dijk-with-8-liverpool-players-rated-in-impressive-win-vs-west-ham-united/) - **The4thofficial.net**
-5. [Analysis: Reds far from brilliant - but clinical](https://www.bbc.com/sport/football/articles/cge8xjjej1po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Liverpool hit five past West Ham, Haaland-less City face Leeds test](https://sports.yahoo.com/articles/liverpool-hit-five-past-west-172147480.html) - **Yahoo Entertainment**
-7. [Player Ratings: Champions Hit Five as Slot’s Men Overpower Struggling Hammers](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_01ac9107-aeb6-4eba-9eec-a870b8ee040d) - **Yahoo Entertainment**
-8. [Evanilson earns Bournemouth point as Sunderland extend winless run to four](https://www.skysports.com/football/video/11095/13513351/bournemouth-1-1-sunderland-premier-league-highlights) - **Sky Sports**
-9. [Cristiano Ronaldo Golden Boot battle fuels Ivan Toney’s 2026 FIFA World Cup ambition as England striker fires clear warning to Thomas Tuchel](https://worldsoccertalk.com/news/cristiano-ronaldo-golden-boot-battle-fuels-ivan-toneys-2026-fifa-world-cup-ambition-as-england-striker-fires-clear-warning-to-thomas-tuchel/) - **Worldsoccertalk.com**
-10. [ Leeds United v Manchester City XIs: Foden and Doku on the bench!](https://onefootball.com/en/news/leeds-united-v-manchester-city-xis-foden-and-doku-on-the-bench-42482525) - **Onefootball.com**
+1. [Liverpool 5-2 West Ham: What Nuno said](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c50f463d-61cb-4246-92ac-7724819fbdda) - **Yahoo Entertainment**
+2. [Pep tells fans to 'respect religion' after Ramadan break booed at Elland Road](https://www.skysports.com/football/news/11095/13513536/pep-guardiola-tells-fans-to-respect-religion-after-ramadan-break-booed-during-man-citys-win-at-leeds) - **Sky Sports**
+3. [PL Predictions: Leeds to do Arsenal a favour by drawing with Man City](https://www.skysports.com/football/news/11095/13512615/premier-league-predictions-and-best-bets-tottenhams-relegation-fears-to-deepen-with-arsenal-to-beat-chelsea) - **Sky Sports**
+4. [Burnley fight back in vain as Damsgaard's winner seals Brentford's 4-3 win](https://www.channelnewsasia.com/sport/burnley-fight-back-in-vain-damsgaards-winner-seals-brentfords-4-3-win-5960921) - **CNA**
+5. [Parker proud in defeat after Burnley's fightback ends in 4-3 loss to Brentford](https://www.channelnewsasia.com/sport/parker-proud-in-defeat-after-burnleys-fightback-ends-in-4-3-loss-brentford-5960921) - **CNA**
+6. ['A glorious opening for Leeds!' | Calvert-Lewin squanders golden chance!](https://www.skysports.com/football/video/12606/13513509/shot-d-calvert-lewin-4-leeds-0-0-manchester-city) - **Sky Sports**
+7. [Liverpool fans will be quite intrigued by Mark Goldbridge’s VAR gripe over Virgil van Dijk goal](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bf19e447-74ff-4957-b375-52f12d2effad) - **Yahoo Entertainment**
+8. [Liverpool impress with set-pieces in convincing win over West Ham](https://www.the42.ie/liverpool-west-ham-4-6970682-Feb2026/) - **The42**
+9. [Clinical Liverpool Hit Five Past West Ham at Anfield](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e80a3a16-3aac-4c96-9003-1f74745b320d) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-02 02:30:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-02 02:53:11 (KST) / (하루 100회 제한 준수 중)*
