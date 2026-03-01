@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool's injury crisis takes center stage as chase for Champions League spots continues against West Ham](https://www.cbssports.com/soccer/news/liverpools-injury-crisis-champions-league-west-ham/) - **CBS Sports**
-2. [Michael Carrick makes passionate plea to Man United fans ahead of Crystal Palace clash](https://thepeoplesperson.com/2026/02/28/michael-carrick-makes-passionate-plea-to-man-united-fans-ahead-of-crystal-palace-clash-307162/) - **The Peoples Person**
-3. [Manchester United x Crystal Palace: onde assistir, escalações e arbitragem](https://www.terra.com.br/esportes/futebol/internacional/equipes/manchester-united/manchester-united-x-crystal-palace-onde-assistir-escalacoes-e-arbitragem,9a2d0995180af8ebda40a72948b8c4cdwnljj9fz.html) - **Terra.com.br**
-4. [Inter Milan Eye Bayern Munich & Liverpool Stars For Summer Midfield Overhaul](https://sempreinter.com/2026/02/28/inter-monitor-bayern-liverpool-goretzka-jones/) - **SempreInter**
-5. [bet365 bonus code NYPBET: Bet $5, get $150 in bonus bets for the Premier League](https://nypost.com/2026/02/28/betting/bet365-bonus-code-nypbet-bet-5-get-150-in-bonus-bets-for-the-premier-league/) - **New York Post**
-6. [Will Hincapie play for Arsenal against Bayer Leverkusen?](https://www.justarsenal.com/will-hincapie-play-for-arsenal-against-bayer-leverkusen/410931) - **Just Arsenal News**
-7. [Liverpool Starting XI vs West Ham United: Confirmed Team News and Predicted Lineup](https://anfieldindex.com/91678/liverpool-starting-xi-vs-west-ham-united-confirmed-team-news-and-predicted-lineup-2.html) - **Anfieldindex.com**
-8. [Liverpool vs. West Ham: Premier League 2025-26 Live Coverage & How to Watch](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_330fcf12-7c89-47e9-aeab-1d24b7372f5f) - **Yahoo Entertainment**
-9. [Game over for Mo Salah as desire for summer transfer deal comes to light](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-mo-salah-as-desire-for-summer-transfer-deal-comes-to-light/) - **Anfieldwatch.co.uk**
-10. [Premier League reschedule Arsenal game 37 days after confirming they wouldn’t](https://dailycannon.com/2026/02/premier-league-reschedule-arsenal-everton/) - **Dailycannon.com**
+1. [Turkey Talisman’s Inter Milan Future In Doubt As Club Weigh Up Contract Renewal Vs Summer Sale](https://sempreinter.com/2026/02/28/calhanoglu-future-inter-milan-doubt-sale/) - **SempreInter**
+2. [Lucca’s behaviour upsets Nottingham Forest fans after Napoli, says transfer expert](https://football-italia.net/lucca-behaviour-upsets-not-forest-fans-napoli/) - **Football Italia**
+3. [Arsenal vs Chelsea: Match preview, predicted line-ups, team news and prediction](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2effb83e-706d-4cb8-b025-ff46c36fde23) - **Yahoo Entertainment**
+4. [Injured Arsenal player builds fitness with u21 appearance](https://dailycannon.com/2026/02/max-dowman-arsenal-u21-ipswich/) - **Dailycannon.com**
+5. [Premier League Clubs & Atletico Madrid Compete With Inter Milan Over Expiring Bayern Munich Veteran](https://sempreinter.com/2026/02/28/premier-league-atletico-inter-race-bayern-goretzka/) - **SempreInter**
+6. [Another tense affair awaits Manchester City against Leeds United at Elland Road](https://esteemedkompany.com/2026/02/28/another-tense-affair-awaits-manchester-city-against-leeds-united-at-elland-road/) - **Esteemedkompany.com**
+7. [Bournemouth vs Sunderland: Confirmed line-ups in Premier League](https://www.101greatgoals.com/football/premier-league/bournemouth-vs-sunderland-confirmed-line-ups/) - **101 Great Goals**
+8. [“We have to show the right mentality” – Virgil van Dijk previews Liverpool’s clash with West Ham](https://anfieldindex.com/91680/we-have-to-show-the-right-mentality-virgil-van-dijk-previews-liverpools-clash-with-west-ham.html) - **Anfieldindex.com**
+9. [Liverpool's injury crisis takes center stage as chase for Champions League spots continues against West Ham](https://www.cbssports.com/soccer/news/liverpools-injury-crisis-champions-league-west-ham/) - **CBS Sports**
+10. [Michael Carrick makes passionate plea to Man United fans ahead of Crystal Palace clash](https://thepeoplesperson.com/2026/02/28/michael-carrick-makes-passionate-plea-to-man-united-fans-ahead-of-crystal-palace-clash-307162/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-03-01 20:24:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-01 20:50:42 (KST) / (하루 100회 제한 준수 중)*
