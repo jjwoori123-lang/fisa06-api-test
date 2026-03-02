@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Comeback on? Richarlison pulls one back for Spurs](https://www.skysports.com/football/video/27973/13513901/goal-richarlison-66-fulham-2-0-tottenham-hotspur) - **Sky Sports**
-2. [“The best I have faced” – Real Madrid star Rodrygo names Manchester City legend as greatest-ever opponent](https://cityxtra.co.uk/42220/the-best-i-have-faced-real-madrid-star-rodrygo-names-manchester-city-legend-as-greatest-ever-opponent/) - **Cityxtra.co.uk**
-3. [Bruno Fernandes’ one stat shows he’s far better than Arsenal’s Declan Rice](https://www.hitc.com/bruno-fernandes-one-stat-shows-hes-far-better-than-arsenals-declan-rice/) - **HITC - Football, Gaming, Movies, TV, Music**
-4. [Most Premier League assists in a single season: Bruno Fernandes chasing EPL record](https://www.sportingnews.com/us/soccer/news/most-premier-league-assists-record-single-season-who-has-assisted-most-goals-epl-history/e69lutpzi7jd7ubm0easkiqn) - **Sporting News**
-5. [Arsenal vs Chelsea – Team News: Chelsea give youngster Premier League debut in huge game](https://chelsea.news/2026/03/chelsea-debut-youngster/) - **Chelsea.news**
-6. [Omar Da Fonseca names an Ivorian legend as the best defensive midfielder of the past 20 years](https://foot-africa.com/en/news/omar-da-fonseca-names-an-ivorian-legend-as-the-best-defensive-midfielder-of-the-past-20-years-1106453/) - **Foot-africa.com**
-7. [Arsenal vs Chelsea: Confirmed teams and line ups in Premier League 2025/26](https://www.101greatgoals.com/football/premier-league/arsenal-vs-chelsea-confirmed-teams-line-ups/) - **101 Great Goals**
-8. [Confirmed XIs: A London derby that could prove decisive](https://onefootball.com/en/news/confirmed-xis-a-london-derby-that-could-prove-decisive-42487613) - **Onefootball.com**
-9. [ BREAKING: Arsenal and Chelsea name starting XIs](https://onefootball.com/en/news/breaking-arsenal-and-chelsea-name-starting-xis-42487603) - **Onefootball.com**
+1. [As well as Shaw: Man Utd star who’s started every game under Carrick was spotted going down tunnel with medical staff](https://strettynews.com/2026/03/01/luke-shaw-harry-maguire-injury-manchester-united-crystal-palace-michael-carrick/) - **Strettynews.com**
+2. ['The art of set pieces has been MASTERED!' | Arsenal open scoring with corner!](https://www.skysports.com/football/video/19508/13513939/goal-w-saliba-21-arsenal-1-0-chelsea) - **Sky Sports**
+3. [Benjamin Sesko’s streak continues as Manchester United fight off 10-man Crystal Palace](https://www.irishtimes.com/sport/soccer/2026/03/01/benjamin-seskos-streak-continues-as-manchester-united-fight-off-10-man-crystal-palace/) - **The Irish Times**
+4. [Tipp power past Leitrim to stay in promotion hunt](https://www.rte.ie/sport/football/2026/0301/1561032-tipp-power-past-leitrim-to-stay-in-promotion-hunt/) - **RTE**
+5. [Five key lessons from Manchester United’s nail-biting 2-1 victory over Crystal Palace](https://www.hitc.com/five-key-lessons-from-manchester-uniteds-nail-biting-2-1-victory-over-crystal-palace/) - **HITC - Football, Gaming, Movies, TV, Music**
+6. [AFC Team 'Made It Clear' Potential Patriots Free-Agent Target Will Stay Put](https://nesn.com/new-england-patriots/news/afc-team-made-it-clear-potential-patriots-free-agent-target-will-stay-put/d48fc885c97026086e90e18d) - **NESN**
+7. ['Cruel ending means escape looks more and more unlikely'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fac9416c-7c30-4342-851a-c54957e1c8c4) - **Yahoo Entertainment**
+8. [Tottenham’s relegation fears deepen as losing run extends at Fulham](https://www.independent.ie/sport/soccer/premier-league/tottenhams-relegation-fears-deepen-as-losing-run-extends-at-fulham/a1477638934.html) - **Independent.ie**
+9. [Fernandes and Sesko storm Palace defence to move United into third](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b81ca6d9-7817-406a-982c-3d3672e6ec90) - **Yahoo Entertainment**
+10. [Fulham 2-1 Tottenham: Report, result, goals from Premier League 2025/26](https://www.101greatgoals.com/football/premier-league/fulham-tottenham-report-result-goals/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-03-03 00:57:39 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-03 02:00:17 (KST) / (하루 100회 제한 준수 중)*
