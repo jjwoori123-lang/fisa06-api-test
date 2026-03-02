@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal passes latest test to go 5 points clear at top of Premier Leagueb](https://japantoday.com/category/sports/man-united-flying-high-after-2-1-win-against-crystal-palace.-arsenal-hosts-chelsea) - **Japan Today**
-2. [“It took me to another level” – Bernardo Silva pays homage to Pep Guardiola as Manchester City time nears end](https://cityxtra.co.uk/42310/it-took-me-to-another-level-bernardo-silva-pays-homage-to-pep-guardiola-as-manchester-city-time-nears-end/) - **Cityxtra.co.uk**
-3. [Who will win race for the Champions League?](https://www.bbc.com/sport/football/articles/cp9mkm1pm50o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [USWNT live stream: How to watch USA soccer vs. Argentina in SheBelieves Cup, start time, odds](https://www.cbssports.com/soccer/news/uswnt-live-stream-vs-argentina-shebelieves-cup/) - **CBS Sports**
-5. [Who has made Troy's Premier League team of the week?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0bea70e1-cc59-47f1-ada8-10efd1913b85) - **Yahoo Entertainment**
-6. [Would it be bigger gamble not to give Carrick Man Utd job?](https://www.bbc.com/sport/football/articles/cy0dp14k40lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/cr73ljr0xe0o) - **BBC News**
-8. [How did Arsenal’s win over Chelsea reshape the title race? #sports](https://alltoc.com/sports/how-did-arsenals-win-over-chelsea-reshape-the-title-race) - **Alltoc.com**
-9. [Arteta hails Raya heroics as Arsenal see off Chelsea challenge](https://www.101greatgoals.com/football/premier-league/arteta-hails-raya-heroics-arsenal-chelsea/) - **101 Great Goals**
-10. [NFL insiders share Cowboys rumors from the combine](https://www.bloggingtheboys.com/dallas-cowboys-rumors/198390/nfl-insiders-share-rumors-combine-free-agents) - **Blogging The Boys**
+1. [Bruno Fernandes Surpasses David Beckham On Manchester United Milestone List](https://www.foxsports.com/stories/soccer/bruno-fernandes-surpasses-david-beckham-in-man-utd-history-books-after-magical-assist-vs-crystal-palace) - **Fox Sports**
+2. [Report: Man United are in the race to sign 8-goal Premier League forward](https://eplindex.com/143425/report-man-united-are-in-the-race-to-sign-8-goal-premier-league-forward.html) - **English Premier League Index - Opta Stats**
+3. [Tottenham Hotspur fans rage at struggling Vicario: ‘Makes Heurelho Gomes look like Pat Jennings’](https://football-italia.net/tottenham-hotspur-fans-rage-struggling-vicario/) - **Football Italia**
+4. [Julian Nagelsmann speaks on five Premier League stars he’s coached in extended interview, includes views on Anton Stach and Brajan Gruda](https://www.getfootballnewsgermany.com/2026/julian-nagelsmann-epl/) - **Getfootballnewsgermany.com**
+5. [Most goals scored from corners in a Premier League season: Arsenal on verge of setting new record in title chase](https://www.sportingnews.com/us/soccer/news/most-goals-scored-corners-premier-league-season-record/a5a91a246b82e37bf200101d) - **Sporting News**
+6. [Liverpool told that they have someone even better than Jude Bellingham right now](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-told-that-they-have-someone-even-better-than-jude-bellingham-right-now/) - **Anfieldwatch.co.uk**
+7. [Arsenal passes latest test to go 5 points clear at top of Premier Leagueb](https://japantoday.com/category/sports/man-united-flying-high-after-2-1-win-against-crystal-palace.-arsenal-hosts-chelsea) - **Japan Today**
+8. [“It took me to another level” – Bernardo Silva pays homage to Pep Guardiola as Manchester City time nears end](https://cityxtra.co.uk/42310/it-took-me-to-another-level-bernardo-silva-pays-homage-to-pep-guardiola-as-manchester-city-time-nears-end/) - **Cityxtra.co.uk**
+9. [Who will win race for the Champions League?](https://www.bbc.com/sport/football/articles/cp9mkm1pm50o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [USWNT live stream: How to watch USA soccer vs. Argentina in SheBelieves Cup, start time, odds](https://www.cbssports.com/soccer/news/uswnt-live-stream-vs-argentina-shebelieves-cup/) - **CBS Sports**
 
 
 ---
-*최근 업데이트: 2026-03-03 06:37:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-03 07:01:25 (KST) / (하루 100회 제한 준수 중)*
