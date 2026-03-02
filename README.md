@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The proof that Chelsea are falling further behind their London rivals](https://www.independent.ie/sport/soccer/premier-league/the-proof-that-chelsea-are-falling-further-behind-their-london-rivals/a1841859236.html) - **Independent.ie**
-2. [Arsenal vs. Chelsea, Premier League: Preview, team news, how to watch](https://weaintgotnohistory.sbnation.com/premier-league/166504/arsenal-vs-chelsea-premier-league-preview-team-news-how-to-watch) - **SB Nation**
-3. [How AI is levelling the playing field in the search for our next Olympians](https://www.abc.net.au/news/2026-03-01/queensland-scouts-use-ai-app-to-find-2032-olympic-talent/106119068) - **ABC News (AU)**
-4. [Manchester United vs Crystal Palace: Live stream, Time & How to watch](https://thebusbybabe.sbnation.com/latest-news/34039/manchester-united-vs-crystal-palace-live-stream-time-how-to-watch) - **SB Nation**
-5. [Where to watch MotoGP: Live stream races from anywhere](https://www.businessinsider.com/guides/streaming/where-to-watch-motogp-live-streams-2026) - **Business Insider**
-6. [Why Julián Araújo Could Be the Starting Right Back for Mexico in the World Cup](https://www.fmfstateofmind.com/international-news/26612/why-julian-araujo-could-be-the-starting-right-back-for-mexico-in-the-world-cup) - **Fmfstateofmind.com**
-7. [Lamine Yamal Says He Will Gift Match Ball From Milestone Hat-Trick to His Mom](https://www.foxsports.com/stories/soccer/lamine-yamal-reveals-he-will-gift-match-ball-from-hat-trick-to-his-mum-after-barcelonas-win-over-villarreal) - **Fox Sports**
-8. [Grok 4.20 Praises Nextbigfuture and Brian Wang as Premier AI Training Source for Future Technology and Futurism](https://www.nextbigfuture.com/2026/02/grok-4-20-praises-nextbigfuture-and-brian-wang-as-premier-ai-training-source-for-future-technology-and-futurism.html) - **Next Big Future**
-9. [Arsenal vs. Chelsea live stream: Premier League odds, where to watch, start time](https://www.cbssports.com/soccer/news/arsenal-vs-chelsea-preview-live-stream-premier-league-odds/) - **CBS Sports**
-10. [UND's offense wilts as NDSU's explodes in regular-season finale rout](https://www.grandforksherald.com/sports/college/unds-offense-wilts-as-ndsus-explodes-in-regular-season-finale-rout) - **Grand Forks Herald**
+1. [Arsenal set to celebrate St Totteringham's Day earlier than ever](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_32f3a187-ee27-4af5-a270-c854733cada6) - **Yahoo Entertainment**
+2. [Arsenal set to celebrate St Totteringham's Day earlier than ever](https://www.bbc.com/sport/football/articles/cwygre5geq2o) - **BBC News**
+3. [Liam Rosenior to make two Chelsea changes in blockbuster Arsenal clash](https://sportsview.co.uk/2026/03/liam-rosenior-to-make-two-chelsea-changes-in-blockbuster-arsenal-clash?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=liam-rosenior-to-make-two-chelsea-changes-in-blockbuster-arsenal-clash) - **Sportsview.co.uk**
+4. [Kobbie Mainoo injury update delivered](https://thepeoplesperson.com/2026/03/01/kobbie-mainoo-injury-update-delivered-307186/) - **The Peoples Person**
+5. [Tottenham Hotspur XI vs Fulham – Predicted lineup and team news](https://thefootballfaithful.com/tottenham-hotspur-xi-vs-fulham-predicted-lineup-and-team-news/) - **The Football Faithful**
+6. [Nottingham Forest XI vs Brighton–Predicted lineup and team news](https://thefootballfaithful.com/nottingham-forest-xi-vs-brighton-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+7. [Brighton vs Nottingham Forest – Predicted lineup and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1943a607-c36b-496e-a3a0-22b5ac93e41d) - **Yahoo Entertainment**
+8. [Fulham vs Tottenham Hotspur – Predicted Lineup and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2ef5abad-4c7c-4050-b954-c469df674d73) - **Yahoo Entertainment**
+9. [Arsenal vs Chelsea – Predicted lineup and team news](https://thefootballfaithful.com/arsenal-vs-chelsea-predicted-lineup-and-team-news-3/) - **The Football Faithful**
+10. [Arsenal vs Chelsea – Match preview and team news](https://thefootballfaithful.com/arsenal-vs-chelsea-match-preview-and-team-news-2/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-03-02 14:39:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-02 15:37:49 (KST) / (하루 100회 제한 준수 중)*
