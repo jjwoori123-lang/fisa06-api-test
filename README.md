@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal have 4 players in top 25 in key category and Chelsea will struggle to cope](https://chelsea.news/2026/03/arsenal-set-piece-category-top-25/) - **Chelsea.news**
-2. [That’s why I signed up” – Liam Rosenior reveals what convinced him to take on Chelsea challenge](https://chelsea.news/2026/03/liam-rosenior-chelsea-long-term/) - **Chelsea.news**
-3. [Arsenal x Chelsea: Veja onde assistir à Premier League](https://www.infomoney.com.br/esportes/arsenal-chelsea-onde-assistir-premiere-league/) - **InfoMoney**
-4. [Guardiola calls for respect after Ramadan break is booed](https://sports.yahoo.com/articles/guardiola-calls-respect-ramadan-break-130032205.html) - **Yahoo Entertainment**
-5. [Fulham vs Tottenham: Confirmed teams and line ups in Premier League 2025/26](https://www.101greatgoals.com/football/fulham-vs-tottenham-confirmed-teams-line-ups/) - **101 Great Goals**
-6. [Confirmed Man United XI vs Crystal Palace: Sesko starts](https://thepeoplesperson.com/2026/03/01/confirmed-man-united-xi-vs-crystal-palace-307197/) - **The Peoples Person**
-7. [Manchester United vs Crystal Palace: Confirmed teams and line ups in Premier League 2025/26](https://www.101greatgoals.com/football/premier-league/manchester-united-vs-crystal-palace-confirmed-teams-line-ups/) - **101 Great Goals**
-8. [ BREAKING: Fulham and Tottenham name lineups for PL match](https://onefootball.com/en/news/breaking-fulham-and-tottenham-name-lineups-for-pl-match-42486948) - **Onefootball.com**
-9. [ BREAKING: Man United name starting XI for Palace clash](https://onefootball.com/en/news/breaking-man-united-name-starting-xi-for-palace-clash-42486942) - **Onefootball.com**
+1. [Newcastle 2-3 Everton — Match Report: Sickening Outing](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f37f56f0-1ea9-4f47-9b16-df90c28ebd73) - **Yahoo Entertainment**
+2. [Premier League scores: Manchester United aiming to go third at Old Trafford](https://www.independent.ie/sport/soccer/premier-league/premier-league-scores-manchester-united-aiming-to-go-third-at-old-trafford/a1661613874.html) - **Independent.ie**
+3. [Man City Manchester City N Forest Nottingham Forest](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_40d91cfd-c2f7-4c79-86f4-d5aff5236fbb) - **Yahoo Entertainment**
+4. [Arsenal vs. Chelsea: Predicted lineups for marquee 2025-26 Premier League matchup](https://worldsoccertalk.com/news/arsenal-vs-chelsea-predicted-lineups-for-marquee-2025-26-premier-league-matchup/) - **Worldsoccertalk.com**
+5. [LIVE: Arsenal vs Chelsea – Premier League](https://www.aljazeera.com/sports/liveblog/2026/3/1/live-arsenal-vs-chelsea-premier-league) - **Al Jazeera English**
+6. [NFL analyst sparks trade rumors involving Jordan Love and Caleb Williams, and Micah Parsons' brother isn't keeping quiet](https://www.marca.com/en/nfl/chicago-bears/2026/03/01/69a42fe5268e3e045a8b45ac.html) - **Marca**
+7. [Premier League Soccer 2026: Stream Arsenal vs. Chelsea Live](https://www.cnet.com/tech/services-and-software/premier-league-soccer-2026-stream-arsenal-vs-chelsea-live/) - **CNET**
+8. [Erling Haaland had a two-word reaction to Manchester City’s 1-0 win vs. Leeds in his absence](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_69f66806-07bb-489a-b774-4f6d2e5a7718) - **Yahoo Entertainment**
+9. [Brighton vs Nottingham Forest LIVE updates, watch live, score, analysis, highlights](https://www.nbcsports.com/soccer/news/how-to-watch-brighton-vs-nottingham-forest-live-stream-link-tv-channel-team-news-prediction) - **NBCSports.com**
+10. [Arsenal vs Chelsea Live Streams: How to watch Premier League 2025-26 from anywhere in the world](https://www.techradar.com/how-to-watch/football/arsenal-vs-chelsea-live-premier-league-2025-26) - **TechRadar**
 
 
 ---
-*최근 업데이트: 2026-03-02 22:06:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-02 23:09:47 (KST) / (하루 100회 제한 준수 중)*
