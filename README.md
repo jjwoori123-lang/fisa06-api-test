@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Hart breaks down why 'disciplined' Raya is so good](https://www.bbc.com/sport/football/videos/crm8drp9pjlo) - **BBC News**
-2. ['Ugly' or 'beautiful'? Set-pieces prove decisive for Arsenal again - BBC](https://slashdot.org/firehose.pl?op=view&amp;id=180880876) - **Slashdot.org**
-3. [VISION 2026 | NCAA golf regional hosted by Pitt-Johnstown, Sunnehanna brings dollars, prestige to city](https://www.tribdem.com/sports/local_sports/vision-2026-ncaa-golf-regional-hosted-by-pitt-johnstown-sunnehanna-brings-dollars-prestige-to-city/article_5b495053-ffb5-4129-96d0-4b7496a84fae.html) - **TribDem.com**
-4. [London Is Red! Who Were Arsenal's Pivotal Players In Key Win Over Chelsea?](https://www.foxsports.com/stories/soccer/arsenal-player-ratings-vs-chelsea-set-piece-fc-wont-be-denied-william-saliba-and-jurrien-timber-prove-deadly-from-dead-balls-while-david-raya-heroics-help-gunners-keep-title-charge-on-track) - **Fox Sports**
-5. [Ian Wright says Arsenal made him nervous in the second half](https://www.justarsenal.com/ian-wright-says-arsenal-made-him-nervous-in-the-second-half/411038) - **Just Arsenal News**
-6. [Liverpool already have their next Ryan Gravenberch lined up after what 'clever' star did](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-already-have-their-next-ryan-gravenberch-lined-up-after-what-clever-star-did/) - **Anfieldwatch.co.uk**
-7. [Guardiola updates on Haaland’s fitness and reveals another Man City injury worry](https://hayters.com/guardiola-updates-on-haalands-fitness-and-reveals-another-man-city-injury-worry/) - **Hayters.com**
-8. [From now it’s about mindset – Pep](https://www.mancity.com/news/mens/pep-guardiola-leeds-united-manchester-city-post-match-reaction-63907986) - **Manchester City FC**
-9. ['I have battles every day': Pep Guardiola primed for latest Man City title fight](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3877079b-798c-44e5-a91c-cbf723e2fbbf) - **Yahoo Entertainment**
-10. [How Mikel Arteta's half-time message drove Arsenal to Chelsea victory](https://www.sportingnews.com/us/soccer/news/artetas-tottenham-dressing-room-message-drove-arsenal-chelsea-victory/7dfda806840eea03a2e961da) - **Sporting News**
+1. [Opinion: Could Jadarian Price Be The One-Cut Cure and Missing Piece of the Texans’ Rushing Puzzle?](https://roundtable.io/sports/nfl/texans/players/opinion-could-jadarian-price-be-the-one-cut-cure-and-missing-piece-of-the-texans-rushing-puzzle) - **Roundtable.io**
+2. [The Chiefs could lose one of their draft targets if another team decides to take a risk first](https://www.marca.com/en/nfl/kansas-city-chiefs/2026/03/02/69a4c10de2704e4b548b458d.html) - **Marca**
+3. [Chelsea: 7 players sent off this season in the Premier League](https://foot-africa.com/en/news/chelsea-7-players-sent-off-this-season-in-the-premier-league-1107011/) - **Foot-africa.com**
+4. [Padres have many decisions this spring](https://www.gaslampball.com/san-diego-padres-analysis-commentary/54030/padres-have-many-decisions-this-spring) - **Gaslampball.com**
+5. [Breakout stars whose growth could move your club's needle this season](https://www.abc.net.au/news/2026-03-02/afl-breakout-stars-caddy-smith-rachele/106386254) - **ABC News (AU)**
+6. [As cricket attempts to go global, Omnicom FUSE bets on cricket-music blend](https://www.livemint.com/companies/news/as-cricket-attempts-to-go-global-omnicom-fuse-bets-on-cricket-music-blend-11772354479899.html) - **Livemint**
+7. [Arsenal and the magic of corners..](https://foot-africa.com/en/news/arsenal-and-the-magic-of-corners-1106972/) - **Foot-africa.com**
+8. [West Ham admit they have to sell players amid United’s interest in Fernandes and Bowen](https://thepeoplesperson.com/2026/03/02/west-ham-admit-they-have-to-sell-players-amid-uniteds-interest-in-fernandes-and-bowen-307230/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-03-03 08:57:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-03 11:51:42 (KST) / (하루 100회 제한 준수 중)*
