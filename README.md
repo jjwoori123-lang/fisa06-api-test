@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Calafiori on life with Arsenal and the one thing he doesn’t like about London: ‘Too slow’](https://football-italia.net/the-one-thing-calafiori-doesnt-like-in-london/) - **Football Italia**
-2. [Sunderland and West Ham eye Serie A striker](https://eplindex.com/143439/sunderland-and-west-ham-eye-serie-a-striker.html) - **English Premier League Index - Opta Stats**
-3. [100% duels, most passes completed, more xA than Neto and Palmer combined – defender dominates](https://chelsea.news/2026/03/100-duels-most-passes-completed-more-xa-than-neto-and-palmer-combined-defender-dominates/) - **Chelsea.news**
-4. [Toure says Carabao Cup final could impact Premier League title race](https://thefootballfaithful.com/toure-says-carabao-cup-final-could-impact-premier-league-title-race/) - **The Football Faithful**
-5. [Slot urges Liverpool focus for Wolves double-header](https://thefootballfaithful.com/slot-urges-liverpool-focus-for-wolves-double-header/) - **The Football Faithful**
-6. [Leon Goretzka to Arsenal a “strong possibility”](https://www.getfootballnewsgermany.com/2026/leon-goretzka-to-arsenal-a-strong-possibility/) - **Getfootballnewsgermany.com**
-7. [Every Chelsea player sent off this season as total reaches nine](https://thefootballfaithful.com/every-chelsea-player-sent-off-this-season-as-total-reaches-nine/) - **The Football Faithful**
-8. [Liverpool's Slot says his 'football heart' does not like set-piece trend](https://sports.yahoo.com/articles/liverpools-slot-says-football-heart-113502333.html) - **Yahoo Entertainment**
-9. [Arne Slot confirms Liverpool boost but warns about workload management](https://www.empireofthekop.com/2026/03/02/arne-slot-confirms-liverpool-boost-but-warns-about-workload-management-frimpong/) - **Empire of The Kop**
-10. [Analysis: Damsgaard's numbers among best in Premier League](https://www.brentfordfc.com/en/news/article/analysis-mikkel-damsgaard-burnley-3-brentford-4-premier-league) - **Brentfordfc.com**
+1. [Bruno Fernandes: Gary Lineker makes bold claim about United ace](https://thepeoplesperson.com/2026/03/02/bruno-fernandes-gary-lineker-makes-bold-claim-about-united-ace-307240/) - **The Peoples Person**
+2. [Andrews on chaotic Burnley win, Damsgaard's form & Bournemouth](https://www.bbc.com/sport/football/articles/c4gjwmnk04ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [2 Arsenal players make Team of the Week after Chelsea win](https://dailycannon.com/2026/03/arsenal-chelsea-premier-league-team-week/) - **Dailycannon.com**
+4. [Liverpool's Wirtz out of Wolves game, Frimpong available amid fixture pile up](https://www.channelnewsasia.com/sport/liverpools-wirtz-out-wolves-game-frimpong-available-amid-fixture-pile-up-5964416) - **CNA**
+5. [66 shots, one goal - Forest's goalscoring troubles to continue with Man City next?](https://www.skysports.com/football/news/11727/13514142/nottingham-forest-threat-of-relegation-intensifies-with-vitor-pereiras-side-scoring-just-once-in-their-last-66-attempts) - **Sky Sports**
+6. [Aston Villa, Leeds and Sunderland unveil St. Patrick's Day merchandise collections as Paul McGrath takes centre stage](https://www.independent.ie/sport/soccer/premier-league/aston-villa-leeds-and-sunderland-unveil-st-patricks-day-merchandise-collections-as-paul-mcgrath-takes-centre-stage/a1169174677.html) - **Independent.ie**
+7. [Germany boss Nagelsmann sends clear message on Woltemade amid Newcastle struggles](https://www.101greatgoals.com/football/premier-league/germany-boss-woltemade-newcastle-struggles/) - **101 Great Goals**
+8. [Italy players in Premier League: Tonali assist, Kayode chaos, Lucca concerns](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f6894934-8ff2-49f1-8560-4fc077292dcf) - **Yahoo Entertainment**
+9. [Report – Arsenal Join Inter Milan In Race To Sign Outgoing Bayern Munich & Germany Superstar](https://sempreinter.com/2026/03/02/arsenal-join-inter-milan-race-bayern-munich-star-goretzka/) - **SempreInter**
+10. [Forest unlikely to make full striker move](https://eplindex.com/143442/forest-unlikely-to-make-full-striker-move.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-03-03 20:59:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-03 22:18:53 (KST) / (하루 100회 제한 준수 중)*
