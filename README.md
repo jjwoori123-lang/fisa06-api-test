@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Premier League Contender Preparing £75 Million Offer for Newcastle’s Anthony Gordon](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/20725/premier-league-contender-preparing-75-million-offer-for-newcastles-anthony-gordon) - **SB Nation**
-2. [Lineker tips Arsenal man to win Player of the Season award](https://www.justarsenal.com/lineker-tips-arsenal-man-to-win-player-of-the-season-award/411069) - **Just Arsenal News**
-3. [Liverpool have golden opportunity to finally sign dream £115m transfer target](https://anfieldindex.com/91686/liverpool-have-golden-opportunity-to-finally-sign-dream-115m-transfer-target.html) - **Anfieldindex.com**
-4. [Exclusive: Man Utd told to sign ‘phenomenal’ £200m Premier League duo](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_453ad209-9797-411f-9c57-02f5d6dad3f9) - **Yahoo Entertainment**
-5. [Report: Arsenal set to battle Liverpool to sign word-class €100m star](https://eplindex.com/143464/report-arsenal-set-to-battle-liverpool-to-sign-word-class-e100m-star.html) - **English Premier League Index - Opta Stats**
-6. [Report – Inter Milan & Juventus Set To Battle For The Signature Of Liverpool Goalkeeper](https://sempreinter.com/2026/03/02/inter-milan-set-rival-juventus-liverpool-star-alisson-becker/) - **SempreInter**
-7. [Sutton's predictions v singer-songwriter & Chelsea fan Noah Kahan](https://www.bbc.com/sport/football/articles/cx2rvnz402lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Sutton's predictions v singer-songwriter & Chelsea fan Noah Kahan](https://www.bbc.com/sport/football/articles/cx2rvnz402lo) - **BBC News**
-9. [Picture: Man United fans send clear response to Ratcliffe’s controversial immigration views](https://thepeoplesperson.com/2026/03/02/picture-man-united-fans-send-clear-response-to-ratcliffes-controversial-immigration-views-307248/) - **The Peoples Person**
-10. [Analysing Nottingham Forest before Wednesday’s clash](https://www.mancity.com/news/mens/nottingham-forest-opta-analysis-premier-league-home-63908063) - **Manchester City FC**
+1. [Former West Ham forward Antonio makes Qatar switch](https://www.101greatgoals.com/football/premier-league/former-west-ham-forward-antonio-makes-qatar-switch/) - **101 Great Goals**
+2. [Sunderland’s Forgotten Winger Has Found A New Club: Does It Reveal A Deeper Recruitment Problem?](https://the4thofficial.net/2026/03/sunderlands-forgotten-winger-has-found-a-new-club-does-it-reveal-a-deeper-recruitment-problem/) - **The4thofficial.net**
+3. [Richard Hughes moves closer to making Arne Slot sack decision](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-richard-hughes-moves-closer-to-making-arne-slot-sack-decision/) - **Anfieldwatch.co.uk**
+4. [19-year-old forward who can't stop scoring is begging Arne Slot for a chance](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-kieran-morrison-forward-who-cant-stop-scoring-is-begging-arne-slot-for-a-chance/) - **Anfieldwatch.co.uk**
+5. [PREVIEW | Aston Villa vs Chelsea - team news, lineups, predictions](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6eb77cc5-7cfd-4baf-97ab-b05b1e5759bd) - **Yahoo Entertainment**
+6. [PREVIEW | Brighton & Hove Albion vs Arsenal - team news, lineups, predictions](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e5b45dde-ba04-463e-9007-a7aaaa45929c) - **Yahoo Entertainment**
+7. [Qatar's Al-Sailiya sign former West Ham striker Antonio on free transfer](https://www.channelnewsasia.com/sport/qatars-al-sailiya-sign-former-west-ham-striker-antonio-free-transfer-5965166) - **CNA**
+8. [Garnacho And Fofana To Start | 4-2-3-1 Chelsea Predicted Lineup Vs Aston Villa](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3b4f2ec5-ccc9-4235-bf13-0d8d3f3fb6a4) - **Yahoo Entertainment**
+9. [“It was not a 5-2 game!” – David Lynch reacts to Liverpool’s win over West Ham United](https://anfieldindex.com/91754/it-was-not-a-5-2-game-david-lynch-reacts-to-liverpools-win-over-west-ham-united.html) - **Anfieldindex.com**
+10. [Oliver Glasner’s hopes of landing Man United job dented by significant new development](https://thepeoplesperson.com/2026/03/02/oliver-glasners-hopes-of-landing-man-united-job-dented-by-significant-new-development-307254/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-03-04 03:01:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-04 04:53:18 (KST) / (하루 100회 제한 준수 중)*
