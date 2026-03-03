@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Welsh Fire owner 'won't discriminate' in auction](https://www.bbc.com/sport/cricket/articles/cwy89xnk75zo) - **BBC News**
-2. [Opinion: Could Jadarian Price Be The One-Cut Cure and Missing Piece of the Texans’ Rushing Puzzle?](https://roundtable.io/sports/nfl/texans/players/opinion-could-jadarian-price-be-the-one-cut-cure-and-missing-piece-of-the-texans-rushing-puzzle) - **Roundtable.io**
-3. [The Chiefs could lose one of their draft targets if another team decides to take a risk first](https://www.marca.com/en/nfl/kansas-city-chiefs/2026/03/02/69a4c10de2704e4b548b458d.html) - **Marca**
-4. [Chelsea: 7 players sent off this season in the Premier League](https://foot-africa.com/en/news/chelsea-7-players-sent-off-this-season-in-the-premier-league-1107011/) - **Foot-africa.com**
-5. [Padres have many decisions this spring](https://www.gaslampball.com/san-diego-padres-analysis-commentary/54030/padres-have-many-decisions-this-spring) - **Gaslampball.com**
-6. [Breakout stars whose growth could move your club's needle this season](https://www.abc.net.au/news/2026-03-02/afl-breakout-stars-caddy-smith-rachele/106386254) - **ABC News (AU)**
-7. [As cricket attempts to go global, Omnicom FUSE bets on cricket-music blend](https://www.livemint.com/companies/news/as-cricket-attempts-to-go-global-omnicom-fuse-bets-on-cricket-music-blend-11772354479899.html) - **Livemint**
-8. [Arsenal and the magic of corners..](https://foot-africa.com/en/news/arsenal-and-the-magic-of-corners-1106972/) - **Foot-africa.com**
-9. [West Ham admit they have to sell players amid United’s interest in Fernandes and Bowen](https://thepeoplesperson.com/2026/03/02/west-ham-admit-they-have-to-sell-players-amid-uniteds-interest-in-fernandes-and-bowen-307230/) - **The Peoples Person**
+1. [When is the NHL trade deadline? Date, end time, top targets and more to know in 2026](https://www.sportingnews.com/us/nhl/news/when-nhl-trade-deadline-end-time-top-targets-2026/87e0facc28961267d6bef647) - **Sporting News**
+2. [Gary Neville clear on Liverpool prediction](https://anfieldindex.com/91725/gary-neville-clear-on-liverpool-prediction.html) - **Anfieldindex.com**
+3. [Arsenal, Manchester City Among Premier League Clubs Tracking PSG Young Star](https://psgworld.io/news/arsenal-manchester-city-among-premier-league-clubs-tracking-psg-young-star) - **Psgworld.io**
+4. [Newcastle vs Man United: Three storylines to sink your teeth into](https://thepeoplesperson.com/2026/03/02/newcastle-vs-man-united-three-storylines-to-sink-your-teeth-into-307233/) - **The Peoples Person**
+5. [Richard Hughes has made a bold Mo Salah decision at Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/richard-hughes-has-made-a-bold-mo-salah-decision-at-liverpool/) - **Anfieldwatch.co.uk**
+6. [Liam Rosenior ‘really disappointed’ as ‘set plays and discipline’ cost Chelsea yet again](https://weaintgotnohistory.sbnation.com/premier-league/166559/liam-rosenior-really-disappointed-as-set-plays-and-discipline-cost-chelsea-yet-again) - **SB Nation**
+7. [Manchester City are reportedly set to go big to sign a Newcastle full-back](https://esteemedkompany.com/2026/03/02/manchester-city-are-reportedly-set-to-go-big-to-sign-a-newcastle-full-back/) - **Esteemedkompany.com**
+8. [10 Essential Facts About Michael B. Jordan: From Early Roles to Surprise Actor Award Win for 'Sinners' in 2026](https://www.ibtimes.com.au/10-essential-facts-about-michael-b-jordan-early-roles-surprise-actor-award-win-sinners-2026-1862428) - **Ibtimes.com.au**
+9. [Gary Neville names Chelsea player who can ‘hold his head high’ despite Arsenal defeat](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_18a98075-b118-4da6-844d-145fb8318091) - **Yahoo Entertainment**
+10. [Our Writers React To Dan Ballard’s Sunderland Contract Extension!](https://rokerreport.sbnation.com/opinion/128916/our-writers-react-to-dan-ballards-sunderland-contract-extension) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-03-03 14:52:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-03 15:57:34 (KST) / (하루 100회 제한 준수 중)*
