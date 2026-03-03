@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Richard Hughes told that Liverpool will need 'big money' to sign centre-back](https://www.anfieldwatch.co.uk/liverpool-fc/news/richard-hughes-told-that-liverpool-will-need-big-money-to-sign-centre-back/) - **Anfieldwatch.co.uk**
-2. [Egyptian Premier League: Zamalek defeats Pyramids and claims top spot](https://foot-africa.com/en/news/egyptian-premier-league-zamalek-defeats-pyramids-and-claims-top-spot-1107161/) - **Foot-africa.com**
-3. [Is Europa League football taking a toll on Forest?](https://www.bbc.com/sport/football/articles/c743vlv3nzlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [No new-manager bounce for struggling Spurs](https://www.bbc.com/sport/football/articles/cp810n9n6e6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [How bad are Chelsea's disciplinary problems?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_39b2acea-f6aa-4313-9e25-c9e662f4efe5) - **Yahoo Entertainment**
-6. [Quiz: Name every team who has played in the Premier League](https://www.bbc.com/sport/football/articles/c80jgdvdpnvo) - **BBC News**
-7. [A gifted young centre-back has the ambition and talent to make it at Manchester City](https://esteemedkompany.com/2026/03/02/a-gifted-young-centre-back-has-the-ambition-and-talent-to-make-it-at-manchester-city/) - **Esteemedkompany.com**
-8. [FPL Focus: Saliba's points soar and trade secrets](http://www.arsenal.com/news/fpl-focus-salibas-points-soar-and-trade-secrets) - **Arsenal.com**
-9. ['Fearless' Wrexham coming into their own before Chelsea tie](https://www.bbc.com/sport/football/articles/c5y4q602qwpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Match Officials: Darren England to referee Manchester City vs Nottingham Forest](https://cityxtra.co.uk/42321/match-officials-darren-england-to-referee-manchester-city-vs-nottingham-forest/) - **Cityxtra.co.uk**
+1. [Blackburn Rovers Under-18s 3 Newcastle United Under-18s 2](https://www.newcastleunited.com/en/news/blackburn-rovers-under-18s-3-newcastle-united-under-18s-2) - **Newcastleunited.com**
+2. [Gary Neville believes Liverpool will fall short of Man Utd](https://www.empireofthekop.com/2026/03/02/gary-neville-believes-liverpool-will-fall-short-of-man-utd/) - **Empire of The Kop**
+3. [Legends League Cricket sold to Blue God Entertainment for Rs 49 crore](https://economictimes.indiatimes.com/news/sports/legends-league-cricket-sold-to-blue-god-entertainment-for-rs-49-crore/articleshow/128943097.cms) - **The Times of India**
+4. [Guardiola unsure how long Haaland will be absent](https://www.rte.ie/sport/soccer/2026/0302/1561164-guardiola-unsure-how-long-haaland-will-be-absent/) - **RTE**
+5. [De Bruyne day: Napoli star returns after 128 days](https://football-italia.net/de-bruyne-day-napoli-star-returns-128-days/) - **Football Italia**
+6. [Important goals and big saves: Who were the weekend's difference makers?](https://www.skysports.com/football/news/11661/13513856/important-goals-and-big-saves-jordan-pickford-hugo-ekitike-and-bruno-fernandes-among-those-to-deliver-key-premier-league-moments) - **Sky Sports**
+7. [Injury news: Brentford issues update on six first-team players](https://www.brentfordfc.com/en/news/article/first-team-injury-update-josh-dasilva-aaron-hickey-vitaly-janelt) - **Brentfordfc.com**
+8. [Ref Watch LIVE! Lacroix red and big Arsenal-Chelsea calls assessed](https://www.skysports.com/football/live-blog/11095/13514122/ref-watch-live-premier-league-efl-and-scottish-premiership-incidents-analysed-by-dermot-gallagher-and-jay-bothroyd) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-03-03 17:48:31 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-03 18:48:53 (KST) / (하루 100회 제한 준수 중)*
