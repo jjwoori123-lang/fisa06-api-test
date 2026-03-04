@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Will Carrick Make Any Changes? | 4-2-3-1 Manchester United Predicted Lineup Vs Newcastle United](https://the4thofficial.net/2026/03/will-carrick-make-any-changes-4-2-3-1-manchester-united-predicted-lineup-vs-newcastle-united/) - **The4thofficial.net**
-2. [Bruno Fernandes: United skipper wins season’s fourth Premier League award](https://thepeoplesperson.com/2026/03/03/bruno-fernandes-united-skipper-wins-seasons-fourth-premier-league-award-307296/) - **The Peoples Person**
-3. [Everton vs Burnley: Starting Lineups, TV and Live Streams, How to Watch Online](https://royalbluemersey.sbnation.com/everton-gamethread-live-blog/78511/everton-vs-burnley-starting-lineups-tv-and-live-streams-how-to-watch-online) - **SB Nation**
-4. [Cristo Fernandez soccer career, explained: Why Dani Rojas from 'Ted Lasso' is trying out for USL](https://www.sportingnews.com/us/soccer/news/cristo-fernandez-soccer-dani-rojas-ted-lasso-usl/61aecdaecb906279e92913f5) - **Sporting News**
-5. [KSI outlines Premier League ‘dream’ in first message after becoming Dagenham & Redbridge owner](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_29645a87-eb63-43f8-b268-def7d0224c1e) - **Yahoo Entertainment**
-6. [PREVIEW: Arsenal aim to boost title hopes at Amex despite Brighton’s uptick in form](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c7b3e8e1-85d3-4f94-ac0c-6424b1f9225d) - **Yahoo Entertainment**
-7. [Report – Red Star Belgrade Prodigy “Dreams” Of Premier League But Inter Milan Remain Confident](https://sempreinter.com/2026/03/03/inter-milan-target-vasilije-kostov-dreams-premier-league/) - **SempreInter**
-8. [Leeds v Sunderland: Line-ups confirmed for Premier League clash](https://www.101greatgoals.com/football/premier-league/leeds-v-sunderland-line-ups-confirmed-for-premier-league-clash/) - **101 Great Goals**
-9. [Bournemouth v Brentford: Line-ups confirmed as Bees look to sting Cherries](https://www.101greatgoals.com/football/premier-league/bournemouth-v-brentford-line-ups-confirmed/) - **101 Great Goals**
+1. [Tel, Richarlison And Danso To Start | 4-2-3-1 Tottenham Hotspur Predicted Lineup Vs Crystal Palace](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0632cff7-369f-4fb1-aed1-61576546a30d) - **Yahoo Entertainment**
+2. [Burning questions for Premier League's Champions League race: Can Liverpool take Arsenal's set piece crown?](https://www.cbssports.com/soccer/news/arsenal-liverpool-chelsea-aston-villa-premier-leagues-champions-league/) - **CBS Sports**
+3. ['Fin stole my fly-half spot!' – Atkinson on England's new 10-12 combo](https://www.bbc.com/sport/rugby-union/articles/c93w1z75469o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [LIVE – Barcelona v Atletico Madrid: Commentary, updates, goals and stats as hosts look for Remontada repeat](https://www.101greatgoals.com/football/barcelona-v-atletico-madrid-live-updates-goals-stats-remontada/) - **101 Great Goals**
+5. [Eden Hazard says he spoke with Sir Alex Ferguson before choosing Chelsea over Man Und](https://www.hitc.com/eden-hazard-says-he-spoke-with-sir-alex-ferguson-before-choosing-chelsea-over-man-und/) - **HITC - Football, Gaming, Movies, TV, Music**
+6. [Ghana: Will the Black Stars need André Ayew at the 2026 World Cup?](https://foot-africa.com/en/news/ghana-will-the-black-stars-need-andre-ayew-at-the-2026-world-cup-1109486/) - **Foot-africa.com**
+7. [Cvancara To Lead The Line? | Predicted 4-3-3 Celtic Lineup To Face Aberdeen](https://the4thofficial.net/2026/03/cvancara-to-lead-the-line-predicted-4-3-3-celtic-lineup-to-face-aberdeen/) - **The4thofficial.net**
+8. [Lisandro Martinez update provided by Carrick ahead of Newcastle tie](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_92ad8283-10fa-4c70-95e5-b1cb162a2a3d) - **Yahoo Entertainment**
+9. [Wolves v Liverpool: Line-ups confirmed as Frimpong starts for Reds](https://www.101greatgoals.com/football/premier-league/wolves-v-liverpool-line-ups-confirmed-as-frimpong-starts-for-reds/) - **101 Great Goals**
+10. [Arteta defends set piece tactics after Arsenal criticism](https://www.101greatgoals.com/football/premier-league/arteta-defends-set-piece-tactics-after-arsenal-criticism/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-03-05 03:56:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-05 04:40:38 (KST) / (하루 100회 제한 준수 중)*
