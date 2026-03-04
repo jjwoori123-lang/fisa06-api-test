@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Brighton vs Arsenal: Match Preview, Latest Team News and How to Watch](https://eplindex.com/143497/brighton-vs-arsenal-match-preview-latest-team-news-and-how-to-watch.html) - **English Premier League Index - Opta Stats**
-2. [Ryan Reynolds and Rob McElhenney to mark five years at Wrexham with live commentary](https://www.independent.ie/sport/soccer/ryan-reynolds-and-rob-mcelhenney-to-mark-five-years-at-wrexham-with-live-commentary/a235820230.html) - **Independent.ie**
-3. [Premier League: date, time, channels and lineups for the Wolves vs Liverpool match](https://foot-africa.com/en/news/premier-league-date-time-channels-and-lineups-for-the-wolves-vs-liverpool-match-1109114/) - **Foot-africa.com**
-4. [Versant Sees Chance to Snatch Big Sports Rights as NFL Opt-Out Looms](https://variety.com/2026/tv/news/versant-snatch-nfl-sports-rights-opt-out-1236677991/) - **Variety**
-5. [Liverpool Starting XI vs Wolves: Confirmed Team News and Predicted Lineup](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4f93312d-edb4-4a04-b7c3-9f120212b670) - **Yahoo Entertainment**
-6. [Arteta gives latest Arsenal injury news ahead of Brighton](https://dailycannon.com/2026/03/arsenal-brighton-injuries/) - **Dailycannon.com**
-7. [Premier League (J29): What time and on which channels to watch Newcastle vs Manchester United?](https://foot-africa.com/en/news/premier-league-j29-what-time-and-on-which-channels-to-watch-newcastle-vs-manchester-united-1109078/) - **Foot-africa.com**
-8. [Go Inside N5 from our Chelsea success](http://www.arsenal.com/news/go-inside-n5-our-chelsea-success) - **Arsenal.com**
-9. [Carrick claims Premier League set piece theatrics have ‘gone too far’](https://www.101greatgoals.com/football/premier-league/carrick-premier-league-set-piece-theatrics-gone-too-far/) - **101 Great Goals**
+1. [PREVIEW: Manchester United look to strengthen European credentials against Newcastle](https://wp.fromthespot.co.uk/26947/preview-manchester-united-look-to-strengthen-european-credentials-against-newcastle/) - **Fromthespot.co.uk**
+2. [Aston Villa vs Chelsea: Match Preview, Latest Team News and How to Watch](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3e2a6542-0227-4b64-b9ce-6dad6024e9d1) - **Yahoo Entertainment**
+3. [Joshua Abe new deal plans thrown into disarray after heart-breaking blow](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-joshua-abe-new-deal-plans-thrown-into-disarray-after-heart-breaking-blow/) - **Anfieldwatch.co.uk**
+4. [Arteta upset Arsenal don't score more from corner-kicks](https://www.rte.ie/sport/soccer/2026/0303/1561465-arteta-upset-arsenal-dont-score-more-from-corner-kicks/) - **RTE**
+5. [Luke Kornet goes off on Atlanta Hawks for conducting a ‘Magic City Night’](https://www.hitc.com/luke-kornet-goes-off-on-atlanta-hawks-for-conducting-a-magic-city-night/) - **HITC - Football, Gaming, Movies, TV, Music**
+6. [Real Madrid handed major injury blow ahead of Manchester City showdown – Player sidelined for 10 months](https://cityxtra.co.uk/42423/real-madrid-handed-major-injury-blow-ahead-of-manchester-city-showdown-player-sidelined-for-10-months/) - **Cityxtra.co.uk**
+7. [Wolves vs. Liverpool: Premier League 2025-26 Live Coverage & How to Watch](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/78970/wolves-liverpool-premier-league-2025-26-live-coverage-how-to-watch-tv-streaming) - **SB Nation**
+8. [Mid-week Premier League open thread](https://cartilagefreecaptain.sbnation.com/general/69324/mid-week-premier-league-open-thread) - **SB Nation**
+9. [Arteta fires back at critics of Arsenal's set-piece success](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5a1f0471-90e4-4e09-8685-32b0a04e7298) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-05 00:54:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-05 01:52:26 (KST) / (하루 100회 제한 준수 중)*
