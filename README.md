@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [PREVIEW: Manchester United look to strengthen European credentials against Newcastle](https://wp.fromthespot.co.uk/26947/preview-manchester-united-look-to-strengthen-european-credentials-against-newcastle/) - **Fromthespot.co.uk**
-2. [Aston Villa vs Chelsea: Match Preview, Latest Team News and How to Watch](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3e2a6542-0227-4b64-b9ce-6dad6024e9d1) - **Yahoo Entertainment**
-3. [Joshua Abe new deal plans thrown into disarray after heart-breaking blow](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-joshua-abe-new-deal-plans-thrown-into-disarray-after-heart-breaking-blow/) - **Anfieldwatch.co.uk**
-4. [Arteta upset Arsenal don't score more from corner-kicks](https://www.rte.ie/sport/soccer/2026/0303/1561465-arteta-upset-arsenal-dont-score-more-from-corner-kicks/) - **RTE**
-5. [Luke Kornet goes off on Atlanta Hawks for conducting a ‘Magic City Night’](https://www.hitc.com/luke-kornet-goes-off-on-atlanta-hawks-for-conducting-a-magic-city-night/) - **HITC - Football, Gaming, Movies, TV, Music**
-6. [Real Madrid handed major injury blow ahead of Manchester City showdown – Player sidelined for 10 months](https://cityxtra.co.uk/42423/real-madrid-handed-major-injury-blow-ahead-of-manchester-city-showdown-player-sidelined-for-10-months/) - **Cityxtra.co.uk**
-7. [Wolves vs. Liverpool: Premier League 2025-26 Live Coverage & How to Watch](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/78970/wolves-liverpool-premier-league-2025-26-live-coverage-how-to-watch-tv-streaming) - **SB Nation**
-8. [Mid-week Premier League open thread](https://cartilagefreecaptain.sbnation.com/general/69324/mid-week-premier-league-open-thread) - **SB Nation**
-9. [Arteta fires back at critics of Arsenal's set-piece success](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5a1f0471-90e4-4e09-8685-32b0a04e7298) - **Yahoo Entertainment**
+1. [KSI buys minority stake in Dagenham & Redbridge](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_37247a43-73c0-4a11-b0c2-2dd8dc59206e) - **Yahoo Entertainment**
+2. [KSI buys minority stake in Dagenham & Redbridge](https://www.bbc.com/sport/football/articles/c05v0q39vv7o) - **BBC News**
+3. [Erling Haaland injury news: Pep Guardiola gives latest update on Manchester City star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a30e744f-f0f8-4b25-ba43-20e8d5a7abb7) - **Yahoo Entertainment**
+4. [Ryan Reynolds and Rob Mac will call Wrexham game, promise 'unpredictable day'](https://www.usatoday.com/story/sports/soccer/2026/03/03/ryan-reynolds-rob-mac-live-commentary-wrexham-vs-swansea/88961036007/) - **USA Today**
+5. [Boston sign Sunderland keeper on loan](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4e7b60f6-af45-432c-bee6-e74600472e63) - **Yahoo Entertainment**
+6. [Carney: The World Cup isn’t a distraction – it’s a motivation](https://sports.yahoo.com/articles/carney-world-cup-isn-t-170105106.html) - **Yahoo Entertainment**
+7. [KSI buys stake in Dagenham & Redbridge and vows to 'take club to Premier League'](https://www.skysports.com/football/news/11095/13514740/ksi-buys-dagenham-and-redbridge-stake-influencer-vows-to-take-daggers-to-the-premier-league-after-investment) - **Sky Sports**
+8. [Journalist: Liverpool’s reported interest in Premier League star ‘wouldn’t make sense’](https://anfieldindex.com/91778/journalist-liverpools-reported-interest-in-premier-league-star-wouldnt-make-sense.html) - **Anfieldindex.com**
+9. [Arteta shrugs off criticism over Arsenal's set-piece tactics](https://www.channelnewsasia.com/sport/arteta-shrugs-criticism-over-arsenals-set-piece-tactics-5967861) - **CNA**
+10. [PREVIEW: Manchester United look to strengthen European credentials against Newcastle](https://wp.fromthespot.co.uk/26947/preview-manchester-united-look-to-strengthen-european-credentials-against-newcastle/) - **Fromthespot.co.uk**
 
 
 ---
-*최근 업데이트: 2026-03-05 01:52:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-05 02:41:49 (KST) / (하루 100회 제한 준수 중)*
