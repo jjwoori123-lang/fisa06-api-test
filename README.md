@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Brighton coach wants rule change because of Arsenal](https://www.justarsenal.com/brighton-coach-wants-rule-change-because-of-arsenal/411134) - **Just Arsenal News**
-2. [Brighton coach wants rule change because of Arsenal](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a9c9f107-0cbd-4ccd-a524-d9e0c24ac53a) - **Yahoo Entertainment**
-3. [Sky reporter spotted classy gesture from Rob Edwards during Diogo Jota tribute at Molineux](https://www.empireofthekop.com/2026/03/03/sky-reporter-spotted-classy-gesture-from-rob-edwards-during-diogo-jota-tribute/) - **Empire of The Kop**
-4. [Report: Tottenham Hotspur star opens the door to summer exit](https://eplindex.com/143509/report-tottenham-hotspur-star-opens-the-door-to-summer-exit.html) - **English Premier League Index - Opta Stats**
-5. [Mason Mount: Man United respond to transfer interest in star Likened to Scholes](https://thepeoplesperson.com/2026/03/03/mason-mount-man-united-respond-to-transfer-interest-in-star-likened-to-scholes-307302/) - **The Peoples Person**
-6. [The Daily Bee: Manchester City Eyeing a Move for Felix Nmecha](https://www.fearthewall.com/general/23664/the-daily-bee-manchester-city-eyeing-a-move-for-felix-nmecha) - **Fear The Wall**
-7. [Erling Haaland fitness decision revealed for Manchester City against Nottingham Forest](https://cityxtra.co.uk/42447/erling-haaland-fitness-decision-revealed-for-manchester-city-against-nottingham-forest/) - **Cityxtra.co.uk**
-8. [Reynolds and McElhenney set for candid Wrexham commentary](https://www.channelnewsasia.com/sport/reynolds-and-mcelhenney-set-candid-wrexham-commentary-5968221) - **CNA**
-9. [Casemiro has reportedly picked a Premier League star as his replacement at Manchester United](https://worldsoccertalk.com/news/carlos-casemiro-has-reportedly-picked-a-premier-league-star-as-his-manchester-united-before-summer-exit/) - **Worldsoccertalk.com**
-10. [Murphy And Barnes To Start | 4-3-3 Newcastle United Predicted Lineup Vs Manchester United](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8c610bac-f9eb-4475-98a3-575a22cda56f) - **Yahoo Entertainment**
+1. [Home comfort at last for Everton, Leeds beaten by Sunderland](https://www.channelnewsasia.com/sport/home-comfort-last-everton-leeds-beaten-sunderland-5968346) - **CNA**
+2. [Resurgent Wolves stun Liverpool, Everton enjoy home comfort](https://www.channelnewsasia.com/sport/resurgent-wolves-stun-liverpool-everton-enjoy-home-comfort-5968346) - **CNA**
+3. [Elland Road FURY! VAR takes centre stage as Sunderland edge to victory](https://www.skysports.com/premier-league-highlights/video/36504/13514867/leeds-0-1-sunderland-premier-league-highlights) - **Sky Sports**
+4. [Premier League round-up: Everton European charge continues, Leeds pay the penalty aganst Sunderland](https://www.101greatgoals.com/football/premier-league/premier-league-everton-european-charge/) - **101 Great Goals**
+5. [Tout assaults security guard at KIA](https://timesofindia.indiatimes.com/city/bengaluru/tout-assaults-security-guard-at-kia/articleshow/128987565.cms) - **The Times of India**
+6. [Leeds pay penalty as Habib Diarra fires Sunderland to victory](https://www.independent.ie/sport/soccer/premier-league/leeds-pay-penalty-as-habib-diarra-fires-sunderland-to-victory/a1198133846.html) - **Independent.ie**
+7. [VAR controversially denies Bournemouth penalty as Cherries rue missed chances in draw](https://www.skysports.com/football/video/12606/13514857/bournemouth-0-0-brentford-premier-league-highlights) - **Sky Sports**
+8. [James Tarkowski and Kiernan Dewsbury-Hall score in Everton home win over Burnley](https://www.independent.ie/sport/soccer/premier-league/james-tarkowski-and-kiernan-dewsbury-hall-score-in-everton-home-win-over-burnley/a1525621807.html) - **Independent.ie**
 
 
 ---
-*최근 업데이트: 2026-03-05 06:02:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-05 06:51:08 (KST) / (하루 100회 제한 준수 중)*
