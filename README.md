@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [KSI buys minority stake in Dagenham & Redbridge](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_37247a43-73c0-4a11-b0c2-2dd8dc59206e) - **Yahoo Entertainment**
-2. [KSI buys minority stake in Dagenham & Redbridge](https://www.bbc.com/sport/football/articles/c05v0q39vv7o) - **BBC News**
-3. [Erling Haaland injury news: Pep Guardiola gives latest update on Manchester City star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a30e744f-f0f8-4b25-ba43-20e8d5a7abb7) - **Yahoo Entertainment**
-4. [Ryan Reynolds and Rob Mac will call Wrexham game, promise 'unpredictable day'](https://www.usatoday.com/story/sports/soccer/2026/03/03/ryan-reynolds-rob-mac-live-commentary-wrexham-vs-swansea/88961036007/) - **USA Today**
-5. [Boston sign Sunderland keeper on loan](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4e7b60f6-af45-432c-bee6-e74600472e63) - **Yahoo Entertainment**
-6. [Carney: The World Cup isn’t a distraction – it’s a motivation](https://sports.yahoo.com/articles/carney-world-cup-isn-t-170105106.html) - **Yahoo Entertainment**
-7. [KSI buys stake in Dagenham & Redbridge and vows to 'take club to Premier League'](https://www.skysports.com/football/news/11095/13514740/ksi-buys-dagenham-and-redbridge-stake-influencer-vows-to-take-daggers-to-the-premier-league-after-investment) - **Sky Sports**
-8. [Journalist: Liverpool’s reported interest in Premier League star ‘wouldn’t make sense’](https://anfieldindex.com/91778/journalist-liverpools-reported-interest-in-premier-league-star-wouldnt-make-sense.html) - **Anfieldindex.com**
-9. [Arteta shrugs off criticism over Arsenal's set-piece tactics](https://www.channelnewsasia.com/sport/arteta-shrugs-criticism-over-arsenals-set-piece-tactics-5967861) - **CNA**
-10. [PREVIEW: Manchester United look to strengthen European credentials against Newcastle](https://wp.fromthespot.co.uk/26947/preview-manchester-united-look-to-strengthen-european-credentials-against-newcastle/) - **Fromthespot.co.uk**
+1. [Will Carrick Make Any Changes? | 4-2-3-1 Manchester United Predicted Lineup Vs Newcastle United](https://the4thofficial.net/2026/03/will-carrick-make-any-changes-4-2-3-1-manchester-united-predicted-lineup-vs-newcastle-united/) - **The4thofficial.net**
+2. [Bruno Fernandes: United skipper wins season’s fourth Premier League award](https://thepeoplesperson.com/2026/03/03/bruno-fernandes-united-skipper-wins-seasons-fourth-premier-league-award-307296/) - **The Peoples Person**
+3. [Everton vs Burnley: Starting Lineups, TV and Live Streams, How to Watch Online](https://royalbluemersey.sbnation.com/everton-gamethread-live-blog/78511/everton-vs-burnley-starting-lineups-tv-and-live-streams-how-to-watch-online) - **SB Nation**
+4. [Cristo Fernandez soccer career, explained: Why Dani Rojas from 'Ted Lasso' is trying out for USL](https://www.sportingnews.com/us/soccer/news/cristo-fernandez-soccer-dani-rojas-ted-lasso-usl/61aecdaecb906279e92913f5) - **Sporting News**
+5. [KSI outlines Premier League ‘dream’ in first message after becoming Dagenham & Redbridge owner](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_29645a87-eb63-43f8-b268-def7d0224c1e) - **Yahoo Entertainment**
+6. [PREVIEW: Arsenal aim to boost title hopes at Amex despite Brighton’s uptick in form](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c7b3e8e1-85d3-4f94-ac0c-6424b1f9225d) - **Yahoo Entertainment**
+7. [Report – Red Star Belgrade Prodigy “Dreams” Of Premier League But Inter Milan Remain Confident](https://sempreinter.com/2026/03/03/inter-milan-target-vasilije-kostov-dreams-premier-league/) - **SempreInter**
+8. [Leeds v Sunderland: Line-ups confirmed for Premier League clash](https://www.101greatgoals.com/football/premier-league/leeds-v-sunderland-line-ups-confirmed-for-premier-league-clash/) - **101 Great Goals**
+9. [Bournemouth v Brentford: Line-ups confirmed as Bees look to sting Cherries](https://www.101greatgoals.com/football/premier-league/bournemouth-v-brentford-line-ups-confirmed/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-03-05 02:41:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-05 03:56:29 (KST) / (하루 100회 제한 준수 중)*
