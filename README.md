@@ -1,14 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Home comfort at last for Everton, Leeds beaten by Sunderland](https://www.channelnewsasia.com/sport/home-comfort-last-everton-leeds-beaten-sunderland-5968346) - **CNA**
-2. [Resurgent Wolves stun Liverpool, Everton enjoy home comfort](https://www.channelnewsasia.com/sport/resurgent-wolves-stun-liverpool-everton-enjoy-home-comfort-5968346) - **CNA**
-3. [Elland Road FURY! VAR takes centre stage as Sunderland edge to victory](https://www.skysports.com/premier-league-highlights/video/36504/13514867/leeds-0-1-sunderland-premier-league-highlights) - **Sky Sports**
-4. [Premier League round-up: Everton European charge continues, Leeds pay the penalty aganst Sunderland](https://www.101greatgoals.com/football/premier-league/premier-league-everton-european-charge/) - **101 Great Goals**
-5. [Tout assaults security guard at KIA](https://timesofindia.indiatimes.com/city/bengaluru/tout-assaults-security-guard-at-kia/articleshow/128987565.cms) - **The Times of India**
-6. [Leeds pay penalty as Habib Diarra fires Sunderland to victory](https://www.independent.ie/sport/soccer/premier-league/leeds-pay-penalty-as-habib-diarra-fires-sunderland-to-victory/a1198133846.html) - **Independent.ie**
-7. [VAR controversially denies Bournemouth penalty as Cherries rue missed chances in draw](https://www.skysports.com/football/video/12606/13514857/bournemouth-0-0-brentford-premier-league-highlights) - **Sky Sports**
-8. [James Tarkowski and Kiernan Dewsbury-Hall score in Everton home win over Burnley](https://www.independent.ie/sport/soccer/premier-league/james-tarkowski-and-kiernan-dewsbury-hall-score-in-everton-home-win-over-burnley/a1525621807.html) - **Independent.ie**
+1. [Liverpool cult hero makes Arne Slot look silly with damning statement](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7bad193a-5890-49de-b3e0-58519f482081) - **Yahoo Entertainment**
+2. [Wolves 2-1 Liverpool: Reds stunned on magical Molineux night](https://www.nbcsports.com/soccer/news/wolves-vs-liverpool-live-updates-score-highlights-stats-watch) - **NBCSports.com**
+3. [Player Ratings: Liverpool collapse again in shock Wolves defeat](https://eplindex.com/143528/player-ratings-liverpool-collapse-again-in-shock-wolves-defeat.html) - **English Premier League Index - Opta Stats**
+4. [Dias: City are exactly where we want to be](https://www.mancity.com/news/mens/ruben-dias-manchester-city-v-nottingham-forest-preview-63908157) - **Manchester City FC**
+5. [Michael Carrick refuses to rule Manchester United out of Premier League title contention](https://www.irishtimes.com/sport/soccer/2026/03/03/michael-carrick-refuses-to-rule-manchester-united-out-of-premier-league-title-contention/) - **The Irish Times**
+6. [Wolves deal Liverpool huge blow with shock win after Mo Salah ends four-month wait for goal](https://www.independent.ie/sport/soccer/premier-league/wolves-deal-liverpool-huge-blow-with-shock-win-after-mo-salah-ends-four-month-wait-for-goal/a1843040959.html) - **Independent.ie**
+7. [Bottom side Wolves stun lacklustre Liverpool with 2-1 win](https://www.channelnewsasia.com/sport/bottom-side-wolves-stun-lacklustre-liverpool-2-1-win-5968396) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-03-05 06:51:08 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-05 07:35:53 (KST) / (하루 100회 제한 준수 중)*
