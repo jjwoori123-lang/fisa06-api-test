@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Wolves v Liverpool: Key stats and talking points](https://www.bbc.com/sport/football/articles/cx247xgz603o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Bournemouth v Brentford: Key stats and talking points](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_486e62d6-629b-4174-a9fb-75e3a89e5cf5) - **Yahoo Entertainment**
-3. [Newcastle are 'underwhelming' but is Woltemade a problem?](https://www.bbc.com/sport/football/articles/c795r5dg38ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Danny Welbeck pens one-year contract extension with Brighton & Hove Albion](https://sportsview.co.uk/2026/03/danny-welbeck-pens-one-year-contract-extension-with-brighton-hove-albion?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=danny-welbeck-pens-one-year-contract-extension-with-brighton-hove-albion) - **Sportsview.co.uk**
-5. ['Tudor could only be here for three games'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_db6ae936-67eb-4c61-a653-1246934ebe82) - **Yahoo Entertainment**
-6. [15 G/A phenomenon is the easiest signing Liverpool will make](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_696e6279-436d-4061-8c08-4df5407c2b33) - **Yahoo Entertainment**
-7. [Slot explains why defender is vital to Liverpool’s success](https://anfieldindex.com/91771/slot-explains-why-defender-is-vital-to-liverpools-success.html) - **Anfieldindex.com**
-8. [Arsenal Analysed: How we triumphed over Chelsea](http://www.arsenal.com/news/arsenal-analysed-how-we-triumphed-over-chelsea) - **Arsenal.com**
-9. ['Make or break for Silva's five-year project'](https://www.bbc.com/sport/football/articles/c62drww7yw6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Aston Villa vs. Chelsea preview, kick-off time, how to watch, and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9e50ddc9-f17f-4813-911e-85176edcf302) - **Yahoo Entertainment**
+1. [What do the latest club financial results tell us?](https://www.skysports.com/football/news/11095/13514540/premier-league-club-finances-what-have-we-learned-from-arsenal-chelsea-liverpool-man-utd-spurs-and-west-ham-accounts) - **Sky Sports**
+2. [Match preview: Newcastle v United](https://www.manutd.com/en/news/detail/how-to-watch-and-follow-newcastle-united-v-man-utd-in-the-premier-league-4-march-2026) - **Manchester United**
+3. [Not For Sale – Arsenal Make Contact For Prodigious Italian Striker: Inter Milan Firmly Rebuff Approach](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fc281660-7b18-472a-be9f-5ce8b9bc4294) - **Yahoo Entertainment**
+4. [ Brazilian giants, Premier League and more: Tuesday’s fixtures](https://onefootball.com/en/news/brazilian-giants-premier-league-and-more-tuesdays-fixtures-42496320) - **Onefootball.com**
+5. [Leeds v Sunderland: Key stats and talking points](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1a559dd3-1a2c-4612-aff8-0221ea941ee0) - **Yahoo Entertainment**
+6. [Suspected arson attack at non-league football stadium](https://news.sky.com/story/macclesfield-fc-urge-fans-to-stay-away-after-suspected-arson-attack-on-stadium-13514532) - **Sky.com**
+7. [Dream club calling: Nnamdi Collins intends to leave Eintracht Frankfurt this summer for the Premier League](https://www.getfootballnewsgermany.com/2026/dream-club-calling-nnamdi-collins-intends-to-leave-eintracht-frankfurt-this-summer-for-the-premier-league/) - **Getfootballnewsgermany.com**
+8. [Liverpool's new Florian Wirtz: Your time is now](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpools-new-florian-wirtz-your-time-is-now/) - **Anfieldwatch.co.uk**
+9. [Said El Mala: Brighton make key decision in pursuit of United target](https://thepeoplesperson.com/2026/03/03/said-el-mala-brighton-make-key-decision-in-pursuit-of-united-target-307276/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-03-04 17:58:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-04 18:53:19 (KST) / (하루 100회 제한 준수 중)*
