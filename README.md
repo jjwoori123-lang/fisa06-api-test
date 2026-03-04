@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man United academy fixtures re-arranged in busy month](https://thepeoplesperson.com/2026/03/03/man-united-academy-fixtures-re-arranged-in-busy-month-307281/) - **The Peoples Person**
-2. [Manchester United hold Manchester City belief around 115 charges – Verdict timeframe revealed](https://cityxtra.co.uk/42382/manchester-united-hold-manchester-city-belief-around-115-charges-verdict-timeframe-revealed/) - **Cityxtra.co.uk**
-3. [Wolves vs. Liverpool preview, kick-off time, how to watch, and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f7773f5e-fbe4-4dff-bbec-5fee9f1b3987) - **Yahoo Entertainment**
-4. [From Track to Pitch: Zoomex Teams Up with TGR Haas F1 Team and Emiliano Martínez to Launch Its 2026 Road to the Championship](https://www.globenewswire.com/news-release/2026/03/03/3248029/0/en/From-Track-to-Pitch-Zoomex-Teams-Up-with-TGR-Haas-F1-Team-and-Emiliano-Mart%C3%ADnez-to-Launch-Its-2026-Road-to-the-Championship.html) - **GlobeNewswire**
-5. [Liverpool are already preparing for life under Xabi Alonso – Opinion](https://anfieldindex.com/91752/liverpool-are-already-preparing-for-life-under-xabi-alonso-opinion.html) - **Anfieldindex.com**
-6. [Eintracht Frankfurt star targets Premier League move amid Liverpool links](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d73463fc-e828-48b2-947a-a3a6e9cdd6a4) - **Yahoo Entertainment**
-7. [West Ham United boss Nuno Espirito Santo bans Adama Traore from lifting weights](https://sportsview.co.uk/2026/03/west-ham-united-boss-nuno-espirito-santo-bans-adama-traore-from-lifting-weights?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=west-ham-united-boss-nuno-espirito-santo-bans-adama-traore-from-lifting-weights) - **Sportsview.co.uk**
-8. [Blues players 'are old enough to know better' - Sutton](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0126219e-9049-4ecf-bee9-44d1ae776998) - **Yahoo Entertainment**
-9. [Head rejects claim 'fully committed' Australia didn't care about T20 World Cup](https://www.abc.net.au/news/2026-03-03/cricket-head-rejects-claim-australia-doesnt-care-t20-world-cup/106411894) - **ABC News (AU)**
-10. [Johnny Kenny praised by Bolton teammate Sam Dalby](https://thecelticstar.com/johnny-kenny-praised-by-bolton-teammate-sam-dalby/) - **The Celtic Star**
+1. [Wolves v Liverpool: Key stats and talking points](https://www.bbc.com/sport/football/articles/cx247xgz603o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Bournemouth v Brentford: Key stats and talking points](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_486e62d6-629b-4174-a9fb-75e3a89e5cf5) - **Yahoo Entertainment**
+3. [Newcastle are 'underwhelming' but is Woltemade a problem?](https://www.bbc.com/sport/football/articles/c795r5dg38ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Danny Welbeck pens one-year contract extension with Brighton & Hove Albion](https://sportsview.co.uk/2026/03/danny-welbeck-pens-one-year-contract-extension-with-brighton-hove-albion?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=danny-welbeck-pens-one-year-contract-extension-with-brighton-hove-albion) - **Sportsview.co.uk**
+5. ['Tudor could only be here for three games'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_db6ae936-67eb-4c61-a653-1246934ebe82) - **Yahoo Entertainment**
+6. [15 G/A phenomenon is the easiest signing Liverpool will make](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_696e6279-436d-4061-8c08-4df5407c2b33) - **Yahoo Entertainment**
+7. [Slot explains why defender is vital to Liverpool’s success](https://anfieldindex.com/91771/slot-explains-why-defender-is-vital-to-liverpools-success.html) - **Anfieldindex.com**
+8. [Arsenal Analysed: How we triumphed over Chelsea](http://www.arsenal.com/news/arsenal-analysed-how-we-triumphed-over-chelsea) - **Arsenal.com**
+9. ['Make or break for Silva's five-year project'](https://www.bbc.com/sport/football/articles/c62drww7yw6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Aston Villa vs. Chelsea preview, kick-off time, how to watch, and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9e50ddc9-f17f-4813-911e-85176edcf302) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-04 17:03:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-04 17:58:29 (KST) / (하루 100회 제한 준수 중)*
