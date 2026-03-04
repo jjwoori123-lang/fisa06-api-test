@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [What do the latest club financial results tell us?](https://www.skysports.com/football/news/11095/13514540/premier-league-club-finances-what-have-we-learned-from-arsenal-chelsea-liverpool-man-utd-spurs-and-west-ham-accounts) - **Sky Sports**
-2. [Match preview: Newcastle v United](https://www.manutd.com/en/news/detail/how-to-watch-and-follow-newcastle-united-v-man-utd-in-the-premier-league-4-march-2026) - **Manchester United**
-3. [Not For Sale – Arsenal Make Contact For Prodigious Italian Striker: Inter Milan Firmly Rebuff Approach](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fc281660-7b18-472a-be9f-5ce8b9bc4294) - **Yahoo Entertainment**
-4. [ Brazilian giants, Premier League and more: Tuesday’s fixtures](https://onefootball.com/en/news/brazilian-giants-premier-league-and-more-tuesdays-fixtures-42496320) - **Onefootball.com**
-5. [Leeds v Sunderland: Key stats and talking points](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1a559dd3-1a2c-4612-aff8-0221ea941ee0) - **Yahoo Entertainment**
-6. [Suspected arson attack at non-league football stadium](https://news.sky.com/story/macclesfield-fc-urge-fans-to-stay-away-after-suspected-arson-attack-on-stadium-13514532) - **Sky.com**
-7. [Dream club calling: Nnamdi Collins intends to leave Eintracht Frankfurt this summer for the Premier League](https://www.getfootballnewsgermany.com/2026/dream-club-calling-nnamdi-collins-intends-to-leave-eintracht-frankfurt-this-summer-for-the-premier-league/) - **Getfootballnewsgermany.com**
-8. [Liverpool's new Florian Wirtz: Your time is now](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpools-new-florian-wirtz-your-time-is-now/) - **Anfieldwatch.co.uk**
-9. [Said El Mala: Brighton make key decision in pursuit of United target](https://thepeoplesperson.com/2026/03/03/said-el-mala-brighton-make-key-decision-in-pursuit-of-united-target-307276/) - **The Peoples Person**
+1. [FPL GW29 Clean Sheet Odds: Best Defensive Picks Ranked](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8f21dfff-d449-488f-b73f-7d20c266587e) - **Yahoo Entertainment**
+2. [No more weights for West Ham powerhouse Traore, says Nuno](https://www.channelnewsasia.com/sport/no-more-weights-west-ham-powerhouse-traore-says-nuno-5966956) - **CNA**
+3. [Who will secure Champions League qualification? United resurgent, Villa faltering, Liverpool rising](https://www.footballmuse.com/features/who-will-secure-champions-league-qualification-united-resurgent-villa-faltering-liverpool-rising) - **Footballmuse.com**
+4. [FPL GW29 captain picks: top options as Erling Haaland battles injury](https://www.nevermanagealone.com/playerpicks/15648/fpl-gw29-captain-picks-top-options-as-erling-haaland-battles-injury) - **Nevermanagealone.com**
+5. [At A Glance just became my favorite Pixel feature ever](https://www.androidauthority.com/at-a-glance-favorite-pixel-feature-3645672/) - **Android Authority**
+6. [Chermiti Goal was superb, but not a patch on Larsson’s masterpiece](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fa31c9cb-5c35-4694-9c8e-cb6a39a87120) - **Yahoo Entertainment**
+7. [Eddie Howe's team news update: Ramsey and Woltemade latest](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b5a6194a-dc8d-499e-be84-b981866895f5) - **Yahoo Entertainment**
+8. [Arsenal 28yo nominated for Player of the Matchweek](https://dailycannon.com/2026/03/arsenal-gabriel-player-matchweek-chelsea/) - **Dailycannon.com**
+9. [Where to watch Leeds vs. Sunderland live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_cf3702ae-a289-4afc-83fe-ddf435e22b8d) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-04 18:53:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-04 19:40:22 (KST) / (하루 100회 제한 준수 중)*
