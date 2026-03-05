@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Where to watch Brighton vs. Arsenal live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_494a4f32-3f17-4123-913d-3bcc43ac1db6) - **Yahoo Entertainment**
-2. [Where to watch Aston Villa vs. Chelsea live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3c3b5a2d-3be4-45f7-bb89-5bc149460e29) - **Yahoo Entertainment**
-3. [Neto out, Garnacho in; Predicted Chelsea XI vs Aston Villa](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_36537b43-3a37-45d8-90cc-e3d1d7fb5bb8) - **Yahoo Entertainment**
-4. [Carrick: We have so much talent to call upon](https://www.manutd.com/en/news/detail/carrick-delighted-with-whole-man-utd-squad-before-newcastle-away-q-and-a) - **Manchester United**
-5. [Brighton v Arsenal tonight: the referee and the problem of home v away games](https://untold-arsenal.com/archives/119732) - **Untold-arsenal.com**
-6. [Newcastle United vs Everton: Preview, Predicted Lineups and Where to Watch](http://www.toffeeweb.com/season/25-26/news/47320.html) - **Toffeeweb**
-7. [Jarrad Branthwaite is a centre-back — Play him there](http://www.toffeeweb.com/season/25-26/news/47331.html) - **Toffeeweb**
-8. [Newcastle United vs Everton Player Ratings: The Toffees script yet another monumental win on the road](http://www.toffeeweb.com/season/25-26/news/47327.html) - **Toffeeweb**
-9. [Arne Slot: Liverpool’s loss at Wolves ‘sums up our season’ as Reds undone by 90th-minute blow](https://www.footballmuse.com/news/arne-slot-liverpools-loss-at-wolves-sums-up-our-season-as-reds-undone-by-90th-minute-blow) - **Footballmuse.com**
+1. [Where to watch Newcastle vs. Man United live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_854d1194-a18f-468a-823d-9ed9e5c08252) - **Yahoo Entertainment**
+2. [The Dispatch: Chelsea chaos and FA Cup](http://www.arsenal.com/news/dispatch-chelsea-chaos-and-fa-cup) - **Arsenal.com**
+3. [Virgil van Dijk slams ‘sloppy’ Liverpool performance against Wolves](https://anfieldindex.com/91807/virgil-van-dijk-slams-sloppy-liverpool-performance-against-wolves.html) - **Anfieldindex.com**
+4. [McCabe and O’Sullivan injuries compound France defeat](https://www.irishtimes.com/sport/2026/03/04/mccabe-and-osullivan-injuries-compound-france-defeat/) - **The Irish Times**
+5. ['It's better to be chased' - the mentality of a title race](https://www.bbc.com/sport/football/articles/cwyx8g5xwxxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. ['It's better to be chased' - the mentality of a title race](https://www.bbc.com/sport/football/articles/cwyx8g5xwxxo) - **BBC News**
+7. [“If I’m totally honest” – Ian Wright names player Chelsea “definitely need” to upgrade on in the summer](https://chelsea.news/2026/03/ian-wright-robert-sanchez-criticism/) - **Chelsea.news**
+8. [Liverpool dodge bullet as fresh update emerges about transfer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-dodge-bullet-as-fresh-update-emerges-about-transfer/) - **Anfieldwatch.co.uk**
+9. [‘Need to step up’ – Joe Hart issues top-5 verdict on Liverpool after damaging defeat at Wolves](https://www.empireofthekop.com/2026/03/04/joe-hart-issues-top-5-verdict-on-liverpool-after-defeat-at-wolves/) - **Empire of The Kop**
+10. [Today’s Papers – Real Madrid chase Allegri, new Juventus contracts](https://football-italia.net/todays-papers-real-madrid-allegri-juventus/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-03-05 17:04:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-05 18:02:09 (KST) / (하루 100회 제한 준수 중)*
