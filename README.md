@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mail: Man Utd ‘monitoring’ £40m Premier League ace who ‘dreams’ of playing at Old Trafford](https://strettynews.com/2026/03/04/manchester-united-tyler-adams-bournemouth-transfer/) - **Strettynews.com**
-2. [Losing to Wolves, Chelsea tonight and match facts from the BBC](https://www.thevillablog.co.uk/aston-villa-blog/avfc-opinion/losing-to-wolves-chelsea-tonight-and-match-facts-from-the-bbc) - **Thevillablog.co.uk**
-3. [Manchester United XI vs Newcastle United – Predicted lineup and team news](https://thefootballfaithful.com/manchester-united-xi-vs-newcastle-united-predicted-lineup-and-team-news/) - **The Football Faithful**
-4. [Chelsea XI vs Aston Villa – Predicted lineup and team news](https://thefootballfaithful.com/chelsea-xi-vs-aston-villa-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-5. [Nottingham Forest XI vs Manchester City – Predicted lineup and team news](https://thefootballfaithful.com/nottingham-forest-xi-vs-manchester-city-predicted-lineup-and-team-news/) - **The Football Faithful**
-6. [Manchester City vs Nottingham Forest – Match preview and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_48b2c49e-c41e-4ab9-ab22-6e88031032e8) - **Yahoo Entertainment**
-7. [Arsenal XI vs Brighton – Predicted lineup and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d9739eea-9031-44ed-acf5-b722e034e3b7) - **Yahoo Entertainment**
-8. [Brighton vs Arsenal – Match preview and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5865d5c2-d46f-4f8f-a3f7-6f4fcee7f83d) - **Yahoo Entertainment**
+1. [Where to watch Brighton vs. Arsenal live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_494a4f32-3f17-4123-913d-3bcc43ac1db6) - **Yahoo Entertainment**
+2. [Where to watch Aston Villa vs. Chelsea live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3c3b5a2d-3be4-45f7-bb89-5bc149460e29) - **Yahoo Entertainment**
+3. [Neto out, Garnacho in; Predicted Chelsea XI vs Aston Villa](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_36537b43-3a37-45d8-90cc-e3d1d7fb5bb8) - **Yahoo Entertainment**
+4. [Carrick: We have so much talent to call upon](https://www.manutd.com/en/news/detail/carrick-delighted-with-whole-man-utd-squad-before-newcastle-away-q-and-a) - **Manchester United**
+5. [Brighton v Arsenal tonight: the referee and the problem of home v away games](https://untold-arsenal.com/archives/119732) - **Untold-arsenal.com**
+6. [Newcastle United vs Everton: Preview, Predicted Lineups and Where to Watch](http://www.toffeeweb.com/season/25-26/news/47320.html) - **Toffeeweb**
+7. [Jarrad Branthwaite is a centre-back — Play him there](http://www.toffeeweb.com/season/25-26/news/47331.html) - **Toffeeweb**
+8. [Newcastle United vs Everton Player Ratings: The Toffees script yet another monumental win on the road](http://www.toffeeweb.com/season/25-26/news/47327.html) - **Toffeeweb**
+9. [Arne Slot: Liverpool’s loss at Wolves ‘sums up our season’ as Reds undone by 90th-minute blow](https://www.footballmuse.com/news/arne-slot-liverpools-loss-at-wolves-sums-up-our-season-as-reds-undone-by-90th-minute-blow) - **Footballmuse.com**
 
 
 ---
-*최근 업데이트: 2026-03-05 16:28:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-05 17:04:22 (KST) / (하루 100회 제한 준수 중)*
