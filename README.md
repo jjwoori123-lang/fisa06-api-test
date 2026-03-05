@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ex-England footballer Andy Carroll pleads not guilty to breaching non-molestation order](https://www.ladbible.com/news/sport/andy-carroll-non-molestation-orders-pleads-not-guilty-724392-20260304) - **LADbible**
-2. [“He ain’t good enough” – Jamie O’Hara says ‘average’ Liverpool player isn’t a patch on ex-teammate](https://www.empireofthekop.com/2026/03/04/he-aint-good-enough-jamie-ohara-slams-average-gakpo/) - **Empire of The Kop**
-3. [Arsenal injuries ahead of tonight’s game against Brighton](https://untold-arsenal.com/archives/119736) - **Untold-arsenal.com**
-4. [What has caused Premier League's grappling epidemic and can it be stopped?](https://www.skysports.com/football/news/11095/13515060/why-has-premier-league-seen-influx-of-holding-and-grappling-at-set-pieces-can-anything-be-done-to-stop-it) - **Sky Sports**
-5. [Slot to be sacked but Alonso not the answer: Warnock](https://www.empireofthekop.com/2026/03/04/slot-to-be-sacked-but-alonso-not-the-answer-warnock/) - **Empire of The Kop**
-6. [Olise has ‘no plans’ to leave Bayern despite Liverpool enquiry](https://thefootballfaithful.com/olise-has-no-plans-to-leave-bayern-despite-liverpool-enquiry/) - **The Football Faithful**
-7. [Slot admits he expected more from Liverpool this season](https://thefootballfaithful.com/slot-admits-he-expected-more-from-liverpool-this-season/) - **The Football Faithful**
-8. [The new footballer who insured his penis for $1 million](https://www.marca.com/en/football/2026/03/04/69a80c90268e3e95428b456f.html) - **Marca**
-9. [Milan discussing new long-term contract extension with Leao](https://football-italia.net/milan-discussing-new-contract-with-leao/) - **Football Italia**
+1. [World Baseball Classic: Group-by-group preview](https://sports.yahoo.com/mlb/article/world-baseball-classic-group-by-group-preview-130357646.html) - **Yahoo Entertainment**
+2. [⚾️ Y! Sports AM: Play ball](https://sports.yahoo.com/articles/y-sports-am-play-ball-130159780.html) - **Yahoo Entertainment**
+3. [ACC women’s basketball tournament begins new era away from Greensboro](https://www.usatoday.com/story/sports/ncaaw/2026/03/04/acc-womens-basketball-tournament-moves-to-duluth-georgia/88976407007/) - **USA Today**
+4. [Why Pep Guardiola shouldn’t let Real Madrid distractions ruin the hunt for Arsenal in crucial Nottingham Forest clash](https://cityxtra.co.uk/42404/why-pep-guardiola-shouldnt-let-real-madrid-distractions-ruin-the-hunt-for-arsenal-in-crucial-nottingham-forest-clash/) - **Cityxtra.co.uk**
+5. [Premier League - Liverpool: Mohamed Salah finds his smile again](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_50b88574-e3f5-4ab3-9b09-ffe6b1456d66) - **Yahoo Entertainment**
+6. [Manchester United youngster Jack Fletcher apologises after being banned for homophobic slur](https://www.independent.ie/sport/soccer/manchester-united-youngster-jack-fletcher-apologises-after-being-banned-for-homophobic-slur/a773147995.html) - **Independent.ie**
+7. [Banned Fletcher apologises for homophobic slur](https://www.rte.ie/sport/soccer/2026/0304/1561602-banned-fletcher-apologises-for-homophobic-slur/) - **RTE**
+8. [According to El Chiringuito, Klopp is in talks with a major Spanish club](https://foot-africa.com/en/news/according-to-el-chiringuito-klopp-is-in-talks-with-a-major-spanish-club-1110293/) - **Foot-africa.com**
+9. [Richard Hughes has found ideal Konate replacement: He will cost £47m](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-richard-hughes-has-found-ideal-konate-replacement-samson-baidoo-lens/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-03-05 20:50:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-05 22:08:04 (KST) / (하루 100회 제한 준수 중)*
