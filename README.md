@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Where to watch Newcastle vs. Man United live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_854d1194-a18f-468a-823d-9ed9e5c08252) - **Yahoo Entertainment**
-2. [The Dispatch: Chelsea chaos and FA Cup](http://www.arsenal.com/news/dispatch-chelsea-chaos-and-fa-cup) - **Arsenal.com**
-3. [Virgil van Dijk slams ‘sloppy’ Liverpool performance against Wolves](https://anfieldindex.com/91807/virgil-van-dijk-slams-sloppy-liverpool-performance-against-wolves.html) - **Anfieldindex.com**
-4. [McCabe and O’Sullivan injuries compound France defeat](https://www.irishtimes.com/sport/2026/03/04/mccabe-and-osullivan-injuries-compound-france-defeat/) - **The Irish Times**
-5. ['It's better to be chased' - the mentality of a title race](https://www.bbc.com/sport/football/articles/cwyx8g5xwxxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. ['It's better to be chased' - the mentality of a title race](https://www.bbc.com/sport/football/articles/cwyx8g5xwxxo) - **BBC News**
-7. [“If I’m totally honest” – Ian Wright names player Chelsea “definitely need” to upgrade on in the summer](https://chelsea.news/2026/03/ian-wright-robert-sanchez-criticism/) - **Chelsea.news**
-8. [Liverpool dodge bullet as fresh update emerges about transfer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-dodge-bullet-as-fresh-update-emerges-about-transfer/) - **Anfieldwatch.co.uk**
-9. [‘Need to step up’ – Joe Hart issues top-5 verdict on Liverpool after damaging defeat at Wolves](https://www.empireofthekop.com/2026/03/04/joe-hart-issues-top-5-verdict-on-liverpool-after-defeat-at-wolves/) - **Empire of The Kop**
-10. [Today’s Papers – Real Madrid chase Allegri, new Juventus contracts](https://football-italia.net/todays-papers-real-madrid-allegri-juventus/) - **Football Italia**
+1. [As many wins in five days as 10 months](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_55cfe3df-2103-4013-b60d-51cd538e6d0a) - **Yahoo Entertainment**
+2. [Report: Barcelona pushing to sign Tottenham Hotspur star this summer](https://eplindex.com/143530/report-barcelona-pushing-to-sign-tottenham-hotspur-star-this-summer.html) - **English Premier League Index - Opta Stats**
+3. [Mofokeng, Lilepo & Cardoso scoop Betway Premiership monthly awards](https://foot-africa.com/en/news/mofokeng-lilepo-cardoso-scoop-betway-premiership-monthly-awards-1110101/) - **Foot-africa.com**
+4. [Manchester United preparing a mega deal for this player](https://foot-africa.com/en/news/manchester-united-preparing-a-mega-deal-for-this-player-1110104/) - **Foot-africa.com**
+5. [Winter Paralympics schedule 2026: Day-by-day TV coverage to watch Milan Cortina Games on NBC channels, stream online](https://www.sportingnews.com/us/olympics/news/winter-paralympics-schedule-2026-tv-coverage-watch-channels-stream/514944f2cbcf8f07ad543e82) - **Sporting News**
+6. [Virgil van Dijk was seen berating Liverpool teammate after last-gasp hammer blow at Molineux](https://www.empireofthekop.com/2026/03/04/virgil-van-dijk-seen-berating-liverpool-teammate-after-last-gasp-wolves-winner/) - **Empire of The Kop**
+7. [Newcastle United v Manchester United: Key stats and talking points](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_25842d86-fe8c-4acb-8e04-5df79f4f81d4) - **Yahoo Entertainment**
+8. [Manchester City v Nottingham Forest: Key stats and talking points](https://www.bbc.com/sport/football/articles/cm28wv4dew2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Aston Villa v Chelsea: Key stats and talking points](https://www.bbc.com/sport/football/articles/cx2gyzgyd3ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Where to watch Newcastle vs. Man United live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_854d1194-a18f-468a-823d-9ed9e5c08252) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-05 18:02:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-05 19:03:17 (KST) / (하루 100회 제한 준수 중)*
