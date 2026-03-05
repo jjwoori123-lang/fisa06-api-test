@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [‘Lingering issues’: Kobbie Mainoo’s Man Utd future not set in stone just yet after latest developments](https://strettynews.com/2026/03/04/kobbie-mainoo-manchester-united-future-contract-issues/) - **Strettynews.com**
-2. [Mateus Mane: Wolves determined to hold on amid United’s interest](https://thepeoplesperson.com/2026/03/04/mateus-mane-wolves-determined-to-hold-on-amid-uniteds-interest-307307/) - **The Peoples Person**
-3. [Why did Kaprizov break the Wild goals record? #sports](https://alltoc.com/sports/why-did-kaprizov-break-the-wild-goals-record) - **Alltoc.com**
-4. [Preview: Arsenal v Brighton](http://www.arsenal.com/news/preview-arsenal-v-brighton-2) - **Arsenal.com**
-5. [Do you remember these four fine wins at Brighton?](http://www.arsenal.com/news/do-you-remember-these-four-fine-wins-brighton) - **Arsenal.com**
-6. [EPL: Slot laments ‘same old story’ after late Wolves defeat](https://punchng.com/epl-slot-laments-same-old-story-after-late-wolves-defeat/) - **The Punch**
-7. [Manchester City vs Nottingham Forest: Latest City injury news and predicted City starting XI](https://esteemedkompany.com/2026/03/04/manchester-city-vs-nottingham-forest-latest-city-injury-news-and-predicted-city-starting-xi/) - **Esteemedkompany.com**
-8. [‘You can’t rule anything out’ – Michael Carrick ‘realistic on potential Manchester United bid for title](https://www.independent.ie/sport/soccer/premier-league/you-cant-rule-anything-out-michael-carrick-realistic-on-potential-manchester-united-bid-for-title/a1961295720.html) - **Independent.ie**
-9. [Player grades: Thunder pull away late in 116-108 win over Bulls](https://okcthunderwire.usatoday.com/story/sports/nba/thunder/2026/03/03/player-grades-thunder-pull-away-late-in-116-108-win-over-bulls/88973720007/) - **USA Today**
-10. [Liam Rosenior Provides Chelsea Injury Update Ahead of PSG Clash](https://psgworld.io/news/liam-rosenior-provides-chelsea-injury-update-ahead-of-psg-clash) - **Psgworld.io**
+1. [Mail: Man Utd ‘monitoring’ £40m Premier League ace who ‘dreams’ of playing at Old Trafford](https://strettynews.com/2026/03/04/manchester-united-tyler-adams-bournemouth-transfer/) - **Strettynews.com**
+2. [Losing to Wolves, Chelsea tonight and match facts from the BBC](https://www.thevillablog.co.uk/aston-villa-blog/avfc-opinion/losing-to-wolves-chelsea-tonight-and-match-facts-from-the-bbc) - **Thevillablog.co.uk**
+3. [Manchester United XI vs Newcastle United – Predicted lineup and team news](https://thefootballfaithful.com/manchester-united-xi-vs-newcastle-united-predicted-lineup-and-team-news/) - **The Football Faithful**
+4. [Chelsea XI vs Aston Villa – Predicted lineup and team news](https://thefootballfaithful.com/chelsea-xi-vs-aston-villa-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+5. [Nottingham Forest XI vs Manchester City – Predicted lineup and team news](https://thefootballfaithful.com/nottingham-forest-xi-vs-manchester-city-predicted-lineup-and-team-news/) - **The Football Faithful**
+6. [Manchester City vs Nottingham Forest – Match preview and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_48b2c49e-c41e-4ab9-ab22-6e88031032e8) - **Yahoo Entertainment**
+7. [Arsenal XI vs Brighton – Predicted lineup and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d9739eea-9031-44ed-acf5-b722e034e3b7) - **Yahoo Entertainment**
+8. [Brighton vs Arsenal – Match preview and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5865d5c2-d46f-4f8f-a3f7-6f4fcee7f83d) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-05 15:30:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-05 16:28:45 (KST) / (하루 100회 제한 준수 중)*
