@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Aston Villa vs. Chelsea live stream, odds: How to watch Premier League as Cole Palmer looks to provide spark](https://www.cbssports.com/soccer/news/aston-villa-vs-chelsea-preview-live-stream-odds-premier-league/) - **CBS Sports**
-2. [March of destiny: Barcelona risks ending the season empty-handed](https://www.marca.com/en/football/barcelona/2026/03/04/69a79ae246163fab448b457f.html) - **Marca**
-3. [EPL: Last-Gasp Wolves Dent Liverpool's Top-Five Hopes](https://www.rediff.com/sports/report/epl-wolves-stun-liverpool-as-everton-sunderland-claim-key-wins/20260304.htm) - **Rediff.com**
-4. [PR TIMESがロサンゼルス・ドジャースとパートナーシップ契約を締結｜Partnership agreement with Los Angeles Dodgers](https://prtimes.jp/main/html/rd/p/000001627.000000112.html) - **Prtimes.jp**
-5. [Raphinha warns that Barcelona is now going for the Champions League and LaLiga](https://www.marca.com/en/football/barcelona/2026/03/04/69a793e946163f191d8b4579.html) - **Marca**
-6. [United fans rate Carrick highly after fine start at Old Trafford](https://punchng.com/united-fans-rate-carrick-highly-after-fine-start-at-old-trafford/) - **The Punch**
-7. [Kompany wants Osimhen to replace Kane at Bayern](https://punchng.com/kompany-wants-osimhen-to-replace-kane-at-bayern/) - **The Punch**
-8. [EPL harder than I expected — Arokodare](https://punchng.com/epl-harder-than-i-expected-arokodare/) - **The Punch**
-9. [‘Ted Lasso’ star Cristo Fernandez getting pro soccer chance with USL’s Locomotive FC](https://nypost.com/2026/03/03/sports/ted-lasso-star-cristo-fernandez-getting-chance-with-locomotive-fc/) - **New York Post**
-10. [Newcastle vs. Man United live stream: Can Benjamin Sesko keep this up for rolling Red Devils?](https://www.cbssports.com/soccer/news/newcastle-vs-man-united-live-stream-preview-odds/) - **CBS Sports**
+1. [‘You can’t rule anything out’ – Michael Carrick ‘realistic on potential Manchester United bid for title](https://www.independent.ie/sport/soccer/premier-league/you-cant-rule-anything-out-michael-carrick-realistic-on-potential-manchester-united-bid-for-title/a1961295720.html) - **Independent.ie**
+2. [Player grades: Thunder pull away late in 116-108 win over Bulls](https://okcthunderwire.usatoday.com/story/sports/nba/thunder/2026/03/03/player-grades-thunder-pull-away-late-in-116-108-win-over-bulls/88973720007/) - **USA Today**
+3. [Liam Rosenior Provides Chelsea Injury Update Ahead of PSG Clash](https://psgworld.io/news/liam-rosenior-provides-chelsea-injury-update-ahead-of-psg-clash) - **Psgworld.io**
+4. [Chelsea's Old Demons Resurface Ahead of PSG Champions League Clash](https://psgworld.io/news/chelsea-s-old-demons-resurface-ahead-of-psg-champions-league-clash) - **Psgworld.io**
+5. [Why Dallas Cowboys AT&T Stadium will temporarily disappear during FIFA World Cup 2026](https://www.marca.com/en/nfl/dallas-cowboys/2026/03/04/69a79c89268e3e000b8b45b0.html) - **Marca**
+6. [‘His passion for this school is second to none’: How Lee Cummard has elevated BYU women’s basketball in his first season as head coach](https://www.deseret.com/sports/2026/03/03/lee-cummard-head-coach-byu-womens-basketball-successful-first-season/) - **Deseret News**
+7. [Bayern Munich News: Liverpool’s revenge! Reds eye Konrad Laimer in retaliatory move](https://www.bavarianfootballworks.com/transfer-rumors/173053/bayern-munich-liverpool-laimer-real-madrid-fc-barcelona-arsenal-tottenham-chelsea-schlotterbeck-inter) - **Bavarian Football Works**
+8. [Aston Villa vs. Chelsea live stream, odds: How to watch Premier League as Cole Palmer looks to provide spark](https://www.cbssports.com/soccer/news/aston-villa-vs-chelsea-preview-live-stream-odds-premier-league/) - **CBS Sports**
+9. [March of destiny: Barcelona risks ending the season empty-handed](https://www.marca.com/en/football/barcelona/2026/03/04/69a79ae246163fab448b457f.html) - **Marca**
 
 
 ---
-*최근 업데이트: 2026-03-05 13:24:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-05 14:35:49 (KST) / (하루 100회 제한 준수 중)*
