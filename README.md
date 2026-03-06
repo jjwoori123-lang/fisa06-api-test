@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Heartbreak as Federico Chiesa's dream looks shattered](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-heartbreak-as-federico-chiesa-dream-looks-shattered/) - **Anfieldwatch.co.uk**
-2. [Balzarini expects Juventus to launch summer onslaught for Spurs attacker](https://www.juvefc.com/juventus-revive-spurs-kolo-muani-summer/) - **JuveFC**
-3. [“The right manager” – Steve McManaman claims Chelsea ace is much better suited to Rosenior than Maresca](https://chelsea.news/2026/03/steve-mcmanaman-joao-pedro-liam-rosenior/) - **Chelsea.news**
-4. [Real Madrid ready to pay €30m for Tottenham Hotspur defender – report](https://madriduniversal.com/real-madrid-ready-to-pay-e30m-for-tottenham-hotspur-defender-report/) - **Madriduniversal.com**
-5. [Jurgen Klopp makes Slot replacement decision amid growing pressure – report](https://www.empireofthekop.com/2026/03/05/jurgen-klopp-makes-slot-replacement-decision-amid-growing-pressure-report/) - **Empire of The Kop**
-6. [The next Jurgen Klopp is coming to replace Arne Slot at Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/the-next-jurgen-klopp-is-coming-to-replace-arne-slot-at-liverpool/) - **Anfieldwatch.co.uk**
-7. ['Not a pretty game - but Arsenal won't care travelling back to London'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a0b2de3a-ff34-4693-bd5e-7a62a1c0c755) - **Yahoo Entertainment**
-8. ['They are not the City of old'](https://www.bbc.com/sport/football/articles/cgl553pd9l5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [The 8 at 8: Thursday](https://www.thejournal.ie/9-at-9-thursday-63-6975504-Mar2026/) - **TheJournal.ie**
+1. [Hurzeler slammed Arsenal's time-wasting but the numbers might surprise you](https://www.skysports.com/football/news/11095/13515517/fabian-hurzeler-slammed-arsenals-time-wasting-against-brighton-but-their-ball-in-play-time-is-above-average-this-season) - **Sky Sports**
+2. [Jonathan David: Man United keeping close eye on Juventus striker](https://thepeoplesperson.com/2026/03/05/jonathan-david-man-united-keeping-close-eye-on-juventus-striker-307365/) - **The Peoples Person**
+3. [Genius Richard Hughes move justified - even after Arne Slot sacking](https://www.anfieldwatch.co.uk/liverpool-fc/news/genius-richard-hughes-move-justified-even-after-arne-slot-sacking/) - **Anfieldwatch.co.uk**
+4. [Transfer rumour roundup: Man Utd eye Karim Adeyemi and Tyler Adams; Brentford braced for mass exodus](https://www.footballmuse.com/features/transfer-rumour-roundup-man-utd-eye-karim-adeyemi-and-tyler-adams-brentford-braced-for-mass-exodus) - **Footballmuse.com**
+5. [Crystal Palace boss Oliver Glasner banned from driving for six months](https://www.independent.ie/sport/soccer/premier-league/crystal-palace-boss-oliver-glasner-banned-from-driving-for-six-months/a1365623747.html) - **Independent.ie**
+6. [The Brentford pathway: From academy to Premier League football](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_87237819-f82c-4b5d-ae4f-31a8e7e9833f) - **Yahoo Entertainment**
+7. [David Lynch: Liverpool’s ‘boring’ tag is not all down to Arne Slot](https://anfieldindex.com/91824/david-lynch-liverpools-boring-tag-is-not-all-down-to-arne-slot.html) - **Anfieldindex.com**
+8. [Kieran Maguire predicts Liverpool’s Premier League failure ‘could cost £120m’](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_47f9daba-a308-4355-a5ea-b36b1f575a45) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-06 17:42:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-06 18:43:28 (KST) / (하루 100회 제한 준수 중)*
