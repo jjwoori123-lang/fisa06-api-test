@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['Only one team tried to play' - Arsenal earn the points, but not plaudits](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ca7e8448-9dc3-4036-812f-ccd3580fc38c) - **Yahoo Entertainment**
-2. ['Only one team tried to play' - Arsenal earn the points, but not plaudits](https://www.bbc.com/sport/football/articles/cqlggkln202o) - **BBC News**
-3. [Arsenal make their own rules, says Brighton manager Huerzeler](https://www.channelnewsasia.com/sport/arsenal-make-their-own-rules-says-brighton-manager-huerzeler-5972186) - **CNA**
-4. [Detroit Lions Free Agency Targets: 3 Must-Sign Players for 2026](https://roundtable.io/sports/nfl/lions/players/detroit-lions-free-agency-targets-3-must-sign-players-for-2026) - **Roundtable.io**
-5. [KSI is buying an English soccer club. Can he turn it into the next Wrexham?](https://www.tubefilter.com/2026/03/04/ksi-ownership-group-dagenham-and-redbridge-fc/) - **Tubefilter**
-6. [Football Daily](https://www.bbc.co.uk/sounds/play/p0n4p78q) - **BBC News**
-7. [Arteta defends his side as Hurzeler slams Arsenal style](https://www.rte.ie/sport/soccer/2026/0304/1561719-arteta-defends-his-side-as-hurzeler-slams-arsenal-style/) - **RTE**
-8. [Arteta hits back at Brighton criticism after Arsenal boost title bid](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fe62eb38-6cea-4dc9-a424-ad7d3419110d) - **Yahoo Entertainment**
+1. [How to run a 2026 UEFA Champions League bracket pool: Play for a dream trip, design your picks contest](https://www.cbssports.com/soccer/news/how-to-run-a-2026-uefa-champions-league-bracket-pool-play-for-a-dream-trip-design-your-picks-contest/) - **CBS Sports**
+2. [Carrick’s unbeaten run shattered by 10-man Newcastle](https://foot-africa.com/en/news/carricks-unbeaten-run-shattered-by-10-man-newcastle-1111250/) - **Foot-africa.com**
+3. [Wrexham AFC making Yankee Stadium debut during 2026 USA summer tour](https://nypost.com/2026/03/04/sports/wrexham-making-yankee-stadium-debut-during-2026-usa-tour/) - **New York Post**
+4. [Faso Cup 2026: Rahimo FC eliminated](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_cd24f94c-4f72-4deb-8812-e8a7e77c0106) - **Yahoo Entertainment**
+5. [Carrick looks for 'lessons' after first Man Utd loss](https://www.bbc.com/sport/football/articles/ce3ggel3nn5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Carrick looks for 'lessons' after first Man Utd loss](https://www.bbc.com/sport/football/articles/ce3ggel3nn5o) - **BBC News**
+7. [Summerville proves he could be West Ham's saviour](https://www.bbc.com/sport/football/articles/cpqwwyz70rgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Trent Noah rolling his ankle on Mark Pope sums up Kentucky’s season](https://www.aseaofblue.com/kentucky-wildcats-basketball/164988/trent-noah-ankle-mark-pope) - **A Sea Of Blue**
+9. [Summerville proves he could be West Ham's saviour](https://www.bbc.com/sport/football/articles/cpqwwyz70rgo) - **BBC News**
+10. [Finidi makes NPFL title claim](https://punchng.com/finidi-makes-npfl-title-claim/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-03-06 09:07:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-06 12:09:46 (KST) / (하루 100회 제한 준수 중)*
