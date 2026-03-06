@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [West Brom appoint Price as technical director](https://www.bbc.com/sport/football/articles/c2d116pd3r7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Picture: Paul Scholes deletes story criticising Carrick but praising Tonali](https://football-italia.net/scholes-deletes-story-praising-tonali/) - **Football Italia**
-3. ['Hungry for more' - Lewandowski on Kane, Rashford and secrets of a star striker](https://www.skysports.com/football/news/11095/13515025/robert-lewandowski-interview-barcelona-and-poland-icon-on-harry-kane-marcus-rashford-and-the-secrets-to-a-star-striker) - **Sky Sports**
-4. [Dravid and Ashwin set to acquire Scottish T20 franchise](https://www.bbc.com/sport/cricket/articles/c33j83dym4lo) - **BBC News**
-5. [What is next for Foden?](https://www.bbc.com/sport/football/articles/c5yqqnqqx71o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Report: Man United considering move to sign £40m-rated Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fbc9f592-fa25-40a8-82a2-a4c02b2c89cf) - **Yahoo Entertainment**
-7. [How to watch Spurs vs Crystal Palace, team news, predicted line-ups and more](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_dff069fc-023b-4a18-b340-019e76772a14) - **Yahoo Entertainment**
-8. [Kit Margetson: Man United send top representative to monitor goalkeeping sensation](https://thepeoplesperson.com/2026/03/05/kit-margetson-man-united-send-top-representative-to-monitor-goalkeeping-sensation-307384/) - **The Peoples Person**
-9. [Report Kalulu attracts Liverpool and Man Utd: ‘Not gone unnoticed’](https://football-italia.net/not-unnoticed-kalulu-man-utd-liverpool/) - **Football Italia**
+1. [Newcastle Insider Shares Update on Sandro Tonali’s Potential Serie A Return](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/20700/newcastle-insider-shares-update-on-sandro-tonalis-potential-serie-a-return) - **SB Nation**
+2. [Liverpool have already held talks over signing RB Leipzig attacker Yan Diomande this summer](https://sportsview.co.uk/2026/03/liverpool-have-already-held-talks-over-signing-rb-leipzig-attacker-yan-diomande-this-summer?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=liverpool-have-already-held-talks-over-signing-rb-leipzig-attacker-yan-diomande-this-summer) - **Sportsview.co.uk**
+3. [Chelsea set to ‘open discussions’ with Bayern to sign £56m star](https://cfbayerninsider.com/2026/03/chelsea-bayern-munich-aleksandar-pavlovic/) - **Cfbayerninsider.com**
+4. [Bayern Munich have their sights set on Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_dfed1295-f4a8-4bfa-b200-cfe5a0b3fa49) - **Yahoo Entertainment**
+5. [Premier League ready? Wrexham takes on world champion Chelsea in the FA Cup](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7d56898f-47d2-427f-becd-8b485d9c00a6) - **Yahoo Entertainment**
+6. [Report: Everton make first move to complete major summer signing](https://eplindex.com/143607/report-everton-make-first-move-to-complete-major-summer-signing.html) - **English Premier League Index - Opta Stats**
+7. [Wolves v Liverpool: Line-ups, stats and preview](https://www.101greatgoals.com/football/wolves-v-liverpool-line-ups-stats-and-preview/) - **101 Great Goals**
+8. [Del Cielo e della Notte - AC Milan vs. Inter across 12 derbies](https://www.inter.it/en/news/podcast-del-cielo-e-della-notte-derby-milan-inter-story) - **Inter.it**
+9. [Arsenal set record for delays but Hurzeler’s claims don’t completely pass the test](https://www.101greatgoals.com/football/premier-league/arsenal-time-wasting-brighton-hurzeler/) - **101 Great Goals**
+10. [Benjamin Sesko earns major award nomination amid blistering run of form](https://thepeoplesperson.com/2026/03/05/benjamin-sesko-earns-major-award-nomination-amid-blistering-run-of-form-307386/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-03-06 22:03:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-06 23:03:35 (KST) / (하루 100회 제한 준수 중)*
