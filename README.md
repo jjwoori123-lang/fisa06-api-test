@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool's timeline for stunning £52.5m Jarell Quansah deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-timeline-for-stunning-jarell-quansah-deal/) - **Anfieldwatch.co.uk**
-2. ['We always knew he had elite potential'](https://www.bbc.com/sport/football/videos/cz0gg8lepyko) - **BBC News**
-3. [Why are celebrities buying stakes in football clubs?](https://www.bbc.com/sport/football/articles/c5yjj80ly7go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Malick Thiaw: Newcastle respond to United’s expression of interest](https://thepeoplesperson.com/2026/03/05/malick-thiaw-newcastle-respond-to-uniteds-expression-of-interest-307339/) - **The Peoples Person**
-5. [Tottenham Hotspur vs Crystal Palace – Predicted lineup and team news](https://thefootballfaithful.com/tottenham-hotspur-vs-crystal-palace-predicted-lineup-and-team-news/) - **The Football Faithful**
-6. [Tottenham Hotspur vs Crystal Palace – Match preview and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_74d9f912-5c4d-42f7-a2ca-419c9fff10fc) - **Yahoo Entertainment**
-7. [Crystal Palace XI vs Tottenham Hotspur – Predicted lineup and team news](https://thefootballfaithful.com/crystal-palace-xi-vs-tottenham-hotspur-predicted-lineup-and-team-news/) - **The Football Faithful**
-8. [Fantasy Premier League: We Found The Best Team Names In The Sunderland FPL League](https://rokerreport.sbnation.com/features/128937/fantasy-premier-league-we-found-the-best-team-names-in-the-sunderland-fpl-league) - **SB Nation**
-9. [Pentagon severs elite university ties, citing “TOXIC INDOCTRINATION” in sweeping military education overhaul](https://www.naturalnews.com/2026-03-05-toxic-indoctrination-in-sweeping-military-education-overhaul.html) - **Naturalnews.com**
-10. [Top 10 Premier League players out of contract this summer](https://footballtoday.com/2026/03/05/top-10-premier-league-players-out-of-contract-this-summer/) - **Footballtoday.com**
+1. [Handball, offside, VAR - is football too complicated?](https://www.bbc.com/sport/football/articles/cx28wjznvqyo) - **BBC News**
+2. [Celtic's Murray a doubt for cup tie as Hearts set for £2m - gossip](https://www.bbc.com/sport/football/articles/c4g040vmm4vo) - **BBC News**
+3. [Manchester City cannot rely on Premier League match officials, says Pep Guardiola](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_019b593d-8c89-4553-bc8c-56fa06e3db46) - **Yahoo Entertainment**
+4. [Former England striker names Chelsea player as his favourite in the Premier League](https://chelsea.news/2026/03/former-england-striker-names-chelsea-player-as-his-favourite-in-the-premier-league/) - **Chelsea.news**
+5. [Free agents XI: Best out-of-contract players by position including ex-Man United stars](https://footballtoday.com/2026/03/05/free-agents-xi-best-out-of-contract-players-by-position-including-ex-man-united-stars/) - **Footballtoday.com**
+6. [Rival watch: Man City superstar makes timely comeback before Real Madrid showdown](https://madriduniversal.com/rival-watch-man-city-superstar-makes-timely-comeback-before-real-madrid-showdown/) - **Madriduniversal.com**
+7. [What channel is Iowa vs. Michigan on today? Time, TV schedule, live stream to watch Big Ten men's basketball game](https://www.sportingnews.com/us/ncaa-basketball/news/what-channel-iowa-michigan-time-schedule-live-stream-watch/361309491f782eb7b014b87a) - **Sporting News**
+8. [Liverpool's timeline for stunning £52.5m Jarell Quansah deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-timeline-for-stunning-jarell-quansah-deal/) - **Anfieldwatch.co.uk**
+9. ['We always knew he had elite potential'](https://www.bbc.com/sport/football/videos/cz0gg8lepyko) - **BBC News**
+10. [Why are celebrities buying stakes in football clubs?](https://www.bbc.com/sport/football/articles/c5yjj80ly7go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-06 15:56:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-06 16:41:18 (KST) / (하루 100회 제한 준수 중)*
