@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Top 10 Premier League players out of contract this summer](https://footballtoday.com/2026/03/05/top-10-premier-league-players-out-of-contract-this-summer/) - **Footballtoday.com**
-2. [Bayern Munich News: Bayern Munich not talking to Newcastle United’s Nick Woltemade…yet](https://www.bavarianfootballworks.com/transfer-rumors/173530/bayern-munich-news-bayern-munich-not-talking-to-newcastle-uniteds-nick-woltemadeyet) - **Bavarian Football Works**
-3. [Clayton eyes all-Welsh Cardiff Premier League final](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3a92f720-6831-4f3f-9032-70d04cde9aa5) - **Yahoo Entertainment**
-4. [Clayton eyes all-Welsh Cardiff Premier League final](https://www.bbc.com/sport/darts/articles/c8eggde8jwgo) - **BBC News**
-5. [Omaha women advance with win over North Dakota](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d8a84974-95e4-4985-a798-503f474b2c55) - **Yahoo Entertainment**
-6. [Fast start leads Oral Roberts men past Kansas City](https://www.keloland.com/sports/fast-start-leads-oral-roberts-men-past-kansas-city/) - **KELOLAND.com**
-7. [João Pedro hits a hat-trick as Chelsea down Villa to go fifth](https://footballtoday.com/2026/03/05/joao-pedro-hits-a-hat-trick-as-chelsea-down-villa-to-go-fifth/) - **Footballtoday.com**
-8. [Arsenal seize control as Man City slip; Chelsea thrash Villa](https://www.rediff.com/sports/report/english-premier-league-arsenal-seize-control-as-manchester-city-slip-chelsea-thrash-villa/20260305.htm) - **Rediff.com**
-9. [How to run a 2026 UEFA Champions League bracket pool: Play for a dream trip, design your picks contest](https://www.cbssports.com/soccer/news/how-to-run-a-2026-uefa-champions-league-bracket-pool-play-for-a-dream-trip-design-your-picks-contest/) - **CBS Sports**
-10. [Carrick’s unbeaten run shattered by 10-man Newcastle](https://foot-africa.com/en/news/carricks-unbeaten-run-shattered-by-10-man-newcastle-1111250/) - **Foot-africa.com**
+1. [Liverpool's timeline for stunning £52.5m Jarell Quansah deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-timeline-for-stunning-jarell-quansah-deal/) - **Anfieldwatch.co.uk**
+2. ['We always knew he had elite potential'](https://www.bbc.com/sport/football/videos/cz0gg8lepyko) - **BBC News**
+3. [Why are celebrities buying stakes in football clubs?](https://www.bbc.com/sport/football/articles/c5yjj80ly7go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Malick Thiaw: Newcastle respond to United’s expression of interest](https://thepeoplesperson.com/2026/03/05/malick-thiaw-newcastle-respond-to-uniteds-expression-of-interest-307339/) - **The Peoples Person**
+5. [Tottenham Hotspur vs Crystal Palace – Predicted lineup and team news](https://thefootballfaithful.com/tottenham-hotspur-vs-crystal-palace-predicted-lineup-and-team-news/) - **The Football Faithful**
+6. [Tottenham Hotspur vs Crystal Palace – Match preview and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_74d9f912-5c4d-42f7-a2ca-419c9fff10fc) - **Yahoo Entertainment**
+7. [Crystal Palace XI vs Tottenham Hotspur – Predicted lineup and team news](https://thefootballfaithful.com/crystal-palace-xi-vs-tottenham-hotspur-predicted-lineup-and-team-news/) - **The Football Faithful**
+8. [Fantasy Premier League: We Found The Best Team Names In The Sunderland FPL League](https://rokerreport.sbnation.com/features/128937/fantasy-premier-league-we-found-the-best-team-names-in-the-sunderland-fpl-league) - **SB Nation**
+9. [Pentagon severs elite university ties, citing “TOXIC INDOCTRINATION” in sweeping military education overhaul](https://www.naturalnews.com/2026-03-05-toxic-indoctrination-in-sweeping-military-education-overhaul.html) - **Naturalnews.com**
+10. [Top 10 Premier League players out of contract this summer](https://footballtoday.com/2026/03/05/top-10-premier-league-players-out-of-contract-this-summer/) - **Footballtoday.com**
 
 
 ---
-*최근 업데이트: 2026-03-06 14:48:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-06 15:56:09 (KST) / (하루 100회 제한 준수 중)*
