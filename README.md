@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Brighton star acknowledges what Arsenal’s motivation is](https://www.justarsenal.com/brighton-star-acknowledges-what-arsenals-motivation-is/411246) - **Just Arsenal News**
-2. ['I understand why more teams want the golden ticket' Championship reaction to play-offs extension](https://www.bbc.com/sport/football/articles/czr00r6jmymo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Man Utd’s Premier League target drops hint over where his short-term future lies as Serie A move ruled out](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3aec22f2-d098-4912-b995-ddc19c105207) - **Yahoo Entertainment**
-4. [Carrick nominated for February’s Premier League Manager of the Month award](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_397adf37-fae9-466a-8601-f259095808f8) - **Yahoo Entertainment**
-5. [Maxx Crosby sweepstakes coming down to three team race](https://www.thebiglead.com/maxx-crosby-sweepstakes-coming-down-to-three-team-race/) - **The Big Lead**
-6. [Real Madrid offer Liverpool double wonderkid transfer warning](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-rio-ngumoha-josh-abe-real-madrid-offer-double-wonderkid-transfer-warning/) - **Anfieldwatch.co.uk**
-7. [PREVIEW: Wolves gunning to upset Liverpool again in FA Cup fifth round](https://wp.fromthespot.co.uk/26997/preview-wolves-gunning-to-upset-liverpool-again-in-fa-cup-fifth-round/) - **Fromthespot.co.uk**
-8. [2026 Premier League Darts Night 5 Cardiff live results, scores and schedule](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f0bc4a23-2fcb-4a06-8feb-bd516e03240a) - **Yahoo Entertainment**
-9. [Wrexham AFC to play at Subaru Park in Chester, Pa. as part of summer tour](https://6abc.com/post/wrexham-afc-play-subaru-park-chester-pa-part-summer-tour/18680572/) - **WPVI-TV**
-10. [Bears finalizing DJ Moore trade to Bills: Josh Allen gets premier weapon as Chicago embraces young receivers](https://www.cbssports.com/nfl/news/d-j-moore-trade-bills-bears/) - **CBS Sports**
+1. [Bills land number one receiver for Josh Allen in trade with Bears](https://www.101greatgoals.com/nfl/bills-trade-bears-receiver-dj-moore/) - **101 Great Goals**
+2. [Barcelona remain keen on 28-year-old Tottenham target as ‘a good low-cost option’](https://barcauniversal.com/barcelona-remain-keen-on-28-year-old-tottenham-target-as-a-good-low-cost-option/) - **Barcauniversal.com**
+3. [The Premier League star who Andy Murray compared to Lionel Messi and Ronaldinho in 2021](https://www.hitc.com/the-premier-league-star-who-andy-murray-compared-to-lionel-messi-and-ronaldinho-in-2021/) - **HITC - Football, Gaming, Movies, TV, Music**
+4. [Exit talks silenced — Bruno Fernandes and Casemiro are now the Premier League’s deadliest duo](https://www.hitc.com/exit-talks-silenced-bruno-fernandes-and-casemiro-are-now-the-premier-leagues-deadliest-duo/) - **HITC - Football, Gaming, Movies, TV, Music**
+5. [Wrexham vs Chelsea: FA Cup Preview, Latest Team News and How to Watch](https://eplindex.com/143626/wrexham-vs-chelsea-fa-cup-preview-latest-team-news-and-how-to-watch.html) - **English Premier League Index - Opta Stats**
+6. [Liverpool star nominated for Premier League Goal of the Month award](https://anfieldindex.com/91849/liverpool-star-nominated-for-premier-league-goal-of-the-month-award.html) - **Anfieldindex.com**
+7. [Tottenham vs. Crystal Palace score, stats, talking points, highlights for Premier League match Thursday](https://www.sportingnews.com/us/soccer/news/tottenham-vs-crystal-palace-score-stats-highlights-premier-league/2ad0f05c01b5be0b5550a340) - **Sporting News**
+8. [Tottenham vs Crystal Palace: Confirmed teams and line ups in Premier League 2025/26](https://www.101greatgoals.com/football/tottenham-vs-crystal-palace-confirmed-teams/) - **101 Great Goals**
+9. [Newcastle United vs Manchester City (FA Cup Fifth Round): Match Preview, Team News, Head to Head, How to Watch](https://cityxtra.co.uk/42517/newcastle-united-vs-manchester-city-fa-cup-fifth-round-match-preview-team-news-head-to-head-how-to-watch/) - **Cityxtra.co.uk**
+10. [Arne Slot denied Liverpool luxury that Jurgen Klopp thrived on](https://www.anfieldwatch.co.uk/liverpool-fc/news/arne-slot-denied-liverpool-luxury-that-jurgen-klopp-thrived-on/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-03-07 03:05:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-07 04:05:24 (KST) / (하루 100회 제한 준수 중)*
