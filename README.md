@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester City were ‘the best team in the Premier League’ during the final months of last season, says Pep Guardiola](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1518d792-75f0-4bee-945e-bed12a95c6ae) - **Yahoo Entertainment**
-2. [What are the odds Ben White will leave Arsenal in the summer?](https://www.justarsenal.com/what-are-the-odds-ben-white-will-leave-arsenal-in-the-summer/411249) - **Just Arsenal News**
-3. [A turnover that turned Bremerton's junior hockey team into contenders](https://www.kitsapsun.com/story/sports/2026/03/05/bremerton-junior-hockey-teams-sees-turnaround-in-second-year/88613421007/) - **Kitsap Sun**
-4. [Calafiori, Madueke And Trossard To Start | 4-3-3 Arsenal Predicted Lineup Vs Mansfield Town](https://the4thofficial.net/2026/03/calafiori-madueke-and-trossard-to-start-4-3-3-arsenal-predicted-lineup-vs-mansfield-town/) - **The4thofficial.net**
-5. [Two goals, a disallowed goal & a red card in crazy Spurs vs. Palace game ](https://onefootball.com/en/news/two-goals-a-disallowed-goal-a-red-card-in-crazy-spurs-vs-palace-game-42510729) - **Onefootball.com**
-6. [Lionel Messi’s MLS move won’t tempt USMNT core as brutal truth revealed for Christian Pulisic and Weston McKennie with 2026 FIFA World Cup ahead](https://worldsoccertalk.com/news/lionel-messis-mls-move-wont-tempt-usmnt-core-as-brutal-truth-revealed-for-christian-pulisic-and-weston-mckennie-with-2026-fifa-world-cup-ahead/) - **Worldsoccertalk.com**
-7. [USMNT star Tyler Adams reportedly attracting major interest from top Premier League teams in post-2026 World Cup move](https://worldsoccertalk.com/news/usmnt-star-tyler-adams-reportedly-attracting-major-interest-from-top-premier-league-teams-in-post-2026-world-cup-move/) - **Worldsoccertalk.com**
-8. [Premier League: Arsenal - Manchester City, the final sprint is on](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_aa99052c-e611-43d6-a380-112e5c6abc5c) - **Yahoo Entertainment**
-9. [Parkinson predicts 'tighter' Championship after play-off change](https://www.bbc.com/sport/football/articles/cq579dwzwpzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Wrexham AFC Announces “USA Summer 2026 Tour”: How to Get Tickets](https://consequence.net/2026/03/wrexham-afc-announces-usa-summer-2026-tour-how-to-get-tickets/) - **Consequence.net**
+1. [Sunderland Keeper’s Emotional Words After A Night He Won’t Forget: Does His Debut Signal A Genuine Goalkeeping Competition?](https://the4thofficial.net/2026/03/sunderland-keepers-emotional-words-after-a-night-he-wont-forget-does-his-debut-signal-a-genuine-goalkeeping-competition/) - **The4thofficial.net**
+2. [Liverpool accelerate bold move to replace Mo Salah](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-accelerate-bold-move-to-replace-mo-salah/) - **Anfieldwatch.co.uk**
+3. [LOI preview: Derry begin life on road against champions](https://www.rte.ie/sport/soccer/2026/0305/1561397-loi-preview-derry-begin-life-on-road-against-champions/) - **RTE**
+4. [Fabrizio Romano: Liverpool star set to stay despite transfer rumours](https://anfieldindex.com/91861/fabrizio-romano-liverpool-star-set-to-stay-despite-transfer-rumours.html) - **Anfieldindex.com**
+5. [USL emails players about union resignation procedures as strike looms](https://sports.yahoo.com/articles/usl-emails-players-union-resignation-212423630.html) - **Yahoo Entertainment**
+6. [Willock To Start, Botman On The Bench | 4-3-3 Newcastle United Predicted Lineup Vs Manchester City](https://the4thofficial.net/2026/03/willock-to-start-botman-on-the-bench-4-3-3-newcastle-united-predicted-lineup-vs-manchester-city/) - **The4thofficial.net**
+7. [Man City close in on Anderson - Friday's gossip](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_262fa30d-b94a-4ac1-a8da-a346bdd3f47e) - **Yahoo Entertainment**
+8. [Man City close in on Anderson - Friday's gossip](https://www.bbc.com/sport/football/articles/cx2dd2p186go) - **BBC News**
+9. [Tottenham vs Crystal Palace: Fans ‘head for exits’ after Sarr, Strand Larsen goals and Van de Ven red card in Premier League](https://www.101greatgoals.com/football/tottenham-vs-crystal-palace-live-goals-red-card/) - **101 Great Goals**
+10. [What are the odds Ben White will leave Arsenal in the summer?](https://www.justarsenal.com/what-are-the-odds-ben-white-will-leave-arsenal-in-the-summer/411249) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-03-07 06:00:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-07 06:47:03 (KST) / (하루 100회 제한 준수 중)*
