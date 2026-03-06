@@ -1,14 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Hurzeler slammed Arsenal's time-wasting but the numbers might surprise you](https://www.skysports.com/football/news/11095/13515517/fabian-hurzeler-slammed-arsenals-time-wasting-against-brighton-but-their-ball-in-play-time-is-above-average-this-season) - **Sky Sports**
-2. [Jonathan David: Man United keeping close eye on Juventus striker](https://thepeoplesperson.com/2026/03/05/jonathan-david-man-united-keeping-close-eye-on-juventus-striker-307365/) - **The Peoples Person**
-3. [Genius Richard Hughes move justified - even after Arne Slot sacking](https://www.anfieldwatch.co.uk/liverpool-fc/news/genius-richard-hughes-move-justified-even-after-arne-slot-sacking/) - **Anfieldwatch.co.uk**
-4. [Transfer rumour roundup: Man Utd eye Karim Adeyemi and Tyler Adams; Brentford braced for mass exodus](https://www.footballmuse.com/features/transfer-rumour-roundup-man-utd-eye-karim-adeyemi-and-tyler-adams-brentford-braced-for-mass-exodus) - **Footballmuse.com**
-5. [Crystal Palace boss Oliver Glasner banned from driving for six months](https://www.independent.ie/sport/soccer/premier-league/crystal-palace-boss-oliver-glasner-banned-from-driving-for-six-months/a1365623747.html) - **Independent.ie**
-6. [The Brentford pathway: From academy to Premier League football](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_87237819-f82c-4b5d-ae4f-31a8e7e9833f) - **Yahoo Entertainment**
-7. [David Lynch: Liverpool’s ‘boring’ tag is not all down to Arne Slot](https://anfieldindex.com/91824/david-lynch-liverpools-boring-tag-is-not-all-down-to-arne-slot.html) - **Anfieldindex.com**
-8. [Kieran Maguire predicts Liverpool’s Premier League failure ‘could cost £120m’](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_47f9daba-a308-4355-a5ea-b36b1f575a45) - **Yahoo Entertainment**
+1. [‘Happy with what we did’ – Slot defends summer transfer business amid Liverpool squad concerns](https://www.empireofthekop.com/2026/03/05/slot-happy-liverpool-summer-transfer-business-squad-concerns/) - **Empire of The Kop**
+2. [Is Scholes right about Carrick?](https://www.skysports.com/football/news/11667/13515536/man-utd-boss-michael-carrick-questioned-by-paul-scholes-after-newcastle-defeat-but-does-he-have-a-point) - **Sky Sports**
+3. [The controversial play that could cost Manchester City and Pep Guardiola the Premier League](https://www.marca.com/en/football/premier-league/2026/03/05/69a9569f46163fc2078b4577.html) - **Marca**
+4. [Brighton boss slams Arsenal and calls for clamp down on time-wasting](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_60f497ed-5a7f-4e49-be4a-b69870818be4) - **Yahoo Entertainment**
+5. [John Terry admits his ‘hate’ for Spurs ‘still the same now’](https://thefootballfaithful.com/chelsea-john-terry-hate-tottenham-spurs/) - **The Football Faithful**
+6. [Joao Pedro says Chelsea transfer has been ‘a dream’](https://thefootballfaithful.com/joao-pedro-says-chelsea-transfer-has-been-a-dream/) - **The Football Faithful**
+7. [Ex-Premier League stars finding new life in Serie A](https://football-italia.net/ex-premier-league-stars-find-new-life-serie-a/) - **Football Italia**
+8. [Pep Guardiola responds to damaging Man City draw: ‘I never point fingers’](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d59851e9-3cd8-4cb9-8c3a-a2fcc65e8dea) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-06 18:43:28 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-06 19:39:35 (KST) / (하루 100회 제한 준수 중)*
