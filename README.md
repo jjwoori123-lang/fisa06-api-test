@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Littler spoils Welsh party with Premier League win](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1368e0dc-1e40-4a85-b906-4e171ad061e2) - **Yahoo Entertainment**
-2. [Luke Littler hits two 170 checkouts, nearly hits 9-darter in epic Premier League Darts Night 5 campaign](https://www.sportingnews.com/us/darts/news/luke-littler-170-9-darter-premier-league-darts-night-5/92e54c2b050e47562bf29c9b) - **Sporting News**
-3. [Tudor not the man for safety push](https://www.bbc.com/sport/football/articles/c3wl3elzjzxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Ms. Global: Iranian Girls’ School Hit in U.S.–Israeli Strikes, Taliban Legalize Domestic Violence and More](https://msmagazine.com/2026/03/05/ms-global-iranian-girls-school-taliban-domestic-violence/) - **Ms. Magazine**
-5. [Dismal Spurs can still avoid relegation vows Tudor](https://sports.yahoo.com/articles/dismal-spurs-still-avoid-relegation-231839320.html) - **Yahoo Entertainment**
-6. [New Blue Rising — João Pedro’s Debut Compared to Didier Drogba’s Glory](https://www.hitc.com/new-blue-rising-joao-pedros-debut-compared-to-didier-drogbas-glory/) - **HITC - Football, Gaming, Movies, TV, Music**
-7. [Americans Abroad Midweek Rewind: Robinson, McKenzie, and more](https://sbisoccer.com/2026/03/americans-abroad-midweek-rewind-robinson-mckenzie-and-more) - **Sbisoccer.com**
-8. [Premier League: Dango Ouattara in the race for February Player of the Month](https://foot-africa.com/en/news/premier-league-dango-ouattara-in-the-race-for-february-player-of-the-month-1112672/) - **Foot-africa.com**
-9. [Littler spoils Welsh party with Premier League win](https://www.bbc.com/sport/darts/articles/cy0ddxq2rdpo) - **BBC News**
-10. [Barcelona open talks with agent of Tottenham Hotspur defender](https://www.football-espana.net/2026/03/05/barcelona-talks-spurs-defender) - **Football Espana**
+1. [Barcelona hold initial talks with exciting Bundesliga star Luka Vuskovic](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/114440/barcelona-hold-initial-talks-with-exciting-bundesliga-star-luka-vuskovic) - **Barca Blaugranes**
+2. [UND defense to face huge test in Summit League tournament quarterfinal against Denver](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b1f54379-19ab-4d68-926e-5203c9b9a95c) - **Yahoo Entertainment**
+3. [Tottenham vs Crystal Palace: Tudor rejects ‘pressure’ talk – but should Spurs have appointed Keane, Hoddle or Redknapp?](https://www.101greatgoals.com/football/tottenham-crystal-palace-tudor/) - **101 Great Goals**
+4. [SDSU women's Summit notebook: Meyer makes history as Jackrabbits put away Kansas City](https://www.mitchellrepublic.com/sports/college/sdsu-womens-tournament-notebook-meyer-makes-history-as-jackrabbits-take-down) - **Mitchellrepublic.com**
+5. [Summit League tournament: South Dakota State women dispatch Kansas City](https://www.mitchellrepublic.com/sports/college/summit-league-tournament-sdsu-women-quickie) - **Mitchellrepublic.com**
+6. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/c62d4w645k5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/c62d4w645k5o) - **BBC News**
+8. [No excuses, says Solanke, as Tottenham sink deeper into trouble](https://www.channelnewsasia.com/sport/no-excuses-says-solanke-tottenham-sink-deeper-trouble-5975356) - **CNA**
+9. [Disillusionment and disbelief - thousands leave early as Spurs in freefall](https://www.bbc.com/sport/football/articles/cr731n9g521o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-07 08:44:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-07 11:11:42 (KST) / (하루 100회 제한 준수 중)*
