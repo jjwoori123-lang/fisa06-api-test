@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Leeds boss Farke fined and suspended for confronting referee after loss to City](https://www.channelnewsasia.com/sport/leeds-boss-farke-fined-and-suspended-confronting-referee-after-loss-city-5976636) - **CNA**
-2. [Transfer rumour roundup: Osimhen eyed as Kane successor; Arsenal plan big sale](https://www.footballmuse.com/features/transfer-rumour-roundup-osimhen-eyed-as-kane-successor-arsenal-plan-big-sale) - **Footballmuse.com**
-3. [Federico Dimarco: Liverpool join race for Manchester United target](https://thepeoplesperson.com/2026/03/06/federico-dimarco-liverpool-join-race-for-manchester-united-target-307413/) - **The Peoples Person**
-4. [A success story Bayern can continue against Atalanta](https://fcbayern.com/en/news/2026/03/maiden-encounters-in-the-champions-league-a-success-story-that-needs-to-be-continued) - **Fcbayern.com**
-5. [Tottenham players hold crisis talks as relegation fears heighten](https://www.independent.ie/sport/soccer/premier-league/tottenham-players-hold-crisis-talks-as-relegation-fears-heighten/a1034132386.html) - **Independent.ie**
-6. [How Arsenal can win Premier League](https://punchng.com/how-arsenal-can-win-premier-league/) - **The Punch**
-7. [Wrexham v Chelsea: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/wrexham-v-chelsea-line-ups-stats-preview/) - **101 Great Goals**
-8. [Match Preview: Ashford Town Women v Brentford Women](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8e194528-d94b-4ac5-88c2-8006bd9ce5ad) - **Yahoo Entertainment**
-9. [Report: Juventus aiming to have Dusan Vlahovic sign new deal with a salary that’s half of what he currently makes](https://www.blackwhitereadallover.com/serie-a-campionato-2025-26-juventus/37073/report-juventus-dusan-vlahovic-contract-extension-talks-salary-2026-serie-a-team-management) - **Black & White & Read All Over**
-10. [Al-Nassr v NEOM: Line-ups, stats and preview as table-topping hosts look for win without Ronaldo](https://www.101greatgoals.com/betting-tips/al-nassr-v-neom-line-ups-stats-cristiano-ronaldo/) - **101 Great Goals**
+1. [“It is a pleasure to have him” Arteta is pleased with consistent Arsenal star](https://www.justarsenal.com/it-is-a-pleasure-to-have-him-arteta-is-pleased-with-consistent-arsenal-star/411274) - **Just Arsenal News**
+2. [EFL five things - Time to get the calculators out](https://www.bbc.com/sport/football/articles/crm889rm9lko) - **BBC News**
+3. [Ex-Juventus and Napoli director Giuntoli seen at Tottenham Stadium as Tudor’s crisis continues](https://football-italia.net/ex-juventus-napoli-director-spotted-tottenham/) - **Football Italia**
+4. [United striker up for award](https://www.manutd.com/en/news/detail/chido-obi-nominated-for-premier-league-2-player-of-the-month-feb-2026) - **Manchester United**
+5. [Clough: 'Once-in-a-lifetime' Arsenal tie epitomises what FA Cup is about](https://www.skysports.com/football/news/11095/13515264/nigel-clough-exclusive-mansfield-manager-on-facing-arsenal-in-towns-first-fa-cup-fifth-round-tie-since-1974-75) - **Sky Sports**
+6. [Brit YouTuber KSI Making Docuseries About Takeover of Lower League Soccer Club Dagenham & Redbridge FC (EXCLUSIVE)](https://variety.com/2026/tv/global/ksi-docuseries-takeover-dagenham-redbridge-fc-1236680614/) - **Variety**
+7. [Setford and Clarke up for PL2 Player of the Month!](http://www.arsenal.com/news/setford-and-clarke-pl2-player-month) - **Arsenal.com**
+8. [Report Juventus open preliminary talks with Tottenham goalkeeper Vicario](https://football-italia.net/juventus-preliminary-talks-vicario-tottenham/) - **Football Italia**
+9. [Leeds boss Farke fined and suspended for confronting referee after loss to City](https://www.channelnewsasia.com/sport/leeds-boss-farke-fined-and-suspended-confronting-referee-after-loss-city-5976636) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-03-07 18:56:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-07 19:32:36 (KST) / (하루 100회 제한 준수 중)*
