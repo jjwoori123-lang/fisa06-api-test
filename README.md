@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Documentary to chart YouTuber KSI’s bid to take sixth tier club to the Premier League](https://www.the-independent.com/sport/football/ksi-dagenham-redbridge-youtube-premier-league-b2933367.html) - **The-independent.com**
-2. [UEFA fine Real Madrid after fan’s Nazi salute](https://punchng.com/uefa-fine-real-madrid-after-fans-nazi-salute/) - **The Punch**
-3. [Guardiola gives O'Reilly update ahead of FA Cup clash](https://www.mancity.com/news/mens/pep-guardiola-fa-cup-newcastle-squad-news-63908394) - **Manchester City FC**
-4. [Injuries, ill-discipline and how a nightmare season unfolded for Spurs](https://www.skysports.com/football/news/11675/13516073/tottenham-at-risk-of-premier-league-relegation-so-how-has-their-nightmare-season-unfolded) - **Sky Sports**
-5. [Arsenal ‘don’t care’ about Hurzeler’s time-wasting accusations](https://thefootballfaithful.com/arsenal-hurzeler-time-wasting-gabriel/) - **The Football Faithful**
-6. [Arsenal set for high-profile summer sale to fund transfer business](https://thefootballfaithful.com/arsenal-set-for-high-profile-summer-sale-to-fund-transfer-business/) - **The Football Faithful**
-7. [Spurs interim manager Igor Tudor searches for answers as Premier League slide continues](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3977efe4-85af-4a7e-acb2-b4504b596d5b) - **Yahoo Entertainment**
-8. [Arsenal could sacrifice a key star this summer to meet financial rules](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_342af85a-e851-4755-9596-c22cc0b94b3e) - **Yahoo Entertainment**
-9. [Man United make extremely unpopular announcement in official statement](https://thepeoplesperson.com/2026/03/06/man-united-make-extremely-unpopular-announcement-in-official-statement-307423/) - **The Peoples Person**
+1. [Who's to blame for Spurs crisis?](https://www.bbc.com/sport/football/articles/cwy9xd2y392o) - **BBC News**
+2. [Liveprool must make decision immediately on Arne Slot’s future – Opinion](https://anfieldindex.com/91874/liveprool-must-make-decision-immediately-on-arne-slots-future-opinion.html) - **Anfieldindex.com**
+3. [Rovers sign former Macclesfield forward Mellor](https://www.bbc.com/sport/football/articles/cm2xklyydm0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [In-form Arsenal star nominated for monthly EPL award](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bcf7307f-dcf9-4d0b-89fe-66f46e45ff66) - **Yahoo Entertainment**
+5. [In-form Arsenal star nominated for monthly EPL award](https://www.justarsenal.com/in-form-arsenal-star-nominated-for-monthly-epl-award/411276) - **Just Arsenal News**
+6. [Away Days: A battling win over Brighton](http://www.arsenal.com/news/away-days-battling-win-over-brighton) - **Arsenal.com**
+7. [Premier League history in the making in possibly the most bizarre season ever](https://www.thebiglead.com/premier-league-history-in-the-making-in-possibly-the-most-bizarre-season-ever/) - **The Big Lead**
+8. [Spurs target Freedman in sporting director search](https://www.bbc.com/sport/football/articles/cewz7450wyjo) - **BBC News**
+9. [Manchester United defend decision to increase ticket prices again](https://www.independent.ie/sport/soccer/premier-league/manchester-united-defend-decision-to-increase-ticket-prices-again/a1254107209.html) - **Independent.ie**
+10. [Newcastle v Manchester City: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/newcastle-v-manchester-city-line-ups-stats-and-preview-2/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-03-07 21:54:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-07 22:40:48 (KST) / (하루 100회 제한 준수 중)*
