@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [U21s highlights: Norwich City 2-2 Arsenal](http://www.arsenal.com/news/u21s-highlights-norwich-city-2-2-arsenal) - **Arsenal.com**
-2. [Manchester City facing Chelsea and Manchester United threat for Borussia Dortmund’s Felix Nmecha](https://cityxtra.co.uk/42474/manchester-city-facing-chelsea-and-manchester-united-threat-for-borussia-dortmunds-felix-nmecha/) - **Cityxtra.co.uk**
-3. [Shocking Update On Leeds United Star Frozen Out: Do The Whites Benefit From It?](https://the4thofficial.net/2026/03/shocking-update-on-leeds-united-star-frozen-out-do-the-whites-benefit-from-it/) - **The4thofficial.net**
-4. [Ukraine: Lassina Traoré leads Shakhtar Donetsk to victory](https://foot-africa.com/en/news/ukraine-lassina-traore-leads-shakhtar-donetsk-to-victory-1113854/) - **Foot-africa.com**
-5. [Training: Friday focus on the FA Cup](https://www.mancity.com/news/mens/man-city-training-gallery-5-march-2026-63908313) - **Manchester City FC**
-6. [U21s report: Birmingham City 1 United 1](https://www.manutd.com/en/news/detail/under-21s-match-summary-v-birmingham-city-060326) - **Manchester United**
-7. [New Rally House Location on Erwin Road Opening](https://www.globenewswire.com/news-release/2026/03/06/3251328/0/en/New-Rally-House-Location-on-Erwin-Road-Opening.html) - **GlobeNewswire**
-8. [ Andy Robertson rolls back the years in quickfire Liverpool double](https://onefootball.com/en/news/andy-robertson-rolls-back-the-years-in-quickfire-liverpool-double-42516234) - **Onefootball.com**
-9. [Andy’s Player Ratings: Sunderland u21 3 – 1 Watford u21 – Black Cats cruise into Semi-Final](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8429a410-a5a8-4f11-bc81-b429cda63884) - **Yahoo Entertainment**
-10. [Man United icon Bryan Robson makes stunning claim about Casemiro](https://thepeoplesperson.com/2026/03/06/man-united-icon-bryan-robson-makes-stunning-claim-about-casemiro-307429/) - **The Peoples Person**
+1. [Player Ratings: Rio Ngumoha shines as Liverpool beat Wolves in FA Cup](https://eplindex.com/143677/player-ratings-rio-ngumoha-shines-as-liverpool-beat-wolves-in-fa-cup.html) - **English Premier League Index - Opta Stats**
+2. [2025-26 FA Cup: Fifth round schedule, how to watch live, results, scores, video highlights](https://www.nbcsports.com/soccer/news/fa-cup-schedule-watch-live-scores-highlights) - **NBCSports.com**
+3. [Liverpool produce second-half blitz at Wolves to advance](https://www.rte.ie/sport/soccer/2026/0306/1562090-liverpool-produce-second-half-blitz-at-wolves-to-advance/) - **RTE**
+4. [Papers: Man Utd manager search down to three main candidates](https://www.skysports.com/football/news/12040/13516293/man-utd-have-whittled-down-their-search-for-a-new-manager-to-three-main-candidates-paper-talk-and-football-transfer-gossip) - **Sky Sports**
+5. [Late call-up Sam Todd the difference-maker as Bohemians stay top with narrow win at Waterford](https://www.independent.ie/sport/soccer/league-of-ireland/late-call-up-sam-todd-the-difference-maker-as-bohemians-stay-top-with-narrow-win-at-waterford/a1428895888.html) - **Independent.ie**
+6. [Wolves 1-3 Liverpool: jones, Robertson lead FA Cup win at the Molineux](https://www.nbcsports.com/soccer/news/wolves-vs-liverpool-recap-fa-cup-video-highlights-analysis-final-score) - **NBCSports.com**
+7. [Liverpool into FA Cup quarter-finals after 3-1 win over Wolves](https://www.channelnewsasia.com/sport/liverpool-fa-cup-quarter-finals-after-3-1-win-over-wolves-5977981) - **CNA**
+8. [Gary Lineker offers intriguing theory behind Paul Scholes’ “odd” swipe at Michael Carrick](https://thepeoplesperson.com/2026/03/06/gary-lineker-offers-intriguing-theory-behind-paul-scholes-odd-swipe-at-michael-carrick-307432/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-03-08 06:51:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-08 07:27:06 (KST) / (하루 100회 제한 준수 중)*
