@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Premier League confirms new date for Arsenal’s huge clash at Manchester City](https://www.justarsenal.com/premier-league-confirms-new-date-for-arsenals-huge-clash-at-manchester-city/411278) - **Just Arsenal News**
-2. [Wolves vs Liverpool Free Streams: How to Watch FA Cup 5th Round Tie 2025/26 Online From Anywhere](https://www.techradar.com/how-to-watch/football/wolves-vs-liverpool-fa-cup-5th-round-tie-2025-26-free) - **TechRadar**
-3. [How to watch Wolves v Liverpool in the FA Cup, team news, predicted line-ups and more](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_dd6f383b-71d7-4a55-a407-a321bf9ece39) - **Yahoo Entertainment**
-4. [Liverpool backed to suffer fresh Wolves blow in Chris Sutton prediction](https://www.empireofthekop.com/2026/03/06/liverpool-backed-to-suffer-fresh-wolves-blow-in-chris-sutton-prediction/) - **Empire of The Kop**
-5. [Martin O’Neill fondly recalls Beachball Sunday ahead of Ibrox return](https://thecelticstar.com/martin-oneill-fondly-recalls-beachball-sunday-ahead-of-ibrox-return/) - **The Celtic Star**
-6. ['We don't know what is a foul' - Nuno wants set-piece review](https://www.bbc.com/sport/football/videos/cdr2mnmll3po) - **BBC News**
-7. [Mansfield v Arsenal: the referee and the issue of cards](https://untold-arsenal.com/archives/119770) - **Untold-arsenal.com**
-8. [From dark horse to double nominee: Benjamin Sesko gets Premier League shine, Bruno Fernandes snubbed](https://www.hitc.com/from-dark-horse-to-double-nominee-benjamin-sesko-gets-premier-league-shine-bruno-fernandes-snubbed/) - **HITC - Football, Gaming, Movies, TV, Music**
-9. [Ireland vs Wales Free Streams: How to watch Six Nations 2026 game, TV Channels, Preview](https://www.techradar.com/how-to-watch/rugby/ireland-vs-wales-six-nations-2026-free) - **TechRadar**
-10. [Wrexham aiming for upset in free hit FA Cup clash with Chelsea](https://www.101greatgoals.com/football/wrexham-aiming-for-upset-in-free-hit-fa-cup-clash-with-chelsea/) - **101 Great Goals**
+1. [Rob Edwards breaks down Arne Slot and Liverpool — Unfiltered and honest](https://www.hitc.com/rob-edwards-breaks-down-arne-slot-and-liverpool-unfiltered-and-honest/) - **HITC - Football, Gaming, Movies, TV, Music**
+2. [How much did Ryan Reynolds pay for Wrexham? Cost, value of soccer club and how much it is worth](https://www.sportingnews.com/us/soccer/news/how-much-did-ryan-reynolds-pay-wrexham-cost-soccer-club/yyov8ith4kz8arwhesujkpsd) - **Sporting News**
+3. [Leeds condemn boos and urge respect for Ramadan break](https://www.bbc.com/sport/football/articles/c15xd7741zxo) - **BBC News**
+4. [Why Arsenal tie is like 'shotgun wedding' for Mansfield](https://www.bbc.com/sport/football/articles/czd87gl664po) - **BBC News**
+5. [Pep Guardiola raises concerns over schedule ahead of Real Madrid clash](https://www.managingmadrid.com/latest-news/104810/pep-guardiola-raises-concerns-over-schedule-ahead-of-real-madrid-clash) - **Managing Madrid**
+6. [Wolves vs. Liverpool: FA Cup 2025-26 Live Coverage & How to Watch](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_11d004bb-ebb4-4ca6-b140-04b49f5da411) - **Yahoo Entertainment**
+7. ['What is a foul? What is a contact?' - Nuno calls for clarity](https://www.bbc.com/sport/football/articles/cev7k83zv12o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. ['What is a foul? What is a contact?' - Nuno calls for clarity](https://www.bbc.com/sport/football/articles/cev7k83zv12o) - **BBC News**
+9. [Like Leicester and Bodø/Glimt, Swiss soccer club Thun set to be historic league champion](https://sports.yahoo.com/articles/leicester-bod-glimt-swiss-soccer-163235885.html) - **Yahoo Entertainment**
+10. [Premier League confirms new date for Arsenal’s huge clash at Manchester City](https://www.justarsenal.com/premier-league-confirms-new-date-for-arsenals-huge-clash-at-manchester-city/411278) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-03-08 01:32:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-08 01:55:52 (KST) / (하루 100회 제한 준수 중)*
