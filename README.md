@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Player Ratings: Rio Ngumoha shines as Liverpool beat Wolves in FA Cup](https://eplindex.com/143677/player-ratings-rio-ngumoha-shines-as-liverpool-beat-wolves-in-fa-cup.html) - **English Premier League Index - Opta Stats**
-2. [2025-26 FA Cup: Fifth round schedule, how to watch live, results, scores, video highlights](https://www.nbcsports.com/soccer/news/fa-cup-schedule-watch-live-scores-highlights) - **NBCSports.com**
-3. [Liverpool produce second-half blitz at Wolves to advance](https://www.rte.ie/sport/soccer/2026/0306/1562090-liverpool-produce-second-half-blitz-at-wolves-to-advance/) - **RTE**
-4. [Papers: Man Utd manager search down to three main candidates](https://www.skysports.com/football/news/12040/13516293/man-utd-have-whittled-down-their-search-for-a-new-manager-to-three-main-candidates-paper-talk-and-football-transfer-gossip) - **Sky Sports**
-5. [Late call-up Sam Todd the difference-maker as Bohemians stay top with narrow win at Waterford](https://www.independent.ie/sport/soccer/league-of-ireland/late-call-up-sam-todd-the-difference-maker-as-bohemians-stay-top-with-narrow-win-at-waterford/a1428895888.html) - **Independent.ie**
-6. [Wolves 1-3 Liverpool: jones, Robertson lead FA Cup win at the Molineux](https://www.nbcsports.com/soccer/news/wolves-vs-liverpool-recap-fa-cup-video-highlights-analysis-final-score) - **NBCSports.com**
-7. [Liverpool into FA Cup quarter-finals after 3-1 win over Wolves](https://www.channelnewsasia.com/sport/liverpool-fa-cup-quarter-finals-after-3-1-win-over-wolves-5977981) - **CNA**
-8. [Gary Lineker offers intriguing theory behind Paul Scholes’ “odd” swipe at Michael Carrick](https://thepeoplesperson.com/2026/03/06/gary-lineker-offers-intriguing-theory-behind-paul-scholes-odd-swipe-at-michael-carrick-307432/) - **The Peoples Person**
+1. [Anthony Edwards resembles MVP Derrick Rose after embarrassing a former first round pick](https://www.marca.com/en/basketball/nba/minnesota-timberwolves/2026/03/06/69ab5a1e46163fb32d8b4579.html) - **Marca**
+2. [Man City aren't a 'complete team' admits Guardiola](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_49d7b275-c676-4f78-9a92-c330b03fddf9) - **Yahoo Entertainment**
+3. [Liverpool tames Wolves to reach FA Cup quarterfinals](https://japantoday.com/category/sports/liverpool-tame-wolves-to-reach-fa-cup-quarter-finals) - **Japan Today**
+4. [Arteta warns Arsenal to preserve reputation in Mansfield clash](https://sports.yahoo.com/articles/arteta-warns-arsenal-preserve-reputation-224747815.html) - **Yahoo Entertainment**
+5. [Robertson and Salah shine as Liverpool hits back to beat Wolves and reach FA Cup quarterfinals](https://sports.yahoo.com/articles/robertson-salah-shine-liverpool-hits-224649723.html) - **Yahoo Entertainment**
+6. [European round-up: PSG suffer title blow but Bayern score big win](https://www.101greatgoals.com/football/european-round-up-psg-bayern-score-big-win/) - **101 Great Goals**
+7. [Analysis: A Wolves FA Cup win would have added needed gloss](https://www.bbc.com/sport/football/articles/cm2155e6k2do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Analysis: Robertson shows he still has part to play](https://www.bbc.com/sport/football/articles/c0ljeeg3dgwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Sandro Tonali: United told what they must do to sign Newcastle midfielder](https://thepeoplesperson.com/2026/03/06/sandro-tonali-united-told-what-they-must-do-to-sign-newcastle-midfielder-307441/) - **The Peoples Person**
+10. [Lionel Messi and Cristiano Ronaldo surpassed: Raul Jimenez tops the GOAT duo in stunning metric as Premier League star shockingly ranks himself above them](https://worldsoccertalk.com/news/lionel-messi-and-cristiano-ronaldo-surpassed-raul-jimenez-tops-the-goat-duo-in-stunning-metric-as-premier-league-star-shockingly-ranks-himself-above-them/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-03-08 07:27:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-08 07:54:59 (KST) / (하루 100회 제한 준수 중)*
