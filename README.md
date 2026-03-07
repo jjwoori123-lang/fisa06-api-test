@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Who's to blame for Spurs crisis?](https://www.bbc.com/sport/football/articles/cwy9xd2y392o) - **BBC News**
-2. [Liveprool must make decision immediately on Arne Slot’s future – Opinion](https://anfieldindex.com/91874/liveprool-must-make-decision-immediately-on-arne-slots-future-opinion.html) - **Anfieldindex.com**
-3. [Rovers sign former Macclesfield forward Mellor](https://www.bbc.com/sport/football/articles/cm2xklyydm0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [In-form Arsenal star nominated for monthly EPL award](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bcf7307f-dcf9-4d0b-89fe-66f46e45ff66) - **Yahoo Entertainment**
-5. [In-form Arsenal star nominated for monthly EPL award](https://www.justarsenal.com/in-form-arsenal-star-nominated-for-monthly-epl-award/411276) - **Just Arsenal News**
-6. [Away Days: A battling win over Brighton](http://www.arsenal.com/news/away-days-battling-win-over-brighton) - **Arsenal.com**
-7. [Premier League history in the making in possibly the most bizarre season ever](https://www.thebiglead.com/premier-league-history-in-the-making-in-possibly-the-most-bizarre-season-ever/) - **The Big Lead**
-8. [Spurs target Freedman in sporting director search](https://www.bbc.com/sport/football/articles/cewz7450wyjo) - **BBC News**
-9. [Manchester United defend decision to increase ticket prices again](https://www.independent.ie/sport/soccer/premier-league/manchester-united-defend-decision-to-increase-ticket-prices-again/a1254107209.html) - **Independent.ie**
-10. [Newcastle v Manchester City: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/newcastle-v-manchester-city-line-ups-stats-and-preview-2/) - **101 Great Goals**
+1. [NFL free agency bold predictions for 11 of the biggest names available](https://www.sbnation.com/nfl/1105313/nfl-free-agency-bold-predictions-ravens-chiefs-49ers-jets) - **SB Nation**
+2. [Team News: Four Liverpool stars set to miss Wolves clash](https://anfieldindex.com/91878/team-news-four-liverpool-stars-set-to-miss-wolves-clash-3.html) - **Anfieldindex.com**
+3. [Vitinha names Pedri world's best midfielder, ranks Neves and Bruno Fernandes among elite](https://www.footballmuse.com/news/vitinha-names-pedri-worlds-best-midfielder-ranks-neves-and-bruno-fernandes-among-elite) - **Footballmuse.com**
+4. [Injury update: Andrews provides update on Henry hamstring injury](https://www.brentfordfc.com/en/news/article/first-team-west-ham-v-brentford-fa-cup-injury-update-rico-henry) - **Brentfordfc.com**
+5. [Man United to raise ticket prices and move fans to create more 'hospitality' seats at Old Trafford](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a9f58155-a855-435d-97f9-7d7511dd608a) - **Yahoo Entertainment**
+6. [Le Bris on Ellborg, 40 points and the X Factor](https://www.bbc.com/sport/football/articles/cre01xve047o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Report: Liverpool want to sign £87m-rated star this summer](https://anfieldindex.com/91869/report-liverpool-want-to-sign-87m-rated-star-this-summer.html) - **Anfieldindex.com**
+8. [On eve of Chelsea Cup clash, Wrexham fans say club's storybook ascent still feels unreal](https://www.channelnewsasia.com/sport/eve-chelsea-cup-clash-wrexham-fans-say-clubs-storybook-ascent-still-feels-unreal-5977116) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-03-07 22:40:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-07 23:27:37 (KST) / (하루 100회 제한 준수 중)*
