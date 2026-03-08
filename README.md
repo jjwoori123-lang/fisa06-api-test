@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Player Ratings: Two 9/10’s as Liverpool beat Wolves to reach FA Cup Quarter-Final](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_41c4addf-0fce-4dad-b04d-7b7de45d87a4) - **Yahoo Entertainment**
-2. [Liverpool Confirmed XI vs Wolves](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a2b3965e-6229-4b55-9704-d02bdd975ab8) - **Yahoo Entertainment**
-3. [Report: Liverpool make ‘lucrative’ contract offer amid interest from European giants](https://anfieldindex.com/91906/report-liverpool-make-lucrative-contract-offer-amid-interest-from-european-giants.html) - **Anfieldindex.com**
-4. [Final Thoughts: Liverpool dominated Wolves in FA Cup clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9fe2b32b-2922-41a7-9224-4b390bca73d0) - **Yahoo Entertainment**
-5. [“You have to accept it” – Andy Robertson speaks on his Liverpool role this season](https://anfieldindex.com/91907/you-have-to-accept-it-andy-robertson-speaks-on-his-liverpool-role-this-season.html) - **Anfieldindex.com**
-6. [Man of the Match: ‘Electric’ Liverpool star shines in FA Cup victory](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b1b2c95a-830b-4d55-9c7c-fea3e47f3cd8) - **Yahoo Entertainment**
-7. [Juventus in reverse: Thiago Motta among options to replace Tudor at Tottenham](https://football-italia.net/juventus-motta-option-replace-tudor-at-spurs/) - **Football Italia**
-8. [Real Madrid personnel in England for Newcastle United scouting mission](https://www.football-espana.net/2026/03/07/real-madrid-scouts-england-newcastle-scouting) - **Football Espana**
-9. [Fabrizio Romano has just shared an interesting update that will excite Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/fabrizio-romano-has-just-shared-an-interesting-update-that-will-excite-liverpool/) - **Anfieldwatch.co.uk**
-10. [Who is McKinzie Valdez? Inside the TikTok star’s decision to step away from online content after finding faith](https://timesofindia.indiatimes.com/world/us-streamers/who-is-mckinzie-valdez-inside-the-tiktok-stars-decision-to-step-away-from-online-content-after-finding-faith/articleshow/129214348.cms) - **The Times of India**
+1. [The ex-Singapore national youth coach now building up women's football in Africa's tiniest nation](https://www.channelnewsasia.com/today/up-close/singapore-football-coach-women-national-sports-athlete-seychelles-5966106) - **CNA**
+2. [Tim Howard believes Chelsea have found their new version of Mohamed Salah](https://www.hitc.com/tim-howard-believes-chelsea-have-found-their-new-version-of-mohamed-salah/) - **HITC - Football, Gaming, Movies, TV, Music**
+3. [Chelsea Starting XI vs Wrexham: Confirmed Team News and Predicted Lineup](https://eplindex.com/143683/chelsea-starting-xi-vs-wrexham-confirmed-team-news-and-predicted-lineup.html) - **English Premier League Index - Opta Stats**
+4. [FA Cup: Date, time, channels and line-ups for the Wrexham vs Chelsea clash](https://foot-africa.com/en/news/fa-cup-date-time-channels-and-line-ups-for-the-wrexham-vs-chelsea-clash-1114463/) - **Foot-africa.com**
+5. [WATCH: Madueke gives Arsenal the lead in FA Cup as Trossard forced off with injury](https://www.101greatgoals.com/football/watch-madueke-gives-arsenal-the-lead-in-fa-cup-as-trossard-forced-off-with-injury/) - **101 Great Goals**
+6. [U18s report: Arsenal 0-3 Brighton & Hove Albion](http://www.arsenal.com/fixture/under-18/2026-Mar-07/under-18-brighton-hove-albion-u18-match-report) - **Arsenal.com**
+7. [How to watch Wrexham vs Chelsea in the USA: Live Stream and TV for 2025/2026 FA Cup](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-wrexham-vs-chelsea-in-the-usa-live-stream-and-tv-for-2025-2026-fa-cup/) - **Worldsoccertalk.com**
+8. [Arsenal attacker Leandro Trossard picks up injury against Mansfield Town](https://sportsview.co.uk/2026/03/arsenal-attacker-leandro-trossard-picks-up-injury-against-mansfield-town?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-attacker-leandro-trossard-picks-up-injury-against-mansfield-town) - **Sportsview.co.uk**
+9. [ Arsenal's FA Cup superstar breaks Mansfield rearguard in style](https://onefootball.com/en/news/arsenals-fa-cup-superstar-breaks-mansfield-rearguard-in-style-42518769) - **Onefootball.com**
+10. [Italy vs England Free Streams: How to watch Six Nations 2026 game, TV Channels, Preview](https://www.techradar.com/how-to-watch/rugby/italy-vs-england-six-nations-2026-free) - **TechRadar**
 
 
 ---
-*최근 업데이트: 2026-03-08 21:56:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-08 22:42:53 (KST) / (하루 100회 제한 준수 중)*
