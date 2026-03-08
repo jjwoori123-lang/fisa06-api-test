@@ -1,15 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal survives FA Cup scare to keep quadruple dream alive](https://japantoday.com/category/sports/arsenal-survive-fa-cup-scare-to-keep-quadruple-dream-alive) - **Japan Today**
-2. [Wrexham leads twice and takes Chelsea to extra time before losing 4-2 in the FA Cup](https://japantoday.com/category/sports/arsenal-advances-to-fa-cup-quarterfinals-with-2-1-win-over-third-tier-mansfield) - **Japan Today**
-3. [A pizza brand just summed up Tottenham’s crisis in one viral post](https://foot-africa.com/en/news/a-pizza-brand-just-summed-up-tottenhams-crisis-in-one-viral-post-1115315/) - **Foot-africa.com**
-4. [Littler defeats Anderson to reach UK Open quarter-finals](https://www.bbc.com/sport/darts/articles/clygpw1g5vno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Littler defeats Anderson to reach UK Open quarter-finals](https://www.bbc.com/sport/darts/articles/clygpw1g5vno) - **BBC News**
-6. [Ryan Reynolds shares excitement over Wrexham's big FA Cup moment against Chelsea](https://www.marca.com/en/football/premier-league/2026/03/07/69ac7aaa268e3eda2d8b45a8.html) - **Marca**
-7. [Chelsea deny Wrexham their Hollywood story as Garnacho and João Pedro seal FA Cup cracker](https://www.irishtimes.com/sport/soccer/2026/03/07/chelsea-deny-wrexham-their-hollywood-story-as-garnacho-and-joao-pedro-seal-fa-cup-cracker/) - **The Irish Times**
-8. [Arsenal is leading the race to sign top Premier League midfielder](https://www.justarsenal.com/arsenal-is-leading-the-race-to-sign-top-premier-league-midfielder/411367) - **Just Arsenal News**
-9. [Arsenal is leading the race to sign top Premier League midfielder](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_724f1065-9a33-42b6-8265-ece09e16a820) - **Yahoo Entertainment**
+1. [Marmoush double sends Man City into cup quarter-finals](https://www.rte.ie/sport/soccer/2026/0307/1562191-marmoush-double-sends-man-city-into-cup-quarter-finals/) - **RTE**
+2. [Omar Marmoush brace helps Manchester City to convincing FA Cup victory at Newcastle](https://www.independent.ie/sport/soccer/omar-marmoush-brace-helps-manchester-city-to-convincing-fa-cup-victory-at-newcastle/a320126198.html) - **Independent.ie**
+3. [Hollywood-Club Wrexham verpasste FA-Cup-Coup](https://sport.orf.at/stories/3153326/) - **Sport.orf.at**
+4. [FA Cup : Newcastle tombe à domicile face à Manchester City](https://www.sofoot.com/breves/fa-cup-newcastle-tombe-a-domicile-face-a-manchester-city) - **SO FOOT**
+5. [Man City hand Newcastle brutal FA Cup lesson as Chelsea survive scare](https://sports.yahoo.com/articles/man-city-hand-newcastle-brutal-220024179.html) - **Yahoo Entertainment**
+6. [“Mansfield gave them a real scare.” Martin Keown reacts to Arsenal’s win](https://www.justarsenal.com/mansfield-gave-them-a-real-scare-martin-keown-reacts-to-arsenals-win/411375) - **Just Arsenal News**
+7. [Marmoush double helps City progress with comeback FA Cup win at Newcastle](https://www.skysports.com/football/news/12309/13515558/newcastle-1-3-man-city-omar-marmoush-strikes-twice-as-pep-guardiolas-side-book-fa-cup-quarter-final-spot-with-comeback-win) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-03-09 06:53:20 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-09 07:27:56 (KST) / (하루 100회 제한 준수 중)*
