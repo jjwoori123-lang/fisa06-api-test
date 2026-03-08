@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Barkha Bisht shares ‘parivaar’ moment from ‘Kyunki Saas Bhi Kabhi Bahu Thi 2’ set](https://timesofindia.indiatimes.com/tv/news/hindi/barkha-bisht-shares-parivaar-moment-from-kyunki-saas-bhi-kabhi-bahu-thi-2-set/articleshow/129207025.cms) - **The Times of India**
-2. [Pep Guardiola dissects Phil Foden’s struggles for form as Barcelona circle for Manchester City star](https://cityxtra.co.uk/42631/pep-guardiola-dissects-phil-fodens-struggles-for-form-as-barcelona-circle-for-manchester-city-star/) - **Cityxtra.co.uk**
-3. [Mansfield vs Arsenal Live Streams: How to Watch FA Cup 5th Round Tie 2025/26 Online From Anywhere](https://www.techradar.com/how-to-watch/football/mansfield-vs-arsenal-fa-cup-5th-round-tie-2025-26-online) - **TechRadar**
-4. [100% pass completion, lost the ball just twice – Liverpool starter justified Slot’s faith v Wolves](https://www.empireofthekop.com/2026/03/07/curtis-jones-match-stats-wolves-liverpool-fa-cup/) - **Empire of The Kop**
-5. [Five Premier League club captains who could leave this summer, from Odegaard to Bowen](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5dbcee71-9b27-44c4-9685-82660a170d3d) - **Yahoo Entertainment**
-6. [Newcastle United vs Manchester City – Match preview and team news](https://thefootballfaithful.com/newcastle-united-vs-manchester-city-match-preview-and-team-news-3/) - **The Football Faithful**
-7. [Evan Ferguson’s Roma career likely over after surgery decision](https://football-italia.net/ferguson-roma-career-likely-over-after-surgery/) - **Football Italia**
-8. [William Saliba ankle injury update](https://dailycannon.com/2026/03/saliba-ankle-injury-update/) - **Dailycannon.com**
-9. [Only 2 keepers quicker than David Raya at restarts](https://dailycannon.com/2026/03/arsenal-keeper-restarts/) - **Dailycannon.com**
-10. [Transfer rumour roundup: Barcelona's bold number nine plan; Brentford braced for Schade raids](https://www.footballmuse.com/features/transfer-rumour-roundup-barcelonas-bold-number-nine-plan-brentford-braced-for-schade-raids) - **Footballmuse.com**
+1. [“It’s not far-fetched to say” – Tim Howard claims Chelsea have found their new version of Mohamed Salah](https://chelsea.news/2026/03/tim-howard-cole-palmer-mohamed-salah-chelsea/) - **Chelsea.news**
+2. [‘Concrete possibility’ – Premier League duo ‘lining up’ surprise raid for ex-Liverpool title winner](https://www.empireofthekop.com/2026/03/07/premier-league-duo-lining-up-surprise-raid-for-ex-liverpool-title-winner/) - **Empire of The Kop**
+3. [Preview: Newcastle United vs Manchester City – stats, team news, line-ups](https://sportsview.co.uk/2026/03/preview-newcastle-united-vs-manchester-city-stats-team-news-line-ups-2?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=preview-newcastle-united-vs-manchester-city-stats-team-news-line-ups-2) - **Sportsview.co.uk**
+4. [Report: Juventus plotting summer move for Italy hopeful Kayode](https://football-italia.net/juventus-plot-move-for-italy-hopeful-kayode/) - **Football Italia**
+5. [Rampage hockey team to compete for 7th state title](https://www.messenger-inquirer.com/sports/local/rampage-hockey-team-to-compete-for-7th-state-title/article_9fab55eb-71a6-57dc-8a5a-2d4bbc73dc81.html) - **messenger-inquirer**
+6. [Napoli keen to secure McTominay future - gossip](https://www.bbc.com/sport/football/articles/c0e57ev84leo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Manchester United wants to extend this player's contract](https://foot-africa.com/en/news/manchester-united-wants-to-extend-this-players-contract-1114217/) - **Foot-africa.com**
+8. [Napoli keen to secure McTominay future - gossip](https://www.bbc.com/sport/football/articles/c0e57ev84leo) - **BBC News**
+9. [Alan Shearer questions Virgil van Dijk amid Liverpool struggles](https://www.hitc.com/alan-shearer-questions-virgil-van-dijk-amid-liverpool-struggles/) - **HITC - Football, Gaming, Movies, TV, Music**
+10. [Athletic Club vs Barcelona – Match preview and team news](https://thefootballfaithful.com/athletic-club-vs-barcelona-match-preview-and-team-news/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-03-08 18:47:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-08 19:29:06 (KST) / (하루 100회 제한 준수 중)*
