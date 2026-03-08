@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['Exceptional' Dowman and Salmon make history as Gunners survive scare](https://www.bbc.com/sport/football/articles/cy0329x8eleo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. ['Exceptional' Dowman and Salmon make history as Gunners survive scare](https://www.bbc.com/sport/football/articles/cy0329x8eleo) - **BBC News**
-3. [Manchester City secure multi-million deal for Scottish Premier League starlet](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2a1e8407-fabe-404a-9f99-7cd0c26a115e) - **Yahoo Entertainment**
-4. [Browns now face another All-Pro twice per year after blockbuster trade](https://brownswire.usatoday.com/story/sports/nfl/browns/2026/03/07/browns-maxx-crosby-twice-trade-ravens/89036537007/) - **USA Today**
-5. [Wrexham v Chelsea: Confirmed line-ups as Blues seek to avoid FA Cup giant-killing](https://www.101greatgoals.com/football/wrexham-chelsea-confirmed-team-news/) - **101 Great Goals**
-6. [Nashik Women's Premier League Announced](https://www.rediff.com/sports/report/nashik-womens-premier-league-in-april/20260307.htm) - **Rediff.com**
-7. [Report: Contract Uncertainty Leaves Manchester City Facing Major Decision](https://eplindex.com/143694/report-contract-uncertainty-leaves-manchester-city-facing-major-decision.html) - **English Premier League Index - Opta Stats**
-8. [How to watch Newcastle v Man City, team news, predicted line-ups and more](https://hayters.com/how-to-watch-newcastle-v-man-city-team-news-predicted-line-ups-and-more/) - **Hayters.com**
-9. [Liverpool: Ryan Gravenberch signs new long-term deal at Anfield](https://www.101greatgoals.com/football/premier-league/liverpool-ryan-gravenberch-new-deal/) - **101 Great Goals**
-10. [Wrexham vs. Chelsea LIVE Updates: Minute-by-Minute Coverage of the 2025-26 FA Cup Fifth Round](https://worldsoccertalk.com/news/wrexham-vs-chelsea-live-updates-minute-by-minute-coverage-of-the-2025-26-fa-cup-fifth-round/) - **Worldsoccertalk.com**
+1. [Gravenberch signs new long-term contract until 2032](https://www.bbc.com/sport/football/articles/cev7pg3e3kdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Ryan Gravenberch signs new Liverpool contract](https://www.playmakerstats.com/news/ryan-gravenberch-signs-new-liverpool-contract/1069954) - **Playmakerstats.com**
+3. [The Browns prepare their 'bomb': three important receivers who are in Cleveland's sights](https://www.marca.com/en/nfl/cleveland-browns/2026/03/07/69ac44dd22601da6168b456c.html) - **Marca**
+4. [Arne Slot identifies one area where Dominik Szoboszlai could be ‘the best in the world’](https://www.hitc.com/arne-slot-dominik-szoboszlai-best-in-the-world/) - **HITC - Football, Gaming, Movies, TV, Music**
+5. [Arsenal edge stubborn third-tier Mansfield 2-1, reach FA quarter-finals](https://punchng.com/arsenal-edge-stubborn-third-tier-mansfield-2-1-reach-fa-quarter-finals/) - **The Punch**
+6. [Livestream FA Cup Soccer: Watch Newcastle vs. Man City From Anywhere](https://www.cnet.com/tech/services-and-software/livestream-fa-cup-soccer-watch-newcastle-vs-man-city-from-anywhere/) - **CNET**
+7. [La Liga Soccer: Stream Athletic Bilbao vs. Barcelona Live From Anywhere](https://www.cnet.com/tech/services-and-software/la-liga-soccer-stream-athletic-bilbao-vs-barcelona-live-from-anywhere/) - **CNET**
+8. [Mansfield star says they exceeded their own expectations](https://www.justarsenal.com/mansfield-star-says-they-exceeded-their-own-expectations/411349) - **Just Arsenal News**
+9. ['Exceptional' Dowman and Salmon make history as Gunners survive scare](https://www.bbc.com/sport/football/articles/cy0329x8eleo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. ['Exceptional' Dowman and Salmon make history as Gunners survive scare](https://www.bbc.com/sport/football/articles/cy0329x8eleo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-09 01:58:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-09 02:32:12 (KST) / (하루 100회 제한 준수 중)*
