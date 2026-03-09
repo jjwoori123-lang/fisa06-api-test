@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Port Vale reach FA Cup quarter-finals for first time in 70 years](https://www.playmakerstats.com/news/port-vale-reach-fa-cup-quarter-finals-for-first-time-in-70-years/1070728) - **Playmakerstats.com**
-2. [Three sporting events to watch this week: Your handy guide to sport on television](https://www.irishtimes.com/sport/2026/03/08/three-sporting-events-to-watch-this-week-your-handy-guide-to-sport-on-television/) - **The Irish Times**
-3. [Klopp agent breaks silence on Atletico Madrid talks](https://www.empireofthekop.com/2026/03/08/klopp-agent-breaks-silence-on-atletico-madrid-talks/) - **Empire of The Kop**
-4. [Liverpool star break silence on potential summer exit](https://anfieldindex.com/91940/liverpool-star-break-silence-on-potential-summer-exit.html) - **Anfieldindex.com**
-5. [Journalist: Man United eyeing move to sign Premier League defender](https://eplindex.com/143721/journalist-man-united-eyeing-move-to-sign-premier-league-defender.html) - **English Premier League Index - Opta Stats**
-6. [Report: Man United ready to pay €50m to sign Premier League midfielder](https://eplindex.com/143719/report-man-united-ready-to-pay-e50m-to-sign-premier-league-midfielder.html) - **English Premier League Index - Opta Stats**
-7. [Liverpool yet to open contract renewal talks with Alexis Mac Allister](https://sportsview.co.uk/2026/03/liverpool-yet-to-open-contract-renewal-talks-with-alexis-mac-allister?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=liverpool-yet-to-open-contract-renewal-talks-with-alexis-mac-allister) - **Sportsview.co.uk**
-8. [Liverpool and Man Utd complain to X about 'sickening' Grok posts](https://www.bbc.com/sport/football/articles/c1w5221prjgo) - **BBC News**
-9. [Port Vale stun Sunderland in huge FA Cup upset](https://thefootballfaithful.com/port-vale-stun-sunderland-in-huge-fa-cup-upset/) - **The Football Faithful**
-10. [Rice urges Arsenal to ignore ‘noise’ around style of play](https://thefootballfaithful.com/rice-urges-arsenal-to-ignore-noise-around-style-of-play/) - **The Football Faithful**
+1. [Oxford United announce death of academy player Amelia Aplin, aged 15](https://sports.yahoo.com/articles/oxford-united-announce-death-academy-180105575.html) - **Yahoo Entertainment**
+2. [Championship talking points: Coventry back on track again as Millwall march on](https://www.skysports.com/football/news/11688/13515056/championship-talking-points-coventry-back-on-track-again-as-millwall-march-on-the-weekend-action-analysed) - **Sky Sports**
+3. [Bottom of the league, magic in the cup - Port Vale's 'incredible' run](https://www.bbc.com/sport/football/articles/cy8g22120pdo) - **BBC News**
+4. [Defender drops transfer hint amid Liverpool interest](https://anfieldindex.com/91941/defender-drops-transfer-hint-amid-liverpool-interest.html) - **Anfieldindex.com**
+5. [Report: £60m Tottenham Hotspur star ready to leave the club this summer](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3006b45f-086f-4e0f-a058-9250e4523651) - **Yahoo Entertainment**
+6. [Mason Greenwood: Major update on ex-Man United ace’s future](https://thepeoplesperson.com/2026/03/08/mason-greenwood-major-update-on-ex-man-united-aces-future-307490/) - **The Peoples Person**
+7. [West Ham United striker Callum Wilson agrees new one-year deal](https://sportsview.co.uk/2026/03/west-ham-united-striker-callum-wilson-agrees-new-one-year-deal?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=west-ham-united-striker-callum-wilson-agrees-new-one-year-deal) - **Sportsview.co.uk**
+8. [ Leeds midfielder scores brilliant opener vs. Norwich on rare start ](https://onefootball.com/en/news/leeds-midfielder-scores-brilliant-opener-vs-norwich-on-rare-start-42525085) - **Onefootball.com**
 
 
 ---
-*최근 업데이트: 2026-03-10 02:13:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-10 03:03:38 (KST) / (하루 100회 제한 준수 중)*
