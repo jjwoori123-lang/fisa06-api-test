@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Football club quits league due to lack of players](https://www.bbc.com/news/articles/cze02gewy6no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Real Madrid closely monitoring Premier League midfielder’s decision over his future](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d62d64fa-f634-4dde-ad88-17b1b81921a5) - **Yahoo Entertainment**
-3. [Man United locked in fierce battle with Liverpool & Arsenal for highly-rated wide player](https://strettynews.com/2026/03/08/man-united-locked-in-fierce-battle-with-liverpool-arsenal-for-highly-rated-wide-player/) - **Strettynews.com**
-4. [Paul Davis on winning in London and a NLD debut](http://www.arsenal.com/news/paul-davis-winning-london-and-nld-debut) - **Arsenal.com**
-5. [Khvicha Kvaratskhelia: Why Man United target could leave PSG](https://thepeoplesperson.com/2026/03/08/khvicha-kvaratskhelia-why-man-united-target-could-leave-psg-307470/) - **The Peoples Person**
-6. [Real Madrid scouted Newcastle United midfielder Sandro Tonali during FA Cup game vs Man City](https://sportsview.co.uk/2026/03/real-madrid-scouted-newcastle-united-midfielder-sandro-tonali-during-fa-cup-game-vs-man-city?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=real-madrid-scouted-newcastle-united-midfielder-sandro-tonali-during-fa-cup-game-vs-man-city) - **Sportsview.co.uk**
-7. [Fulham vs Southampton – Match preview and team news](https://thefootballfaithful.com/fulham-vs-southampton-match-preview-and-team-news/) - **The Football Faithful**
-8. [Sunderland XI vs Port Vale – Predicted lineup and team news](https://thefootballfaithful.com/sunderland-xi-vs-port-vale-predicted-lineup-and-team-news/) - **The Football Faithful**
-9. [Leeds United vs Norwich City – Match preview and team news](https://thefootballfaithful.com/leeds-united-vs-norwich-city-match-preview-and-team-news/) - **The Football Faithful**
-10. [‘Cup Fever’ Is Catching For Sunderland!](https://rokerreport.sbnation.com/opinion/129833/cup-fever-is-catching-for-sunderland) - **SB Nation**
+1. [Report: Man United Target Bournemouth Playmaker](https://eplindex.com/143710/report-man-united-target-bournemouth-playmaker.html) - **English Premier League Index - Opta Stats**
+2. [Leven fears relegation trouble for Aberdeen - gossip](https://www.bbc.com/sport/football/articles/cew82vvdnqeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Leven fears relegation trouble for Aberdeen - gossip](https://www.bbc.com/sport/football/articles/cew82vvdnqeo) - **BBC News**
+4. [Report: Expert says Liverpool’s Mac Allister over Szoboszlai for La Liga giants](https://anfieldindex.com/91924/report-expert-says-liverpools-mac-allister-over-szoboszlai-for-la-liga-giants.html) - **Anfieldindex.com**
+5. [Liverpool ready to replace star just one year after record arrival](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-ready-to-replace-star-just-one-year-after-record-arrival/) - **Anfieldwatch.co.uk**
+6. [Why on earth would some supposed Arsenal fans turn on a young player?](https://untold-arsenal.com/archives/119796) - **Untold-arsenal.com**
+7. [Rangers vs Celtic – Predicted lineup and team news](https://thefootballfaithful.com/rangers-vs-celtic-predicted-lineup-and-team-news-4/) - **The Football Faithful**
+8. [Virgil van Dijk and Kenny Dalglish share Instagram exchange Liverpool fans will love](https://www.empireofthekop.com/2026/03/08/virgil-van-dijk-and-kenny-dalglish-share-instagram-exchange-liverpool-fans-will-love/) - **Empire of The Kop**
+9. [Will Pep Guardiola miss Carabao Cup final after picking up two-game suspension against Newcastle United?](https://cityxtra.co.uk/42680/will-pep-guardiola-miss-carabao-cup-final-after-picking-up-two-game-suspension-against-newcastle-united/) - **Cityxtra.co.uk**
+10. [Manchester United plot summer move for £25m-rated wide man from rival club](https://strettynews.com/2026/03/08/man-united-plot-antonee-robinson-move/) - **Strettynews.com**
 
 
 ---
-*최근 업데이트: 2026-03-09 16:59:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-09 17:57:42 (KST) / (하루 100회 제한 준수 중)*
