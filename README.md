@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Man United Target Bournemouth Playmaker](https://eplindex.com/143710/report-man-united-target-bournemouth-playmaker.html) - **English Premier League Index - Opta Stats**
-2. [Leven fears relegation trouble for Aberdeen - gossip](https://www.bbc.com/sport/football/articles/cew82vvdnqeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Leven fears relegation trouble for Aberdeen - gossip](https://www.bbc.com/sport/football/articles/cew82vvdnqeo) - **BBC News**
-4. [Report: Expert says Liverpool’s Mac Allister over Szoboszlai for La Liga giants](https://anfieldindex.com/91924/report-expert-says-liverpools-mac-allister-over-szoboszlai-for-la-liga-giants.html) - **Anfieldindex.com**
-5. [Liverpool ready to replace star just one year after record arrival](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-ready-to-replace-star-just-one-year-after-record-arrival/) - **Anfieldwatch.co.uk**
-6. [Why on earth would some supposed Arsenal fans turn on a young player?](https://untold-arsenal.com/archives/119796) - **Untold-arsenal.com**
-7. [Rangers vs Celtic – Predicted lineup and team news](https://thefootballfaithful.com/rangers-vs-celtic-predicted-lineup-and-team-news-4/) - **The Football Faithful**
-8. [Virgil van Dijk and Kenny Dalglish share Instagram exchange Liverpool fans will love](https://www.empireofthekop.com/2026/03/08/virgil-van-dijk-and-kenny-dalglish-share-instagram-exchange-liverpool-fans-will-love/) - **Empire of The Kop**
-9. [Will Pep Guardiola miss Carabao Cup final after picking up two-game suspension against Newcastle United?](https://cityxtra.co.uk/42680/will-pep-guardiola-miss-carabao-cup-final-after-picking-up-two-game-suspension-against-newcastle-united/) - **Cityxtra.co.uk**
-10. [Manchester United plot summer move for £25m-rated wide man from rival club](https://strettynews.com/2026/03/08/man-united-plot-antonee-robinson-move/) - **Strettynews.com**
+1. [Former Red urges Liverpool to move for La Liga star](https://anfieldindex.com/91925/former-red-urges-liverpool-to-move-for-la-liga-star.html) - **Anfieldindex.com**
+2. [Steve Carell’s New HBO Show Is Ted Lasso for Academia](https://slate.com/culture/2026/03/hbo-max-rooster-steve-carell-show-ted-lasso-review.html) - **Slate Magazine**
+3. [Harry Potter stars Daniel Radcliffe and Tom Felton reunite in the US](https://www.straitstimes.com/life/entertainment/harry-potter-stars-daniel-radcliffe-and-tom-felton-reunite-in-the-us) - **The Straits Times**
+4. [The ‘Finn Allen’ gamble: Juhi Chawla’s daughter Jhanvi Mehta tracked the Kiwi opener for years before his record-breaking T20 World Cup ton](https://indianexpress.com/article/entertainment/bollywood/juhi-chawla-daughter-jhanvi-mehta-kkr-finn-allen-ipl-2026-t20-world-cup-final-10571158/) - **The Indian Express**
+5. [Ryan Reynolds: 'So Incredibly Proud' Of Wrexham Despite FA Cup Loss To Chelsea](https://www.foxsports.com/stories/soccer/ryan-reynolds-so-incredibly-proud-as-10-man-wrexham-take-chelsea-to-extra-time-in-thrilling-fa-cup-clash) - **Fox Sports**
+6. [Opportunity opens up for ideal Alexis Mac Allister midfield replacement](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-curtis-jones-opportunity-opens-up-for-ideal-alexis-mac-allister-midfield-replacement/) - **Anfieldwatch.co.uk**
+7. [Liverpool's Ryan Gravenberch Signs New Long-Term Deal](https://www.foxsports.com/stories/soccer/easy-decision-ryan-gravenberch-pens-long-term-liverpool-contract-after-strong-run-of-form) - **Fox Sports**
+8. [Man City boss Guardiola given two-game touchline ban](https://www.skysports.com/football/news/11679/13516868/pep-guardiola-man-city-boss-handed-two-game-touchline-ban-for-sixth-yellow-card-of-season-but-will-not-miss-carabao-cup-final) - **Sky Sports**
+9. [Match Preview: Bournemouth U21s v Brentford U21s](https://www.brentfordfc.com/en/news/article/brentford-b-team-match-preview-bournemouth-u21s-brentford-u21s-professional-development-league) - **Brentfordfc.com**
 
 
 ---
-*최근 업데이트: 2026-03-09 17:57:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-09 19:02:13 (KST) / (하루 100회 제한 준수 중)*
