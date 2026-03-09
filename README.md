@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [ FA Cup shock: Bottom of League One knock out Premier League club](https://onefootball.com/en/news/fa-cup-shock-bottom-of-league-one-knock-out-premier-league-club-42524775) - **Onefootball.com**
-2. [Port Vale 1-0 Sunderland: Report, result, goals as Waine goal seals FA Cup shock](https://www.101greatgoals.com/football/port-vale-sunderland-report-result-goals/) - **101 Great Goals**
-3. [Sensational Liverpool wonderkid makes it 11 goals in just 8 games](https://www.anfieldwatch.co.uk/liverpool-fc/news/sensational-liverpool-wonderkid-makes-it-11-goals-in-just-8-games/) - **Anfieldwatch.co.uk**
-4. [Ryan Reynolds delivers encouraging message to Wrexham after FA Cup exit vs. Chelsea](https://worldsoccertalk.com/news/ryan-reynolds-delivers-encouraging-message-to-wrexham-after-fa-cup-exit-vs-chelsea/) - **Worldsoccertalk.com**
-5. [Port Vale cause FA Cup shock to reach quarter-finals](https://www.channelnewsasia.com/sport/port-vale-cause-fa-cup-shock-reach-quarter-finals-5980016) - **CNA**
-6. [Troy Deeney explains how Barcelona gave Marcus Rashford a brutal reality check](https://www.hitc.com/troy-deeney-explains-how-barcelona-gave-marcus-rashford-a-brutal-reality-check/) - **HITC - Football, Gaming, Movies, TV, Music**
-7. [North Dakota State vs North Dakota Prediction, Picks & Odds for Today's Summit League Final](https://www.covers.com/ncaab/north-dakota-state-vs-north-dakota-predictions-picks-odds-sunday-3-8-2026) - **Covers.com**
-8. [Third-tier Port Vale shock Premier League Sunderland to reach FA Cup quarterfinals](https://www.nbcsports.com/soccer/news/third-tier-port-vale-shock-premier-league-sunderland-to-reach-fa-cup-quarterfinals) - **NBCSports.com**
-9. [Hugo Bueno sends Liverpool message after Wolves beaten](https://www.empireofthekop.com/2026/03/08/hugo-bueno-sends-liverpool-message-after-wolves-beaten/) - **Empire of The Kop**
+1. [Port Vale reach FA Cup quarter-finals for first time in 70 years](https://www.playmakerstats.com/news/port-vale-reach-fa-cup-quarter-finals-for-first-time-in-70-years/1070728) - **Playmakerstats.com**
+2. [Three sporting events to watch this week: Your handy guide to sport on television](https://www.irishtimes.com/sport/2026/03/08/three-sporting-events-to-watch-this-week-your-handy-guide-to-sport-on-television/) - **The Irish Times**
+3. [Klopp agent breaks silence on Atletico Madrid talks](https://www.empireofthekop.com/2026/03/08/klopp-agent-breaks-silence-on-atletico-madrid-talks/) - **Empire of The Kop**
+4. [Liverpool star break silence on potential summer exit](https://anfieldindex.com/91940/liverpool-star-break-silence-on-potential-summer-exit.html) - **Anfieldindex.com**
+5. [Journalist: Man United eyeing move to sign Premier League defender](https://eplindex.com/143721/journalist-man-united-eyeing-move-to-sign-premier-league-defender.html) - **English Premier League Index - Opta Stats**
+6. [Report: Man United ready to pay €50m to sign Premier League midfielder](https://eplindex.com/143719/report-man-united-ready-to-pay-e50m-to-sign-premier-league-midfielder.html) - **English Premier League Index - Opta Stats**
+7. [Liverpool yet to open contract renewal talks with Alexis Mac Allister](https://sportsview.co.uk/2026/03/liverpool-yet-to-open-contract-renewal-talks-with-alexis-mac-allister?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=liverpool-yet-to-open-contract-renewal-talks-with-alexis-mac-allister) - **Sportsview.co.uk**
+8. [Liverpool and Man Utd complain to X about 'sickening' Grok posts](https://www.bbc.com/sport/football/articles/c1w5221prjgo) - **BBC News**
+9. [Port Vale stun Sunderland in huge FA Cup upset](https://thefootballfaithful.com/port-vale-stun-sunderland-in-huge-fa-cup-upset/) - **The Football Faithful**
+10. [Rice urges Arsenal to ignore ‘noise’ around style of play](https://thefootballfaithful.com/rice-urges-arsenal-to-ignore-noise-around-style-of-play/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-03-10 01:15:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-10 02:13:15 (KST) / (하루 100회 제한 준수 중)*
