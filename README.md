@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Americans Abroad Five: USMNT strikers on fire as March window nears](https://www.usatoday.com/story/sports/soccer/usmnt/2026/03/09/americans-abroad-usmnt-strikers-pepi-balogun-wright/89058275007/) - **USA Today**
-2. [Match preview: United v Aston Villa](https://www.manutd.com/en/news/detail/how-to-watch-and-follow-man-utd-v-aston-villa-15-march-2026) - **Manchester United**
-3. [India’s T20 World Cup win sparks fresh endorsement race for top players](https://www.livemint.com/companies/news/icc-mens-world-cup-winners-draw-early-endorsement-interest-11773058338200.html) - **Livemint**
-4. [Alisson ruled out of Galatasaray clash as Liverpool suffer injury blow; Mamardashvili to start in Champions League tie](https://www.footballmuse.com/news/alisson-ruled-out-of-galatasaray-clash-as-liverpool-suffer-injury-blow-mamardashvili-to-start-in-champions-league-tie) - **Footballmuse.com**
-5. [How will Atlético Madrid line up against Tottenham Hotspur?](https://www.intothecalderon.com/previews/22317/atletico-madrid-tottenham-hotspur-champions-league-preview-predicted-lineup) - **Into The Calderon**
-6. [Just in – Mbappe doing ‘much better’ but will not play vs Manchester City](https://madriduniversal.com/just-in-mbappe-doing-much-better-but-will-not-play-vs-manchester-city/) - **Madriduniversal.com**
-7. [Boro's Morris has tunnel vision in promotion race](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a7fe0c34-db75-404d-b551-c7d7682e392d) - **Yahoo Entertainment**
-8. [Abramovich's lawyers say he will fight any UK attempt to seize Chelsea sale money](https://www.channelnewsasia.com/sport/abramovichs-lawyers-say-he-will-fight-any-uk-attempt-seize-chelsea-sale-money-5981921) - **CNA**
-9. [Flick finalises Barcelona lineup and three tactical plans for Newcastle game – report](https://barcauniversal.com/flick-finalises-barcelona-lineup-and-three-tactical-plans-for-newcastle-game-report/) - **Barcauniversal.com**
+1. [Liverpool midfielder takes huge strides towards signing new contract deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-curtis-jones-midfielder-takes-huge-strides-towards-signing-new-contract-deal/) - **Anfieldwatch.co.uk**
+2. [Ray Parlour does not want Arsenal to be overconfident](https://www.justarsenal.com/ray-parlour-does-not-want-arsenal-to-be-overconfident/411436) - **Just Arsenal News**
+3. [UCL: Premier League teams faster, Simeone says before Tottenham tie](https://punchng.com/ucl-premier-league-teams-faster-simeone-says-before-tottenham-tie/) - **The Punch**
+4. [West Ham star agrees surprise new deal](https://eplindex.com/143758/west-ham-star-agrees-surprise-new-deal.html) - **English Premier League Index - Opta Stats**
+5. [Why do so many people want Arsenal to fail in the Premier League title race?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a167af4b-f3eb-4514-a547-c5141435240a) - **Yahoo Entertainment**
+6. [Simeone wary of former Atletico midfielder ahead of Spurs showdown](https://thefootballfaithful.com/simeone-wary-of-former-atletico-midfielder-ahead-of-spurs-showdown/) - **The Football Faithful**
+7. [The Journey of an MLS pioneer: Brian Dunseth on seven teams, U.S. Open Cup glory, and Apple TV](https://worldsoccertalk.com/news/the-journey-of-an-mls-pioneer-brian-dunseth-on-seven-teams-u-s-open-cup-glory-and-apple-tv/) - **Worldsoccertalk.com**
+8. [Pick of the stats: West Bromwich Albion v Southampton](https://www.bbc.com/sport/football/articles/c07jy8dep5ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Nemanja Vidic makes his stance clear on Carrick becoming permanent Man United boss](https://thepeoplesperson.com/2026/03/09/nemanja-vidic-makes-his-stance-clear-on-carrick-becoming-permanent-man-united-boss-307520/) - **The Peoples Person**
+10. [Stags 'nagging feeling' after Arsenal loss - Clough](https://www.bbc.com/sport/football/articles/c24dy7z407no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-10 23:09:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-11 00:13:05 (KST) / (하루 100회 제한 준수 중)*
