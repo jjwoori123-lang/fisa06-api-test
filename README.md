@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool midfielder takes huge strides towards signing new contract deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-curtis-jones-midfielder-takes-huge-strides-towards-signing-new-contract-deal/) - **Anfieldwatch.co.uk**
-2. [Ray Parlour does not want Arsenal to be overconfident](https://www.justarsenal.com/ray-parlour-does-not-want-arsenal-to-be-overconfident/411436) - **Just Arsenal News**
-3. [UCL: Premier League teams faster, Simeone says before Tottenham tie](https://punchng.com/ucl-premier-league-teams-faster-simeone-says-before-tottenham-tie/) - **The Punch**
-4. [West Ham star agrees surprise new deal](https://eplindex.com/143758/west-ham-star-agrees-surprise-new-deal.html) - **English Premier League Index - Opta Stats**
-5. [Why do so many people want Arsenal to fail in the Premier League title race?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a167af4b-f3eb-4514-a547-c5141435240a) - **Yahoo Entertainment**
-6. [Simeone wary of former Atletico midfielder ahead of Spurs showdown](https://thefootballfaithful.com/simeone-wary-of-former-atletico-midfielder-ahead-of-spurs-showdown/) - **The Football Faithful**
-7. [The Journey of an MLS pioneer: Brian Dunseth on seven teams, U.S. Open Cup glory, and Apple TV](https://worldsoccertalk.com/news/the-journey-of-an-mls-pioneer-brian-dunseth-on-seven-teams-u-s-open-cup-glory-and-apple-tv/) - **Worldsoccertalk.com**
-8. [Pick of the stats: West Bromwich Albion v Southampton](https://www.bbc.com/sport/football/articles/c07jy8dep5ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Nemanja Vidic makes his stance clear on Carrick becoming permanent Man United boss](https://thepeoplesperson.com/2026/03/09/nemanja-vidic-makes-his-stance-clear-on-carrick-becoming-permanent-man-united-boss-307520/) - **The Peoples Person**
-10. [Stags 'nagging feeling' after Arsenal loss - Clough](https://www.bbc.com/sport/football/articles/c24dy7z407no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Newcastle vs. Barcelona prediction, odds, best bets for Champions League Round of 16 first leg on March 10](https://www.cbssports.com/betting/news/newcastle-vs-barcelona-prediction-odds-best-bets-for-champions-league-round-of-16-first-leg-on-march-10/) - **CBS Sports**
+2. [FULL LIST: Dangote leads as Africa’s billionaires add $20bn to fortunes](https://punchng.com/full-list-dangote-leads-as-africas-billionaires-add-20bn-to-fortunes/) - **The Punch**
+3. [Gyokeres wins Emirates Goal of the Month!](http://www.arsenal.com/news/gyokeres-wins-emirates-goal-month) - **Arsenal.com**
+4. [Former Chelsea, AFC Wimbledon and MK Dons defender grabs first goal of the season as Standard Liege keep top six hopes alive](https://getfootballnewsbene.com/former-chelsea-afc-wimbledon-and-mk-dons-defender-grabs-first-goal-of-the-season-as-standard-liege-keep-top-six-hopes-alive/) - **Getfootballnewsbene.com**
+5. [How Snoop Dogg became Swansea City’s most unlikely asset](https://theconversation.com/how-snoop-dogg-became-swansea-citys-most-unlikely-asset-276904) - **The Conversation Africa**
+6. [Liverpool reportedly reach agreement with Slot successor, but Reds boss has one way to save job](https://www.101greatgoals.com/football/premier-league/liverpool-agreeement-slot-successor/) - **101 Great Goals**
+7. [Travis Kelce expected to return to Chiefs for 14th NFL season, per report](https://www.cbssports.com/nfl/news/travis-kelce-chiefs-return-2026/) - **CBS Sports**
+8. [Why Newcastle and Sunderland don't have away fans pitchside](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d43341e2-0652-4b7d-aac1-673bd7504628) - **Yahoo Entertainment**
+9. [USMNT midweek viewing guide template](https://www.starsandstripesfc.com/usmnt-americans-abroad/42796/usmnt-midweek-viewing-guide-template) - **Starsandstripesfc.com**
 
 
 ---
-*최근 업데이트: 2026-03-11 00:13:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-11 01:17:05 (KST) / (하루 100회 제한 준수 중)*
