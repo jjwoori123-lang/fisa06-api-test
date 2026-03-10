@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tudor on team news, Romero return and changing 'old habits'](https://www.bbc.com/sport/football/articles/cvgvm8y7jeyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Champions League burning questions: Six English teams in the quarterfinals? Can Man City, Chelsea Spurs win?](https://www.cbssports.com/soccer/news/champions-league-english-teams-quarterfinals-man-city-chelsea-spurs-win/) - **CBS Sports**
-3. [The 2026 World Cup will bring a uniquely American sports tradition to the beautiful game: Mid-match ad breaks](https://fortune.com/2026/03/09/world-cup-hydration-breaks-tv-ads-revenue-fifa-global-viewership/) - **Fortune**
-4. [PREVIEW: Arsenal looking to continue Champions League winning streak against Bayern Leverkusen](https://wp.fromthespot.co.uk/27060/preview-arsenal-looking-to-continue-champions-league-winning-streak-against-bayern-leverkusen/) - **Fromthespot.co.uk**
-5. [Advantage Liverpool as Premier League star picks Reds over Manchester United](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7547690f-6b6d-46bc-bbeb-b20400313c00) - **Yahoo Entertainment**
-6. [Man City to host Liverpool in FA Cup quarter-final](https://www.rte.ie/sport/soccer/2026/0309/1562485-man-city-to-host-liverpool-in-fa-cup-quarter-final/) - **RTE**
-7. [TST Best Bets- March 9, 2026](https://www.thesportingtribune.com/2026/03/09/tst-best-bets--march-9-2026) - **Thesportingtribune.com**
-8. [Liverpool face crunch away day at Manchester City in FA Cup quarter-final](https://www.independent.ie/sport/soccer/liverpool-face-crunch-away-day-at-manchester-city-in-fa-cup-quarter-final/a452995012.html) - **Independent.ie**
-9. [€6m Leeds United Player Suffers A Transfer Twist: Should The Whites Cash In?](https://the4thofficial.net/2026/03/e6m-leeds-united-player-suffers-a-transfer-twist-should-the-whites-cash-in/) - **The4thofficial.net**
+1. [Scholes 'did not intend to be offensive' to Carrick](https://www.bbc.com/sport/football/articles/c05vye161l5o) - **BBC News**
+2. [Bisseck and Inter keep eyes on real prize: ‘I’ll take derby defeats for Scudetto’](https://football-italia.net/bisseck-inter-keep-eyes-on-real-prize-derby/) - **Football Italia**
+3. [Liverpool head to Istanbul without Alisson and looking for unlikely salvation](https://www.irishtimes.com/sport/soccer/2026/03/09/liverpool-head-to-istanbul-without-alisson-and-looking-for-unlikely-salvation/) - **The Irish Times**
+4. [Manchester United Are Keeping A Keen Eye On This Chelsea Midfielder: Decent Choice For Carrick?](https://the4thofficial.net/2026/03/manchester-united-are-keeping-a-keen-eye-on-this-chelsea-midfielder/) - **The4thofficial.net**
+5. [ Jarrod Bowen bags brace as West Ham lead FA Cup clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d3501739-12f4-439b-a82a-ba3d50f872c1) - **Yahoo Entertainment**
+6. [FA Cup: Man City to face Liverpool, Chelsea host Port Vale in quarterfinal draw](https://punchng.com/fa-cup-man-city-to-face-liverpool-chelsea-host-port-vale-in-quarterfinal-draw/) - **The Punch**
+7. [Odafe Oweh, Commanders reportedly agree to terms on 4-year, $100 million deal in free agency](https://sports.yahoo.com/nfl/breaking-news/article/odafe-oweh-commanders-reportedly-agree-to-terms-on-4-year-100-million-deal-in-free-agency-201710913.html) - **Yahoo Entertainment**
+8. [Ex-Chargers pass rusher Odafe Oweh reportedly agrees to 4-year, $100 million deal with Commanders](https://sports.yahoo.com/nfl/breaking-news/article/ex-chargers-pass-rusher-odafe-oweh-reportedly-agrees-to-4-year-100-million-deal-with-commanders-201710853.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-11 04:53:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-11 05:38:10 (KST) / (하루 100회 제한 준수 중)*
