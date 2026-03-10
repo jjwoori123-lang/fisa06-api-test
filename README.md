@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Footy Fix: Champions League round of 16 begins as six Premier League sides chase Europe's biggest prize](https://www.cbssports.com/soccer/news/footy-fix-champions-league-round-of-16-begins-as-six-premier-league-sides-chase-europes-biggest-prize/) - **CBS Sports**
-2. [Pro Lacrosse Goalie Shows Off Torso Covered In Gnarly Bruises After Helping Team Clinch PLL Tournament Title](https://brobible.com/sports/article/austin-kaut-bruises-premier-lacrosse-league-championship/) - **BroBible**
-3. [Arne Slot chasing Liverpool club record with Galatasaray win](https://thefootballfaithful.com/arne-slot-chasing-liverpool-club-record-with-galatasaray-win/) - **The Football Faithful**
-4. [Pierce secures record deal to sign with Colts](https://www.stampedeblue.com/indianapolis-colts-free-agency/122216/pierce-secures-record-deal-to-sign-with-colts) - **Stampede Blue**
-5. [Florian Wirtz: Germany’s 2026 World Cup Unsung Hero](https://urbanpitch.com/florian-wirtz-germanys-2026-world-cup-unsung-hero/) - **Urbanpitch.com**
-6. [Four in ten, what was is and a trip to Lille](https://www.thevillablog.co.uk/aston-villa-blog/avfc-opinion/four-in-ten-what-was-is-and-a-trip-to-lille) - **Thevillablog.co.uk**
-7. [Newcastle vs. Barcelona prediction, odds, best bets for Champions League Round of 16 first leg on March 10](https://www.cbssports.com/betting/news/newcastle-vs-barcelona-prediction-odds-best-bets-for-champions-league-round-of-16-first-leg-on-march-10/) - **CBS Sports**
-8. [FULL LIST: Dangote leads as Africa’s billionaires add $20bn to fortunes](https://punchng.com/full-list-dangote-leads-as-africas-billionaires-add-20bn-to-fortunes/) - **The Punch**
-9. [Gyokeres wins Emirates Goal of the Month!](http://www.arsenal.com/news/gyokeres-wins-emirates-goal-month) - **Arsenal.com**
+1. [Will Kylian Mbappe Return For Real Madrid-Man City Champions League Match?](https://www.foxsports.com/stories/soccer/kylian-mbappe-targeting-shock-return-from-injury-against-man-city-as-real-madrid-refuse-to-rule-out-early-return) - **Fox Sports**
+2. [U18 Premier League Cup final arranged](https://www.manutd.com/en/news/detail/under-18-premier-league-cup-final-v-crystal-palace-arranged) - **Manchester United**
+3. [Is time-wasting in the Premier League getting worse?](https://www.bbc.com/sport/football/articles/clyvermnekvo) - **BBC News**
+4. [Graham: Four-point haul may well be needed against Poland](https://www.rte.ie/sport/soccer/2026/0309/1562454-graham-four-point-haul-may-well-be-needed-against-poland/) - **RTE**
+5. [Should lower-ranked teams always play at home in the FA Cup?](https://www.bbc.com/sport/football/articles/cp32xqqpqego) - **BBC News**
+6. [Kansas City Chiefs land Kenneth Walker III in blockbuster deal](https://www.marca.com/en/nfl/kansas-city-chiefs/2026/03/09/69af02efca474120738b457a.html) - **Marca**
+7. [City Xtra Writers’ Predictions: Real Madrid vs Manchester City (UEFA Champions League Round of 16 First Leg)](https://cityxtra.co.uk/42727/city-xtra-writers-predictions-real-madrid-vs-manchester-city-uefa-champions-league-round-of-16-first-leg/) - **Cityxtra.co.uk**
+8. [Duffy lands first POTM award of new season](https://www.rte.ie/sport/soccer/2026/0309/1562462-duffy-lands-first-potm-award-of-new-season/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-03-11 02:12:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-11 03:04:00 (KST) / (하루 100회 제한 준수 중)*
