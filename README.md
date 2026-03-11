@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Inside Bodo/Glimt - the Champions League's ultimate giantkilling story](https://www.skysports.com/football/news/11095/13517421/bodo-glimt-norwegian-club-have-beaten-man-city-atletico-madrid-and-inter-milan-on-way-to-champions-league-last-16-what-is-their-secret) - **Sky Sports**
-2. [“We have a team that can win it” – Liverpool star dreaming of Champions League success](https://anfieldindex.com/91995/we-have-a-team-that-can-win-it-liverpool-star-dreaming-of-champions-league-success.html) - **Anfieldindex.com**
-3. ['The unknown keeps you dreaming'](https://www.bbc.com/sport/football/articles/cly1wpexw0ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Champions League: Barcelona vs Newcastle Preview](https://www.rediff.com/sports/report/champions-league-barcelona-vs-newcastle/20260310.htm) - **Rediff.com**
-5. [Spurs' perilous position 'unbelievable' - Redknapp](https://www.bbc.com/sport/football/articles/crrx8pg4lxeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Real Madrid banking big on key forward to get them through vs Manchester City](https://madriduniversal.com/real-madrid-banking-big-on-key-forward-to-get-them-through-vs-manchester-city/) - **Madriduniversal.com**
-7. [RB Leipzig place price tag on Castello Lukeba as PSG and Premier League clubs circle](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d463efce-b2f2-4e13-9aca-8cef03f21858) - **Yahoo Entertainment**
-8. [Clever Liverpool deal will bank £27m after star picks Reds](https://www.anfieldwatch.co.uk/liverpool-fc/news/clever-liverpool-deal-will-bank-ps27m-after-star-picks-reds/) - **Anfieldwatch.co.uk**
+1. [How to Watch Celtics vs. Spurs Tonight: Channel, Live Stream & Start Time for NBA Game](https://nesn.com/boston-celtics/news/watch-celtics-vs-spurs-channel-stream-start-time/f3e651100e26b43d71f64c74) - **NESN**
+2. [Ivorian league: ASEC Mimosas take sole lead at the top](https://foot-africa.com/en/news/ivorian-league-asec-mimosas-take-sole-lead-at-the-top-1118240/) - **Foot-africa.com**
+3. [Florian Wirtz reveals why he joined Liverpool in record-breaking move](https://anfieldindex.com/91996/florian-wirtz-reveals-why-he-joined-liverpool-in-record-breaking-move.html) - **Anfieldindex.com**
+4. [Will Bruno set a new club record?](https://www.manutd.com/en/news/detail/bruno-fernandes-closing-in-on-david-beckham-assist-record) - **Manchester United**
+5. [Was Igor Tudor the right hire for Tottenham Hotspur in a time of crisis?](https://www.cbssports.com/soccer/news/igor-tudor-tottenham-hotspur-atletico-madrid-champions-league/) - **CBS Sports**
+6. [Man United injury latest: Lisandro Martinez, Mason Mount and more](https://eplindex.com/143778/man-united-injury-latest-lisandro-martinez-mason-mount-and-more-2.html) - **English Premier League Index - Opta Stats**
+7. [Passengers cheer as MS Dhoni appears on Chennai flight, video goes viral: ‘Wherever he goes, the stadium follows’](https://indianexpress.com/article/trending/trending-in-india/ms-dhoni-viral-flight-video-passengers-cheer-chennai-super-kings-ipl-2026-10574722/) - **The Indian Express**
+8. [Meet Bodø/Glimt, the team from a Norwegian fishing town delivering a Champions League fairy tale](https://sports.yahoo.com/articles/meet-bod-glimt-team-norwegian-104917470.html) - **Yahoo Entertainment**
+9. ['It would be unbelievable if Spurs were to be relegated'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9b1f9de7-fa5f-4998-9816-719a6e5d7dbf) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-11 19:02:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-11 20:02:45 (KST) / (하루 100회 제한 준수 중)*
