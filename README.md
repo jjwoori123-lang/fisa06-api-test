@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Real Madrid good as Man City even without Mbappe — Arbeloa](https://punchng.com/real-madrid-good-as-man-city-even-without-mbappe-arbeloa/) - **The Punch**
-2. [WATCH: Galatasaray take shock lead against Liverpool in Champions League last-16](https://www.101greatgoals.com/football/champions-league/watch-galatasaray-take-shock-lead-liverpool-champions-league/) - **101 Great Goals**
-3. [Atletico Madrid vs Tottenham: Confirmed line-ups for Champions League clash](https://www.101greatgoals.com/football/champions-league/atletico-madrid-vs-tottenham-confirmed-line-ups/) - **101 Great Goals**
-4. [Slot will lose his mind as only one ‘outstanding’ Liverpool star has turned up against Galatasaray](https://www.empireofthekop.com/2026/03/10/slot-will-lose-his-mind-as-only-one-outstanding-liverpool-star-has-turned-up-against-galatasaray/) - **Empire of The Kop**
-5. [How much will Barcelona earn if they eliminate Newcastle United from the UEFA Champions League?](https://barcauniversal.com/how-much-will-barcelona-earn-if-they-eliminate-newcastle-united-from-the-uefa-champions-league/) - **Barcauniversal.com**
-6. [Chelsea outcast will ‘get in trouble’ if he tells all about exile](https://thefootballfaithful.com/chelsea-axel-disasi-premier-league/) - **The Football Faithful**
-7. [Inside Training: Locking in for Leverkusen](http://www.arsenal.com/news/inside-training-locking-leverkusen) - **Arsenal.com**
-8. [Should Arsenal splash the cash again in the summer?](https://www.justarsenal.com/should-arsenal-splash-the-cash-again-in-the-summer/411297) - **Just Arsenal News**
-9. [UEFA puts heavy pressure on the Premier League](https://foot-africa.com/en/news/uefa-puts-heavy-pressure-on-the-premier-league-1118975/) - **Foot-africa.com**
-10. [14 years, 96 caps... Walker retires from England duty](https://www.rediff.com/sports/report/kyle-walker-quits-international-football-four-caps-short-of-century/20260310.htm) - **Rediff.com**
+1. [Galatasaray 1-0 Liverpool: Report, result and goals as Reds fall in Istanbul](https://www.101greatgoals.com/football/champions-league/galatasaray-1-0-liverpool-report-result-goals/) - **101 Great Goals**
+2. [Every word from Arteta's pre-Leverkusen presser](http://www.arsenal.com/news/every-word-artetas-pre-leverkusen-presser) - **Arsenal.com**
+3. [Laboured Liverpool defeated by Galatasaray in Istanbul again](https://www.skysports.com/football/news/11945/13517398/galatasaray-1-0-liverpool-reds-struggle-in-istanbul-again-as-turkish-side-establish-first-leg-advantage-in-champions-league) - **Sky Sports**
+4. [Liverpool rocked by Galatasaray defeat in Champions League last 16 first leg](https://sports.yahoo.com/articles/liverpool-rocked-galatasaray-defeat-champions-194840430.html) - **Yahoo Entertainment**
+5. [Deja vu in Istanbul as Liverpool edged out by Galatasaray](https://www.rte.ie/sport/soccer/2026/0310/1562672-deja-vu-in-istanbul-as-liverpool-edged-out-by-galatasaray/) - **RTE**
+6. [Sloppy Liverpool face uphill task in Champions League following defeat against Galatasaray](https://www.independent.ie/sport/soccer/champions-league/sloppy-liverpool-face-uphill-task-in-champions-league-following-defeat-against-galatasaray/a1520706431.html) - **Independent.ie**
+7. [Tottenham fans celebrate Vicario snub for Champions League round of 16 clash](https://football-italia.net/tottenham-fans-celebrate-vicario-snub/) - **Football Italia**
+8. [“We have to remember” Liam Rosenior sends warning to Chelsea ahead of PSG game](https://chelsea.news/2026/03/liam-rosenior-paris-saint-germain-chelsea/) - **Chelsea.news**
+9. [Users Made Grok Post Offensive Soccer Jokes. Now the U.K. Wants To Censor It.](https://reason.com/2026/03/10/users-made-grok-post-offensive-soccer-jokes-now-the-u-k-wants-to-censor-it/) - **Reason**
+10. [Which teams have taken the most difficult paths to win the Champions League?](https://www.marca.com/en/football/champions-league/2026/03/10/69b064ac46163f6e258b4590.html) - **Marca**
 
 
 ---
-*최근 업데이트: 2026-03-12 04:12:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-12 04:53:23 (KST) / (하루 100회 제한 준수 중)*
