@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Everton U21s give up one bad goal to Reading](http://www.toffeeweb.com/season/25-26/news/47356.html) - **Toffeeweb**
-2. [2026 European Darts Trophy qualifiers](https://www.sportingnews.com/us/darts/news/2026-european-darts-trophy-qualifiers/d17f226e79b0ae23ae2464ac) - **Sporting News**
-3. [Officials and Liverpool’s wastefulness concern Arne Slot in loss to Galatasaray](https://www.independent.ie/sport/soccer/champions-league/officials-and-liverpools-wastefulness-concern-arne-slot-in-loss-to-galatasaray/a797117585.html) - **Independent.ie**
-4. [Barcelona reportedly pursue Bundesliga star in free-agent race with Premier League club](https://worldsoccertalk.com/news/barcelona-reportedly-pursue-bundesliga-star-in-free-agent-race-with-premier-league-club/) - **Worldsoccertalk.com**
-5. [Liverpool rocked by Galatasaray defeat in Champions League last 16 first leg](https://japantoday.com/category/sports/liverpool-rocked-by-galatasaray-defeat-in-champions-league-last-16-first-leg) - **Japan Today**
-6. [Arsenal Are Keeping A Keen Eye On This Borussia Dortmund Talent: Should Arteta Snap Him Up?](https://the4thofficial.net/2026/03/arsenal-are-keeping-a-keen-eye-on-this-borussia-dortmund-talent/) - **The4thofficial.net**
-7. [Antonin Kinsky's Champions League disaster: Three goals conceded in 17 minutes for Tottenham keeper](https://www.cbssports.com/soccer/news/antonin-kinskys-champions-league-three-goals-17-minutes-tottenham/) - **CBS Sports**
-8. [Why Vitor Reis already looks like a Pep Guardiola centre-back](https://cityxtra.co.uk/42572/why-vitor-reis-already-looks-like-a-pep-guardiola-centre-back/) - **Cityxtra.co.uk**
-9. [Liverpool left with work to do after Galatasaray loss](https://www.the42.ie/liverpool-left-with-work-to-do-after-galatasaray-loss-6980939-Mar2026/) - **The42**
-10. [2026 MIT Sloan Sports Analytics Conference shows why data make a difference](https://news.mit.edu/2026/mit-sloan-sports-analytics-conference-shows-why-data-makes-difference-0310) - **Mit.edu**
+1. [Spurs suffer 22 strange, shocking minutes – but blame heartless, clueless Igor Tudor for collapse](https://www.independent.ie/sport/soccer/champions-league/spurs-suffer-22-strange-shocking-minutes-but-blame-heartless-clueless-igor-tudor-for-collapse/a1252157123.html) - **Independent.ie**
+2. [UCL: Atletico thrash error-ridden Tottenham 5-2 in round-of-16 first leg](https://punchng.com/ucl-atletico-thrash-error-ridden-tottenham-5-2-in-round-of-16-first-leg/) - **The Punch**
+3. [Late Yamal penalty earns Barcelona draw at Newcastle in Champions League](https://www.aljazeera.com/sports/2026/3/10/late-yamal-penalty-earns-barcelona-draw-at-newcastle-in-champions-league) - **Al Jazeera English**
+4. [Champions League: Tottenham goalkeeper substituted after two errors as they are thrashed by Atletico](https://www.irishtimes.com/sport/soccer/2026/03/10/champions-league-tottenham-goalkeeper-substituted-after-two-errors-as-they-are-thrashed-by-atletico/) - **The Irish Times**
+5. [Mamardashvili Stands Tall as Liverpool Fall 1–0 to Galatasaray](https://anfieldindex.com/92024/mamardashvili-stands-tall-as-liverpool-fall-1-0-to-galatasaray.html) - **Anfieldindex.com**
+6. [Kinsky and Spurs endure Madrid nightmare](https://www.rte.ie/sport/soccer/2026/0310/1562676-kinsky-and-spurs-endure-madrid-nightmare/) - **RTE**
+7. [Atletico punish Tottenham errors in 5-2 Champions League rout](https://www.channelnewsasia.com/sport/atletico-punish-tottenham-errors-in-5-2-champions-league-rout-5985236) - **CNA**
+8. [Ruthless Atletico punish Tottenham errors in 5-2 Champions League rout](https://www.channelnewsasia.com/sport/ruthless-atletico-punish-tottenham-errors-in-5-2-champions-league-rout-5985236) - **CNA**
+9. [Contentious decisions and profligacy leave Slot vexed](https://www.rte.ie/sport/soccer/2026/0310/1562732-contentious-decisions-and-profligacy-leave-slot-vexed/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-03-12 06:50:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-12 07:30:25 (KST) / (하루 100회 제한 준수 중)*
