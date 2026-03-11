@@ -1,14 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tottenham have become the team you can't look away from as downward spiral continues with UCL blowout loss](https://www.cbssports.com/soccer/news/tottenham-disaster-season-champions-league-premier-league-relegation-atletico-madrid-ucl/) - **CBS Sports**
-2. [Humiliation for debutant goalkeeper in bonkers Atletico-Spurs clash](https://www.the42.ie/atletico-madrid-tottenham-report-6981074-Mar2026/) - **The42**
-3. [Arne Slot in Liverpool endgame as Xabi Alonso agreement reached](https://www.anfieldwatch.co.uk/liverpool-fc/news/arne-slot-in-liverpool-endgame-as-xabi-alonso-agreement-reached/) - **Anfieldwatch.co.uk**
-4. [Spurs suffer embarrassing defeat to Atletico Madrid with goalkeeper Kinsky subbed off after 17 minutes](https://hayters.com/spurs-suffer-embarrassing-defeat-to-atletico-madrid/) - **Hayters.com**
-5. [Arsenal want Brandt on free - Wednesday's gossip](https://www.bbc.com/sport/football/articles/c4geyndly41o) - **BBC News**
-6. [Analysis: Late heartbreak](https://www.bbc.com/sport/football/articles/cwy8m74pymlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Spurs suffer 22 strange, shocking minutes – but blame heartless, clueless Igor Tudor for collapse](https://www.independent.ie/sport/soccer/champions-league/spurs-suffer-22-strange-shocking-minutes-but-blame-heartless-clueless-igor-tudor-for-collapse/a1252157123.html) - **Independent.ie**
-8. [UCL: Atletico thrash error-ridden Tottenham 5-2 in round-of-16 first leg](https://punchng.com/ucl-atletico-thrash-error-ridden-tottenham-5-2-in-round-of-16-first-leg/) - **The Punch**
+1. [Tudor’s 17-minute experiment with Kinsky piles pressure on Spurs boss](https://www.skysports.com/football/news/11095/13517982/igor-tudor-pressure-grows-as-antonin-kinsky-experiment-backfires-and-raises-further-questions-over-spurs-head-coach) - **Sky Sports**
+2. [Newcastle: Howe retains belief for Camp Nou challenge despite penalty heartbreak](https://www.101greatgoals.com/football/champions-league/newcastle-howe-belief-camp-nou-task/) - **101 Great Goals**
+3. [Tottenham Hotspur's embarrassing collapse at Atletico Madrid is a mess of Johan Lange's making](https://www.cbssports.com/soccer/news/tottenham-hotspurs-johan-lange-champions-league-atletico-madrid-collapse/) - **CBS Sports**
+4. [Mateus Mane: Man United’s pursuit of PL ‘dribbling demon’ threatened by a familiar foe](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_faa500e9-1931-4016-b269-635477b443b5) - **Yahoo Entertainment**
+5. [Papers: Man Utd, Spurs and Palace all interested in Iraola](https://www.skysports.com/football/news/11095/13517998/tottenham-crystal-palace-and-man-utd-are-all-interested-in-bournemouth-boss-andoni-iraola-paper-talk-and-football-transfer-gossip) - **Sky Sports**
+6. [Arsenal is linked with a move for another former Chelsea star](https://www.justarsenal.com/arsenal-is-linked-with-a-move-for-another-former-chelsea-star/411512) - **Just Arsenal News**
+7. [Three talking points from Newcastle 1-1 Barcelona as Lamine Yamal rescues Hansi Flick’s side in Champions League](https://www.barcablaugranes.com/cant-del-blog-barcelona-opinion/114870/three-talking-points-from-newcastle-1-1-barcelona-as-lamine-yamal-rescues-hansi-flicks-side-in-champions-league) - **Barca Blaugranes**
+8. [Tottenham have become the team you can't look away from as downward spiral continues with UCL blowout loss](https://www.cbssports.com/soccer/news/tottenham-disaster-season-champions-league-premier-league-relegation-atletico-madrid-ucl/) - **CBS Sports**
 
 
 ---
-*최근 업데이트: 2026-03-12 07:56:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-12 08:32:36 (KST) / (하루 100회 제한 준수 중)*
