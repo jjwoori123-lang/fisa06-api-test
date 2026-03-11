@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Musa dedicates derby win to Pillars fan](https://punchng.com/musa-dedicates-derby-win-to-pillars-fan/) - **The Punch**
-2. [Rivers United’s scoring run thrills Finidi](https://punchng.com/rivers-uniteds-scoring-run-thrills-finidi/) - **The Punch**
-3. [West Ham beat Brentford in shootout to set up FA Cup quarterfinal with Leeds](https://japantoday.com/category/sports/west-ham-beat-brentford-in-shootout-to-set-up-fa-cup-quarterfinal-with-leeds) - **Japan Today**
-4. [Brentford analysis: Missed opportunity for Bees](https://www.bbc.com/sport/football/articles/c0e5yxq2jqro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Jadon Sancho: Five Premier League sides vying for his signature](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_195155b2-487b-4407-bce1-8fb192f7e206) - **Yahoo Entertainment**
-6. [Zuby Ejiofor named Big East Defensive Player of Year to move closer to historic St. John’s feat](https://nypost.com/2026/03/09/sports/st-johns-zuby-ejiofor-named-big-east-defensive-player-of-year/) - **New York Post**
-7. [West Ham 2-2 Brentford (5-3 on penalties): What Nuno said](https://www.bbc.com/sport/football/articles/clygrkvd94wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [West Ham reach FA Cup quarters after Ouattara's penalty howler](https://sports.yahoo.com/articles/west-ham-reach-fa-cup-223616854.html) - **Yahoo Entertainment**
-9. [West Ham analysis: Will Hammers use FA Cup win to kick-on in league?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6b568955-7016-48c9-821c-2ed90fb610dc) - **Yahoo Entertainment**
+1. [Bobby Witt Jr. Leaves World Baseball Classic in Disbelief With Play in Mexico-USA](https://roundtable.io/sports/mlb/royals/news/bobby-witt-jr-leaves-world-baseball-classic-in-disbelief-with-play-in-mexico-usa) - **Roundtable.io**
+2. [Elon Musk’s Grok Faces UK Backlash After AI Posts Mock Football Tragedies](https://decrypt.co/360509/elon-musks-grok-uk-backlash-ai-posts-mock-football-tragedies) - **Decrypt**
+3. [Former Weber State star Rashid Shaheed earns lucrative deal with Seahawks after Super Bowl winning season](https://www.deseret.com/sports/2026/03/09/rashid-shaheed-51-million-contract-guaranteed-deal-seattle-seahawks/) - **Deseret News**
+4. [No Mbappe, no chance? Real Madrid on ropes against Man City](https://sports.yahoo.com/articles/no-mbappe-no-chance-real-014141476.html) - **Yahoo Entertainment**
+5. [Faber: 5 takeaways from UND's 70-62 Summit League tournament championship loss to North Dakota State](https://www.grandforksherald.com/sports/college/faber-5-takeaways-from-unds-70-62-summit-league-tournament-championship-loss-to-north-dakota-state) - **Grand Forks Herald**
+6. [Lookman, Atletico battle Spurs in UCL last-16](https://punchng.com/lookman-atletico-battle-spurs-in-ucl-last-16/) - **The Punch**
+7. [Thiago Motta: How close United came to appointing Italian revealed](https://thepeoplesperson.com/2026/03/10/thiago-motta-how-close-united-came-to-appointing-italian-revealed-307539/) - **The Peoples Person**
+8. [Silva defends Chukwueze selection in cup upset](https://punchng.com/silva-defends-chukwueze-selection-in-cup-upset/) - **The Punch**
+9. [Regulator proposals put diversity on subs bench - Kick It Out](https://www.bbc.com/sport/football/articles/cj4zgy21v0jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Regulator proposals put diversity on subs bench - Kick It Out](https://www.bbc.com/sport/football/articles/cj4zgy21v0jo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-11 08:56:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-11 11:39:03 (KST) / (하루 100회 제한 준수 중)*
