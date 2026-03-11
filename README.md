@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [IPL 2026: Gujarat Titans turn to Matthew Hayden as batting coach](https://economictimes.indiatimes.com/news/sports/ipl-2026-gujarat-titans-turn-to-matthew-hayden-as-batting-coach-indian-premier-league/articleshow/129377538.cms) - **The Times of India**
-2. [Hayden named Gujarat Titans' batting coach ahead of IPL 2026](https://www.channelnewsasia.com/sport/hayden-named-gujarat-titans-batting-coach-ahead-ipl-2026-5983641) - **CNA**
-3. [Why JJ Gabriel has not been promoted revealed](https://thepeoplesperson.com/2026/03/10/why-jj-gabriel-has-not-been-promoted-revealed-307541/) - **The Peoples Person**
-4. [What football is on today? Galatasaray-Liverpool, Atalanta-Bayern, Atleti-Spurs, Newcastle-Barcelona, plus high-stakes Wrexham vs Hull in the Championship](https://www.footballmuse.com/features/what-football-is-on-today-galatasaray-liverpool-atalanta-bayern-atleti-spurs-newcastle-barcelona-plus-high-stakes-wrexham-vs-hull-in-the-championship) - **Footballmuse.com**
-5. [Talking Tactics: Analysing The ‘Régis Le Bris Paradox’](https://rokerreport.sbnation.com/features/130192/talking-tactics-analysing-the-regis-le-bris-paradox) - **SB Nation**
-6. [View From The Away End: A Bitter FA Cup Exit For Sunderland](https://rokerreport.sbnation.com/opinion/130332/view-from-the-away-end-a-bitter-fa-cup-exit-for-sunderland) - **SB Nation**
-7. [Arsenal favourites against Leverkusen in Champions League last 16](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b420faa5-931d-4456-bbc3-8f1ac424ae9f) - **Yahoo Entertainment**
-8. [Man City host Liverpool in FA Cup quarters](https://www.rediff.com/sports/report/man-city-host-liverpool-arsenal-visit-southampton-in-fa-cup-quarters/20260310.htm) - **Rediff.com**
-9. [The top five best soccer managers in the world at the club and national level](https://www.marca.com/en/football/2026/03/10/69af9ac046163f773e8b45de.html) - **Marca**
-10. [West Ham seal spot in FA Cup quarters](https://www.rediff.com/sports/report/west-ham-seal-spot-in-fa-cup-quarters/20260310.htm) - **Rediff.com**
+1. [All you need to know about BetMcLean Cup final](https://www.bbc.com/sport/articles/c043yn5kyy0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [EPL: FA Fines Rodri £80k for post-match remarks questioning officials](https://punchng.com/epl-fa-fines-rodri-80k-for-post-match-remarks-questioning-officials/) - **The Punch**
+3. [Uefa fears impact of Premier League spending rules](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_683198fe-1707-47ad-b2fa-cfa3099e7ab9) - **Yahoo Entertainment**
+4. [Uefa fears impact of Premier League spending rules](https://www.bbc.com/sport/football/articles/c8r1m4mr2k8o) - **BBC News**
+5. [Man United U-18s Premier League Cup final time and date confirmed](https://thepeoplesperson.com/2026/03/10/man-united-u-18s-premier-league-cup-final-time-and-date-confirmed-307544/) - **The Peoples Person**
+6. [FA Cup quarter-final draw: Man City face Liverpool, Arsenal draw Southampton](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_614a5232-7328-4255-a45d-cab19483c72b) - **Yahoo Entertainment**
+7. [Transfer rumour roundup: Tottenham stars consider exits, Arsenal loan plan for Lewis-Skelly](https://www.footballmuse.com/features/transfer-rumour-roundup-tottenham-stars-consider-exits-arsenal-loan-plan-for-lewis-skelly) - **Footballmuse.com**
+8. [Liverpool deal for £54m Richard Hughes favourite is too good to turn down](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9e4cf483-24b4-4036-805c-1b80943fc2f9) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-11 15:32:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-11 16:30:16 (KST) / (하루 100회 제한 준수 중)*
