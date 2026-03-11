@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Antonin Kinsky taken off after horror 17 minutes as Igor Tudor goalkeeper decision backfires](https://www.independent.ie/sport/soccer/champions-league/my-heart-is-absolutely-broken-for-him-spurs-keeper-antonin-kinsky-hauled-off-after-horror-17-minutes/a644597109.html) - **Independent.ie**
-2. [Kylian Mbappe ruled out as Erling Haaland injury update sparks headache for Real Madrid ahead of crucial UEFA Champions League Manchester City tie](https://worldsoccertalk.com/news/kylian-mbappe-ruled-out-as-erling-haaland-injury-update-sparks-headache-for-real-madrid-ahead-of-crucial-uefa-champions-league-manchester-city-tie/) - **Worldsoccertalk.com**
-3. [Antonin Kinsky subbed after 17 minutes: Why Tottenham goalkeeper was hauled off amid Atletico Madrid horror-show](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c7835a66-00ad-414e-b8df-8561a35752e5) - **Yahoo Entertainment**
-4. [PREVIEW | Crystal Palace vs AEK Larnaca - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-crystal-palace-vs-aek-larnaca-team-news-lineups-predictions/1072364) - **Playmakerstats.com**
-5. [Liverpool look to agree early €100m deal for forward ahead of the summer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-look-to-agree-early-eur100m-deal-for-forward-ahead-of-the-summer-yan-diomande/) - **Anfieldwatch.co.uk**
-6. [Arteta on rebuilding our Champions League pedigree](http://www.arsenal.com/news/arteta-rebuilding-our-champions-league-pedigree) - **Arsenal.com**
-7. [UCL: Club World Cup victory irrelevant, says Rosenior as Chelsea, PSG clash again](https://punchng.com/ucl-club-world-cup-victory-irrelevant-says-rosenior-as-chelsea-psg-clash-again/) - **The Punch**
-8. [Spurs sub goalkeeper Kinsky after two huge errors in 17 minutes](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c0d28e18-53c6-476f-87d6-b92780bd15b7) - **Yahoo Entertainment**
-9. [Analysis: Reds suffer with set-pieces again](https://www.bbc.com/sport/football/articles/cjrqvd2nj28o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Everton U21s give up one bad goal to Reading](http://www.toffeeweb.com/season/25-26/news/47356.html) - **Toffeeweb**
+2. [2026 European Darts Trophy qualifiers](https://www.sportingnews.com/us/darts/news/2026-european-darts-trophy-qualifiers/d17f226e79b0ae23ae2464ac) - **Sporting News**
+3. [Officials and Liverpool’s wastefulness concern Arne Slot in loss to Galatasaray](https://www.independent.ie/sport/soccer/champions-league/officials-and-liverpools-wastefulness-concern-arne-slot-in-loss-to-galatasaray/a797117585.html) - **Independent.ie**
+4. [Barcelona reportedly pursue Bundesliga star in free-agent race with Premier League club](https://worldsoccertalk.com/news/barcelona-reportedly-pursue-bundesliga-star-in-free-agent-race-with-premier-league-club/) - **Worldsoccertalk.com**
+5. [Liverpool rocked by Galatasaray defeat in Champions League last 16 first leg](https://japantoday.com/category/sports/liverpool-rocked-by-galatasaray-defeat-in-champions-league-last-16-first-leg) - **Japan Today**
+6. [Arsenal Are Keeping A Keen Eye On This Borussia Dortmund Talent: Should Arteta Snap Him Up?](https://the4thofficial.net/2026/03/arsenal-are-keeping-a-keen-eye-on-this-borussia-dortmund-talent/) - **The4thofficial.net**
+7. [Antonin Kinsky's Champions League disaster: Three goals conceded in 17 minutes for Tottenham keeper](https://www.cbssports.com/soccer/news/antonin-kinskys-champions-league-three-goals-17-minutes-tottenham/) - **CBS Sports**
+8. [Why Vitor Reis already looks like a Pep Guardiola centre-back](https://cityxtra.co.uk/42572/why-vitor-reis-already-looks-like-a-pep-guardiola-centre-back/) - **Cityxtra.co.uk**
+9. [Liverpool left with work to do after Galatasaray loss](https://www.the42.ie/liverpool-left-with-work-to-do-after-galatasaray-loss-6980939-Mar2026/) - **The42**
+10. [2026 MIT Sloan Sports Analytics Conference shows why data make a difference](https://news.mit.edu/2026/mit-sloan-sports-analytics-conference-shows-why-data-makes-difference-0310) - **Mit.edu**
 
 
 ---
-*최근 업데이트: 2026-03-12 06:03:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-12 06:50:14 (KST) / (하루 100회 제한 준수 중)*
