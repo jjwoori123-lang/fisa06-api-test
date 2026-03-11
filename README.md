@@ -1,16 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How to watch Bayer Leverkusen vs Arsenal live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-bayer-leverkusen-vs-arsenal-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
-2. [Real Madrid vs. Manchester City prediction: Expert reveals picks for Champions League Round of 16 first leg](https://www.cbssports.com/betting/news/real-madrid-vs-manchester-city-prediction-expert-reveals-picks-for-champions-league-round-of-16-first-leg/) - **CBS Sports**
-3. [How to watch Atletico Madrid vs Tottenham in the USA: Live Stream and TV for 2025/2026 Champions League](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-atletico-madrid-vs-tottenham-in-the-usa-live-stream-and-tv-for-2025-2026-champions-league/) - **Worldsoccertalk.com**
-4. [Leverkusen's Schick returns for Arsenal clash in Champions League](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260310-99-785531/) - **Dpa-international.com**
-5. [Richard Hughes makes biggest contract offer to date](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-ibrahima-konate-richard-hughes-makes-biggest-contract-offer-to-date/) - **Anfieldwatch.co.uk**
-6. [Paris Saint-Germain v Chelsea: Line-ups, stats and preview as European champions take on Club World Cup winners](https://www.101greatgoals.com/betting-tips/champions-league-odds/paris-saint-germain-v-chelsea-line-ups-stats-preview-champions-league/) - **101 Great Goals**
-7. [Champions League Soccer: Stream Galatasaray vs. Liverpool Live From Anywhere](https://www.cnet.com/tech/services-and-software/champions-league-soccer-stream-galatasaray-vs-liverpool-live-from-anywhere/) - **CNET**
-8. [Galatasaray vs Liverpool Free Streams: How to watch Champions League 2025/26 Round of 16 1st leg from anywhere in the world](https://www.techradar.com/how-to-watch/football/galatasaray-vs-liverpool-free-streams-champions-league-2025-26-round-of-16-1st-leg) - **TechRadar**
-9. [Paris Saint-Germain vs. Chelsea prediction: Expert locks best bets for Champions League Round of 16 first leg](https://www.cbssports.com/betting/news/paris-saint-germain-vs-chelsea-prediction-expert-locks-best-bets-for-champions-league-round-of-16-first-leg/) - **CBS Sports**
-10. [Arsenal upset possible says Bayer Leverkusen coach](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_20777461-2732-4ede-8cd1-e427b6bd2b2b) - **Yahoo Entertainment**
+1. [Carrick explains how we're preparing for Villa](https://www.manutd.com/en/news/detail/michael-carrick-previews-premier-league-fixture-v-aston-villa) - **Manchester United**
+2. [How to watch Newcastle v Barcelona, team news, predicted line-ups and more](https://hayters.com/how-to-watch-newcastle-v-barcelona-and-more/) - **Hayters.com**
+3. [Why is Mauricio Pochettino at Tottenham's match vs. Atletico Madrid?](https://www.usatoday.com/story/sports/soccer/ucl/2026/03/10/mauricio-pochettino-tottenham-vs-atletico-madrid-champions-league/89081729007/) - **USA Today**
+4. [Is Lamine Yamal playing today? Predicted lineups for Newcastle United vs. Barcelona for Champions League clash](https://worldsoccertalk.com/news/is-lamine-yamal-playing-today-predicted-lineups-for-newcastle-united-vs-barcelona-for-champions-league-clash/) - **Worldsoccertalk.com**
+5. [Walker calls time on England career four caps short of century](https://www.channelnewsasia.com/sport/walker-calls-time-england-career-four-caps-short-century-5984636) - **CNA**
+6. [Thembinkosi Lorch continues to dazzle in Libya](https://foot-africa.com/en/news/thembinkosi-lorch-continues-to-dazzle-in-libya-1118675/) - **Foot-africa.com**
+7. [FC Köln's Said El Mala makes agent switch as transfer saga rolls on](https://bulinews.com/koln-said-mala-makes-agent-switch-transfer-saga-rolls) - **Bulinews.com**
 
 
 ---
-*최근 업데이트: 2026-03-12 00:08:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-12 01:05:43 (KST) / (하루 100회 제한 준수 중)*
