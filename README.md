@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [In praise of the fat ballplayer](https://www.overthemonster.com/mlb-news/96936/in-praise-of-the-fat-ballplayer) - **Over The Monster**
-2. [5 Great Justice League Members That Deserve a Comeback](http://comicbook.com/comics/list/5-great-justice-league-members-that-deserve-a-comeback/) - **ComicBook.com**
-3. [Real Madrid vs Man City: Match Preview, Latest Team News and How to Watch](https://eplindex.com/143789/real-madrid-vs-man-city-match-preview-latest-team-news-and-how-to-watch-2.html) - **English Premier League Index - Opta Stats**
-4. [Why Tottenham Hotspur’s relegation threat is no longer a joke](https://sportsview.co.uk/2026/03/why-tottenham-hotspurs-relegation-threat-is-no-longer-a-joke?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=why-tottenham-hotspurs-relegation-threat-is-no-longer-a-joke) - **Sportsview.co.uk**
-5. [Joey Barton charged after man hospitalised following attack in Huyton](https://www.101greatgoals.com/football/premier-league/joey-barton-charged-after-man-hospitalised-following-attack-in-huyton/) - **101 Great Goals**
-6. ["The belief is important" – Kasper Hjulmand on Leverkusen's chances of shocking Arsenal](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8099dd53-164b-48bd-9f99-a1ed74f6fc5b) - **Yahoo Entertainment**
-7. [Ex-footballer Barton charged with assault near golf club](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_78bc47f5-ccb1-4062-851d-f4560e903e5a) - **Yahoo Entertainment**
-8. [Liverpool Starting XI vs Galatasaray: Confirmed Team News and Predicted Lineup](https://anfieldindex.com/91997/liverpool-starting-xi-vs-galatasaray-confirmed-team-news-and-predicted-lineup-2.html) - **Anfieldindex.com**
-9. [UCL (Round of 16): Which channels will broadcast the Real Madrid vs Manchester City match?](https://foot-africa.com/en/news/ucl-round-of-16-which-channels-will-broadcast-the-real-madrid-vs-manchester-city-match-1118411/) - **Foot-africa.com**
-10. [Luis Enrique confident PSG can raise game ahead of Chelsea showdown](https://sports.yahoo.com/articles/luis-enrique-confident-psg-raise-125515165.html) - **Yahoo Entertainment**
+1. [How to watch Bayer Leverkusen vs Arsenal live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-bayer-leverkusen-vs-arsenal-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
+2. [Real Madrid vs. Manchester City prediction: Expert reveals picks for Champions League Round of 16 first leg](https://www.cbssports.com/betting/news/real-madrid-vs-manchester-city-prediction-expert-reveals-picks-for-champions-league-round-of-16-first-leg/) - **CBS Sports**
+3. [How to watch Atletico Madrid vs Tottenham in the USA: Live Stream and TV for 2025/2026 Champions League](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-atletico-madrid-vs-tottenham-in-the-usa-live-stream-and-tv-for-2025-2026-champions-league/) - **Worldsoccertalk.com**
+4. [Leverkusen's Schick returns for Arsenal clash in Champions League](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260310-99-785531/) - **Dpa-international.com**
+5. [Richard Hughes makes biggest contract offer to date](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-ibrahima-konate-richard-hughes-makes-biggest-contract-offer-to-date/) - **Anfieldwatch.co.uk**
+6. [Paris Saint-Germain v Chelsea: Line-ups, stats and preview as European champions take on Club World Cup winners](https://www.101greatgoals.com/betting-tips/champions-league-odds/paris-saint-germain-v-chelsea-line-ups-stats-preview-champions-league/) - **101 Great Goals**
+7. [Champions League Soccer: Stream Galatasaray vs. Liverpool Live From Anywhere](https://www.cnet.com/tech/services-and-software/champions-league-soccer-stream-galatasaray-vs-liverpool-live-from-anywhere/) - **CNET**
+8. [Galatasaray vs Liverpool Free Streams: How to watch Champions League 2025/26 Round of 16 1st leg from anywhere in the world](https://www.techradar.com/how-to-watch/football/galatasaray-vs-liverpool-free-streams-champions-league-2025-26-round-of-16-1st-leg) - **TechRadar**
+9. [Paris Saint-Germain vs. Chelsea prediction: Expert locks best bets for Champions League Round of 16 first leg](https://www.cbssports.com/betting/news/paris-saint-germain-vs-chelsea-prediction-expert-locks-best-bets-for-champions-league-round-of-16-first-leg/) - **CBS Sports**
+10. [Arsenal upset possible says Bayer Leverkusen coach](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_20777461-2732-4ede-8cd1-e427b6bd2b2b) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-11 23:13:28 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-12 00:08:56 (KST) / (하루 100회 제한 준수 중)*
