@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sources: Tudor to remain in charge vs. Liverpool](https://www.espn.com/soccer/story/_/id/48172640/under-pressure-spurs-boss-igor-tudor-remain-charge-liverpool-clash-sources) - **ESPN**
-2. [ Half of Europe wanted him: BVB tie down key player with long-term deal](https://onefootball.com/en/news/half-of-europe-wanted-him-bvb-tie-down-key-player-with-long-term-deal-42541184) - **Onefootball.com**
-3. [Igor Tudor set to remian in charge of Tottenham for Liverpool clash](https://www.101greatgoals.com/football/premier-league/igor-tudor-remian-in-charge-tottenham-liverpool-clash/) - **101 Great Goals**
-4. [Inter handed Vicario transfer boost after Tudor’s Champions League decisions](https://football-italia.net/inter-vicario-transfer-boost-tudor-decisions/) - **Football Italia**
-5. [How Xabi Alonso recommended Arsenal man to Mikel Arteta](https://www.justarsenal.com/how-xabi-alonso-recommended-arsenal-man-to-mikel-arteta/411554) - **Just Arsenal News**
-6. [Inside Basketball](https://www.lrb.co.uk/blog/2026/march/inside-basketball) - **London Review of Books**
-7. [Gujarat Titans appoint former India wicketkeeper Vijay Dahiya as assistant coach ahead of IPL 2026](https://indianexpress.com/article/sports/cricket/gujarat-titans-appoint-former-india-wicketkeeper-vijay-dahiya-as-assistant-coach-ahead-of-ipl-2026-10577057/) - **The Indian Express**
-8. [Julián Álvarez delivers bold take on his Atlético Madrid future amid Barcelona and Arsenal links: ‘You never know’](https://worldsoccertalk.com/news/julian-alvarez-delivers-bold-take-on-his-atletico-madrid-future-amid-barcelona-and-arsenal-links-you-never-know/) - **Worldsoccertalk.com**
-9. ['Doomsday scenario' for Spurs after 'blows' - Van de Ven](https://www.bbc.com/sport/football/articles/cqlgxeqz053o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. ['Doomsday scenario' for Spurs after 'blows' - Van de Ven](https://www.bbc.com/sport/football/articles/cqlgxeqz053o) - **BBC News**
+1. [Van de Ven: Tottenham in doomsday scenario](https://www.101greatgoals.com/football/premier-league/van-de-ven-tottenham-in-doomsday-scenario/) - **101 Great Goals**
+2. [Tampa Bay Lightning's Andrei Vasilevskiy Is the Best Goalie in the League and the Numbers Prove It](https://timesofindia.indiatimes.com/sports/nhl/news/tampa-bay-lightnings-andrei-vasilevskiy-is-the-best-goalie-in-the-league-and-the-numbers-prove-it/articleshow/129472719.cms) - **The Times of India**
+3. [Pedri and Gavi reunion nears as Barcelona reportedly set a date for the midfielder’s long-awaited injury comeback](https://worldsoccertalk.com/news/pedri-and-gavi-reunion-nears-as-barcelona-reportedly-set-a-date-for-the-midfielders-long-awaited-injury-comeback/) - **Worldsoccertalk.com**
+4. [How to watch PSG vs Chelsea: Free Streams, TV Channels & Preview for Champions League Round of 16 1st leg](https://www.techradar.com/how-to-watch/football/watch-psg-vs-chelsea-free-streams-champions-league-round-of-16-1st-leg) - **TechRadar**
+5. [Syracuse lacrosse: Orange sweep men’s ACC awards, move up in polls](https://www.nunesmagician.com/syracuse-lacrosse-mens-orange-mlax/106437/syracuse-lacrosse-orange-sweep-mens-acc-awards-move-up-in-polls) - **Troy Nunes Is An Absolute Magician**
+6. [How to watch Real Madrid vs Man City: Free Streams, TV Channels & Preview for Champions League Round of 16 1st leg](https://www.techradar.com/how-to-watch/football/real-madrid-vs-man-city-free-streams-champions-league-round-16-1st-leg) - **TechRadar**
+7. [Report: Chelsea keen for 23-year-old attacker to remain at the club](https://eplindex.com/143864/report-chelsea-keen-for-23-year-old-attacker-to-remain-at-the-club.html) - **English Premier League Index - Opta Stats**
+8. [Liverpool v Spurs serves up a stark reminder that so much can change in such a short space of time](https://www.empireofthekop.com/2026/03/11/liverpool-v-spurs-serves-up-stark-reminder-so-much-can-change-in-short-space-of-time/) - **Empire of The Kop**
+9. [IPL 2026 tickets: How to buy, when sale may start, price and other details](https://economictimes.indiatimes.com/news/new-updates/ipl-2026-tickets-how-to-buy-when-sale-may-start-price-and-other-details/articleshow/129471760.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-03-13 01:17:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-13 02:14:59 (KST) / (하루 100회 제한 준수 중)*
