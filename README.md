@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tudor says 'everything is going wrong' at Tottenham after record 6th straight loss](https://sports.yahoo.com/articles/tudor-says-everything-going-wrong-234813703.html) - **Yahoo Entertainment**
-2. [Tudor’s 17-minute experiment with Kinsky piles pressure on Spurs boss](https://www.skysports.com/football/news/11095/13517982/igor-tudor-pressure-grows-as-antonin-kinsky-experiment-backfires-and-raises-further-questions-over-spurs-head-coach) - **Sky Sports**
-3. [Newcastle: Howe retains belief for Camp Nou challenge despite penalty heartbreak](https://www.101greatgoals.com/football/champions-league/newcastle-howe-belief-camp-nou-task/) - **101 Great Goals**
-4. [Tottenham Hotspur's embarrassing collapse at Atletico Madrid is a mess of Johan Lange's making](https://www.cbssports.com/soccer/news/tottenham-hotspurs-johan-lange-champions-league-atletico-madrid-collapse/) - **CBS Sports**
-5. [Mateus Mane: Man United’s pursuit of PL ‘dribbling demon’ threatened by a familiar foe](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_faa500e9-1931-4016-b269-635477b443b5) - **Yahoo Entertainment**
-6. [Papers: Man Utd, Spurs and Palace all interested in Iraola](https://www.skysports.com/football/news/11095/13517998/tottenham-crystal-palace-and-man-utd-are-all-interested-in-bournemouth-boss-andoni-iraola-paper-talk-and-football-transfer-gossip) - **Sky Sports**
-7. [Arsenal is linked with a move for another former Chelsea star](https://www.justarsenal.com/arsenal-is-linked-with-a-move-for-another-former-chelsea-star/411512) - **Just Arsenal News**
-8. [Three talking points from Newcastle 1-1 Barcelona as Lamine Yamal rescues Hansi Flick’s side in Champions League](https://www.barcablaugranes.com/cant-del-blog-barcelona-opinion/114870/three-talking-points-from-newcastle-1-1-barcelona-as-lamine-yamal-rescues-hansi-flicks-side-in-champions-league) - **Barca Blaugranes**
+1. [Rwanda: Djibril Ouattara is reborn at APR FC](https://foot-africa.com/en/news/rwanda-djibril-ouattara-is-reborn-at-apr-fc-1119500/) - **Foot-africa.com**
+2. [Atlantic 10 Men’s Tournament Preview: Three-bid A10, anyone?](https://www.midmajormadness.com/atlantic-10-conference/34564/atlantic-10-mens-tournament-preview-three-bid-a10-anyone) - **Midmajormadness.com**
+3. [FPL Podcast from BBC Sport](https://www.bbc.co.uk/sounds/play/p0n5qllp) - **BBC News**
+4. [Iran war traps Moses in Dubai](https://punchng.com/iran-war-traps-moses-in-dubai/) - **The Punch**
+5. [Is Tudor's Spurs reign almost up after only four games?](https://www.bbc.com/sport/football/articles/cy4w53719k7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Four NPFL clubs get N559m CAF windfall](https://punchng.com/four-npfl-clubs-get-n559m-caf-windfall/) - **The Punch**
+7. [Lisandro Martinez suffers setback during training](https://thepeoplesperson.com/2026/03/11/lisandro-martinez-suffers-setback-during-training-307571/) - **The Peoples Person**
+8. [St. John’s-UConn Round 3 feels inevitable as Big East Tournament comes with overwhelming question](https://nypost.com/2026/03/10/sports/2026-big-east-tournament-preview-will-we-get-st-johns-uconn-round-3/) - **New York Post**
+9. [Tudor says 'everything is going wrong' at Tottenham after record 6th straight loss](https://sports.yahoo.com/articles/tudor-says-everything-going-wrong-234813703.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-12 08:56:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-12 11:40:05 (KST) / (하루 100회 제한 준수 중)*
