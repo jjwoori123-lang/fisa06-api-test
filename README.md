@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Maskiell, Munro and Midge](https://berwicknews.starcommunity.com.au/sport/2026-03-12/maskiell-munro-and-midge/) - **Starcommunity.com.au**
-2. [Roll up, roll up! The boxing event in is town and nobody gives a damn who's fighting anymore](https://sports.yahoo.com/boxing/article/roll-up-roll-up-the-boxing-event-in-is-town-and-nobody-gives-a-damn-whos-fighting-anymore-175927094.html) - **Yahoo Entertainment**
-3. [Ireland plan May training camp without Premier League players if they qualify for World Cup](https://www.irishtimes.com/sport/soccer/2026/03/11/ireland-plan-may-training-camp-without-premier-league-players-if-they-qualify-for-world-cup/) - **The Irish Times**
-4. [IPL 2026: Gujarat Titans name Vijay Dahiya as Assistant Coach](https://economictimes.indiatimes.com/news/sports/ipl-2026-gujarat-titans-name-vijay-dahiya-as-assistant-coach/articleshow/129474304.cms) - **The Times of India**
-5. [BCCI ethics officer clears MS Dhoni of conflict of interest allegations](https://economictimes.indiatimes.com/news/sports/bcci-ethics-officer-clears-ms-dhoni-of-conflict-of-interest-allegations/articleshow/129474386.cms) - **The Times of India**
-6. [Report: Everton, Brentford and Crystal Palace all interested in Championship star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bd04e4dd-e3b4-4e4b-a465-be36ac999a26) - **Yahoo Entertainment**
-7. [Show HN: Making Debates Great Again](https://superdebate.org) - **Superdebate.org**
-8. [Real Madrid vs Manchester City LIVE: Champions League updates, watch live, score, analysis, highlights](https://www.nbcsports.com/soccer/news/real-madrid-vs-manchester-city-champions-league-live-updates-score-highlights-stats-watch) - **NBCSports.com**
-9. [White Ferns great Sophie Devine tops the Hundred auction at $476,000](https://www.nzherald.co.nz/sport/cricket/white-ferns/white-ferns-great-sophie-devine-tops-the-hundred-auction-at-476000/VRMWSMDXO5CWDKL6V2OZZ57OUI/) - **New Zealand Herald**
+1. [Spurs owner to leave Tudor future to club executives](https://www.bbc.com/sport/football/articles/czx4eg5gk03o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Barcelona will have to shell out €50m for Serie A defender; Man United also keen – report](https://barcauniversal.com/barcelona-will-have-to-shell-out-e50m-for-serie-a-defender-man-united-also-keen-report/) - **Barcauniversal.com**
+3. [Netflix’s Warner Bros. Bid Failed. What Should It Buy Now?](https://www.adweek.com/convergent-tv/netflix-warner-bros-bid-failed-buy-now/) - **Adweek**
+4. [PSG vs. Chelsea, Champions League: Confirmed lineups; how to watch](https://weaintgotnohistory.sbnation.com/european-tournaments/166801/psg-vs-chelsea-champions-league-confirmed-lineups-how-to-watch) - **SB Nation**
+5. [Man United Linked With Championship Star Midfielder](https://eplindex.com/143869/man-united-linked-with-championship-star-midfielder.html) - **English Premier League Index - Opta Stats**
+6. [(VIDEO) Tottenham Goalkeeper Antonín Kinský's Nightmare Champions League Debut](https://www.ibtimes.com.au/video-tottenham-goalkeeper-antonin-kinskys-nightmare-champions-league-debut-1863119) - **Ibtimes.com.au**
+7. [PSG v Chelsea: Line-ups confirmed for Champions League clash](https://www.101greatgoals.com/football/champions-league/psg-v-chelsea-line-ups-confirmed-for-champions-league-clash/) - **101 Great Goals**
+8. [Spurs owner to leave Tudor future to club executives](https://www.bbc.com/sport/football/articles/czx4eg5gk03o) - **BBC News**
+9. [Real Madrid vs. Manchester City LIVE Updates: Minute-by-Minute Coverage of the 2025-26 Champions League Round of 16 First Leg](https://worldsoccertalk.com/news/real-madrid-vs-manchester-city-live-updates-minute-by-minute-coverage-of-the-2025-26-champions-league-round-of-16-first-leg/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-03-13 03:05:38 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-13 04:13:42 (KST) / (하루 100회 제한 준수 중)*
