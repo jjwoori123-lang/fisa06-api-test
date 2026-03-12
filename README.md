@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bayern Munich make move for 19-year-old wonderkid who has eyes for Liverpool](https://anfieldindex.com/92055/bayern-munich-make-move-for-19-year-old-wonderkid-who-has-eyes-for-liverpool.html) - **Anfieldindex.com**
-2. [Former Spurs owner suggests Klopp is the right man to replace Tudor](https://anfieldindex.com/92042/former-spurs-owner-suggests-klopp-is-the-right-man-to-replace-tudor.html) - **Anfieldindex.com**
-3. [Journalist: Reveals ‘from what I’ve heard’ Micky van de Ven to Liverpool prospects](https://anfieldindex.com/92053/journalist-reveals-from-what-ive-heard-micky-van-de-ven-to-liverpool-prospects.html) - **Anfieldindex.com**
-4. [Report: Liverpool star officially informs club that he wants to leave](https://anfieldindex.com/92050/report-liverpool-star-officially-informs-club-that-he-wants-to-leave.html) - **Anfieldindex.com**
-5. [Man Utd eye Forest's Murillo - Thursday's gossip](https://www.bbc.com/sport/football/articles/cvg3wj8e5w9o) - **BBC News**
-6. [Bam Adebayo does not belong above Kobe Bryant](https://andscape.com/features/bam-adebayo-83-point-game-kobe-bryant-wilt-chamberlain-comparison/) - **Andscape.com**
-7. [Late Havertz penalty snatches Arsenal draw at Leverkusen](https://japantoday.com/category/sports/late-havertz-penalty-snatches-arsenal-draw-at-leverkusen) - **Japan Today**
-8. [Jurrien Timber carried Arsenal's attack in Champions League vs. Leverkusen, and that's a problem for Gunners](https://www.cbssports.com/soccer/news/jurrien-timber-arsenal-champions-league-leverkusen/) - **CBS Sports**
-9. [How to watch LA Galaxy vs Mount Pleasant Academy in the USA: Live Stream and TV for 2026 CONCACAF Champions Cup](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-la-galaxy-vs-mount-pleasant-academy-in-the-usa-live-stream-and-tv-for-2026-concacaf-champions-cup/) - **Worldsoccertalk.com**
-10. [LOI transfers: Former Premier League defender and Ireland international Kevin Long set for Waterford move](https://www.independent.ie/sport/soccer/league-of-ireland/loi-transfers-former-premier-league-defender-and-ireland-international-kevin-long-set-for-waterford-move/a799822324.html) - **Independent.ie**
+1. [Chelsea crumble late on in damaging defeat to PSG](https://www.skysports.com/football/news/11668/13517451/psg-5-2-chelsea-khvicha-kvaratskhelia-scores-two-late-goals-as-blues-crumble-in-champions-league-last-16-first-leg) - **Sky Sports**
+2. [Champions League: Chelsea and Manchester City suffer heavy defeats in Paris and Madrid](https://www.irishtimes.com/sport/soccer/2026/03/11/champions-league-chelsea-and-manchester-city-suffer-heavy-defeats-in-paris-and-madrid/) - **The Irish Times**
+3. [Valverde hat-trick gives Real Madrid 3-0 Champions League win over Man City](https://www.aljazeera.com/sports/2026/3/11/valverde-hat-trick-gives-real-madrid-3-0-champions-league-win-over-man-city) - **Al Jazeera English**
+4. [City have no answer to Valverde's virtuoso performance](https://www.rte.ie/sport/soccer/2026/0311/1562758-city-have-no-answer-to-valverdes-virtuoso-performance/) - **RTE**
+5. [Real Madrid run riot as Valverde treble stuns Man City](https://sports.yahoo.com/articles/real-madrid-run-riot-valverde-221026840.html) - **Yahoo Entertainment**
+6. [Door opens for Liverpool to complete £70m Premier League centre-back signing](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-micky-van-de-ven-tottenham-barcelona-real-madrid-70m/) - **Anfieldwatch.co.uk**
+7. [Valverde hat-trick puts Real Madrid in command against Manchester City](https://www.channelnewsasia.com/sport/valverde-hat-trick-puts-real-madrid-in-command-against-manchester-city-5987816) - **CNA**
+8. [Mauricio Pochettino linked to top english club: Could he leave after the World Cup?](https://www.marca.com/en/football/2026/03/11/69b1e22d268e3eed748b4588.html) - **Marca**
+9. [PSG 5-2 Chelsea: Champions League holders take control in Paris](https://www.101greatgoals.com/football/champions-league/psg-5-2-chelsea-champions-league-holders-take-control-in-paris/) - **101 Great Goals**
+10. [City face huge Champions League task after Real Madrid defeat](https://www.mancity.com/news/mens/real-madrid-v-city-first-leg-match-report-63908853) - **Manchester City FC**
 
 
 ---
-*최근 업데이트: 2026-03-13 06:51:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-13 07:29:40 (KST) / (하루 100회 제한 준수 중)*
