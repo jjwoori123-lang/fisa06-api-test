@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Why Chelsea's Pedro Neto apologised after PSG loss](https://www.rediff.com/sports/report/champions-league-why-chelseas-pedro-neto-apologised-after-psg-loss/20260312.htm) - **Rediff.com**
-2. [Brighton And ‘The Visitors’: How Many Points Will Sunderland Collect?](https://rokerreport.sbnation.com/opinion/130515/brighton-and-the-visitors-how-many-points-will-sunderland-collect) - **SB Nation**
-3. [European Dreams Of An Eternal Optimist](https://rokerreport.sbnation.com/opinion/130578/european-dreams-of-an-eternal-optimist) - **SB Nation**
-4. [Fan Letters: “Sunderland Have Produced As A Team!”](https://rokerreport.sbnation.com/fan-letters/130512/fan-letters-sunderland-have-produced-as-a-team) - **SB Nation**
-5. [Neto apologises for pushing ball boy during Chelsea's 5-2 loss](https://www.channelnewsasia.com/sport/neto-apologises-pushing-ball-boy-during-chelseas-5-2-loss-5988476) - **CNA**
-6. [Tata Play Binge expands to VIDAA-powered smart TVs in India](https://economictimes.indiatimes.com/industry/media/entertainment/media/tata-play-binge-expands-to-vidaa-powered-smart-tvs-in-india/articleshow/129491618.cms) - **The Times of India**
-7. [Champions League: Valverde hat-trick leaves City on the brink](https://www.rediff.com/sports/report/champions-league-valverde-hat-trick-leaves-city-on-the-brink/20260312.htm) - **Rediff.com**
-8. [Bayern Munich News: Real Madrid to offer €160 million for Michael Olise](https://www.bavarianfootballworks.com/transfer-rumors/174602/bayern-munich-real-madrid-olise-bvb-fc-barcelona-tottenham-psg-arsenal-manchester-city-united) - **Bavarian Football Works**
-9. [Maxx Crosby's future revealed: Raiders' 2026 plans confirmed amid Ravens drama](https://www.marca.com/en/nfl/las-vegas-raiders/2026/03/12/69b230b6e2704ee8258b4585.html) - **Marca**
-10. [Has Guardiola given up? His shocking statement after Manchester City's crushing defeat to Real Madrid](https://www.marca.com/en/football/champions-league/2026/03/12/69b23072e2704e4f488b4577.html) - **Marca**
+1. [Lille vs Aston Villa – Match preview and team news](https://thefootballfaithful.com/lille-vs-aston-villa-match-preview-and-team-news/) - **The Football Faithful**
+2. [Crystal Palace vs AEK Larnaca – Match preview and team news](https://thefootballfaithful.com/crystal-palace-vs-aek-larnaca-match-preview-and-team-news-2/) - **The Football Faithful**
+3. [Nottingham Forest vs FC Midtjylland – Match preview and team news](https://thefootballfaithful.com/nottingham-forest-vs-fc-midtjylland-match-preview-and-team-news/) - **The Football Faithful**
+4. ['Dream come true' - Redknapp eyes Jukebox Man Gold Cup win](https://www.bbc.com/sport/horse-racing/articles/c2lry5n251po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Arne Slot learns what it will take to save his job](https://www.anfieldwatch.co.uk/liverpool-fc/news/arne-slot-learns-what-it-will-take-to-save-his-job/) - **Anfieldwatch.co.uk**
+6. [KT Professional launches KT Men, partners MI and RCB to tap India’s men’s grooming market](https://economictimes.indiatimes.com/industry/cons-products/fashion-/-cosmetics-/-jewellery/kt-professional-launches-kt-men-partners-mi-and-rcb-to-tap-indias-mens-grooming-market/articleshow/129494814.cms) - **The Times of India**
+7. [Best league? Premier League sides endure Champions League nightmare](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_cb5f0bd9-3333-4f60-b64f-0c7250ebc989) - **Yahoo Entertainment**
+8. [Juventus table offer to sign Bournemouth’s Marcos Senesi](https://footballtoday.com/2026/03/12/juventus-table-offer-to-sign-bournemouths-marcos-senesi/) - **Footballtoday.com**
+9. [Ciarán Murphy: Flaky Spurs could learn a thing or two from Kilkenny hurlers](https://www.irishtimes.com/sport/gaelic-games/2026/03/12/ciaran-murphy-flaky-spurs-could-learn-a-thing-or-two-from-kilkenny-hurlers/) - **The Irish Times**
+10. [Why Chelsea's Pedro Neto apologised after PSG loss](https://www.rediff.com/sports/report/champions-league-why-chelseas-pedro-neto-apologised-after-psg-loss/20260312.htm) - **Rediff.com**
 
 
 ---
-*최근 업데이트: 2026-03-13 14:52:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-13 15:59:29 (KST) / (하루 100회 제한 준수 중)*
