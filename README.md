@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ait-Nouri, Marmoush And Gonzalez To Start | 4-2-3-1 Manchester City Predicted Lineup Vs West Ham United](https://the4thofficial.net/2026/03/ait-nouri-marmoush-and-gonzalez-to-start-4-2-3-1-manchester-city-predicted-lineup-vs-west-ham-united/) - **The4thofficial.net**
-2. [Christian Pulisic may receive a defensive boost as AC Milan reportedly target a Bundesliga star for the 2026-27 season](https://worldsoccertalk.com/news/christian-pulisic-may-receive-a-defensive-boost-as-ac-milan-reportedly-target-a-bundesliga-star-for-the-2026-27-season/) - **Worldsoccertalk.com**
-3. [Real Madrid’s Champions League aura, Tottenham fight relegation & Weston McKennie interview](https://sports.yahoo.com/soccer/article/real-madrids-champions-league-aura-tottenham-fight-relegation--weston-mckennie-interview-214432866.html) - **Yahoo Entertainment**
-4. [Man City & Barca hold Haaland talks - Friday's gossip](https://www.bbc.com/sport/football/articles/ce94ez3lg8do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Man City & Barca hold Haaland talks - Friday's gossip](https://www.bbc.com/sport/football/articles/ce94ez3lg8do) - **BBC News**
-6. [Bryce Huff retires at 27: Why edge rusher announced stunning decision to end football career after 6 seasons in NFL](https://www.sportingnews.com/us/nfl/news/bryce-huff-retires-edge-rusher-decision-nfl/d3c8035d45474941cd1d18ca) - **Sporting News**
-7. [The 26: Projecting the USA's World Cup Roster With Three Months To Go](https://www.foxsports.com/stories/soccer/usmnt-world-cup-roster-projection-3-months-pulisic-mckennie-weah) - **Fox Sports**
-8. [Garnacho, Santos And Sanchez To Start | 4-2-3-1 Chelsea Predicted Lineup Vs Newcastle United](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5458fc77-fec6-406b-9500-2d4eaf41683b) - **Yahoo Entertainment**
-9. [Report: Man United make contact over move to sign £42m Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e9dfb5a4-c7a7-48b2-90cc-9d7262aac815) - **Yahoo Entertainment**
+1. [“100 percent, always!” – Manchester City stars manifesting Real Madrid comeback after first leg humbling](https://cityxtra.co.uk/42945/100-percent-always-manchester-city-stars-manifesting-real-madrid-comeback-after-first-leg-humbling/) - **Cityxtra.co.uk**
+2. [Papers: Spurs considering Dyche as Tudor replacement](https://www.skysports.com/football/news/11095/13518928/tottenham-consider-sean-dyche-as-potential-igor-tudor-replacement-paper-talk-and-football-transfer-gossip) - **Sky Sports**
+3. [Everton Eye England Star As Scout Drops Significant Transfer Hint: Could He Be The Answer For The Toffees?](https://the4thofficial.net/2026/03/everton-eye-england-star-as-scout-drops-significant-transfer-hint-could-he-be-the-answer-for-the-toffees/) - **The4thofficial.net**
+4. [Crystal Palace left with work to do in Cyprus to keep Conference League hopes alive after goalless draw with Larnaca](https://www.independent.ie/sport/soccer/crystal-palace-left-with-work-to-do-in-cyprus-to-keep-conference-league-hopes-alive-after-goalless-draw-with-larnaca/a317831462.html) - **Independent.ie**
+5. [Late goal sees Nottingham Forest suffer first-leg loss to Midtjylland at City Ground in Europa League last 16](https://www.independent.ie/sport/soccer/late-goal-sees-nottingham-forest-suffer-first-leg-loss-to-midtjylland-at-city-ground-in-europa-league-last-16/a131413325.html) - **Independent.ie**
+6. [Forest fall to Midtjylland, Lyon rescue draw at Celta Vigo](https://www.channelnewsasia.com/sport/forest-fall-midtjylland-lyon-rescue-draw-celta-vigo-5990316) - **CNA**
+7. [Forest stunned by Midtjylland, Villa beat Lille in Europa League](https://sports.yahoo.com/articles/watkins-ends-drought-villa-snatch-195500868.html) - **Yahoo Entertainment**
+8. [Spurs extend ticket deadline amid relegation fears](https://www.bbc.com/sport/football/articles/c3rz0rw2n8go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [How do the six Metro state basketball title hopefuls stack up against SoCal foes?](https://www.sfchronicle.com/sports/high-school/article/metro-state-hoops-title-hopefuls-stack-socal-foes-21993471.php) - **San Francisco Chronicle**
 
 
 ---
-*최근 업데이트: 2026-03-14 06:51:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-14 07:31:37 (KST) / (하루 100회 제한 준수 중)*
