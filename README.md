@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [PL Predictions: Arsenal to move further clear of Man City](https://www.skysports.com/football/news/11661/13518904/premier-league-predictions-and-best-bets-arsenal-to-move-further-clear-of-man-city-with-pep-guardiolas-side-tipped-to-slip-at-west-ham) - **Sky Sports**
-2. [Arsenal Joins Race for Newcastle’s Tino Livramento: Report](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_db48fdcf-3277-45ba-a851-a2f4edbb4458) - **Yahoo Entertainment**
-3. [PL Predictions: Arsenal to move further clear of Man City](https://www.skysports.com/football/news/11661/13518904/premier-league-predictions-and-best-bets-arsenal-to-move-further-clear-of-man-city-with-pep-guardiolas-side-tipped-to-slip-at-west-ham) - **Sky Sports**
-4. [PL Predictions: Arsenal to move further clear of Man City](https://www.skysports.com/football/news/11661/13518904/premier-league-predictions-and-best-bets-arsenal-to-move-further-clear-of-man-city-with-pep-guardiolas-side-tipped-to-slip-at-west-ham) - **Sky Sports**
-5. [Erling Haaland's agent clears up rumors of possible move to Barcelona](https://www.marca.com/en/football/barcelona/2026/03/12/69b2fc17268e3e0b648b45b9.html) - **Marca**
-6. [PREVIEW | Arsenal vs Everton - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-arsenal-vs-everton-team-news-lineups-predictions/1073891) - **Playmakerstats.com**
-7. [Real Madrid will listen to €50 million+ offers for midfielder amid Premier League interest](https://madriduniversal.com/real-madrid-will-listen-to-e50-million-offers-for-midfielder-amid-premier-league-interest/) - **Madriduniversal.com**
-8. [Sutton's predictions v YouTuber Angry Ginge](https://www.bbc.com/sport/football/articles/cj4zg4nvg2zo) - **BBC News**
-9. [PREVIEW | Chelsea vs Newcastle - team news, lineups, predictions](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e135c48e-686e-4daf-9e02-d31c8fc55ff2) - **Yahoo Entertainment**
-10. [Harry Redknapp: Levy would bring me back to Tottenham](https://www.101greatgoals.com/football/premier-league/harry-redknapp-levy-would-bring-me-back-tottenham/) - **101 Great Goals**
+1. [Chelsea icon says Arteta is ruining four Arsenal players with his tactics](https://www.justarsenal.com/chelsea-icon-says-arteta-is-ruining-four-arsenal-players-with-his-tactics/411617) - **Just Arsenal News**
+2. [Nottingham Forest vs FC Midtjylland: Line-ups confirmed for Europa League last-16 clash](https://www.101greatgoals.com/football/europa-league/nottingham-forest-vs-fc-midjtylland-line-ups-confirmed-europa-league/) - **101 Great Goals**
+3. [From best in league to bench - Foden's mysterious loss of form](https://www.bbc.com/sport/football/articles/cpv8wvz7m4po) - **BBC News**
+4. [UEFA opens disciplinary proceedings against Chelsea’s Pedro Neto after ball-boy incident vs. PSG: What sanctions could he face?](https://worldsoccertalk.com/news/uefa-opens-disciplinary-proceedings-against-chelseas-pedro-neto-after-ball-boy-incident-vs-psg-what-sanctions-could-he-face/) - **Worldsoccertalk.com**
+5. [Hat-trick hero Valverde shows City the Real Madrid way](https://economictimes.indiatimes.com/news/sports/real-madrid-valverde-hat-trick-manchester-city-champions-league/articleshow/129520850.cms) - **The Times of India**
+6. [Barcelona face an uncertain path to sign a striker as Lamine Yamal’s team reportedly settles a limit price tag](https://worldsoccertalk.com/news/barcelona-face-an-uncertain-path-to-sign-a-striker-as-lamine-yamals-team-reportedly-settles-a-limit-price-tag/) - **Worldsoccertalk.com**
+7. [Report: Liverpool considering move to sign Serie A defender](https://eplindex.com/143918/report-liverpool-to-step-up-interest-in-french-defender.html) - **English Premier League Index - Opta Stats**
+8. [LOI preview: Derry and Shelbourne seeking a kickstart](https://www.rte.ie/sport/soccer/2026/0312/1563137-loi-preview-derry-and-shelbourne-seeking-a-kickstart/) - **RTE**
+9. [Guardiola’s emphasis on pace backfires as supply chain breaks and defence buckles](https://www.irishtimes.com/sport/soccer/2026/03/12/guardiolas-emphasis-on-pace-backfires-as-supply-chain-breaks-and-defence-buckles/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-03-14 03:04:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-14 04:03:27 (KST) / (하루 100회 제한 준수 중)*
