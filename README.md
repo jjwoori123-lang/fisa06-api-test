@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Parker says Burnley's season 'could be seen as a failure'](https://www.bbc.com/sport/football/articles/c2k8wd173q2o) - **BBC News**
-2. [Lille vs Aston Villa: Line-ups confirmed for Europa League last-16 clash](https://www.101greatgoals.com/football/europa-league/lille-vs-aston-villa-line-ups-confirmed-europa-league/) - **101 Great Goals**
-3. [Journo shares what he’s hearing about CFC player United asked for during Garnacho talks as ‘on track’ claim made](https://strettynews.com/2026/03/12/manchester-united-andrey-santos-chelsea-garnacho-talks/) - **Strettynews.com**
-4. [Mansfield defender Blake-Tracy signs new deal](https://www.bbc.com/sport/football/articles/c4gqv5pvwyjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Liverpool handed concerning Alisson injury prediction before Sunday](https://www.empireofthekop.com/2026/03/12/liverpool-handed-concerning-alisson-injury-prediction-before-sunday/) - **Empire of The Kop**
-6. [ Official: Champions League quarter-final first leg best XI](https://onefootball.com/en/news/official-champions-league-quarter-final-first-leg-best-xi-42546826) - **Onefootball.com**
-7. [Match Officials: Michael Oliver to referee West Ham vs Manchester City](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_22c1db20-febe-439d-a6fe-f04e43e0d600) - **Yahoo Entertainment**
-8. [Derry star Cassidy trading on his new business endeavour](https://www.rte.ie/sport/football/2026/0312/1563112-derry-star-cassidy-trading-on-his-new-business-endeavour/) - **RTE**
-9. [Johan Manzambi: Arsenal take big step to beat Man United to wonderkid](https://thepeoplesperson.com/2026/03/12/johan-manzambi-arsenal-take-big-step-to-beat-man-united-to-wonderkid-307621/) - **The Peoples Person**
+1. [2026 Premier League Darts Night 6 Nottingham Live results, scores and schedule](https://www.sportingnews.com/us/darts/news/premier-league-darts-night-6-nottingham-live-results-scores-schedule/f8fe796e7f6febefb4fce9fc) - **Sporting News**
+2. [What makes Hjulmand's Werkself so awkward for Bayern](https://fcbayern.com/en/news/2026/03/what-makes-hjulmands-leverkusen-so-awkward-for-bayern) - **Fcbayern.com**
+3. [Solanke says Tottenham's Madrid meltdown one in a million](https://www.channelnewsasia.com/sport/solanke-says-tottenhams-madrid-meltdown-one-in-million-5989801) - **CNA**
+4. [Indo Sport podcast: The Football Show | Premier League pummelled in frantic Champions League first legs | Damien Delaney and Miguel Delaney](https://www.independent.ie/podcasts/indo-sport-podcast/indo-sport-podcast-the-football-show-premier-league-pummelled-in-frantic-champions-league-first-legs-damien-delaney-and-miguel-delaney/a1745292539.html) - **Independent.ie**
+5. [Why Reds' defensive rebuild hinges on Liverpool vs Tottenham](https://www.anfieldwatch.co.uk/liverpool-fc/news/why-reds-defensive-rebuild-hinges-on-liverpool-vs-tottenham-luka-vuskovic/) - **Anfieldwatch.co.uk**
+6. [Lord’s cricket ground ends its alliance with BrewDog after Tilray Brands which produces medicinal marijuana, buys Beer company](https://indianexpress.com/article/sports/cricket/lords-cricket-brewdog-tilray-brands-marijuana-10578900/) - **The Indian Express**
+7. [How to watch Crystal Palace vs AEK Larnaca, team news, predicted line-ups and more](https://hayters.com/how-to-watch-crystal-palace-vs-aek-larnaca-team-news-predicted-line-ups-and-more-2/) - **Hayters.com**
+8. [Production Music Platform Slipstream Buys Megatrax & More Music Deals](http://www.billboard.com/lists/production-music-slipstream-buys-megatrax-music-deals/) - **Billboard**
+9. [2025 Ballon d’Or Ousmane Dembélé’s future up in the air as PSG star reportedly chases a move to the Premier League](https://worldsoccertalk.com/news/2025-ballon-dor-ousmane-dembeles-future-up-in-the-air-as-psg-star-reportedly-chases-a-move-to-the-premier-league/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-03-14 01:53:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-14 02:37:36 (KST) / (하루 100회 제한 준수 중)*
