@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea manager Liam Rosenior: ‘There is no Doué, Dembélé or Kvaratskhelia in the Premier League’](https://www.getfootballnewsfrance.com/2026/chelsea-manager-liam-rosenior-there-is-no-doue-dembele-or-kvaratskhelia-in-the-premier-league/) - **Get French Football News**
-2. [Rolfes keeping door open for Kai Havertz to return to Leverkusen](https://bulinews.com/rolfes-keeping-door-open-for-kai-havertz-return-leverkusen) - **Bulinews.com**
-3. [Arsenal star’s future uncertain after links to Newcastle United man](https://www.justarsenal.com/arsenal-stars-future-uncertain-after-links-to-newcastle-united-man/411593) - **Just Arsenal News**
-4. [The five biggest questions PGA Tour CEO Brian Rolapp is yet to answer after announcing major changes](https://www.hitc.com/the-five-biggest-questions-pga-tour-ceo-brian-rolapp-is-yet-to-answer-after-announcing-major-changes/) - **HITC - Football, Gaming, Movies, TV, Music**
-5. [- EMEA Gambling & Betting Sponsorship Analysis Report 2025-2026 Featuring bet365, Betano, Betway, Loterie Nationale Belgique, and Unibet](https://www.globenewswire.com/news-release/2026/03/12/3254415/28124/en/EMEA-Gambling-Betting-Sponsorship-Analysis-Report-2025-2026-Featuring-bet365-Betano-Betway-Loterie-Nationale-Belgique-and-Unibet.html) - **GlobeNewswire**
-6. [Atletico Madrid close the doors on key forward’s potential move to Barcelona](https://barcauniversal.com/atletico-madrid-close-the-doors-on-key-forwards-potential-move-to-barcelona/) - **Barcauniversal.com**
-7. [Major European Soccer Front-of-Shirt Business Analysis Report 2025-2026: Emirates is the Highest Spending Brand, Travel & Tourism is the Largest Spending Industry](https://www.globenewswire.com/news-release/2026/03/12/3254409/28124/en/Major-European-Soccer-Front-of-Shirt-Business-Analysis-Report-2025-2026-Emirates-is-the-Highest-Spending-Brand-Travel-amp-Tourism-is-the-Largest-Spending-Industry.html) - **GlobeNewswire**
-8. [Major European Soccer Kit Supplier Business Analysis Report 2025-2026: The Influence of the 'Big Three' - Adidas, Nike and PUMA](https://www.globenewswire.com/news-release/2026/03/12/3254408/28124/en/Major-European-Soccer-Kit-Supplier-Business-Analysis-Report-2025-2026-The-Influence-of-the-Big-Three-Adidas-Nike-and-PUMA.html) - **GlobeNewswire**
-9. [West Ham West Ham United Man City Manchester City](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2edc124f-f1ae-4c5b-a24e-4ea8b4dadf48) - **Yahoo Entertainment**
-10. [How to watch Premier League Darts 2026 Nottingham: Live stream, TV channel and schedule](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a9dd1271-a9fb-441b-b15a-3b07f1e623a5) - **Yahoo Entertainment**
+1. ['One of St Mirren's greatest managers' - club thank 'outstanding' Robinson](https://www.bbc.com/sport/articles/c7vjg2yvzj1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Sweden coach Potter extends contract until 2030](https://www.channelnewsasia.com/sport/sweden-coach-potter-extends-contract-until-2030-5989076) - **CNA**
+3. [How the Premier League run-in is shaping up](https://www.bbc.com/sport/football/articles/cvg802m7kv8o) - **BBC News**
+4. [ Opta algorithm backs Madrid, Barça and Atleti to reach the quarter-finals](https://onefootball.com/en/news/opta-algorithm-backs-madrid-barca-and-atleti-to-reach-the-quarter-finals-42545369) - **Onefootball.com**
+5. [Tottenham team news vs Liverpool and predicted lineup](https://www.squawka.com/en/news/tottenham-team-news-predicted-lineup-liverpool/?source=onefootball) - **Squawka**
+6. [Man Utd scouts enthralled by ‘elite’ defender ahead of Liverpool tug-of-war](https://strettynews.com/2026/03/12/man-utd-pierre-kalulu-juventus-liverpool/) - **Strettynews.com**
+7. [Jurgen Klopp drifting away from Real Madrid as new opportunity emerges – report](https://madriduniversal.com/jurgen-klopp-drifting-away-from-real-madrid-as-new-opportunity-emerges-report/) - **Madriduniversal.com**
+8. [Spurs need to end Tudor's 'car crash' era, says Neville](https://www.rte.ie/sport/soccer/2026/0312/1563039-spurs-need-to-end-tudors-car-crash-era-says-neville/) - **RTE**
+9. [Tonali linked with Real Madrid but the main target still seems to be Rodri](https://www.marca.com/en/football/spanish-football/2026/03/12/69b29de246163fa03b8b4594.html) - **Marca**
+10. [Liverpool should look to agree deal for former Arne Slot defender this summer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-should-look-to-agree-deal-for-former-arne-slot-defender-this-summer-ramon-hendriks/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-03-13 19:41:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-13 20:34:31 (KST) / (하루 100회 제한 준수 중)*
