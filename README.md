@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Top 10 current MLB shortstops](https://www.thebiglead.com/top-10-current-mlb-shortstops-v/) - **The Big Lead**
-2. [How the Premier League run-in is shaping up](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_88bf353b-cde0-41ed-ab8f-415ac6bf4048) - **Yahoo Entertainment**
-3. ['One of St Mirren's greatest managers' - club thank 'outstanding' Robinson](https://www.bbc.com/sport/articles/c7vjg2yvzj1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Sweden coach Potter extends contract until 2030](https://www.channelnewsasia.com/sport/sweden-coach-potter-extends-contract-until-2030-5989076) - **CNA**
-5. [How the Premier League run-in is shaping up](https://www.bbc.com/sport/football/articles/cvg802m7kv8o) - **BBC News**
-6. [ Opta algorithm backs Madrid, Barça and Atleti to reach the quarter-finals](https://onefootball.com/en/news/opta-algorithm-backs-madrid-barca-and-atleti-to-reach-the-quarter-finals-42545369) - **Onefootball.com**
-7. [Tottenham team news vs Liverpool and predicted lineup](https://www.squawka.com/en/news/tottenham-team-news-predicted-lineup-liverpool/?source=onefootball) - **Squawka**
-8. [Man Utd scouts enthralled by ‘elite’ defender ahead of Liverpool tug-of-war](https://strettynews.com/2026/03/12/man-utd-pierre-kalulu-juventus-liverpool/) - **Strettynews.com**
-9. [Jurgen Klopp drifting away from Real Madrid as new opportunity emerges – report](https://madriduniversal.com/jurgen-klopp-drifting-away-from-real-madrid-as-new-opportunity-emerges-report/) - **Madriduniversal.com**
+1. [Arsenal and Man City resume title duel after woeful week for English clubs](https://www.channelnewsasia.com/sport/arsenal-and-man-city-resume-title-duel-after-woeful-week-english-clubs-5989286) - **CNA**
+2. [BBC: Tudor’s future down to Lange & Venkatesham](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/69474/tottenham-hotspur-news-igor-tudor-venkatesham-lange-relegation) - **SB Nation**
+3. [“Six weeks might turn into two,” Greg Taylor on Calmac’s injury setback](https://thecelticstar.com/six-weeks-might-turn-into-two-greg-taylor-on-calmacs-injury-setback/) - **The Celtic Star**
+4. [Why is Saka struggling for Arsenal?](https://www.skysports.com/football/news/11670/13518583/bukayo-saka-struggled-before-noni-maduekes-introduction-against-bayer-leverkusen-so-whats-behind-the-arsenal-forwards-dip-this-season) - **Sky Sports**
+5. [⚾️ Y! Sports AM: Moving on](https://sports.yahoo.com/articles/y-sports-am-moving-130858508.html) - **Yahoo Entertainment**
+6. [ Top 20 goalscorers: Mbappé under fire from all sides ](https://onefootball.com/en/news/top-20-goalscorers-mbappe-under-fire-from-all-sides-42545825) - **Onefootball.com**
+7. [Champions League scenarios: What Chelsea, Barcelona, Arsenal and more need to advance to quarterfinals](https://www.cbssports.com/soccer/news/champions-league-scenarios-chelsea-arsenal-barcelona-real-madrid-man-city-tottenham-psg/) - **CBS Sports**
+8. [Spurs extend ticket deadline amid relegation fears](https://www.bbc.com/sport/football/articles/c3rz0rw2n8go) - **BBC News**
+9. [Premier League predictions: Liverpool to pile the misery on Tottenham while there’s joy for Arsenal, Man City, Man United and Chelsea](https://www.101greatgoals.com/betting-tips/premier-league-odds/premier-league-predictions-liverpool-tottenham-arsenal-man-city-man-united-chelsea/) - **101 Great Goals**
+10. [Coventry have 'nine finals' to go - Thomas-Asante](https://www.bbc.com/sport/football/articles/cly2xy7vdmmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-13 20:58:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-13 22:19:57 (KST) / (하루 100회 제한 준수 중)*
