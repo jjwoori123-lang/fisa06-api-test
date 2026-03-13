@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [After historic 83-point game, what should NBA bettors expect for Bam Adebayo's encore vs. Bucks?](https://www.cbssports.com/betting/news/after-historic-83-point-game-what-should-nba-bettors-expect-for-bam-adebayos-encore-vs-bucks/) - **CBS Sports**
-2. [Forget Xabi Alonso: FSG already know the head coach they want to manage Liverpool after 2025/26](https://www.empireofthekop.com/2026/03/12/forget-xabi-alonso-fsg-already-know-the-head-coach-they-want-to-manage-liverpool-after-2025-26/) - **Empire of The Kop**
-3. [Decision made: Luckhurst — Utd star who’s played four times under Carrick ‘eyeing exit’ amid ‘plenty of interest’](https://strettynews.com/2026/03/12/joshua-zirkzee-eyeing-summer-exit-manchester-united-transfer/) - **Strettynews.com**
-4. [The greatest UCL trebles vs Premier League giants as Valverde joins elite list](https://www.footballmuse.com/features/the-greatest-ucl-trebles-vs-premier-league-giants-as-valverde-joins-elite-list) - **Footballmuse.com**
-5. [Luis Robert Jr. And 2 Other Fantasy Baseball Bounce-Back Hitters For 2026](https://www.si.com/onsi/fantasy/mlb/luis-robert-jr-and-2-other-fantasy-baseball-bounce-back-hitters-for-2026) - **Sports Illustrated**
-6. [SBI Spotlight: Paxten Aaronson “enjoying” new chapter with Rapids](https://sbisoccer.com/2026/03/sbi-spotlight-paxten-aaronson-enjoying-new-chapter-with-rapids) - **Sbisoccer.com**
-7. [Why Ryan Gravenberch's contract has sealed teammates departure](https://www.anfieldwatch.co.uk/liverpool-fc/news/why-ryan-gravenberchs-contract-has-sealed-teammates-departure-alexis-mac-allister/) - **Anfieldwatch.co.uk**
-8. [Champions League review: English teams disappoint, Valverde dazzles and Simeone’s last dance?](https://sports.yahoo.com/articles/champions-league-review-english-teams-133119412.html) - **Yahoo Entertainment**
+1. ['European football would represent a titanic turnaround'](https://www.bbc.com/sport/football/articles/cwyxqdz01ewo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [One moment in time: Sven’s first match](https://www.mancity.com/news/mens/one-moment-in-time-west-ham-63908917) - **Manchester City FC**
+3. [PREVIEW | Burnley vs Bournemouth - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-burnley-vs-bournemouth-team-news-lineups-predictions/1073760) - **Playmakerstats.com**
+4. [How Wrexham are getting 'Premier League ready'](https://www.bbc.com/sport/football/videos/c8xykl9974xo) - **BBC News**
+5. [Parker on injuries, Walker and long-term success](https://www.bbc.com/sport/football/articles/c5y5wped4pjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Arsenal target breaks silence on his future amidst Gunners’ interest](https://www.justarsenal.com/arsenal-target-breaks-silence-on-his-future-amidst-gunners-interest/411608) - **Just Arsenal News**
+7. [Black Bear Sports Group Announces Wings West’s Next Chapter as BIGGBY® COFFEE Ice Cube - Kalamazoo](https://www.globenewswire.com/news-release/2026/03/12/3254869/0/en/Black-Bear-Sports-Group-Announces-Wings-West-s-Next-Chapter-as-BIGGBY-COFFEE-Ice-Cube-Kalamazoo.html) - **GlobeNewswire**
+8. [FPL Focus: How to add value as Raya reaches no. 1](http://www.arsenal.com/news/fpl-focus-how-add-value-raya-reaches-no-1) - **Arsenal.com**
+9. [Punjab Kings unveil new match jersey ahead of IPL 2026](https://economictimes.indiatimes.com/news/sports/punjab-kings-unveil-new-match-jersey-ahead-of-ipl-2026/articleshow/129513045.cms) - **The Times of India**
+10. [Aston Villa look to build first leg advantage as they travel to LOSC Lille](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_32d43cea-dd4c-45f6-a7ca-c9efbf2c4195) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-13 23:09:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-14 00:05:10 (KST) / (하루 100회 제한 준수 중)*
