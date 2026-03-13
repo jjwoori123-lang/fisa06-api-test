@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [2026 Premier League Darts Night 6 Nottingham Live results, scores and schedule](https://www.sportingnews.com/us/darts/news/premier-league-darts-night-6-nottingham-live-results-scores-schedule/f8fe796e7f6febefb4fce9fc) - **Sporting News**
-2. [What makes Hjulmand's Werkself so awkward for Bayern](https://fcbayern.com/en/news/2026/03/what-makes-hjulmands-leverkusen-so-awkward-for-bayern) - **Fcbayern.com**
-3. [Solanke says Tottenham's Madrid meltdown one in a million](https://www.channelnewsasia.com/sport/solanke-says-tottenhams-madrid-meltdown-one-in-million-5989801) - **CNA**
-4. [Indo Sport podcast: The Football Show | Premier League pummelled in frantic Champions League first legs | Damien Delaney and Miguel Delaney](https://www.independent.ie/podcasts/indo-sport-podcast/indo-sport-podcast-the-football-show-premier-league-pummelled-in-frantic-champions-league-first-legs-damien-delaney-and-miguel-delaney/a1745292539.html) - **Independent.ie**
-5. [Why Reds' defensive rebuild hinges on Liverpool vs Tottenham](https://www.anfieldwatch.co.uk/liverpool-fc/news/why-reds-defensive-rebuild-hinges-on-liverpool-vs-tottenham-luka-vuskovic/) - **Anfieldwatch.co.uk**
-6. [Lord’s cricket ground ends its alliance with BrewDog after Tilray Brands which produces medicinal marijuana, buys Beer company](https://indianexpress.com/article/sports/cricket/lords-cricket-brewdog-tilray-brands-marijuana-10578900/) - **The Indian Express**
-7. [How to watch Crystal Palace vs AEK Larnaca, team news, predicted line-ups and more](https://hayters.com/how-to-watch-crystal-palace-vs-aek-larnaca-team-news-predicted-line-ups-and-more-2/) - **Hayters.com**
-8. [Production Music Platform Slipstream Buys Megatrax & More Music Deals](http://www.billboard.com/lists/production-music-slipstream-buys-megatrax-music-deals/) - **Billboard**
-9. [2025 Ballon d’Or Ousmane Dembélé’s future up in the air as PSG star reportedly chases a move to the Premier League](https://worldsoccertalk.com/news/2025-ballon-dor-ousmane-dembeles-future-up-in-the-air-as-psg-star-reportedly-chases-a-move-to-the-premier-league/) - **Worldsoccertalk.com**
+1. [PL Predictions: Arsenal to move further clear of Man City](https://www.skysports.com/football/news/11661/13518904/premier-league-predictions-and-best-bets-arsenal-to-move-further-clear-of-man-city-with-pep-guardiolas-side-tipped-to-slip-at-west-ham) - **Sky Sports**
+2. [Arsenal Joins Race for Newcastle’s Tino Livramento: Report](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_db48fdcf-3277-45ba-a851-a2f4edbb4458) - **Yahoo Entertainment**
+3. [PL Predictions: Arsenal to move further clear of Man City](https://www.skysports.com/football/news/11661/13518904/premier-league-predictions-and-best-bets-arsenal-to-move-further-clear-of-man-city-with-pep-guardiolas-side-tipped-to-slip-at-west-ham) - **Sky Sports**
+4. [PL Predictions: Arsenal to move further clear of Man City](https://www.skysports.com/football/news/11661/13518904/premier-league-predictions-and-best-bets-arsenal-to-move-further-clear-of-man-city-with-pep-guardiolas-side-tipped-to-slip-at-west-ham) - **Sky Sports**
+5. [Erling Haaland's agent clears up rumors of possible move to Barcelona](https://www.marca.com/en/football/barcelona/2026/03/12/69b2fc17268e3e0b648b45b9.html) - **Marca**
+6. [PREVIEW | Arsenal vs Everton - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-arsenal-vs-everton-team-news-lineups-predictions/1073891) - **Playmakerstats.com**
+7. [Real Madrid will listen to €50 million+ offers for midfielder amid Premier League interest](https://madriduniversal.com/real-madrid-will-listen-to-e50-million-offers-for-midfielder-amid-premier-league-interest/) - **Madriduniversal.com**
+8. [Sutton's predictions v YouTuber Angry Ginge](https://www.bbc.com/sport/football/articles/cj4zg4nvg2zo) - **BBC News**
+9. [PREVIEW | Chelsea vs Newcastle - team news, lineups, predictions](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e135c48e-686e-4daf-9e02-d31c8fc55ff2) - **Yahoo Entertainment**
+10. [Harry Redknapp: Levy would bring me back to Tottenham](https://www.101greatgoals.com/football/premier-league/harry-redknapp-levy-would-bring-me-back-tottenham/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-03-14 02:37:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-14 03:04:41 (KST) / (하루 100회 제한 준수 중)*
