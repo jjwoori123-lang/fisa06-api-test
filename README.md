@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Premier League rivals chasing deal for iconic Liverpool defender](https://www.anfieldwatch.co.uk/liverpool-fc/news/premier-league-rivals-chasing-deal-for-iconic-liverpool-defender-tottenham-andy-robertson/) - **Anfieldwatch.co.uk**
-2. [Will Everton's formidable away form throw open title race?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e7e15be5-4430-49a6-8dfb-a07d41ca91dd) - **Yahoo Entertainment**
-3. ['My unsung hero generally going under the radar'](https://www.bbc.com/sport/football/articles/cy0d42rr1z5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Will Everton's formidable away form throw open title race?](https://www.bbc.com/sport/football/articles/c62dq9x4r77o) - **BBC News**
-5. [“I’m expecting…” – David Ornstein outlines where Slot stands at Liverpool after latest setback](https://www.empireofthekop.com/2026/03/12/david-ornstein-liverpool-chiefs-firmly-backing-slot/) - **Empire of The Kop**
-6. ['Setbacks are just part of God's plan' - Doak on faith, football & frustrations](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_694cb44d-9127-4c47-99d3-e6101d5bc5ef) - **Yahoo Entertainment**
-7. [IPL official says authority closely monitoring Middle East situation, conditions under control](https://economictimes.indiatimes.com/news/sports/ipl-official-says-authority-closely-monitoring-middle-east-situation-conditions-under-control/articleshow/129497099.cms) - **The Times of India**
-8. [‘We will win the league next year’ – Phil Thompson makes bold Liverpool claim](https://www.empireofthekop.com/2026/03/12/we-will-win-the-league-next-year-phil-thompson-makes-bold-liverpool-claim/) - **Empire of The Kop**
-9. ['Real exposed City's weaknesses'](https://www.bbc.com/sport/football/articles/c78jg3kn9yno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [The key question that is never asked in the never ending attacks on Arsenal](https://untold-arsenal.com/archives/119840) - **Untold-arsenal.com**
+1. [Liverpool warn clubs that star will now stay at Anfield](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-warn-clubs-that-star-will-now-stay-at-anfield/) - **Anfieldwatch.co.uk**
+2. [Inter planning for mass summer exit and targeting Kone from Roma](https://football-italia.net/inter-planning-for-mass-summer-exit-and-kone/) - **Football Italia**
+3. [Tottenham's Premier League position is damning and so are the numbers](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ae0d3028-09dd-436d-a588-cd0911b66177) - **Yahoo Entertainment**
+4. [“Not what the result dictates” – Pep Guardiola’s passionate defence of Manchester City display in Real Madrid rout](https://cityxtra.co.uk/42942/not-what-the-result-dictates-pep-guardiolas-passionate-defence-of-manchester-city-display-in-real-madrid-rout/) - **Cityxtra.co.uk**
+5. [A humbling 24 hours for Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2ff18fe3-4f37-4d44-b32f-a1861a3db326) - **Yahoo Entertainment**
+6. [Luis Enrique: Fresh development hands Man United big push in bid to land PSG boss](https://thepeoplesperson.com/2026/03/12/luis-enrique-fresh-development-hands-man-united-big-push-in-bid-to-land-psg-boss-307611/) - **The Peoples Person**
+7. [How can I watch West Ham v City on TV?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_589c49bf-7a72-4373-a28f-56b70f2dc224) - **Yahoo Entertainment**
+8. [Match Preview: Brentford v Wolverhampton Wanderers](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f63e218d-9910-49ea-848b-6d8745cec70f) - **Yahoo Entertainment**
+9. [Arsenal man excited to be used in a different position during the season](https://www.justarsenal.com/arsenal-man-excited-to-be-used-in-a-different-position-during-the-season/411592) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-03-13 17:46:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-13 18:43:02 (KST) / (하루 100회 제한 준수 중)*
