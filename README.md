@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Redknapp pushes Tottenham credentials as his horse misses out in Cheltenham Gold Cup](https://sports.yahoo.com/articles/redknapp-pushes-tottenham-credentials-horse-163933216.html) - **Yahoo Entertainment**
-2. [Why Juventus have an advantage over Inter in pursuit of Liverpool’s Alisson](https://football-italia.net/why-juventus-have-an-advantage-for-alisson/) - **Football Italia**
-3. [Neto given additional ban and fine](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7e853586-e688-45e6-ae57-b7740b8bcffb) - **Yahoo Entertainment**
-4. [Farke on Calvert-Lewin, pressure and Crystal Palace](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a676fbc6-b28c-4f4b-9df4-56b707c236dc) - **Yahoo Entertainment**
-5. [Emery on 'new chapter' after milestone, 'fighter' Watkins and Man Utd](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f68e7348-7704-4d62-a010-6ebf169ff3fd) - **Yahoo Entertainment**
-6. [Should Knicks fans be worried about Jalen Brunson?](https://www.postingandtoasting.com/knicks-analysis/80205/should-knicks-fans-be-worried-about-jalen-brunson) - **Posting and Toasting**
-7. [Manchester United midfielder Manuel Ugarte is often one of the first to leave Carrington after training](https://sportsview.co.uk/2026/03/manchester-united-midfielder-manuel-ugarte-is-often-one-of-the-first-to-leave-carrington-after-training?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-midfielder-manuel-ugarte-is-often-one-of-the-first-to-leave-carrington-after-training) - **Sportsview.co.uk**
-8. [Arne Slot says Ngumoha ‘could start’ for Liverpool soon](https://www.empireofthekop.com/2026/03/13/arne-slot-says-ngumoha-could-start-for-liverpool-soon/) - **Empire of The Kop**
-9. [Has Bruno been the Premier League’s star man in 2025/26?](https://www.manutd.com/en/news/detail/bruno-fernandes-leads-premier-league-player-of-the-season-so-far-poll) - **Manchester United**
-10. [2026 Oscars Odds: Could Movies with Deep Sports Ties Take Home Trophies?](https://www.foxsports.com/stories/other/oscars-odds-2026) - **Fox Sports**
+1. [Chelsea, England Star Reece Gets New Contract Extension](https://www.foxsports.com/stories/soccer/reece-james-over-the-moon-as-chelsea-captain-aims-to-spend-peak-years-at-stamford-bridge-after-penning-new-deal-soccer-premier-league) - **Fox Sports**
+2. [Arsenal begin talks to extend Declan Rice’s contract](https://punchng.com/arsenal-begin-talks-to-extend-declan-rices-contract/) - **The Punch**
+3. [Tyler Adams World Cup diary: ‘Everything’s starting to click again’](https://andscape.com/features/tyler-adams-usmnt-world-cup-bournemouth-premier-league-uefa/) - **Andscape.com**
+4. [Arsenal v Everton: the referee, fouls and the king of the yellow cards](https://untold-arsenal.com/archives/119889) - **Untold-arsenal.com**
+5. [How Thomas Grønnemark Became the First Throw-in Coach](https://urbanpitch.com/how-thomas-gronnemark-became-the-first-throw-in-coach/) - **Urbanpitch.com**
+6. [“We are desperate too” – Pep Guardiola admits Manchester City must beat West Ham to stay in title race](https://cityxtra.co.uk/43035/we-are-desperate-too-pep-guardiola-admits-manchester-city-must-beat-west-ham-to-stay-in-title-race/) - **Cityxtra.co.uk**
+7. [Tudor's warning for Spurs: 'A new coach won't change things'](https://www.skysports.com/football/news/11675/13519257/igor-tudor-exclusive-spurs-boss-says-a-new-coach-wont-instantly-change-clubs-problems) - **Sky Sports**
+8. ['You'll see' - Rosenior hints at Chelsea transfer shift but wants to 'win now'](https://www.skysports.com/football/news/11668/13519260/chelsea-liam-rosenior-on-transfer-plans-squad-experience-and-champions-league-qualification-importance) - **Sky Sports**
+9. [Tudor's warning for Spurs: 'A new coach won't change things'](https://www.skysports.com/football/news/11675/13519257/igor-tudor) - **Sky Sports**
+10. ['A relief' to keep James 'in his prime' - fan views](https://www.bbc.com/sport/football/articles/cedz7e2j6z1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-15 01:43:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-15 02:29:56 (KST) / (하루 100회 제한 준수 중)*
