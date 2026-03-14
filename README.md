@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Charlton's Riverside Resilience](https://www.bbc.com/sport/football/articles/cg4g935050ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Charlton's Riverside Resilience](https://www.bbc.com/sport/football/articles/cg4g935050ko) - **BBC News**
-3. [Remember these six classic wins against Everton?](http://www.arsenal.com/news/remember-these-six-classic-wins-against-everton) - **Arsenal.com**
-4. [Report: Manchester United considering move to sign 21-year-old Premier League star](https://eplindex.com/143932/report-manchester-united-considering-move-to-sign-21-year-old-premier-league-star.html) - **English Premier League Index - Opta Stats**
-5. ['You have to convince players your way will work' - the mentality of winning a relegation battle](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_51cfd14c-c004-4fbe-b6cc-b644da393e35) - **Yahoo Entertainment**
-6. ['You have to convince players your way will work' - the mentality of winning a relegation battle](https://www.bbc.com/sport/football/articles/cvg37ryx1d5o) - **BBC News**
-7. [Alexis Mac Allister reveals post-Liverpool plans as Manchester United watch on](https://www.anfieldwatch.co.uk/liverpool-fc/news/alexis-mac-allister-reveals-post-liverpool-plans-as-manchester-united-watch-on/) - **Anfieldwatch.co.uk**
-8. [Gianluigi Donnarumma tears into apathetic Manchester City display against Real Madrid](https://cityxtra.co.uk/42976/gianluigi-donnarumma-tears-into-apathetic-manchester-city-display-against-real-madrid/) - **Cityxtra.co.uk**
+1. [Slot wants “the maximum” out of “every single player” for rest of season](https://anfieldindex.com/92108/slot-wants-the-maximum-out-of-every-single-player-for-rest-of-season.html) - **Anfieldindex.com**
+2. [Rooney sets clear condition Michael Carrick must meet to land United job](https://thepeoplesperson.com/2026/03/13/rooney-sets-clear-condition-michael-carrick-must-meet-to-land-united-job-307652/) - **The Peoples Person**
+3. [Borussia Dortmund hope to bring in €110m from the potential sales of Karim Adeyemi and Serhou Guirassy](https://www.getfootballnewsgermany.com/2026/dortmund-adeyemi-guirassy/) - **Getfootballnewsgermany.com**
+4. [Howe on Barcelona disappointment, Gordon's fitness and Joelinton's form](https://www.bbc.com/sport/football/articles/cqj9kwwkrpyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Howe dismisses Shearer's criticism of Gordon's non-start](https://www.rte.ie/sport/soccer/2026/0313/1563243-howe-dismisses-shearers-criticism-of-gordons-non-start/) - **RTE**
+6. [Gabriel Jesus fine record against Everton should see him start](https://www.justarsenal.com/gabriel-jesus-fine-record-against-everton-should-see-him-start/411647) - **Just Arsenal News**
+7. ['It was my decision' - Howe defends Gordon after Shearer criticism](https://www.skysports.com/football/news/11678/13519103/newcastle-anthony-gordon-defended-by-eddie-howe-after-alan-shearer-criticises-substitute-role-in-barcelona-champions-league-tie) - **Sky Sports**
+8. [Recalling our perfect day against Everton in 1998](http://www.arsenal.com/news/recalling-our-perfect-day-against-everton-1998) - **Arsenal.com**
+9. [Arsenal v Everton: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/premier-league-odds/arsenal-v-everton-line-ups-stats-and-preview/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-03-14 18:59:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-14 19:39:46 (KST) / (하루 100회 제한 준수 중)*
