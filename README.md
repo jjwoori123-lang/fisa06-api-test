@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['It's too soon to dip for the line'](https://www.bbc.com/sport/football/articles/clyg46dg9k2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Alphonso Davies: United identify Bayern Munich star as solution to key issue](https://thepeoplesperson.com/2026/03/13/alphonso-davies-united-identify-bayern-munich-star-as-solution-to-key-issue-307633/) - **The Peoples Person**
-3. [FULL LIST: Top 10 fastest EPL managers to reach 100 wins](https://punchng.com/full-list-top-10-fastest-epl-managers-to-reach-100-wins/) - **The Punch**
-4. [Liverpool scout €33m defender also wanted by Manchester United](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-scout-eur33m-defender-also-wanted-by-manchester-united-pierre-kalulu/) - **Anfieldwatch.co.uk**
-5. [Teams to target in gameweeks 30 and 31 - the FPL talking point](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8df882c4-0be4-4a8c-b2fe-c41e7fe8f2bf) - **Yahoo Entertainment**
-6. [Time to target Brentford, Liverpool and Fulham stars? FPL talking point](https://www.bbc.com/sport/football/articles/cx2gzlddz8no) - **BBC News**
-7. [Emery breaks Aston Villa record after reaching 100 wins](https://punchng.com/emery-breaks-aston-villa-record-after-reaching-100-wins/) - **The Punch**
-8. [Manchester United duo Mason Mount and Lisandro Martinez were absent from midweek training](https://sportsview.co.uk/2026/03/manchester-united-duo-mason-mount-and-lisandro-martinez-were-absent-from-midweek-training?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-duo-mason-mount-and-lisandro-martinez-were-absent-from-midweek-training) - **Sportsview.co.uk**
+1. [Gianluigi Donnarumma tears into apathetic Manchester City display against Real Madrid](https://cityxtra.co.uk/42976/gianluigi-donnarumma-tears-into-apathetic-manchester-city-display-against-real-madrid/) - **Cityxtra.co.uk**
+2. [La Liga preserves strong record over Premier League as 5th Champions League spot draws closer](https://www.football-espana.net/2026/03/13/la-liga-preserves-strong-record-over-premier-league-as-5th-champions-league-spot-draws-closer) - **Football Espana**
+3. [Arne Slot admits Alisson return is ‘not 100% sure’ yet](https://www.empireofthekop.com/2026/03/13/arne-slot-admits-alisson-return-is-not-100-sure-yet/) - **Empire of The Kop**
+4. ['There won't be a shortage of talking points' as Tudor faces media](https://www.bbc.com/sport/football/articles/c0e53x1e8g1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Chris Sutton says Liverpool ‘surely can’t lose’ to Tottenham](https://www.empireofthekop.com/2026/03/13/chris-sutton-says-liverpool-surely-cant-lose-to-tottenham/) - **Empire of The Kop**
+6. [Report: Former Liverpool star favourite to become Celtic manager](https://anfieldindex.com/92097/report-former-liverpool-star-favourite-to-become-celtic-manager.html) - **Anfieldindex.com**
+7. [“Horrible to watch” – Journalist reacts to Liverpool’s defeat to Galatasaray](https://anfieldindex.com/92085/horrible-to-watch-journalist-reacts-to-liverpools-defeat-to-galatasaray.html) - **Anfieldindex.com**
+8. [Report: Liverpool told to pay £70m to sign top summer transfer target](https://anfieldindex.com/92058/report-liverpool-told-to-pay-70m-to-sign-top-summer-transfer-target.html) - **Anfieldindex.com**
+9. [Wayne Rooney backs Liverpool to smash Tottenham Hotspur at Anfield](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_74bb7b28-902c-41aa-a058-0bbf9cd2b6fb) - **Yahoo Entertainment**
+10. [Report: Liverpool to ‘step up’ interest in French defender](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_12aea210-0ee7-4f66-b39f-2f8618660b35) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-14 17:49:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-14 18:36:57 (KST) / (하루 100회 제한 준수 중)*
