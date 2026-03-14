@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [United in numbers: Reds top of shots charts](https://www.manutd.com/en/news/detail/united-in-numbers-most-shots-recorded-in-premier-league-2025-26) - **Manchester United**
-2. [Team News: Fitness Update Ahead of Spurs](https://liverpooloffside.sbnation.com/liverpool-fc-news-coverage/79142/team-news-fitness-update-ahead-of-spurs) - **SB Nation**
-3. [Rosenior hails ‘best in the world’ Reece James after contract extension](https://www.101greatgoals.com/football/premier-league/rosenior-hails-best-in-world-reece-james/) - **101 Great Goals**
-4. [Report: Arsenal ready to launch double Bundesliga transfer raid](https://eplindex.com/143951/report-arsenal-ready-to-launch-double-bundesliga-transfer-raid.html) - **English Premier League Index - Opta Stats**
-5. [Tudor in defiant mood ahead of Anfield: 'You can cry or you can fight!'](https://www.skysports.com/football/video/30998/13519281/igor-tudor-in-defiant-mood-ahead-of-anfield-you-can-cry-or-you-can-fight) - **Sky Sports**
-6. [Leverkusen aim to perform against Bayern like against Arsenal](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260313-99-820998/) - **Dpa-international.com**
-7. [Carra: Emery should go to Old Trafford as frontrunner for Man Utd job](https://www.skysports.com/football/news/29327/13518935/unai-emery-man-utd-should-have-aston-villa-boss-top-of-their-list-for-head-coach-job-says-jamie-carragher) - **Sky Sports**
-8. [Carra: Emery should go to Old Trafford as frontrunner for Man Utd job](https://www.skysports.com/football/news/29327/13518935/unai-emery-man-utd-should-have-aston-villa-boss-top-of-their-list-for-head-coach-job-says-jamie-carragher) - **Sky Sports**
-9. [Training Gallery: Back to work ahead of Everton](http://www.arsenal.com/news/training-gallery-back-work-ahead-everton) - **Arsenal.com**
+1. [Redknapp pushes Tottenham credentials as his horse misses out in Cheltenham Gold Cup](https://sports.yahoo.com/articles/redknapp-pushes-tottenham-credentials-horse-163933216.html) - **Yahoo Entertainment**
+2. [Why Juventus have an advantage over Inter in pursuit of Liverpool’s Alisson](https://football-italia.net/why-juventus-have-an-advantage-for-alisson/) - **Football Italia**
+3. [Neto given additional ban and fine](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7e853586-e688-45e6-ae57-b7740b8bcffb) - **Yahoo Entertainment**
+4. [Farke on Calvert-Lewin, pressure and Crystal Palace](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a676fbc6-b28c-4f4b-9df4-56b707c236dc) - **Yahoo Entertainment**
+5. [Emery on 'new chapter' after milestone, 'fighter' Watkins and Man Utd](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f68e7348-7704-4d62-a010-6ebf169ff3fd) - **Yahoo Entertainment**
+6. [Should Knicks fans be worried about Jalen Brunson?](https://www.postingandtoasting.com/knicks-analysis/80205/should-knicks-fans-be-worried-about-jalen-brunson) - **Posting and Toasting**
+7. [Manchester United midfielder Manuel Ugarte is often one of the first to leave Carrington after training](https://sportsview.co.uk/2026/03/manchester-united-midfielder-manuel-ugarte-is-often-one-of-the-first-to-leave-carrington-after-training?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-midfielder-manuel-ugarte-is-often-one-of-the-first-to-leave-carrington-after-training) - **Sportsview.co.uk**
+8. [Arne Slot says Ngumoha ‘could start’ for Liverpool soon](https://www.empireofthekop.com/2026/03/13/arne-slot-says-ngumoha-could-start-for-liverpool-soon/) - **Empire of The Kop**
+9. [Has Bruno been the Premier League’s star man in 2025/26?](https://www.manutd.com/en/news/detail/bruno-fernandes-leads-premier-league-player-of-the-season-so-far-poll) - **Manchester United**
+10. [2026 Oscars Odds: Could Movies with Deep Sports Ties Take Home Trophies?](https://www.foxsports.com/stories/other/oscars-odds-2026) - **Fox Sports**
 
 
 ---
-*최근 업데이트: 2026-03-15 00:58:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-15 01:43:30 (KST) / (하루 100회 제한 준수 중)*
