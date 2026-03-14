@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Slot wants “the maximum” out of “every single player” for rest of season](https://anfieldindex.com/92108/slot-wants-the-maximum-out-of-every-single-player-for-rest-of-season.html) - **Anfieldindex.com**
-2. [Rooney sets clear condition Michael Carrick must meet to land United job](https://thepeoplesperson.com/2026/03/13/rooney-sets-clear-condition-michael-carrick-must-meet-to-land-united-job-307652/) - **The Peoples Person**
-3. [Borussia Dortmund hope to bring in €110m from the potential sales of Karim Adeyemi and Serhou Guirassy](https://www.getfootballnewsgermany.com/2026/dortmund-adeyemi-guirassy/) - **Getfootballnewsgermany.com**
-4. [Howe on Barcelona disappointment, Gordon's fitness and Joelinton's form](https://www.bbc.com/sport/football/articles/cqj9kwwkrpyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Howe dismisses Shearer's criticism of Gordon's non-start](https://www.rte.ie/sport/soccer/2026/0313/1563243-howe-dismisses-shearers-criticism-of-gordons-non-start/) - **RTE**
-6. [Gabriel Jesus fine record against Everton should see him start](https://www.justarsenal.com/gabriel-jesus-fine-record-against-everton-should-see-him-start/411647) - **Just Arsenal News**
-7. ['It was my decision' - Howe defends Gordon after Shearer criticism](https://www.skysports.com/football/news/11678/13519103/newcastle-anthony-gordon-defended-by-eddie-howe-after-alan-shearer-criticises-substitute-role-in-barcelona-champions-league-tie) - **Sky Sports**
-8. [Recalling our perfect day against Everton in 1998](http://www.arsenal.com/news/recalling-our-perfect-day-against-everton-1998) - **Arsenal.com**
-9. [Arsenal v Everton: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/premier-league-odds/arsenal-v-everton-line-ups-stats-and-preview/) - **101 Great Goals**
+1. [Under-21s to play Real Madrid at Old Trafford](https://www.manutd.com/en/news/detail/under-21s-to-play-real-madrid-at-old-trafford-premier-league-international-cup) - **Manchester United**
+2. [Robbie Stockdale appointed as Newcastle United Under-21s Lead Coach](https://www.newcastleunited.com/en/news/robbie-stockdale-appointed-as-newcastle-united-under-21s-lead-coach) - **Newcastleunited.com**
+3. [Liverpool vs. Tottenham Hotspur Premier League Preview](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-previews/69456/tottenham-hotspur-liverpool-premier-league-preview) - **SB Nation**
+4. [All your FPL stats and Premier League team news in one place](https://www.bbc.com/sport/articles/clyv7dk02g2o) - **BBC News**
+5. [Rare weekend outing for Man Utd](https://www.bbc.com/sport/football/articles/c3v74nq4k2lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Hugo Ekitike names his favourite Liverpool memory so far](https://anfieldindex.com/92100/hugo-ekitike-names-his-favourite-liverpool-memory-so-far.html) - **Anfieldindex.com**
+7. [Hurzeler on Mitoma, Ferguson and Arteta criticism](https://www.bbc.com/sport/football/articles/cn5gd1yx0lko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Report: Newcastle United interested in move to sign Bundesliga forward](https://eplindex.com/143935/report-newcastle-united-interested-in-move-to-sign-bundesliga-forward.html) - **English Premier League Index - Opta Stats**
+9. [Slot plays down Premier League's midweek misadventures](https://www.rte.ie/sport/soccer/2026/0313/1563245-slot-plays-down-premier-leagues-midweek-misadventures/) - **RTE**
+10. [Sonia O’Sullivan remembers the late Ronnie Delany](https://www.irishtimes.com/sport/2026/03/13/sonia-osullivan-remembers-the-late-ronnie-delany/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-03-14 19:39:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-14 20:01:06 (KST) / (하루 100회 제한 준수 중)*
