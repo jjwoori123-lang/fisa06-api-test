@@ -1,16 +1,12 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Christian Pulisic makes history with Milan with new rare milestone in Europe’s top five leagues despite 2026 scoring struggles](https://worldsoccertalk.com/news/christian-pulisic-makes-history-with-milan-with-new-rare-milestone-in-europes-top-five-leagues-despite-2026-scoring-struggles/) - **Worldsoccertalk.com**
-2. [Hugo Viana enters Premier League royal rumble for Juventus defender Pierre Kalulu](https://cityxtra.co.uk/42926/hugo-viana-enters-premier-league-royal-rumble-for-juventus-defender-pierre-kalulu/) - **Cityxtra.co.uk**
-3. [Darlow, Calvert-Lewin And Rodon To Start | 3-4-2-1 Leeds United Predicted Lineup Vs Crystal Palace](https://the4thofficial.net/2026/03/darlow-calvert-lewin-and-rodon-to-start-3-4-2-1-leeds-united-predicted-lineup-vs-crystal-palace/) - **The4thofficial.net**
-4. [Milan continue work on Tomori renewal: the latest](https://football-italia.net/milan-continue-work-on-tomori-renewal/) - **Football Italia**
-5. [“Tight game” Paul Merson predicts the Arsenal v Everton game](https://www.justarsenal.com/tight-game-paul-merson-predicts-the-arsenal-v-everton-game/411680) - **Just Arsenal News**
-6. [Spurs search for salvation, Arsenal ready for title charge](https://japantoday.com/category/sports/spurs-search-for-salvation-arsenal-ready-for-title-charge) - **Japan Today**
-7. [Liverpool dealt blow in pursuit of £60m transfer target](https://anfieldindex.com/92121/liverpool-dealt-blow-in-pursuit-of-60m-transfer-target.html) - **Anfieldindex.com**
-8. [Chelsea vs Newcastle United: Match Preview, Latest Team News and How to Watch](https://eplindex.com/143967/chelsea-vs-newcastle-united-match-preview-latest-team-news-and-how-to-watch.html) - **English Premier League Index - Opta Stats**
-9. [Newcastle United Under-21s 2 Blackburn Rovers Under-21s 0](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3a5e8509-c04d-4fac-872a-f042efec5e1e) - **Yahoo Entertainment**
-10. [Jones, Gakpo And Allison To Start | 4-2-3-1 Liverpool Predicted Lineup Vs Tottenham Hotspur](https://the4thofficial.net/2026/03/jones-gakpo-and-allison-to-start-4-2-3-1-liverpool-predicted-lineup-vs-tottenham-hotspur/) - **The4thofficial.net**
+1. [Pep's response to City selection critics: How many times do I say I'm a genius?](https://www.skysports.com/football/news/11679/13519208/pep-guardiola-man-city-boss-stands-by-team-selection-against-real-madrid-i-cant-play-same-xi-every-three-days) - **Sky Sports**
+2. [Wrexham 2-0 Swansea City: Parkinson hails Red Dragons after derby win](https://www.101greatgoals.com/football/wrexham-derby-win-swansea-city-report/) - **101 Great Goals**
+3. [Hoops win the battle of the Rovers in Sligo](https://www.rte.ie/sport/soccer/2026/0313/1563192-hoops-win-the-battle-of-the-rovers-in-sligo/) - **RTE**
+4. [Arsenal vs Everton: Match Preview | Will Toffees disrupt Gunners title charge?](https://royalbluemersey.sbnation.com/everton-2025-26-season-premier-league-fixtures-hill-dickinson-moyes/78725/arsenal-vs-everton-match-preview-will-toffees-disrupt-gunners-title-charge) - **SB Nation**
+5. [Patrick Hickey on target to maintain Bohemians’ league lead](https://www.irishtimes.com/sport/soccer/2026/03/13/patrick-hickey-on-target-to-maintain-bohemians-league-lead/) - **The Irish Times**
+6. [Martinez And Dalot To Start | 4-2-3-1 Manchester United Predicted Lineup Vs Aston Villa](https://the4thofficial.net/2026/03/martinez-and-dalot-to-start-4-2-3-1-manchester-united-predicted-lineup-vs-aston-villa/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-03-15 06:56:11 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-15 07:33:13 (KST) / (하루 100회 제한 준수 중)*
