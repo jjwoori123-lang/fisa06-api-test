@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['Turning into a leader' - how Garner is excelling for Everton](https://www.bbc.com/sport/football/articles/ckg897407y4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. ['Been a frustrating season' - Rutter](https://www.bbc.com/sport/football/articles/c1l7y6zn0y1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Newcastle remain interested in Liam Delap after summer setback](https://sportsview.co.uk/2026/03/newcastle-remain-interested-in-liam-delap-after-summer-setback?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-remain-interested-in-liam-delap-after-summer-setback) - **Sportsview.co.uk**
-4. [Liverpool tipped to finally sign 25-year-old forward they've wanted for years](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-tipped-to-finally-sign-25-year-old-forward-theyve-wanted-for-years-anthony-gordon/) - **Anfieldwatch.co.uk**
-5. [IPL 2026: Chennai Super Kings tells Madras high court it will not use Jailer, Jailer 2, or Coolie songs without Sun Pictures license](https://timesofindia.indiatimes.com/legal/news/ipl-2026-chennai-super-kings-tells-madras-high-court-it-will-not-use-jailer-jailer-2-or-coolie-songs-without-sun-pictures-license/articleshow/129540627.cms) - **The Times of India**
-6. ['Everyone at Man Utd loves him' - Owen backs Carrick for job](https://www.bbc.com/sport/football/articles/c4g8q928gp3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. ['Everyone at Man Utd loves him' - Owen backs Carrick for job](https://www.bbc.com/sport/football/articles/c4g8q928gp3o) - **BBC News**
-8. [Wales star Wilson confirms fitness for World Cup play-offs](https://www.bbc.com/sport/football/articles/ce82edzyrrno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Matthijs de Ligt injury update is bad news for United](https://thepeoplesperson.com/2026/03/13/matthijs-de-ligt-injury-update-is-bad-news-for-united-307640/) - **The Peoples Person**
-10. [Galway United expecting tough game against league leaders Bohemians at Dalymount Park](https://www.irishtimes.com/sport/soccer/2026/03/13/galway-united-expecting-tough-game-against-league-leaders-bohemians-at-dalymount-park/) - **The Irish Times**
+1. ['Momentum' - an odd choice of buzzword?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_13e4222e-56ee-4338-ba20-035fe01505c2) - **Yahoo Entertainment**
+2. [The story of Mikel Arteta's six years at Everton](http://www.arsenal.com/news/story-mikel-artetas-six-years-everton) - **Arsenal.com**
+3. [From Norfolk to La Masia - Tavares is 'England's one to watch'](https://www.bbc.com/sport/football/articles/cpqw8regdz4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Report: Premier League club reveal transfer plan to sign €45m Chelsea star](https://chelsea.news/2026/03/west-ham-chelsea-axel-disasi-transfer/) - **Chelsea.news**
+5. [Are English clubs really exhausted before they take on Europe?](https://untold-arsenal.com/archives/119878) - **Untold-arsenal.com**
+6. [Everton predicted XI vs Arsenal: Moyes’ travel-happy Toffees eye Emirates upset](https://sportsview.co.uk/2026/03/everton-predicted-xi-vs-arsenal-moyes-travel-happy-toffees-eye-emirates-upset?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=everton-predicted-xi-vs-arsenal-moyes-travel-happy-toffees-eye-emirates-upset) - **Sportsview.co.uk**
+7. [Man Utd & Aston Villa ahead of Chelsea & Liverpool in top four stakes](https://footballtoday.com/2026/03/13/man-utd-aston-villa-chelsea-liverpool-top-four/) - **Footballtoday.com**
+8. [Inter Milan offer Liverpool midfielder exactly what he wants](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-inter-milan-offer-curtis-jones-midfielder-exactly-what-he-wants/) - **Anfieldwatch.co.uk**
+9. [Barcelona keeping close tabs on 16 G/A versatile Premier League winger](https://barcauniversal.com/barcelona-keeping-close-tabs-on-16-g-a-versatile-premier-league-winger/) - **Barcauniversal.com**
 
 
 ---
-*최근 업데이트: 2026-03-14 15:53:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-14 16:37:31 (KST) / (하루 100회 제한 준수 중)*
