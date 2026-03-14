@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Training Gallery: Back to work ahead of Everton](http://www.arsenal.com/news/training-gallery-back-work-ahead-everton) - **Arsenal.com**
-2. [Arsenal's Arteta shrugs off siege mentality talk as quadruple dreams grow](https://www.channelnewsasia.com/sport/arsenals-arteta-shrugs-siege-mentality-talk-quadruple-dreams-grow-5992351) - **CNA**
-3. [Mayer becomes latest world champion to join MVP](https://www.bbc.com/sport/boxing/articles/czx7z78qzp7o) - **BBC News**
-4. ['You can cry or you can fight': Tudor urges struggling Spurs to rise to the challenge](https://www.channelnewsasia.com/sport/you-can-cry-or-you-can-fight-tudor-urges-struggling-spurs-rise-challenge-5992331) - **CNA**
-5. [Slot: Liverpool have struggled this season, but best is yet to come](https://www.skysports.com/football/news/11669/13519241/arne-slot-liverpool-have-struggled-this-season-but-the-best-is-yet-to-come-says-reds-boss) - **Sky Sports**
-6. [Snapdragon-powered preview of Villa clash](https://www.manutd.com/en/news/detail/snapdragon-copilot-preview-of-man-utd-v-aston-villa) - **Manchester United**
-7. [PREVIEW | Barcelona vs Sevilla - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-barcelona-vs-sevilla-team-news-lineups-predictions/1074587) - **Playmakerstats.com**
-8. [Under-21s: United 2 Southampton 1](https://www.manutd.com/en/news/detail/match-report-man-utd-u21s-v-southampton-u21s-13-march) - **Manchester United**
-9. [Arteta on injuries, Hurzeler and Tottenham's position](https://www.bbc.com/sport/football/articles/cp3207454n6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. ['Cry or fight': Tudor issues rallying cry to sorry Spurs](https://sports.yahoo.com/articles/cry-fight-tudor-issues-rallying-151716731.html) - **Yahoo Entertainment**
+1. [United in numbers: Reds top of shots charts](https://www.manutd.com/en/news/detail/united-in-numbers-most-shots-recorded-in-premier-league-2025-26) - **Manchester United**
+2. [Team News: Fitness Update Ahead of Spurs](https://liverpooloffside.sbnation.com/liverpool-fc-news-coverage/79142/team-news-fitness-update-ahead-of-spurs) - **SB Nation**
+3. [Rosenior hails ‘best in the world’ Reece James after contract extension](https://www.101greatgoals.com/football/premier-league/rosenior-hails-best-in-world-reece-james/) - **101 Great Goals**
+4. [Report: Arsenal ready to launch double Bundesliga transfer raid](https://eplindex.com/143951/report-arsenal-ready-to-launch-double-bundesliga-transfer-raid.html) - **English Premier League Index - Opta Stats**
+5. [Tudor in defiant mood ahead of Anfield: 'You can cry or you can fight!'](https://www.skysports.com/football/video/30998/13519281/igor-tudor-in-defiant-mood-ahead-of-anfield-you-can-cry-or-you-can-fight) - **Sky Sports**
+6. [Leverkusen aim to perform against Bayern like against Arsenal](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260313-99-820998/) - **Dpa-international.com**
+7. [Carra: Emery should go to Old Trafford as frontrunner for Man Utd job](https://www.skysports.com/football/news/29327/13518935/unai-emery-man-utd-should-have-aston-villa-boss-top-of-their-list-for-head-coach-job-says-jamie-carragher) - **Sky Sports**
+8. [Carra: Emery should go to Old Trafford as frontrunner for Man Utd job](https://www.skysports.com/football/news/29327/13518935/unai-emery-man-utd-should-have-aston-villa-boss-top-of-their-list-for-head-coach-job-says-jamie-carragher) - **Sky Sports**
+9. [Training Gallery: Back to work ahead of Everton](http://www.arsenal.com/news/training-gallery-back-work-ahead-everton) - **Arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-03-15 00:38:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-15 00:58:15 (KST) / (하루 100회 제한 준수 중)*
