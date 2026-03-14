@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Five Italy youngsters who should be included in Gattuso’s World Cup play-off squad](https://football-italia.net/five-italy-youngsters-world-cup-play-offs/) - **Football Italia**
-2. [2026 NFC NFL Free Agency Grades: Kyler Murray earns the Vikings an A](https://www.nbcsports.com/fantasy/football/news/2026-nfc-nfl-free-agency-grades-kyler-murray-earns-the-vikings-an-a) - **NBCSports.com**
-3. [So who decides the xG values anyway?](http://www.toffeeweb.com/season/25-26/news/47370.html) - **Toffeeweb**
-4. [Arsenal's Mikel Arteta reveals fix for Premier League set pieces: 'Biggest issue is man-to-man' defense](https://www.cbssports.com/soccer/news/arsenal-mikel-arteta-premier-league-set-pieces/) - **CBS Sports**
-5. [Carrick 'calm' over Scholes' social media remark](https://www.rte.ie/sport/soccer/2026/0313/1563339-carrick-calm-over-scholes-social-media-remark/) - **RTE**
-6. [Pep Guardiola: “We did some very, very good things vs Real Madrid”](https://www.managingmadrid.com/latest-news/105165/pep-guardiola-we-did-some-very-very-good-things-vs-real-madrid) - **Managing Madrid**
-7. [Chelsea, England Star Reece Gets New Contract Extension](https://www.foxsports.com/stories/soccer/reece-james-over-the-moon-as-chelsea-captain-aims-to-spend-peak-years-at-stamford-bridge-after-penning-new-deal-soccer-premier-league) - **Fox Sports**
-8. [Arsenal begin talks to extend Declan Rice’s contract](https://punchng.com/arsenal-begin-talks-to-extend-declan-rices-contract/) - **The Punch**
-9. [Tyler Adams World Cup diary: ‘Everything’s starting to click again’](https://andscape.com/features/tyler-adams-usmnt-world-cup-bournemouth-premier-league-uefa/) - **Andscape.com**
-10. [Arsenal v Everton: the referee, fouls and the king of the yellow cards](https://untold-arsenal.com/archives/119889) - **Untold-arsenal.com**
+1. [Arsenal vs Everton: Match Preview, Latest Team News and How to Watch](https://eplindex.com/143962/arsenal-vs-everton-match-preview-latest-team-news-and-how-to-watch.html) - **English Premier League Index - Opta Stats**
+2. [Ultimate Table Tennis now headed to Goa](https://timesofindia.indiatimes.com/city/goa/ultimate-table-tennis-now-headed-to-goa/articleshow/129563428.cms) - **The Times of India**
+3. [USMNT boss Mauricio Pochettino reportedly sets bold terms to join Real Madrid, including signing Lionel Messi’s Argentina teammate and 2022 FIFA World Cup winner](https://worldsoccertalk.com/news/usmnt-boss-mauricio-pochettino-reportedly-sets-bold-terms-to-join-real-madrid-including-signing-lionel-messis-argentina-teammate-and-2022-fifa-world-cup-winner/) - **Worldsoccertalk.com**
+4. [Chelsea starting player to miss tomorrow’s game after latest disciplinary incident picks up a ban](https://chelsea.news/2026/03/neto-tomorrows-game-latest-incident/) - **Chelsea.news**
+5. [Match preview: United v Aston Villa](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8c17e05f-e39b-4690-9a98-687a33890103) - **Yahoo Entertainment**
+6. [Manchester United v Aston Villa: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/premier-league-odds/manchester-united-aston-villa-preview/) - **101 Great Goals**
+7. [What's it like to be a Sunderland fan?](https://www.bbc.com/sport/football/videos/c4g25438d5zo) - **BBC News**
+8. [Pep Guardiola warns title bid 'over' if Manchester City lose to West Ham](https://economictimes.indiatimes.com/news/sports/pep-guardiola-warns-title-bid-over-if-manchester-city-lose-to-west-ham/articleshow/129562854.cms) - **The Times of India**
+9. [“Celtic is a much bigger club than many people imagine,” Daizen Maeda](https://thecelticstar.com/celtic-is-a-much-bigger-club-than-many-people-imagine-daizen-maeda/) - **The Celtic Star**
+10. [Preview: Arsenal v Everton](http://www.arsenal.com/news/preview-arsenal-v-everton-2) - **Arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-03-15 02:56:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-15 03:51:09 (KST) / (하루 100회 제한 준수 중)*
