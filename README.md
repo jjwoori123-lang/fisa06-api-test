@@ -1,13 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal v Everton match preview and prediction](https://www.justarsenal.com/arsenal-v-everton-match-preview-and-prediction/411666) - **Just Arsenal News**
-2. [EPL title bid ‘over’ if Man City lose to West Ham, Guardiola warns](https://punchng.com/epl-title-bid-over-if-man-city-lose-to-west-ham-guardiola-warns/) - **The Punch**
-3. [EPL GW-30 Best FPL Differentials](https://www.nevermanagealone.com/watchlist/15713/epl-gw-30-best-fpl-differentials) - **Nevermanagealone.com**
-4. [Report: Liverpool set to battle Man United in the race to sign Premier League defender](https://eplindex.com/143946/report-liverpool-set-to-battle-man-united-in-the-race-to-sign-premier-league-defender.html) - **English Premier League Index - Opta Stats**
-5. [Arteta on home form and Moyes' longevity](http://www.arsenal.com/news/arteta-home-form-and-moyes-longevity) - **Arsenal.com**
-6. [Chelsea manager Rosenior keeps faith in keepers, James extends contract](https://www.channelnewsasia.com/sport/chelsea-manager-rosenior-keeps-faith-in-keepers-james-extends-contract-5992251) - **CNA**
-7. [Chelsea vs Newcastle United: Take our pre-match quiz ahead of the Premier League clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_34e9d9d6-81a4-4310-a2e5-bdd7886b0dd2) - **Yahoo Entertainment**
+1. [Training Gallery: Back to work ahead of Everton](http://www.arsenal.com/news/training-gallery-back-work-ahead-everton) - **Arsenal.com**
+2. [Arsenal's Arteta shrugs off siege mentality talk as quadruple dreams grow](https://www.channelnewsasia.com/sport/arsenals-arteta-shrugs-siege-mentality-talk-quadruple-dreams-grow-5992351) - **CNA**
+3. [Mayer becomes latest world champion to join MVP](https://www.bbc.com/sport/boxing/articles/czx7z78qzp7o) - **BBC News**
+4. ['You can cry or you can fight': Tudor urges struggling Spurs to rise to the challenge](https://www.channelnewsasia.com/sport/you-can-cry-or-you-can-fight-tudor-urges-struggling-spurs-rise-challenge-5992331) - **CNA**
+5. [Slot: Liverpool have struggled this season, but best is yet to come](https://www.skysports.com/football/news/11669/13519241/arne-slot-liverpool-have-struggled-this-season-but-the-best-is-yet-to-come-says-reds-boss) - **Sky Sports**
+6. [Snapdragon-powered preview of Villa clash](https://www.manutd.com/en/news/detail/snapdragon-copilot-preview-of-man-utd-v-aston-villa) - **Manchester United**
+7. [PREVIEW | Barcelona vs Sevilla - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-barcelona-vs-sevilla-team-news-lineups-predictions/1074587) - **Playmakerstats.com**
+8. [Under-21s: United 2 Southampton 1](https://www.manutd.com/en/news/detail/match-report-man-utd-u21s-v-southampton-u21s-13-march) - **Manchester United**
+9. [Arteta on injuries, Hurzeler and Tottenham's position](https://www.bbc.com/sport/football/articles/cp3207454n6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. ['Cry or fight': Tudor issues rallying cry to sorry Spurs](https://sports.yahoo.com/articles/cry-fight-tudor-issues-rallying-151716731.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-15 00:00:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-15 00:38:16 (KST) / (하루 100회 제한 준수 중)*
