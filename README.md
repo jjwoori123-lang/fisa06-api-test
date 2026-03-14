@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sunrisers Leeds draw flak for signing Pakistan spinner Abrar Ahmed](https://economictimes.indiatimes.com/news/sports/sunrisers-leeds-draw-flak-for-signing-pakistan-spinner-abrar-ahmed/articleshow/129550959.cms) - **The Times of India**
-2. [Man Utd's U21 clash with Real Madrid on 7 April](https://www.bbc.com/sport/football/articles/cn0ejgn62x4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [School assembly news headlines for March 14: Top national, international, business, sports update and thought of the day](https://economictimes.indiatimes.com/news/new-updates/school-assembly-news-headlines-for-march-14-top-national-international-business-sports-update-and-thought-of-the-day/articleshow/129550742.cms) - **The Times of India**
-4. [Trent-like delivery and why James' new deal is crucial for Chelsea](https://www.skysports.com/football/news/11095/13519133/reece-james-new-contract-a-huge-boost-for-chelsea-as-he-prepares-for-duel-with-newcastles-lewis-hall-the-radar) - **Sky Sports**
-5. [Reece James agrees new contract with Chelsea](https://www.101greatgoals.com/football/premier-league/reece-james-agrees-new-contract-with-chelsea/) - **101 Great Goals**
-6. [Slot calm about English struggles in Champions League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_16050d96-a48a-4172-a7fe-c68f56d7c536) - **Yahoo Entertainment**
-7. [Slot says new Gravenberch contract ‘important’ for Liverpool](https://thefootballfaithful.com/slot-says-new-gravenberch-contract-important-for-liverpool/) - **The Football Faithful**
-8. [Hurzeler reveals Arteta talk after criticising Arsenal tactics](https://thefootballfaithful.com/hurzeler-reveals-arteta-talk-after-criticising-arsenal-tactics/) - **The Football Faithful**
-9. [Wrexham celebrity owners on commentary duty to mark five years since takeover](https://abcnews.com/Entertainment/wireStory/wrexham-celebrity-owners-commentary-duty-mark-years-takeover-131030986) - **Abcnews.com**
+1. [Real Madrid set to battle Liverpool in the race to sign talented defender](https://anfieldindex.com/92103/real-madrid-set-to-battle-liverpool-in-the-race-to-sign-talented-defender.html) - **Anfieldindex.com**
+2. [ The 10 craziest moments of the week in the Champions League ](https://onefootball.com/en/news/the-10-craziest-moments-of-the-week-in-the-champions-league-42551081) - **Onefootball.com**
+3. [Moyes defends Arteta from Arsenal playing style critics](https://www.rte.ie/sport/soccer/2026/0313/1563278-moyes-defends-arteta-from-arsenal-playing-style-critics/) - **RTE**
+4. [Report: Newcastle United eyeing move to sign PSG star this summer](https://eplindex.com/143940/report-newcastle-united-eyeing-move-to-sign-psg-star-this-summer.html) - **English Premier League Index - Opta Stats**
+5. [“We’ll see on Tuesday” – Pep Guardiola doubles down on Real Madrid selection ahead of West Ham trip](https://cityxtra.co.uk/43030/well-see-on-tuesday-pep-guardiola-doubles-down-on-real-madrid-selection-ahead-of-west-ham-trip/) - **Cityxtra.co.uk**
+6. [Newcastle United Serious About Inter Milan & Italy Starlet As Arsenal Rumours Played Down](https://sempreinter.com/2026/03/13/newcastle-serious-inter-pio-esposito/) - **SempreInter**
+7. [Pick of the stats: West Bromwich Albion v Hull City](https://www.bbc.com/sport/football/articles/cp32kz5el92o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Pereira on 'spirit', getting points 'everywhere' and facing Fulham](https://www.bbc.com/sport/football/articles/ckg80d9vedyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Everton's Moyes defends 'brilliant' Arsenal amid criticism of their playing style](https://www.channelnewsasia.com/sport/evertons-moyes-defends-brilliant-arsenal-amid-criticism-their-playing-style-5991971) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-03-14 20:41:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-14 21:59:46 (KST) / (하루 100회 제한 준수 중)*
