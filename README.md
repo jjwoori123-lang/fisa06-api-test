@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Indian-owned Sunrisers face backlash after signing Pakistan’s Abrar Ahmed](https://www.aljazeera.com/sports/2026/3/14/indian-owned-sunrisers-face-backlash-after-signing-pakistans-abrar-ahmed) - **Al Jazeera English**
-2. [‘It might sound harsh…’ – Journalist explains why Liverpool starter is now ‘on trial’ at Anfield](https://www.empireofthekop.com/2026/03/14/journalist-explains-why-liverpool-starter-is-now-on-trial-at-anfield/) - **Empire of The Kop**
-3. [West Ham vs Manchester City: Match preview, predicted line-ups, team news and prediction](https://footballtoday.com/2026/03/14/west-ham-vs-manchester-city-match-preview-predicted-line-ups-team-news-and-prediction/) - **Footballtoday.com**
-4. [Antonio Valencia: Former Man United captain to take part in special occasion](https://thepeoplesperson.com/2026/03/14/antonio-valencia-former-man-united-captain-to-take-part-in-special-occasion-307676/) - **The Peoples Person**
-5. [“Fantastic to see” – Carrick celebrates Morgan Rogers’ rise before pivotal United-Villa Premier League duel](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8ea470ee-454a-4bb3-8f00-027a00c273e1) - **Yahoo Entertainment**
-6. [Transfer rumour roundup: Napoli want Hojlund discount; Barcelona keen to nab Neto](https://www.footballmuse.com/features/transfer-rumour-roundup-napoli-want-hojlund-discount-barcelona-keen-to-nab-neto) - **Footballmuse.com**
-7. [Predictions Arsenal’s impending doom seems to have run off course](https://untold-arsenal.com/archives/119892) - **Untold-arsenal.com**
-8. [Barcelona consider 19-year-old defensive talent as transfer priority – report](https://barcauniversal.com/barcelona-consider-19-year-old-defensive-talent-as-transfer-priority-report/) - **Barcauniversal.com**
-9. [FSG wealth changes by £225m as Liverpool owners move on new billionaires list](https://www.empireofthekop.com/2026/03/14/fsg-wealth-changes-by-225m-as-liverpool-owners-move-on-new-billionaires-list/) - **Empire of The Kop**
-10. [Report: West Ham United favourites to sign £12m forward](https://eplindex.com/143981/report-west-ham-united-favourites-to-sign-12m-forward.html) - **English Premier League Index - Opta Stats**
+1. [Manchester United vs Aston Villa: Premier League – teams, start, lineups](https://www.aljazeera.com/sports/2026/3/14/manchester-united-vs-aston-villa-premier-league-teams-start-lineups) - **Al Jazeera English**
+2. [Former Liverpool forward edging closer to replace Arne Slot](https://www.anfieldwatch.co.uk/liverpool-fc/news/former-liverpool-forward-edging-closer-to-replace-arne-slot/) - **Anfieldwatch.co.uk**
+3. [Premier League quiz: Name Championship play-off winners who stayed up](https://www.bbc.com/sport/football/articles/c5ygj30237zo) - **BBC News**
+4. [Ratcliffe grilled on Carrick prospects after 'excellent job' in interim role](https://www.skysports.com/football/news/11095/13519531/sir-jim-ratcliffe-says-michael-carrick-doing-excellent-job-at-manchester-united-but-refuses-to-discuss-chances-of-permanent-job) - **Sky Sports**
+5. [Liverpool injury latest: Alisson Becker, Alexander Isak and more](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7458b80a-4ccf-4a9f-b85a-986520528f43) - **Yahoo Entertainment**
+6. [What's going on with Arsenal youngster Lewis-Skelly?](https://www.bbc.com/sport/football/articles/c4gj7kxny1no) - **BBC News**
+7. [Nick Cushing on Denver Summit: ‘I am hugely ambitious. I’m here to win a championship’](https://sports.yahoo.com/articles/nick-cushing-denver-summit-am-091607428.html) - **Yahoo Entertainment**
+8. [German club opens the door for Arsenal man to return](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b1ed0e7b-5771-44b2-8448-7c64c0e19e45) - **Yahoo Entertainment**
+9. [German club opens the door for Arsenal man to return](https://www.justarsenal.com/german-club-opens-the-door-for-arsenal-man-to-return/411696) - **Just Arsenal News**
+10. [Fabrizio Romano reveals key detail in Reece James’ new Chelsea deal](https://chelsea.news/2026/03/fabrizio-romano-reece-james-chelsea-contract/) - **Chelsea.news**
 
 
 ---
-*최근 업데이트: 2026-03-15 17:56:47 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-15 18:42:31 (KST) / (하루 100회 제한 준수 중)*
