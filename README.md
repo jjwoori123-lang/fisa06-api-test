@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Referee disrupting pre-match huddle is 'disappointing' - Rosenoir](https://www.bbc.com/sport/football/videos/cy4w503pxjxo) - **BBC News**
-2. [Newcastle Midfielder’s Agent Comments On Future of Star](https://eplindex.com/144011/newcastle-midfielders-agent-comments-on-future-of-star.html) - **English Premier League Index - Opta Stats**
-3. [“Not going to win” Redknapp says Dowman won the game for Arsenal](https://www.justarsenal.com/not-going-to-win-redknapp-says-dowman-won-the-game-for-arsenal/411736) - **Just Arsenal News**
-4. ['Incredible' Dowman changed 'unbelievable' game - Arteta](https://www.bbc.com/sport/football/videos/czd8mrp5v64o) - **BBC News**
-5. [Viktor Gyokeres praises Max Dowman after Arsenal teenager breaks Premier League record against Everton](https://footballtoday.com/2026/03/14/viktor-gyokeres-praises-max-dowman-after-arsenal-teenager-breaks-premier-league-record-against-everton/) - **Footballtoday.com**
-6. [Arteta says had gut feeling teenager Dowman would make impact](https://www.channelnewsasia.com/sport/arteta-says-had-gut-feeling-teenager-dowman-would-make-impact-5994086) - **CNA**
-7. [EPL: Arsenal hero Dowman no ‘normal’ 16-year-old, says Arteta](https://punchng.com/epl-arsenal-hero-dowman-no-normal-16-year-old-says-arteta/) - **The Punch**
-8. [Focus on decisions, not huddle, Chelsea's Rosenior tells referee](https://www.channelnewsasia.com/sport/focus-decisions-not-huddle-chelseas-rosenior-tells-referee-5994071) - **CNA**
-9. [Sensational swap deal is now on after latest update](https://www.anfieldwatch.co.uk/liverpool-fc/news/sensational-swap-deal-is-now-on-after-latest-update/) - **Anfieldwatch.co.uk**
-10. [Arsenal defeat 'absolutely cruel' on Everton - Moyes](https://www.bbc.com/sport/football/videos/cjenjk21083o) - **BBC News**
+1. [Silva Gets 7.5, Rodri With 7 | Manchester City Players Rated In Lackluster Draw Vs West Ham United](https://the4thofficial.net/2026/03/silva-gets-7-5-rodri-with-7-manchester-city-players-rated-in-lackluster-draw-vs-west-ham-united/) - **The4thofficial.net**
+2. [Man City 2025/26 Premier League run-in fixtures, schedule, predictions and results in the battle for title](https://www.sportingnews.com/us/soccer/manchester-city/news/man-city-premier-league-run-fixtures-schedule-predictions/4e0474e69725a91a57e747ca) - **Sporting News**
+3. [Record-breaker Dowman scores late as Arsenal beat Everton](https://www.bbc.com/sport/football/videos/cd70wq4q0pjo) - **BBC News**
+4. [Gordon goal gives Newcastle rare win at Chelsea](https://www.bbc.com/sport/football/videos/czj18xgnkyvo) - **BBC News**
+5. [Bournemouth held by struggling Burnley](https://www.bbc.com/sport/football/videos/cnv69023ezyo) - **BBC News**
+6. [Strange Minteh goal enough to give Brighton win over Sunderland](https://www.bbc.com/sport/football/videos/c363y9zzlg2o) - **BBC News**
+7. [‘Very few that can cope with that level of demand’ – Arteta delighted with Dowman impact](https://hayters.com/very-few-that-can-cope-with-that-level-of-demand-arteta-delighted-with-dowman-impact/) - **Hayters.com**
+8. [Manchester City 1 West Ham 1: City player ratings as City drop points at the London Stadium.](https://esteemedkompany.com/2026/03/14/manchester-city-1-west-ham-1-city-player-ratings-as-city-drop-points-at-the-london-stadium/) - **Esteemedkompany.com**
+9. [Christian Pulisic’s Milan contract saga takes new twist with Premier League clubs lurking: Why the Serie A side is holding off on USMNT star’s renewal](https://worldsoccertalk.com/news/christian-pulisics-milan-contract-saga-takes-new-twist-with-premier-league-clubs-lurking-why-the-serie-a-side-is-holding-off-on-deal-extension-for-usmnt-star/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-03-16 06:57:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-16 07:37:21 (KST) / (하루 100회 제한 준수 중)*
