@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Youngest goal scorers in Premier League history as Arsenal's Max Dowman sets new mark (video)](https://www.nbcsports.com/soccer/news/youngest-goal-scorer-in-premier-league-history-video) - **NBCSports.com**
-2. [Arsenal stretch lead with win over Everton as City held by West Ham](https://www.channelnewsasia.com/sport/arsenal-stretch-lead-win-over-everton-city-held-west-ham-5994031) - **CNA**
-3. [Dowman makes history as Arsenal stretch Premier League lead with 2-0 win](https://www.channelnewsasia.com/sport/dowman-makes-history-arsenal-stretch-premier-league-lead-2-0-win-5994031) - **CNA**
-4. [Arsenal 2-0 Everton, Max Dowman Makes Premier League History at Emirates Stadium](https://eplindex.com/144017/arsenal-2-0-everton-max-dowman-makes-premier-league-history-at-emirates-stadium.html) - **English Premier League Index - Opta Stats**
-5. [Quiz: Who joins Dowman as Premier League's 10 youngest scorers?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7984ec71-6ce3-4b6c-a312-e79c28d43989) - **Yahoo Entertainment**
-6. [Quiz: Who does Dowman join as Premier League's 10 youngest scorers?](https://www.bbc.com/sport/football/articles/c4g51e953dvo) - **BBC News**
-7. [Chelsea Ready To Make Move For Ligue 1 Argentine Star](https://eplindex.com/144006/chelsea-ready-to-make-move-for-ligue-1-argentine-star.html) - **English Premier League Index - Opta Stats**
-8. [A star is born - the day Dowman announced himself to the world](https://www.skysports.com/football/news/11095/13519872/max-dowman-arsenals-16-year-old-wonderkid-announces-himself-to-the-world-with-superb-cameo-against-everton) - **Sky Sports**
-9. ['Nothing disrespectful!' Rosenior fumes at ref Tierney over strange huddle incident](https://www.skysports.com/football/video/33727/13519871/liam-rosenior-there-is-nothing-with-that-huddle-that-is-disrespectful-to-the-opposition) - **Sky Sports**
-10. [“We’re in a good position” Gyokeres reacts to Arsenal win over Everton](https://www.justarsenal.com/were-in-a-good-position-gyokeres-reacts-to-arsenal-win-over-everton/411735) - **Just Arsenal News**
+1. [Focus on decisions, not huddle, Chelsea's Rosenior tells referee](https://www.channelnewsasia.com/sport/focus-decisions-not-huddle-chelseas-rosenior-tells-referee-5994071) - **CNA**
+2. [Sensational swap deal is now on after latest update](https://www.anfieldwatch.co.uk/liverpool-fc/news/sensational-swap-deal-is-now-on-after-latest-update/) - **Anfieldwatch.co.uk**
+3. [Arsenal defeat 'absolutely cruel' on Everton - Moyes](https://www.bbc.com/sport/football/videos/cjenjk21083o) - **BBC News**
+4. [Arsenal stays in control of title race as Dowman become youngest ever Premier League scorer](https://japantoday.com/category/sports/american-owned-burnley-held-to-draw-and-running-out-of-games-to-avoid-relegation-from-premier-league) - **Japan Today**
+5. [Was that Arsenal's season-defining moment? Where's Chelsea's Plan B?](https://www.skysports.com/football/news/11668/13518649/max-dowman-may-have-delivered-arsenals-season-defining-moment-but-wheres-chelseas-plan-b-premier-league-hits-and-misses) - **Sky Sports**
+6. [Highlights: Arsenal 2-0 Everton](http://www.arsenal.com/news/highlights-arsenal-2-0-everton) - **Arsenal.com**
+7. [Real open to Camavinga offers - Sunday's gossip](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_517e3ec2-b451-4b9d-b64d-37b22958093b) - **Yahoo Entertainment**
+8. [Real open to Camavinga offers - Sunday's gossip](https://www.bbc.com/sport/football/articles/c99jzrzmz08o) - **BBC News**
+9. [Watch: MS Dhoni, Ruturaj Gaikwad blast bowlers; video goes viral ahead of IPL 2026](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3c44185a-8a0f-4615-acd1-ba6f6d529738) - **Yahoo Entertainment**
+10. [Referee finds himself in middle of Chelsea's pre-match huddle in Premier League](https://sports.yahoo.com/articles/referee-finds-himself-middle-chelseas-212242447.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-16 05:59:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-16 06:37:24 (KST) / (하루 100회 제한 준수 중)*
