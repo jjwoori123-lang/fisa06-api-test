@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Arsenal 2-0 Everton](http://www.arsenal.com/fixture/arsenal/2026-Mar-14/arsenal-2-0-everton-match-report) - **Arsenal.com**
-2. [Late drama! Gyokeres gets the breakthrough after Dowman cross!](https://www.skysports.com/football/video/12606/13519828/goal-v-gyokeres-89-arsenal-1-0-everton) - **Sky Sports**
-3. [EPL: Liverpool extend goal keeper Becker’s deal to June 2027](https://punchng.com/epl-liverpool-extend-goal-keeper-beckers-deal-to-june-2027/) - **The Punch**
-4. [Mason Mount is expected to return to the Manchester United squad tomorrow](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_37a0851e-abde-4860-bbd3-f3a191ec0a5b) - **Yahoo Entertainment**
-5. [John Stones and Savinho absent from Manchester City squad against West Ham](https://cityxtra.co.uk/43092/john-stones-and-savinho-absent-from-manchester-city-squad-against-west-ham/) - **Cityxtra.co.uk**
-6. [Camogie League round-up: Waterford book berth in 1A final](https://www.rte.ie/sport/camogie/2026/0314/1563453-camogie-league-round-up-waterford-book-berth-in-1a-final/) - **RTE**
-7. ['Something I've never seen in 50 years of watching football'](https://www.bbc.com/sport/articles/c309eq98q5do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. ['Something I've never seen in 50 years of watching football'](https://www.bbc.com/sport/articles/c309eq98q5do) - **BBC News**
-9. [ BREAKING: West Ham and Man City name XIs for PL bout](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d4fbf0d3-7f77-4d42-9de2-c141549f99fc) - **Yahoo Entertainment**
+1. [Max Dowman, 16, becomes youngest Premier League scorer with remarkable goal for Arsenal](https://sports.yahoo.com/articles/max-dowman-16-becomes-youngest-195451050.html) - **Yahoo Entertainment**
+2. [Who is the youngest Premier League goal scorer? Max Dowman sets new all-time EPL record with Arsenal](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6f76cf24-8e13-46b6-9506-2078653b63b7) - **Yahoo Entertainment**
+3. [At just 16, this Premier League wonderkid is already making history ](https://onefootball.com/en/news/at-just-16-this-premier-league-wonderkid-is-already-making-history-42557946) - **Onefootball.com**
+4. [Arsenal youngster breaks Premier League record](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_291baef1-7402-4765-992b-7ee49358e0fd) - **Yahoo Entertainment**
+5. [Arsenal leave it late to beat Everton as Max Dowman becomes youngest Premier League goalscorer](https://www.independent.ie/sport/soccer/premier-league/arsenal-leave-it-late-to-beat-everton-as-max-dowman-becomes-youngest-premier-league-goalscorer/a361934435.html) - **Independent.ie**
+6. [Late SCENES! Dowman steals the show as Arsenal go 10 clear at the top!](https://www.skysports.com/football/video/12606/13519850/arsenal-2-0-everton-premier-league-highlights) - **Sky Sports**
+7. [Dowman, 16, makes Premier League history, gives Arsenal 10-point lead](https://sports.yahoo.com/articles/dowman-16-makes-premier-league-194732914.html) - **Yahoo Entertainment**
+8. [Dowman makes history to seal vital Arsenal win over Everton](https://www.channelnewsasia.com/sport/dowman-makes-history-seal-vital-arsenal-win-over-everton-5993966) - **CNA**
+9. [Player ratings as Gordon fires Newcastle past lacklustre Chelsea](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3de500e6-28c9-46e2-b3f7-ac2a3df706b7) - **Yahoo Entertainment**
+10. [Manchester United Are Eyeing A Move For This La Liga Winger: Good Option For Carrick?](https://the4thofficial.net/2026/03/manchester-united-are-eyeing-a-move-for-this-la-liga-winger-good-option-for-carrick/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-03-16 04:30:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-16 04:54:58 (KST) / (하루 100회 제한 준수 중)*
