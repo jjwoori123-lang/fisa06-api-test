@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle analysis: Stamford Bridge hoodoo ended by committed display](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e38ce972-4e3d-43ba-82bb-292d9ed15a6c) - **Yahoo Entertainment**
-2. [Team news: Havertz starts against Everton - Arsenal.com](https://slashdot.org/firehose.pl?op=view&amp;id=180987272) - **Slashdot.org**
-3. ['We wanted to respect the ball' - Rosenior blasts ref after bizarre huddle incident](https://www.skysports.com/football/news/11095/13519869/chelsea-huddle-blues-boss-liam-rosenior-blasts-referee-paul-tierney-over-bizarre-incident) - **Sky Sports**
-4. [Arsenal beat Everton as Dowman makes Premier League history](https://www.aljazeera.com/sports/2026/3/14/arsenal-beat-everton-as-dowman-makes-premier-league-history) - **Al Jazeera English**
-5. [‘Magical’ Max Dowman becomes youngest ever Premier League goalscorer in crunch Arsenal win over Everton](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bd97cc4b-5b32-4c60-a94f-2e43f40afc8a) - **Yahoo Entertainment**
-6. [Gordon fires Newcastle past Chelsea to leave top-four hopes in jeopardy](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fb678315-befd-4f2b-8528-3fe7f1d509df) - **Yahoo Entertainment**
-7. [Max Dowman: Arsenal's and PL's youngest scorer](http://www.arsenal.com/news/max-dowman-arsenals-and-pls-youngest-scorer) - **Arsenal.com**
-8. [Arsenal 2-0 Everton: What Moyes said](https://www.bbc.com/sport/football/articles/cx24ve4npg9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Newcastle dampen Chelsea’s top 4 hopes with Gordon’s goal](https://punchng.com/newcastle-dampen-chelseas-top-4-hopes-with-gordons-goal/) - **The Punch**
+1. [Youngest goal scorers in Premier League history as Arsenal's Max Dowman sets new mark (video)](https://www.nbcsports.com/soccer/news/youngest-goal-scorer-in-premier-league-history-video) - **NBCSports.com**
+2. [Arsenal stretch lead with win over Everton as City held by West Ham](https://www.channelnewsasia.com/sport/arsenal-stretch-lead-win-over-everton-city-held-west-ham-5994031) - **CNA**
+3. [Dowman makes history as Arsenal stretch Premier League lead with 2-0 win](https://www.channelnewsasia.com/sport/dowman-makes-history-arsenal-stretch-premier-league-lead-2-0-win-5994031) - **CNA**
+4. [Arsenal 2-0 Everton, Max Dowman Makes Premier League History at Emirates Stadium](https://eplindex.com/144017/arsenal-2-0-everton-max-dowman-makes-premier-league-history-at-emirates-stadium.html) - **English Premier League Index - Opta Stats**
+5. [Quiz: Who joins Dowman as Premier League's 10 youngest scorers?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7984ec71-6ce3-4b6c-a312-e79c28d43989) - **Yahoo Entertainment**
+6. [Quiz: Who does Dowman join as Premier League's 10 youngest scorers?](https://www.bbc.com/sport/football/articles/c4g51e953dvo) - **BBC News**
+7. [Chelsea Ready To Make Move For Ligue 1 Argentine Star](https://eplindex.com/144006/chelsea-ready-to-make-move-for-ligue-1-argentine-star.html) - **English Premier League Index - Opta Stats**
+8. [A star is born - the day Dowman announced himself to the world](https://www.skysports.com/football/news/11095/13519872/max-dowman-arsenals-16-year-old-wonderkid-announces-himself-to-the-world-with-superb-cameo-against-everton) - **Sky Sports**
+9. ['Nothing disrespectful!' Rosenior fumes at ref Tierney over strange huddle incident](https://www.skysports.com/football/video/33727/13519871/liam-rosenior-there-is-nothing-with-that-huddle-that-is-disrespectful-to-the-opposition) - **Sky Sports**
+10. [“We’re in a good position” Gyokeres reacts to Arsenal win over Everton](https://www.justarsenal.com/were-in-a-good-position-gyokeres-reacts-to-arsenal-win-over-everton/411735) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-03-16 05:34:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-16 05:59:07 (KST) / (하루 100회 제한 준수 중)*
