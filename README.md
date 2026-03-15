@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Where to watch Chelsea vs. Newcastle live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_57f2036f-bfd9-4ba6-9bb7-50daf57b8240) - **Yahoo Entertainment**
-2. [EPL GW30: Team news, injury updates and live chat](https://www.nevermanagealone.com/playerpicks/15720/epl-gw30-team-news-injury-updates-and-live-chat) - **Nevermanagealone.com**
-3. [Brentford, the World Cup and an itch to return to Gaelic football](https://www.bbc.com/sport/football/articles/ckgldyd23j3o) - **BBC News**
-4. [Atletico Madrid vs Getafe – Match preview and team news](https://thefootballfaithful.com/atletico-madrid-vs-getafe-match-preview-and-team-news/) - **The Football Faithful**
-5. [Chelsea vs Newcastle United – Predicted lineup and team news](https://thefootballfaithful.com/chelsea-vs-newcastle-united-predicted-lineup-and-team-news/) - **The Football Faithful**
-6. [Everton XI vs Arsenal – Predicted lineup and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_23ebfb6c-b56d-4ef5-bd05-5b62b9843847) - **Yahoo Entertainment**
-7. [Council staff suspended over alleged pitch watering at Shamrock Rovers ground](https://www.irishtimes.com/sport/2026/03/14/council-suspends-three-staff-over-complaint-about-watering-shamrock-rovers-pitch-after-heavy-rain/) - **The Irish Times**
-8. [Odegaard on his fitness, Dixon's debut and Everton](http://www.arsenal.com/news/odegaard-his-fitness-dixons-debut-and-everton) - **Arsenal.com**
-9. [Man City’s Rodri dilemma: Why midfield maestro is irreplaceable despite injury concerns](https://footballtoday.com/2026/03/14/man-citys-rodri-dilemma-why-midfield-maestro-is-irreplaceable-despite-injury-concerns/) - **Footballtoday.com**
-10. [Harry Redknapp rues fading Gold Cup contender but says he’s ready for Spurs call](https://www.independent.ie/sport/horse-racing/harry-redknapp-rues-fading-gold-cup-contender-but-says-hes-ready-for-spurs-call/a143168330.html) - **Independent.ie**
+1. [Marc Skinner provides big injury boost ahead of historic final](https://thepeoplesperson.com/2026/03/14/marc-skinner-provides-big-injury-boost-ahead-of-historic-final-307672/) - **The Peoples Person**
+2. [Where to watch Arsenal vs. Everton live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-arsenal-vs-everton-live-stream-tv-channel-time-premier-league/0e98bfbf107debb7c039247a) - **Sporting News**
+3. [ESPN: INEOS eyeing Premier League duo from rival club who’ll try to make it ‘impossible’ for Man Utd to sign both](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bd258a86-3ef0-4217-9d8b-ad4544e82622) - **Yahoo Entertainment**
+4. [Manchester City vs West Ham: Latest City injury news and predicted City starting XI](https://esteemedkompany.com/2026/03/14/manchester-city-vs-west-ham-latest-city-injury-news-and-predicted-city-starting-xi/) - **Esteemedkompany.com**
+5. [Two things need to occur for Manchester City to get their star man back on track](https://esteemedkompany.com/2026/03/14/two-things-need-to-occur-for-manchester-city-to-get-their-star-man-back-on-track/) - **Esteemedkompany.com**
+6. [Liam Rosenior confirms Chelsea injury boosts ahead of Newcastle United clash](https://eplindex.com/143979/liam-rosenior-confirms-chelsea-injury-boosts-ahead-of-newcastle-united-clash.html) - **English Premier League Index - Opta Stats**
+7. [Man United vs Aston Villa: Three storylines to ponder](https://thepeoplesperson.com/2026/03/14/man-united-vs-aston-villa-three-storylines-to-ponder-307669/) - **The Peoples Person**
+8. [Where to watch Chelsea vs. Newcastle live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_57f2036f-bfd9-4ba6-9bb7-50daf57b8240) - **Yahoo Entertainment**
+9. [EPL GW30: Team news, injury updates and live chat](https://www.nevermanagealone.com/playerpicks/15720/epl-gw30-team-news-injury-updates-and-live-chat) - **Nevermanagealone.com**
+10. [Brentford, the World Cup and an itch to return to Gaelic football](https://www.bbc.com/sport/football/articles/ckgldyd23j3o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-15 15:36:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-15 16:32:32 (KST) / (하루 100회 제한 준수 중)*
