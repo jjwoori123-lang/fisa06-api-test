@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Predictions Arsenal’s impending doom seems to have run off course](https://untold-arsenal.com/archives/119892) - **Untold-arsenal.com**
-2. [Barcelona consider 19-year-old defensive talent as transfer priority – report](https://barcauniversal.com/barcelona-consider-19-year-old-defensive-talent-as-transfer-priority-report/) - **Barcauniversal.com**
-3. [FSG wealth changes by £225m as Liverpool owners move on new billionaires list](https://www.empireofthekop.com/2026/03/14/fsg-wealth-changes-by-225m-as-liverpool-owners-move-on-new-billionaires-list/) - **Empire of The Kop**
-4. [Report: West Ham United favourites to sign £12m forward](https://eplindex.com/143981/report-west-ham-united-favourites-to-sign-12m-forward.html) - **English Premier League Index - Opta Stats**
-5. [Is West Ham vs Manchester City on TV? Channel, kick-off time and how to watch Premier League clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e8f71abb-9c5f-4de8-b2a6-29a0029bb8c1) - **Yahoo Entertainment**
-6. [Is Arsenal vs Everton on TV? Channel, kick-off time and how to watch](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_21a1f0b7-d73d-4d76-97d3-0948a606bdf9) - **Yahoo Entertainment**
-7. [Marc Skinner provides big injury boost ahead of historic final](https://thepeoplesperson.com/2026/03/14/marc-skinner-provides-big-injury-boost-ahead-of-historic-final-307672/) - **The Peoples Person**
-8. [Where to watch Arsenal vs. Everton live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-arsenal-vs-everton-live-stream-tv-channel-time-premier-league/0e98bfbf107debb7c039247a) - **Sporting News**
-9. [ESPN: INEOS eyeing Premier League duo from rival club who’ll try to make it ‘impossible’ for Man Utd to sign both](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bd258a86-3ef0-4217-9d8b-ad4544e82622) - **Yahoo Entertainment**
+1. [Indian-owned Sunrisers face backlash after signing Pakistan’s Abrar Ahmed](https://www.aljazeera.com/sports/2026/3/14/indian-owned-sunrisers-face-backlash-after-signing-pakistans-abrar-ahmed) - **Al Jazeera English**
+2. [‘It might sound harsh…’ – Journalist explains why Liverpool starter is now ‘on trial’ at Anfield](https://www.empireofthekop.com/2026/03/14/journalist-explains-why-liverpool-starter-is-now-on-trial-at-anfield/) - **Empire of The Kop**
+3. [West Ham vs Manchester City: Match preview, predicted line-ups, team news and prediction](https://footballtoday.com/2026/03/14/west-ham-vs-manchester-city-match-preview-predicted-line-ups-team-news-and-prediction/) - **Footballtoday.com**
+4. [Antonio Valencia: Former Man United captain to take part in special occasion](https://thepeoplesperson.com/2026/03/14/antonio-valencia-former-man-united-captain-to-take-part-in-special-occasion-307676/) - **The Peoples Person**
+5. [“Fantastic to see” – Carrick celebrates Morgan Rogers’ rise before pivotal United-Villa Premier League duel](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8ea470ee-454a-4bb3-8f00-027a00c273e1) - **Yahoo Entertainment**
+6. [Transfer rumour roundup: Napoli want Hojlund discount; Barcelona keen to nab Neto](https://www.footballmuse.com/features/transfer-rumour-roundup-napoli-want-hojlund-discount-barcelona-keen-to-nab-neto) - **Footballmuse.com**
+7. [Predictions Arsenal’s impending doom seems to have run off course](https://untold-arsenal.com/archives/119892) - **Untold-arsenal.com**
+8. [Barcelona consider 19-year-old defensive talent as transfer priority – report](https://barcauniversal.com/barcelona-consider-19-year-old-defensive-talent-as-transfer-priority-report/) - **Barcauniversal.com**
+9. [FSG wealth changes by £225m as Liverpool owners move on new billionaires list](https://www.empireofthekop.com/2026/03/14/fsg-wealth-changes-by-225m-as-liverpool-owners-move-on-new-billionaires-list/) - **Empire of The Kop**
+10. [Report: West Ham United favourites to sign £12m forward](https://eplindex.com/143981/report-west-ham-united-favourites-to-sign-12m-forward.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-03-15 17:02:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-15 17:56:47 (KST) / (하루 100회 제한 준수 중)*
