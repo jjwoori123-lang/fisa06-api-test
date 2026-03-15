@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [LIVE – Chelsea v Newcastle: Commentary, updates, goals and stats as Blues eye top-four return](https://www.101greatgoals.com/football/premier-league/chelsea-v-newcastle-commentary-live-updates-goals-stats-stream/) - **101 Great Goals**
-2. [Brighton inflict Sunderland's third home defeat in a row to go 10th](https://www.skysports.com/football/news/11661/13518601/sunderland-0-1-brighton-yankuba-minteh-goal-sends-fabian-hurzelers-side-into-premier-league-top-half) - **Sky Sports**
-3. [LIVE – Arsenal v Everton: Commentary, updates goals and stats as leaders look to extend advantage](https://www.101greatgoals.com/football/premier-league/arsenal-v-everton-commentary-live-updates-goals-stats-stream/) - **101 Great Goals**
-4. [Minteh earns Seagulls all three points at Sunderland](https://www.playmakerstats.com/news/minteh-earns-seagulls-all-three-points-at-sunderland/1075198) - **Playmakerstats.com**
-5. [Burnley x Bournemouth - Highlights, Summary and Match Report](https://www.playmakerstats.com/news/burnley-x-bournemouth-highlights-summary-and-match-report/1075199) - **Playmakerstats.com**
-6. [Report: Man United are leading the race to sign Premier League midfielder](https://eplindex.com/144000/report-man-united-are-leading-the-race-to-sign-premier-league-midfielder.html) - **English Premier League Index - Opta Stats**
-7. [How to watch France vs England: Free Streams & TV Info as Les Bleus look to secure Six Nations](https://www.techradar.com/how-to-watch/rugby/france-vs-england-six-nations-2026-free) - **TechRadar**
-8. [Why Italy star Tonali will not play in Chelsea vs. Newcastle United](https://football-italia.net/why-italy-tonali-not-play-chelsea-newcastle/) - **Football Italia**
-9. [Ryan Reynolds narrated Wrexham's Welsh Derby triumph live and dreams of the Premier League](https://www.marca.com/en/football/premier-league/2026/03/14/69b589f2e2704e941a8b456e.html) - **Marca**
-10. [Tyler Adams not risked in Bournemouth’s trip to Burnley](https://sbisoccer.com/2026/03/tyler-adams-not-risked-in-bournemouths-trip-to-burnley) - **Sbisoccer.com**
+1. ['They know where I am' - could Redknapp return to manage Spurs?](https://www.bbc.com/sport/football/articles/cj6dj53drdgo) - **BBC News**
+2. [Soccer player gets red card for grabbing La Liga opponent's genitals](https://www.usatoday.com/story/sports/soccer/2026/03/14/abdel-abqar-red-card-for-grabbing-sorloth-genitals-getafe-vs-atletico/89154615007/) - **USA Today**
+3. [EPL: Brighton win 1-0 away at Sunderland, Bournemouth held by Burnley](https://punchng.com/?p=2089924) - **The Punch**
+4. [Time running out for Burnley after Bournemouth draw](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3b732787-45ef-479c-9997-8f775c4b3941) - **Yahoo Entertainment**
+5. [Sunderland 0-1 Brighton: What Hurzeler said](https://www.bbc.com/sport/football/articles/cx2g98kvrg9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Burnley 0-0 Bournemouth: What Iraola said](https://www.bbc.com/sport/football/articles/c3ewlv3v5q5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Atletico Madrid director clears the air on Barcelona target’s future – ‘Don’t see any story here’](https://barcauniversal.com/atletico-madrid-director-clears-the-air-on-barcelona-targets-future-dont-see-any-story-here/) - **Barcauniversal.com**
+8. [Opta delivers huge Liverpool top-five verdict despite awful week for English clubs](https://www.empireofthekop.com/2026/03/14/opta-delivers-huge-liverpool-top-five-verdict-despite-awful-week-for-english-clubs/) - **Empire of The Kop**
+9. [Andy’s Player Ratings: Sunderland 0 – 1 Brighton – Black Cats Fall To Third Successive Home Defeat](https://rokerreport.sbnation.com/report-amp-player-ratings/130816/andys-player-ratings-sunderland-0-1-brighton-black-cats-fall-to-third-successive-home-defeat) - **SB Nation**
+10. [Minteh scores from INCREDIBLE angle as Brighton edge Sunderland](https://www.skysports.com/football/video/12606/13519724/sunderland-0-1-brighton-premier-league-highlights) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-03-16 02:01:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-16 02:47:43 (KST) / (하루 100회 제한 준수 중)*
