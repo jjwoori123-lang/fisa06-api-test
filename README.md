@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man City held by West Ham who move out of relegation zone](https://www.bbc.com/sport/football/videos/cpv83g7xy8xo) - **BBC News**
-2. [“He changed the game” Arteta admits Dowman was Arsenal’s game-changer](https://www.justarsenal.com/he-changed-the-game-arteta-admits-dowman-was-arsenals-game-changer/411743) - **Just Arsenal News**
-3. [Newcastle Ready To Make Bid For Star Midfielder Return](https://eplindex.com/144010/newcastle-ready-to-make-bid-for-star-midfielder-return.html) - **English Premier League Index - Opta Stats**
-4. [Navy warships keep watch on India-bound vessels in Hormuz](https://timesofindia.indiatimes.com/india/navy-warships-keep-watch-on-india-bound-vessels-in-hormuz/articleshow/129583293.cms) - **The Times of India**
-5. [Govt steps up building fertiliser buffer, turns to 'spot buying'](https://timesofindia.indiatimes.com/india/govt-steps-up-building-fertiliser-buffer-turns-to-spot-buying/articleshow/129583279.cms) - **The Times of India**
-6. [This feels like the night Arsenal won the Premier League title](https://www.nbcsports.com/soccer/news/this-feels-like-the-night-arsenal-won-the-premier-league-title) - **NBCSports.com**
-7. [West Ham dent City’s title hopes with a 1-1 draw to move out of the drop zone](https://footballtoday.com/2026/03/14/west-ham-dent-citys-title-hopes-with-a-1-1-draw-to-move-out-of-the-drop-zone/) - **Footballtoday.com**
-8. [Man City analysis: Lack of cutting edge as Haaland quiet again](https://www.bbc.com/sport/football/articles/cg7exjgd1pjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Man City held at West Ham to lose ground on Premier League leaders Arsenal](https://www.aljazeera.com/sports/2026/3/14/man-city-held-at-west-ham-to-lose-ground-on-premier-league-leaders-arsenal) - **Al Jazeera English**
-10. [Slot: “Expectations Are Always Sky-High At [Liverpool”](https://liverpooloffside.sbnation.com/english-premier-league/79165/slot-expectations-liverpool-fc-anfield-premier-league-champions-league) - **SB Nation**
+1. [Indian civet killed in hit-and-run mishap on Mumbai-Goa highway](https://timesofindia.indiatimes.com/city/mumbai/indian-civet-killed-in-hit-and-run-mishap-on-mumbai-goa-highway/articleshow/129580341.cms) - **The Times of India**
+2. [We've got a special player on our hands with Dowman - Hart](https://www.bbc.com/sport/football/videos/ckgl549lv13o) - **BBC News**
+3. ['I'm as confused as Cole Palmer' - huddle incident baffles MOTD pundits](https://www.bbc.com/sport/football/videos/c3wlvn7ewgdo) - **BBC News**
+4. [Madhu Malhotra, who acted in 'Hero', 'Satte Pe Satta', dies](https://timesofindia.indiatimes.com/india/madhu-malhotra-who-acted-in-hero-satte-pe-satta-dies/articleshow/129583381.cms) - **The Times of India**
+5. [West Ham 1-1 Man City: What Nuno said](https://www.bbc.com/sport/football/articles/cn713d7epvgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Faulty I-T notices trigger confusion, dept says ignore](https://timesofindia.indiatimes.com/india/faulty-i-t-notices-trigger-confusion-dept-says-ignore/articleshow/129583371.cms) - **The Times of India**
+7. [West Ham were 'heroic' to earn point against Man City - Nuno](https://www.bbc.com/sport/football/videos/cn8znxlv2wyo) - **BBC News**
+8. [10.5 ft long Indian rock python rescued from scrap shop in Uran, Navi Mumbai](https://timesofindia.indiatimes.com/city/mumbai/10-5-ft-long-indian-rock-python-rescued-from-scrap-shop-in-uran-navi-mumbai/articleshow/129580289.cms) - **The Times of India**
+9. [NCP (SP) MLA Jitendra Awhad questions infra spending in Thane, Maharashtra](https://timesofindia.indiatimes.com/city/mumbai/ncp-sp-mla-jitendra-awhad-questions-infra-spending-in-thane-maharashtra/articleshow/129580279.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-03-16 08:00:39 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-16 08:46:45 (KST) / (하루 100회 제한 준수 중)*
