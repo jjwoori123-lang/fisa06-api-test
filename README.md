@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Trevoh Chalobah insists Chelsea will be ready for UCL last-16 second leg against Paris Saint-Germain](https://sportsview.co.uk/2026/03/trevoh-chalobah-insists-chelsea-will-be-ready-for-ucl-last-16-second-leg-against-paris-saint-germain?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=trevoh-chalobah-insists-chelsea-will-be-ready-for-ucl-last-16-second-leg-against-paris-saint-germain) - **Sportsview.co.uk**
-2. [Chelsea 0-1 Newcaslte — Match Report: Posh Club Ran Out of London](https://cominghomenewcastle.sbnation.com/newcastle-united-match-reports/20991/newcastle-2-3-everton-match-report-sickening-outing) - **SB Nation**
-3. [Premier League Soccer: Stream Liverpool vs. Spurs Live From Anywhere](https://www.cnet.com/tech/services-and-software/premier-league-soccer-stream-liverpool-vs-spurs-live-from-anywhere/) - **CNET**
-4. [Arsenal may have to break Isak record to sign La Liga striker](https://www.justarsenal.com/arsenal-may-have-to-break-isak-record-to-sign-la-liga-striker/411754) - **Just Arsenal News**
-5. [LIVE – Manchester United v Aston Villa: Commentary, updates, goals and stats as Carrick’s men aim to solidify third place](https://www.101greatgoals.com/football/premier-league/manchester-united-v-aston-villa-commentary-live-updates-goals-stats-stream/) - **101 Great Goals**
-6. [How to watch Nottingham Forest vs Fulham live: Stream link, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/nottingham-forest-vs-fulham-live-updates-score-goals-highlights-stats-premier-league-matchweek-30) - **NBCSports.com**
-7. [Dowman shares his reaction to his 1st Arsenal goal](https://dailycannon.com/2026/03/dowman-first-arsenal-goal-reaction/) - **Dailycannon.com**
-8. [Liverpool vs. Tottenham live stream, how to watch: Spurs in crisis mode as daunting trip to Anfield awaits](https://www.cbssports.com/soccer/news/liverpool-vs-tottenham-live-stream-how-to-watch-preview-premier-league-relegation/) - **CBS Sports**
-9. [Crystal Palace v Leeds United: Confirmed line-ups as Henderson misses out](https://www.101greatgoals.com/football/premier-league/crystal-palace-v-leeds-united-confirmed-line-ups-as-johnson-starts/) - **101 Great Goals**
-10. [Nottingham Forest v Fulham: Confirmed line-ups and team news](https://www.101greatgoals.com/news/nottingham-forest-v-fulham-confirmed-line-ups-and-team-news/) - **101 Great Goals**
+1. [Watch: Casemiro scores a fine header to put Man United ahead vs Aston Villa](https://strettynews.com/2026/03/15/watch-casemiro-goal-man-united-aston-villa/) - **Strettynews.com**
+2. [What next for Dowman - how do you look after a precious talent?](https://www.bbc.com/sport/football/articles/cdjmvkzge3jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [ Liverpool and Tottenham name starting XIs](https://onefootball.com/en/news/liverpool-and-tottenham-name-starting-xis-42561993) - **Onefootball.com**
+4. [Liverpool vs Tottenham: Line-ups confirmed for crucial clash at Anfield](https://www.101greatgoals.com/football/premier-league/liverpool-vs-tottenham-line-ups-confirmed-for-crucial-clash-at-anfield/) - **101 Great Goals**
+5. [(VIDEO) Barcelona's Xavi Espart Makes Dream Champions League Debut, Eyes First Start Amid Injury Crisis](https://www.ibtimes.com.au/video-barcelonas-xavi-espart-makes-dream-champions-league-debut-eyes-first-start-amid-injury-1863386) - **Ibtimes.com.au**
+6. [What next for Dowman - how do you look after a precious talent?](https://www.bbc.com/sport/football/articles/cdjmvkzge3jo) - **BBC News**
+7. [Atletico Madrid sweating on fitness of star player ahead of Tottenham Hotspur showdown](https://www.football-espana.net/2026/03/15/atletico-madrid-fitness-star-player-spurs) - **Football Espana**
+8. [Is Christian Pulisic playing today? Predicted lineups for Lazio vs. AC Milan in Serie A clash](https://worldsoccertalk.com/news/is-christian-pulisic-playing-today-predicted-lineups-for-lazio-vs-ac-milan-in-serie-a-clash/) - **Worldsoccertalk.com**
+9. [De Zerbi one of the leading names for Tottenham as Italian coach keeps waiting](https://football-italia.net/de-zerbi-1-leading-names-tottenham-waiting/) - **Football Italia**
+10. [Liverpool vs Tottenham Hotspur LIVE updates, watch live, score, analysis, highlights](https://www.nbcsports.com/soccer/news/liverpool-vs-tottenham-hotspur-live-updates-score-highlights-stats-watch) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-03-16 23:03:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-17 00:34:19 (KST) / (하루 100회 제한 준수 중)*
