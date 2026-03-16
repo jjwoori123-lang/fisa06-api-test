@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man United predicted XI vs. Aston Villa as Carrick makes big Amad decision](https://thepeoplesperson.com/2026/03/15/man-united-predicted-xi-vs-aston-villa-as-carrick-makes-big-amad-decision-307694/) - **The Peoples Person**
-2. [Matchday Musings: Sunderland Look Short Of Brighton’s Level…For Now](https://rokerreport.sbnation.com/opinion/130930/matchday-musings-sunderland-look-short-of-brightons-levelfor-now) - **SB Nation**
-3. [Talking Points: Brighton Cash In As Sunderland Stumble Again](https://rokerreport.sbnation.com/opinion/130828/talking-points-brighton-cash-in-as-sunderland-stumble-again) - **SB Nation**
-4. [Bay Area sports calendar, March 15-16](https://www.sfchronicle.com/sports/article/sportscal-22074179.php) - **San Francisco Chronicle**
-5. [History at Emirates: Dowman becomes youngest EPL scorer](https://www.rediff.com/sports/report/history-at-emirates-dowman-16-becomes-youngest-epl-scorer/20260315.htm) - **Rediff.com**
-6. [EPL PIX: Arsenal stretch lead as City held by West Ham](https://www.rediff.com/sports/report/epl-pix-arsenal-stretch-lead-as-city-held-by-west-ham/20260315.htm) - **Rediff.com**
-7. [Max Dowman, Arsenal’s 16-year-old school boy, shatters Premier League history with goal against Everton](https://indianexpress.com/article/sports/football/max-dowman-arsenal-16-year-old-shatters-premier-league-history-10582569/) - **The Indian Express**
-8. [OPEN THREAD — Rapid Reactions: 16 Mar. 2026](https://www.managingmadrid.com/general/105253/open-thread-rapid-reactions-16-mar-2026) - **Managing Madrid**
-9. [Analysis: West Ham 1-1 Man City](https://www.bbc.com/sport/football/articles/cx283nnyp2zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Crystal Palace predicted XI vs Leeds: Eagles seek revenge after Elland Road thrashing](https://sportsview.co.uk/2026/03/crystal-palace-predicted-xi-vs-leeds-eagles-seek-revenge-after-elland-road-thrashing?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=crystal-palace-predicted-xi-vs-leeds-eagles-seek-revenge-after-elland-road-thrashing) - **Sportsview.co.uk**
+2. [Tottenham predicted XI vs Liverpool: Injury-hit Spurs face daunting Anfield trip](https://sportsview.co.uk/2026/03/tottenham-predicted-xi-vs-liverpool-injury-hit-spurs-face-daunting-anfield-trip?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-predicted-xi-vs-liverpool-injury-hit-spurs-face-daunting-anfield-trip) - **Sportsview.co.uk**
+3. [Leeds United XI vs Crystal Palace – Predicted lineup and team news](https://thefootballfaithful.com/leeds-united-xi-vs-crystal-palace-predicted-lineup-and-team-news/) - **The Football Faithful**
+4. [Nottingham Forest vs Fulham – Predicted lineup and team news](https://thefootballfaithful.com/nottingham-forest-vs-fulham-predicted-lineup-and-team-news/) - **The Football Faithful**
+5. [Nottingham Forest vs Fulham –Match preview and team news](https://thefootballfaithful.com/nottingham-forest-vs-fulham-match-preview-and-team-news/) - **The Football Faithful**
+6. [Fulham XI vs Nottingham Forest – Predicted lineup and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c6d97c42-6fc9-474f-9e45-8c6aa467ef67) - **Yahoo Entertainment**
+7. [Tottenham Hotspur XI vs Liverpool – Predicted lineup and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5249db8c-0b03-4969-8dcb-25b35584a773) - **Yahoo Entertainment**
+8. [‘Complete nonsense’ – Gordon hits back at critics after scoring winner at Chelsea](https://thefootballfaithful.com/anthony-gordon-critics-chelsea-newcastle-united/) - **The Football Faithful**
+9. [Crystal Palace vs Leeds United – Match preview and team news](https://thefootballfaithful.com/crystal-palace-vs-leeds-united-match-preview-and-team-news/) - **The Football Faithful**
+10. ['Not out of form, just out of runs': Gautam Gambhir backs Abhishek Sharma in T20 World Cup](https://economictimes.indiatimes.com/news/sports/not-out-of-form-just-out-of-runs-gautam-gambhir-backs-abhishek-sharma-in-t20-world-cup/articleshow/129585710.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-03-16 14:19:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-16 15:50:54 (KST) / (하루 100회 제한 준수 중)*
