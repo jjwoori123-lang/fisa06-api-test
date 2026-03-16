@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Selection Sunday is here, plus the WBC champs are knocked out](https://sports.yahoo.com/articles/selection-sunday-plus-wbc-champs-113104162.html) - **Yahoo Entertainment**
-2. [When is Man City vs. Arsenal? Date and time of huge game in Premier League title race](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fbd39c5d-292b-4401-8aa2-56ddae969632) - **Yahoo Entertainment**
-3. [Elliot Anderson: Newcastle make major decision on pursuit of United target](https://thepeoplesperson.com/2026/03/15/elliot-anderson-newcastle-make-major-decision-on-pursuit-of-united-target-307702/) - **The Peoples Person**
-4. [Liverpool vs Tottenham: A Turning Point for Two Uncertain Campaigns](https://anfieldindex.com/92158/liverpool-vs-tottenham-a-turning-point-for-two-uncertain-campaigns.html) - **Anfieldindex.com**
-5. [Rodri & Guardiola downbeat about City’s title chances](https://dailycannon.com/2026/03/rodri-guardiola-city-title-chances/) - **Dailycannon.com**
-6. [LIVE: Manchester United vs Aston Villa – Premier League](https://www.aljazeera.com/sports/liveblog/2026/3/15/live-manchester-united-vs-aston-villa-premier-league) - **Al Jazeera English**
-7. [Arne Slot highlights one positive thing that’s changed for him at Liverpool from 12 months ago](https://www.empireofthekop.com/2026/03/15/slot-highlights-one-positive-change-at-liverpool-from-12-months-ago/) - **Empire of The Kop**
-8. [How To Watch Man United vs Aston Villa Today – Confirmed TV and Live Streaming Details](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4eaecf5a-c68f-4df5-9b58-e366bb5d05b1) - **Yahoo Entertainment**
+1. [Crystal Palace vs Leeds LIVE updates, watch live, score, analysis, highlights](https://www.nbcsports.com/soccer/news/how-to-watch-crystal-palace-vs-leeds-live-stream-link-tv-channel-team-news-prediction) - **NBCSports.com**
+2. [How to watch Liverpool vs Tottenham in the USA: Live Stream and TV for 2025/2026 Premier League](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-liverpool-vs-tottenham-in-the-usa-live-stream-and-tv-for-2025-2026-premier-league/) - **Worldsoccertalk.com**
+3. [Gordon hits back at Shearer, Rooney and Keane criticism](https://www.rte.ie/sport/soccer/2026/0315/1563524-gordon-hits-back-at-shearer-rooney-and-keane-criticism/) - **RTE**
+4. [The stats behind Max Dowman’s record-breaking Arsenal goal](https://dailycannon.com/2026/03/max-dowman-goal-stats/) - **Dailycannon.com**
+5. [Arsenal named as one of the clubs keen on Premier League defender](https://www.justarsenal.com/arsenal-named-as-one-of-the-clubs-keen-on-premier-league-defender/411753) - **Just Arsenal News**
+6. [Arsenal named as one of the clubs keen on Premier League defender](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c187504f-3d19-4637-be6b-54c3b56e115a) - **Yahoo Entertainment**
+7. [Spurs Starting XI vs Liverpool: Confirmed Team News and Predicted Lineup](https://eplindex.com/144022/spurs-starting-xi-vs-liverpool-confirmed-team-news-and-predicted-lineup.html) - **English Premier League Index - Opta Stats**
+8. [Report: Liverpool win race for Scottish starlet](https://anfieldindex.com/92148/report-liverpool-win-race-for-scottish-starlet.html) - **Anfieldindex.com**
+9. [Told Abhishek that you are not out of form, you are just out of runs: Gambhir](https://indianexpress.com/article/sports/cricket/abhishek-sharma-gautam-gambhir-india-t20-world-cup-2026-10583397/) - **The Indian Express**
+10. [“Because he’s too good” – Man Utd given sensational boost in the race for ‘unbelievable’ £86m star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4c14d5d6-fa70-4a07-8b29-db768ced5b4c) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-16 20:31:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-16 21:34:02 (KST) / (하루 100회 제한 준수 중)*
