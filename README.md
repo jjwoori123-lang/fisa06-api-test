@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Karl-Anthony Towns can't hide frustration after Dominican Republic's WBC loss](https://www.marca.com/en/mlb/2026/03/16/69b790f246163f5c2d8b45cd.html) - **Marca**
-2. [People Leaving Early Again On Saturday – Why Is This Happening?](https://rokerreport.sbnation.com/roker-roundtable/131135/people-leaving-early-again-on-saturday-why-is-this-happening) - **SB Nation**
-3. [(VIDEO) Highlights: Team USA Edges Dominican Republic 2-1 in Tense WBC Semifinal](https://www.ibtimes.com.au/video-highlights-team-usa-edges-dominican-republic-2-1-tense-wbc-semifinal-1863460) - **Ibtimes.com.au**
-4. [Livvy Dunne's game-day look steals the spotlight as she cheers on Paul Skenes at the WBC](https://www.marca.com/en/mlb/pittsburgh-pirates/2026/03/16/69b78423268e3eb8448b4579.html) - **Marca**
-5. [USMNT World Cup roster watch: Who could make the squad for March friendlies vs. Belgium and Portugal?](https://sports.yahoo.com/soccer/article/usmnt-world-cup-roster-watch-who-could-make-the-squad-for-march-friendlies-vs-belgium-and-portugal-042054726.html) - **Yahoo Entertainment**
-6. [Bayern Munich News: Manchester United, Tottenham Hotspur to battle FC Bayern for Anderlecht’s Nathan De Cat?](https://www.bavarianfootballworks.com/transfer-rumors/177346/bayern-munich-manchester-united-tottenham-hotspur-fc-barcelona-real-madrid-arsenal-chelsea-bvb-psg) - **Bavarian Football Works**
-7. [Manchester United boost top four hopes; Liverpool held by Spurs](https://www.rediff.com/sports/report/english-premier-league-manchester-united-boost-top-four-hopes-liverpool-held-by-spurs/20260316.htm) - **Rediff.com**
-8. [English sides seek redemption from Champions League reality check](https://sports.yahoo.com/articles/english-sides-seek-redemption-champions-025947851.html) - **Yahoo Entertainment**
-9. [Doubles delight as Punt Drogheda pair scoop Duleek darts title](https://www.independent.ie/regionals/louth/sport/othersports/doubles-delight-as-punt-drogheda-pair-scoop-duleek-darts-title/a1178470771.html) - **Independent.ie**
-10. [Simon makes 200th Ligue 1 appearance in Paris draw](https://punchng.com/simon-makes-200th-ligue-1-appearance-in-paris-draw/) - **The Punch**
+1. [Tottenham Hotspur boss Igor Tudor’s roller-coaster evening at Anfield: From ‘confusing’ his own staff member for Arne Slot to a combative interview](https://indianexpress.com/article/sports/football/tottenham-hotspur-igor-tudor-arne-slot-liverpool-confuse-10584391/) - **The Indian Express**
+2. [Wolves XI vs Brentford – Predicted lineup and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f3c8890e-26d5-4e36-aa3f-e2e1ff2d9e00) - **Yahoo Entertainment**
+3. [Arsenal on the verge of long-awaited EPL success as Man City continue to falter](https://sportsview.co.uk/2026/03/arsenal-on-the-verge-of-long-awaited-epl-success-as-man-city-continue-to-falter?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-on-the-verge-of-long-awaited-epl-success-as-man-city-continue-to-falter) - **Sportsview.co.uk**
+4. [Brentford vs Wolves – Match preview and team news](https://thefootballfaithful.com/brentford-vs-wolves-match-preview-and-team-news/) - **The Football Faithful**
+5. [Suryakumar Yadav says no shame in saying that India can field multiple T20 teams](https://economictimes.indiatimes.com/news/sports/suryakumar-yadav-says-no-shame-in-saying-that-india-can-field-multiple-t20-teams/articleshow/129602485.cms) - **The Times of India**
+6. [Wolves predicted XI vs Brentford: In-form Old Gold chase third straight win at Gtech](https://sportsview.co.uk/2026/03/wolves-predicted-xi-vs-brentford-in-form-old-gold-chase-third-straight-win-at-gtech?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=wolves-predicted-xi-vs-brentford-in-form-old-gold-chase-third-straight-win-at-gtech) - **Sportsview.co.uk**
+7. [Mumbai Indians begin IPL 2026 pre-season training](https://economictimes.indiatimes.com/news/sports/mumbai-indians-begin-ipl-2026-pre-season-training/articleshow/129602311.cms) - **The Times of India**
+8. [The Globalization of Baseball](https://everything-everywhere.com/the-globalization-of-baseball/) - **Everything-everywhere.com**
+9. [Mithali Raj says Indian cricket's era of dominance has arrived](https://economictimes.indiatimes.com/news/sports/mithali-raj-says-indian-crickets-era-of-dominance-has-arrived/articleshow/129602067.cms) - **The Times of India**
+10. [Cunha and Sesko fire Manchester United past Aston Villa](https://thechronicle.com.gh/cunha-and-sesko-fire-manchester-united-past-aston-villa/) - **Thechronicle.com.gh**
 
 
 ---
-*최근 업데이트: 2026-03-17 14:45:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-17 16:09:54 (KST) / (하루 100회 제한 준수 중)*
