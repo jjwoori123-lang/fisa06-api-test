@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The 10 youngest goalscorers in Premier League history](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_19ca7ead-adfe-4229-a5f8-918e04c24e08) - **Yahoo Entertainment**
-2. [Liverpool interest in 'massive' ace confirmed as £70m deal mooted](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-interest-in-massive-ace-confirmed-as-ps70m-deal-mooted/) - **Anfieldwatch.co.uk**
-3. [Slot bemoans Liverpool issues after ‘damaging’ Spurs setback](https://thefootballfaithful.com/slot-bemoans-liverpool-issues-after-damaging-spurs-setback/) - **The Football Faithful**
-4. [Casemiro: Fabrizio Romano issues key update on United ace’s future](https://thepeoplesperson.com/2026/03/16/casemiro-fabrizio-romano-issues-key-update-on-united-aces-future-307741/) - **The Peoples Person**
-5. [M Chinnaswamy Stadium gets Karnataka govt nod for hosting IPL 2026 matches](https://economictimes.indiatimes.com/news/sports/m-chinnaswamy-stadium-gets-karnataka-govt-nod-for-hosting-ipl-2026-matches/articleshow/129605134.cms) - **The Times of India**
-6. [EPL: ‘Wake up or settle or settle for less, Szoboszlai warns Liverpool](https://punchng.com/epl-wake-up-or-settle-or-settle-for-less-szoboszlai-warns-liverpool/) - **The Punch**
-7. [More than a moment: Dowman's ball-carrying is big for Arsenal](https://www.skysports.com/football/news/37587/13514619/max-dowmans-ball-carrying-for-arsenal-rio-ngumohas-dribbling-and-guglielmo-vicarios-problem-feature-in-the-debrief) - **Sky Sports**
-8. [Aston Villa joins Arsenal in the race for Bundesliga star](https://www.justarsenal.com/aston-villa-joins-arsenal-in-the-race-for-bundesliga-star/411764) - **Just Arsenal News**
-9. ['We don't want to lose Fernandes'](https://www.bbc.com/sport/football/articles/cx280qlylg1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Max Dowman may not play much of a role in Arsenal’s run-in, says another teenage sensation](https://www.101greatgoals.com/football/premier-league/max-dowman-arsenal-wayne-rooney/) - **101 Great Goals**
+2. [Summing up an unsummable-uppable Six Nations Championship](https://www.irishtimes.com/sport/2026/03/16/summing-up-an-unsummable-uppable-six-nations-championship/) - **The Irish Times**
+3. [Man City vs Real Madrid: Champions League – team news, start and lineups](https://www.aljazeera.com/sports/2026/3/16/man-city-vs-real-madrid-champions-league-team-news-start-and) - **Al Jazeera English**
+4. [Bosnia's Dzeko poses big World Cup threat - Bellamy](https://www.bbc.com/sport/football/articles/c98q73rjleno) - **BBC News**
+5. [African players in Europe: Sub Salah fails to sink Spurs](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ecbe9c8f-b6f5-4111-95c6-1b3063baf0f9) - **Yahoo Entertainment**
+6. [Barcelona enter race for Premier League full-back wanted by Liverpool, Man City – report](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_99717906-4f78-4e86-a84b-2619147ceda1) - **Yahoo Entertainment**
+7. [James Pearce: Slot “cannot afford” another performance like “familiar” Spurs draw](https://anfieldindex.com/92191/james-pearce-slot-cannot-afford-another-performance-like-familiar-spurs-draw.html) - **Anfieldindex.com**
+8. [Sky pundit labels Liverpool “bad champions” and questions behind the scenes](https://anfieldindex.com/92188/sky-pundit-labels-liverpool-bad-champions-and-questions-behind-the-scenes.html) - **Anfieldindex.com**
+9. [Report: Sunderland ready to move for €15m La Liga star](https://eplindex.com/144058/report-sunderland-ready-to-move-for-e15m-la-liga-star.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-03-17 18:10:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-17 19:10:34 (KST) / (하루 100회 제한 준수 중)*
