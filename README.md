@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How Chelsea signed a star team with hidden payments](https://www.bbc.com/sport/football/articles/cn48e171zlvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [How Chelsea signed a star team with hidden payments](https://www.bbc.com/sport/football/articles/cn48e171zlvo) - **BBC News**
-3. [Darius Slay Announces NFL Retirement With Heartfelt Message](https://detroitsportsnation.com/darius-slay-retirement-announcement/jeff/detroit-lions/03/16/2026/484789/) - **Detroit Sports Nation**
-4. [Why Lucas Chevalier is the wrong move for Tottenham](https://sportsview.co.uk/2026/03/why-lucas-chevalier-is-the-wrong-move-for-tottenham?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=why-lucas-chevalier-is-the-wrong-move-for-tottenham) - **Sportsview.co.uk**
-5. [Arsenal is one of the clubs chasing FC Midtjylland star](https://www.justarsenal.com/arsenal-is-one-of-the-clubs-chasing-fc-midtjylland-star/411814) - **Just Arsenal News**
-6. [David James makes Liverpool trophy claim after Tottenham draw](https://www.empireofthekop.com/2026/03/16/david-james-makes-liverpool-trophy-claim-after-tottenham-draw/) - **Empire of The Kop**
-7. [Reds will 'have conversations' if Liverpool miss out on Champions League](https://www.bbc.com/sport/football/articles/c4gqnw80d58o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Can 'new' Man City rise to Real challenge?](https://www.bbc.com/sport/football/articles/cp8r36103r6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Major Arne Slot sack update as Richard Hughes holds potential bombshell meeting – report](https://www.empireofthekop.com/2026/03/16/major-arne-slot-sack-update-as-richard-hughes-holds-potential-bombshell-meeting-report/) - **Empire of The Kop**
+1. [Henry defends Arteta style: I don't have to like it, but I respect it](https://www.skysports.com/football/news/11095/13520637/thierry-henry-defends-arsenal-style-and-respects-mikel-artetas-ability-to-find-a-winning-formula-to-end-22-year-wait-for-title) - **Sky Sports**
+2. [Chelsea v Paris Saint-Germain: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/champions-league-odds/chelsea-paris-saint-germain-preview/) - **101 Great Goals**
+3. [Go Inside Training ahead of Leverkusen showdown](http://www.arsenal.com/news/go-inside-training-ahead-leverkusen-showdown) - **Arsenal.com**
+4. [Five Spurs players could return for Nottingham Forest match](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/69548/tottenham-hotspur-injury-news-five-return-forest-udogie-romero-van-de-ven-palhinha-gallagher) - **SB Nation**
+5. [Arsenal defender Riccardo Calafiori relishing chase for historic quadruple](https://sportsview.co.uk/2026/03/arsenal-defender-riccardo-calafiori-relishing-chase-for-historic-quadruple?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-defender-riccardo-calafiori-relishing-chase-for-historic-quadruple) - **Sportsview.co.uk**
+6. [Alberta Selected as North American Host of World Cup of Hockey 2028](https://www.globenewswire.com/news-release/2026/03/16/3256613/0/en/Alberta-Selected-as-North-American-Host-of-World-Cup-of-Hockey-2028.html) - **GlobeNewswire**
+7. [Fifa sanctions Nigeria and DR Congo over World Cup play-off](https://www.bbc.com/sport/football/articles/cdxg10vzwp2o) - **BBC News**
+8. [Treaty's McGuane has a huge future ahead of her - Graham](https://www.rte.ie/sport/soccer/2026/0316/1563753-treatys-mcguane-has-a-huge-future-ahead-of-her-graham/) - **RTE**
+9. ['Dull Slot has lost the fans'](https://www.bbc.com/sport/football/articles/cdjm1y344k7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Reece James suffers another hamstring injury](https://getfootball.eu/reece-james-suffers-another-hamstring-injury/) - **Getfootball.eu**
 
 
 ---
-*최근 업데이트: 2026-03-18 02:39:31 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-18 03:37:43 (KST) / (하루 100회 제한 준수 중)*
