@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Leeds United Receive Response Regarding 25-Year-Old Championship Star: Does He Fill The Attacking Gap In The Team?](https://the4thofficial.net/2026/03/leeds-united-receive-response-regarding-25-year-old-championship-star-does-he-fill-the-attacking-gap-in-the-team/) - **The4thofficial.net**
-2. [El Pollo Loco® Upgrades Loco Rewards® Program with Experiential Prizes, Including Coca-Cola® x El Pollo Loco Soccer Challenge](https://www.globenewswire.com/news-release/2026/03/16/3256636/31831/en/El-Pollo-Loco-Upgrades-Loco-Rewards-Program-with-Experiential-Prizes-Including-Coca-Cola-x-El-Pollo-Loco-Soccer-Challenge.html) - **GlobeNewswire**
-3. [Former Spurs Scout Provides Update On Midfielder’s Transfer To Aston Villa: Should The Club Make A Genuine Move In Such A Scenario?](https://the4thofficial.net/2026/03/former-spurs-scout-provides-update-on-midfielders-transfer-to-aston-villa-should-the-club-make-a-genuine-move-in-such-a-scenario/) - **The4thofficial.net**
-4. [From Bodo to Brentford - ranking this season's biggest overachievers](https://www.bbc.com/sport/football/articles/cd6z8713w1no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Liam Rosenior’s position as Chelsea head coach under threat](https://www.getfootballnewsfrance.com/2026/liam-roseniors-position-as-chelsea-head-coach-under-threat/) - **Get French Football News**
-6. [Unknown Liverpool employee is a surprise choice to replace Arne Slot](https://www.anfieldwatch.co.uk/liverpool-fc/news/unknown-liverpool-employee-is-a-surprise-choice-to-replace-arne-slot/) - **Anfieldwatch.co.uk**
-7. [Brentford v Wolves: Team news](https://www.bbc.com/sport/football/articles/c39wmlpepwdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Chelsea could move controversial pre-match huddle](https://www.bbc.com/sport/articles/cewzvg8e0kro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. ['Don't want to antagonise' - Chelsea may move controversial pre-match huddle](https://www.bbc.com/sport/articles/cewzvg8e0kro) - **BBC News**
-10. [Brought to book: Colm Keena on the joys to be discovered by joining a public library](https://www.irishtimes.com/opinion/an-irish-diary/2026/03/16/brought-to-book-colm-keena-on-the-joys-to-be-discovered-by-joining-a-public-library/) - **The Irish Times**
+1. [Premier League: Thiago slots impressive Brentford into 2-0 lead against Wolves](https://www.bbc.com/sport/football/live/cwyge2ln2n7t?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Hansi Flick’s Barcelona reportedly give Andreas Christensen an ultimatum while scouting defenders for next season](https://worldsoccertalk.com/news/hansi-flicks-barcelona-reportedly-give-andreas-christensen-an-ultimatum-while-scouting-defenders-for-next-season/) - **Worldsoccertalk.com**
+3. [The football world waits for Man City verdict after Chelsea fined for 'deception' of Abramovich era](https://news.sky.com/story/the-football-world-waits-for-manchester-city-verdict-after-chelsea-fined-for-deception-of-abramovich-era-13520679) - **Sky.com**
+4. [Carra: Slot will find it difficult to win Liverpool fans back](https://www.skysports.com/football/news/11669/13520638/mnf-analysis) - **Sky Sports**
+5. [Neto To Start, Garnacho On The Bench | 4-2-3-1 Chelsea Predicted Lineup Vs Paris Saint-Germain](https://the4thofficial.net/2026/03/neto-to-start-garnacho-on-the-bench-4-2-3-1-chelsea-predicted-lineup-vs-paris-saint-germain/) - **The4thofficial.net**
+6. [Milan ready to listen for Leao offers after losing patience](https://football-italia.net/milan-ready-to-listen-for-leao-offers-patience/) - **Football Italia**
+7. [PREVIEW | Tottenham vs Atlético de Madrid - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-tottenham-vs-atletico-de-madrid-team-news-lineups-predictions/1076925) - **Playmakerstats.com**
+8. [Arteta confirms Arsenal star “is available” to face Leverkusen](https://wp.fromthespot.co.uk/27648/arteta-confirms-arsenal-star-is-available-to-face-leverkusen/) - **Fromthespot.co.uk**
+9. [PREVIEW | Liverpool vs Galatasaray - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-liverpool-vs-galatasaray-team-news-lineups-predictions/1076908) - **Playmakerstats.com**
+10. [League of Ireland: Tensions flare as Shels and Bohs players and staff clash before Dublin derby](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-tensions-flare-as-shels-and-bohs-players-and-staff-clash-before-dublin-derby/a1814346165.html) - **Independent.ie**
 
 
 ---
-*최근 업데이트: 2026-03-18 04:41:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-18 05:42:30 (KST) / (하루 100회 제한 준수 중)*
