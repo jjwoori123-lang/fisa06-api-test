@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Charlie Adam says Liverpool ‘looked laboured’ vs Tottenham](https://www.empireofthekop.com/2026/03/16/charlie-adam-says-liverpool-looked-laboured-vs-tottenham/) - **Empire of The Kop**
-2. [FULL LIST: Youngest goalscorers across Europe’s five big leagues](https://punchng.com/full-list-youngest-goalscorers-across-europes-five-big-leagues/) - **The Punch**
-3. [Liverpool 1-1 Tottenham - the fans' verdict](https://www.bbc.com/sport/football/articles/clyze1g877do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Report: Clubs across Europe and the Premier League enquire over Liverpool stopper](https://eplindex.com/144063/report-clubs-across-europe-and-the-premier-league-enquire-over-liverpool-stopper.html) - **English Premier League Index - Opta Stats**
-5. [Arsenal star injury analysis provides mixed update post-Everton](https://dailycannon.com/2026/03/arsenal-timber-injury-latest-everton/) - **Dailycannon.com**
-6. [Former Liverpool star questions if a new manager would change things](https://anfieldindex.com/92189/former-liverpool-star-questions-if-a-new-manager-would-change-things.html) - **Anfieldindex.com**
-7. [West Ham 1-1 Man City - the fans' verdict](https://www.bbc.com/sport/football/articles/cwyxdd7w57jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Chelsea 0-1 Newcastle - the fans' verdict](https://www.bbc.com/sport/football/articles/c626ym2mz6mo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Arsenal 2-0 Everton - the fans' verdict](https://www.bbc.com/sport/football/articles/c70npgw7gxlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Guardiola makes surprising call before Manchester City vs Real Madrid](https://madriduniversal.com/guardiola-makes-surprising-call-before-manchester-city-vs-real-madrid/) - **Madriduniversal.com**
+2. [Arsecast Extra Episode 686 - 16.03.2026](https://shows.acast.com/arseblog/episodes/arsecast-extra-episode-686-16032026) - **Acast.com**
+3. [Arsenal Analysed: Reasons for our late Everton win](http://www.arsenal.com/news/arsenal-analysed-reasons-our-late-everton-win) - **Arsenal.com**
+4. [Rooney Praises Arsenal Teen Max Dowman After Historic Goal](https://www.rediff.com/sports/report/rooney-praises-arsenal-teen-max-dowman-after-historic-goal/20260316.htm) - **Rediff.com**
+5. [Against his favourite victim, Richarlison joins Brazilian elite in the Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f198b21f-9053-46e9-91d3-e65f6b74b61f) - **Yahoo Entertainment**
+6. [From Heavy Metal to Smooth FM: Anfield unrest grows at passive play and late collapses under Slot](https://www.footballmuse.com/features/from-heavy-metal-to-smooth-fm-anfield-unrest-grows-at-passive-play-and-late-collapses-under-slot) - **Footballmuse.com**
+7. [Max Dowman and the making of Arsenal's 'defining Premier League moment'](https://www.skysports.com/football/news/11095/13520472/max-dowman-behind-the-scenes-of-arsenals-teenage-sensation-and-the-key-figures-behind-his-rise) - **Sky Sports**
+8. [AI Registry to Protect Athlete Likenesses and Digital IP Launched by New Sports-Tech Firm Callandor Group (EXCLUSIVE)](https://variety.com/2026/digital/news/ai-registry-athlete-likeness-protection-callandor-1236689767/) - **Variety**
 
 
 ---
-*최근 업데이트: 2026-03-17 20:10:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-17 20:57:37 (KST) / (하루 100회 제한 준수 중)*
