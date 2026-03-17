@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Henry defends Arteta style: I don't have to like it, but I respect it](https://www.skysports.com/football/news/11095/13520637/thierry-henry-defends-arsenal-style-and-respects-mikel-artetas-ability-to-find-a-winning-formula-to-end-22-year-wait-for-title) - **Sky Sports**
-2. [Chelsea v Paris Saint-Germain: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/champions-league-odds/chelsea-paris-saint-germain-preview/) - **101 Great Goals**
-3. [Go Inside Training ahead of Leverkusen showdown](http://www.arsenal.com/news/go-inside-training-ahead-leverkusen-showdown) - **Arsenal.com**
-4. [Five Spurs players could return for Nottingham Forest match](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/69548/tottenham-hotspur-injury-news-five-return-forest-udogie-romero-van-de-ven-palhinha-gallagher) - **SB Nation**
-5. [Arsenal defender Riccardo Calafiori relishing chase for historic quadruple](https://sportsview.co.uk/2026/03/arsenal-defender-riccardo-calafiori-relishing-chase-for-historic-quadruple?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-defender-riccardo-calafiori-relishing-chase-for-historic-quadruple) - **Sportsview.co.uk**
-6. [Alberta Selected as North American Host of World Cup of Hockey 2028](https://www.globenewswire.com/news-release/2026/03/16/3256613/0/en/Alberta-Selected-as-North-American-Host-of-World-Cup-of-Hockey-2028.html) - **GlobeNewswire**
-7. [Fifa sanctions Nigeria and DR Congo over World Cup play-off](https://www.bbc.com/sport/football/articles/cdxg10vzwp2o) - **BBC News**
-8. [Treaty's McGuane has a huge future ahead of her - Graham](https://www.rte.ie/sport/soccer/2026/0316/1563753-treatys-mcguane-has-a-huge-future-ahead-of-her-graham/) - **RTE**
-9. ['Dull Slot has lost the fans'](https://www.bbc.com/sport/football/articles/cdjm1y344k7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Reece James suffers another hamstring injury](https://getfootball.eu/reece-james-suffers-another-hamstring-injury/) - **Getfootball.eu**
+1. [Leeds United Receive Response Regarding 25-Year-Old Championship Star: Does He Fill The Attacking Gap In The Team?](https://the4thofficial.net/2026/03/leeds-united-receive-response-regarding-25-year-old-championship-star-does-he-fill-the-attacking-gap-in-the-team/) - **The4thofficial.net**
+2. [El Pollo Loco® Upgrades Loco Rewards® Program with Experiential Prizes, Including Coca-Cola® x El Pollo Loco Soccer Challenge](https://www.globenewswire.com/news-release/2026/03/16/3256636/31831/en/El-Pollo-Loco-Upgrades-Loco-Rewards-Program-with-Experiential-Prizes-Including-Coca-Cola-x-El-Pollo-Loco-Soccer-Challenge.html) - **GlobeNewswire**
+3. [Former Spurs Scout Provides Update On Midfielder’s Transfer To Aston Villa: Should The Club Make A Genuine Move In Such A Scenario?](https://the4thofficial.net/2026/03/former-spurs-scout-provides-update-on-midfielders-transfer-to-aston-villa-should-the-club-make-a-genuine-move-in-such-a-scenario/) - **The4thofficial.net**
+4. [From Bodo to Brentford - ranking this season's biggest overachievers](https://www.bbc.com/sport/football/articles/cd6z8713w1no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Liam Rosenior’s position as Chelsea head coach under threat](https://www.getfootballnewsfrance.com/2026/liam-roseniors-position-as-chelsea-head-coach-under-threat/) - **Get French Football News**
+6. [Unknown Liverpool employee is a surprise choice to replace Arne Slot](https://www.anfieldwatch.co.uk/liverpool-fc/news/unknown-liverpool-employee-is-a-surprise-choice-to-replace-arne-slot/) - **Anfieldwatch.co.uk**
+7. [Brentford v Wolves: Team news](https://www.bbc.com/sport/football/articles/c39wmlpepwdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Chelsea could move controversial pre-match huddle](https://www.bbc.com/sport/articles/cewzvg8e0kro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. ['Don't want to antagonise' - Chelsea may move controversial pre-match huddle](https://www.bbc.com/sport/articles/cewzvg8e0kro) - **BBC News**
+10. [Brought to book: Colm Keena on the joys to be discovered by joining a public library](https://www.irishtimes.com/opinion/an-irish-diary/2026/03/16/brought-to-book-colm-keena-on-the-joys-to-be-discovered-by-joining-a-public-library/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-03-18 03:37:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-18 04:41:24 (KST) / (하루 100회 제한 준수 중)*
