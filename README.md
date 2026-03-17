@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Max Dowman may not play much of a role in Arsenal’s run-in, says another teenage sensation](https://www.101greatgoals.com/football/premier-league/max-dowman-arsenal-wayne-rooney/) - **101 Great Goals**
-2. [Summing up an unsummable-uppable Six Nations Championship](https://www.irishtimes.com/sport/2026/03/16/summing-up-an-unsummable-uppable-six-nations-championship/) - **The Irish Times**
-3. [Man City vs Real Madrid: Champions League – team news, start and lineups](https://www.aljazeera.com/sports/2026/3/16/man-city-vs-real-madrid-champions-league-team-news-start-and) - **Al Jazeera English**
-4. [Bosnia's Dzeko poses big World Cup threat - Bellamy](https://www.bbc.com/sport/football/articles/c98q73rjleno) - **BBC News**
-5. [African players in Europe: Sub Salah fails to sink Spurs](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ecbe9c8f-b6f5-4111-95c6-1b3063baf0f9) - **Yahoo Entertainment**
-6. [Barcelona enter race for Premier League full-back wanted by Liverpool, Man City – report](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_99717906-4f78-4e86-a84b-2619147ceda1) - **Yahoo Entertainment**
-7. [James Pearce: Slot “cannot afford” another performance like “familiar” Spurs draw](https://anfieldindex.com/92191/james-pearce-slot-cannot-afford-another-performance-like-familiar-spurs-draw.html) - **Anfieldindex.com**
-8. [Sky pundit labels Liverpool “bad champions” and questions behind the scenes](https://anfieldindex.com/92188/sky-pundit-labels-liverpool-bad-champions-and-questions-behind-the-scenes.html) - **Anfieldindex.com**
-9. [Report: Sunderland ready to move for €15m La Liga star](https://eplindex.com/144058/report-sunderland-ready-to-move-for-e15m-la-liga-star.html) - **English Premier League Index - Opta Stats**
+1. [Charlie Adam says Liverpool ‘looked laboured’ vs Tottenham](https://www.empireofthekop.com/2026/03/16/charlie-adam-says-liverpool-looked-laboured-vs-tottenham/) - **Empire of The Kop**
+2. [FULL LIST: Youngest goalscorers across Europe’s five big leagues](https://punchng.com/full-list-youngest-goalscorers-across-europes-five-big-leagues/) - **The Punch**
+3. [Liverpool 1-1 Tottenham - the fans' verdict](https://www.bbc.com/sport/football/articles/clyze1g877do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Report: Clubs across Europe and the Premier League enquire over Liverpool stopper](https://eplindex.com/144063/report-clubs-across-europe-and-the-premier-league-enquire-over-liverpool-stopper.html) - **English Premier League Index - Opta Stats**
+5. [Arsenal star injury analysis provides mixed update post-Everton](https://dailycannon.com/2026/03/arsenal-timber-injury-latest-everton/) - **Dailycannon.com**
+6. [Former Liverpool star questions if a new manager would change things](https://anfieldindex.com/92189/former-liverpool-star-questions-if-a-new-manager-would-change-things.html) - **Anfieldindex.com**
+7. [West Ham 1-1 Man City - the fans' verdict](https://www.bbc.com/sport/football/articles/cwyxdd7w57jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Chelsea 0-1 Newcastle - the fans' verdict](https://www.bbc.com/sport/football/articles/c626ym2mz6mo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Arsenal 2-0 Everton - the fans' verdict](https://www.bbc.com/sport/football/articles/c70npgw7gxlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-17 19:10:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-17 20:10:25 (KST) / (하루 100회 제한 준수 중)*
