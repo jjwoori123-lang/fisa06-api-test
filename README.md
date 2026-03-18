@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Which March Madness school has most famous alumni? Check out our celebrity bracket](https://www.usatoday.com/story/sports/ncaab/tourney/2026/03/17/march-madness-2026-schools-famous-alumni-bracket-ncaa-tournament-celebrity-grads-colleges/89074531007/) - **USA Today**
-2. [The Osimhen effect: How Nigeria’s superstar impacted the way fans follow football](https://blogs.opera.com/mobile/2026/03/opera-mini-osimhen-effect/) - **Opera.com**
-3. [Fans split over merit of Premier League clubs releasing St Patrick’s Day merchandise](https://www.irishtimes.com/sport/soccer/2026/03/17/fans-split-over-merit-of-premier-league-clubs-releasing-st-patricks-day-merchandise/) - **The Irish Times**
-4. [Transfer rumors, news: Juve join Arsenal in race for Goretzka](https://www.espn.com/soccer/story/_/id/48228935/transfer-rumors-news-juve-join-arsenal-race-goretzka) - **ESPN**
-5. [Arsenal injury latest: Martin Odegaard, Jurrien Timber and more](https://eplindex.com/144105/arsenal-injury-latest-martin-odegaard-jurrien-timber-and-more.html) - **English Premier League Index - Opta Stats**
-6. [Igor Thiago: Man United hold talks for Brentford star as price tag is set](https://thepeoplesperson.com/2026/03/17/igor-thiago-man-united-hold-talks-for-brentford-star-as-price-tag-is-set-307781/) - **The Peoples Person**
-7. [Champions League: Real Madrid, PSG and Bodø/Glimt protect 3-goal leads in round of 16](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_768c8b0f-7640-4c1a-b413-3b3bc9dda181) - **Yahoo Entertainment**
-8. [Fabrizio Romano reveals truth behind Hugo Viana’s Man City meeting with agent of Ousmane Dembele](https://cityxtra.co.uk/43182/fabrizio-romano-reveals-truth-behind-hugo-vianas-man-city-meeting-with-agent-of-ousmane-dembele/) - **Cityxtra.co.uk**
-9. ['There is evidently fear among the players'](https://www.bbc.com/sport/football/articles/c620pw41l62o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [FA Cup quarter finals TV schedule, live online streams, where to watch 2025/26 competition on BBC, TNT Sports and HBO Max](https://www.101greatgoals.com/football/fa-cup-quarter-final-schedule-tv-streams/) - **101 Great Goals**
+1. [Wilfred Ndidi: Man United still chasing Besiktas star through swap deal](https://thepeoplesperson.com/2026/03/17/wilfred-ndidi-man-united-still-chasing-besiktas-star-through-swap-deal-307803/) - **The Peoples Person**
+2. [City host Real, need big win to progress in UCL: all you need to know](https://onefootball.com/en/news/still-hope-city-must-thrash-real-to-progress-in-ucl-all-you-need-to-know-42570976) - **Onefootball.com**
+3. [Hoffenheim will demand a record fee for winger Bazoumana Toure amid interest from the Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7927891d-331f-4ad4-ad8c-8ebc1f992692) - **Yahoo Entertainment**
+4. [3 Arsenal players make Teams of the Week after Everton win](https://dailycannon.com/2026/03/dowman-arsenal-everton-team-week/) - **Dailycannon.com**
+5. [Which English teams are most likely to complete a Champions League comeback?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f931f5af-e2cc-4671-98b9-514d5c392616) - **Yahoo Entertainment**
+6. [VAR error cost Brighton penalty against Arsenal](https://www.bbc.com/sport/football/articles/cn4gk591qkyo) - **BBC News**
+7. [Premier League referees announced: Matchweek 31](https://www.playmakerstats.com/news/premier-league-referees-announced-matchweek-31/1077374) - **Playmakerstats.com**
+8. [Calafiori opens up about scorpion block: ‘I just reacted’](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_70a3ab4c-5f9b-4e98-8515-056be6abec3d) - **Yahoo Entertainment**
+9. [Calafiori opens up about scorpion block: ‘I just reacted’](https://football-italia.net/calafiori-opens-up-scorpion-block-just-reacted/) - **Football Italia**
+10. [Tottenham join race to sign Serhou Guirassy from Borussia Dortmund](https://bulinews.com/tottenham-join-race-sign-serhou-guirassy-borussia-dortmund) - **Bulinews.com**
 
 
 ---
-*최근 업데이트: 2026-03-18 19:13:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-18 20:12:04 (KST) / (하루 100회 제한 준수 중)*
