@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Eze rocket fires Arsenal into Champions League quarters](https://sports.yahoo.com/articles/eze-rocket-fires-arsenal-champions-220009263.html) - **Yahoo Entertainment**
-2. [Chelsea 0-3 (2-8) Paris Saint-Germain: Report, result and goals as Blues hammered again](https://www.101greatgoals.com/football/champions-league/chelsea-0-3-paris-saint-germain-report-result-and-goals/) - **101 Great Goals**
-3. [Arsenal 2-0 Bayer Leverkusen [3-1 agg]: Eze rocket inspires Gunners to reach Champions League quarters](https://wp.fromthespot.co.uk/27682/arsenal-2-0-bayer-leverkusen-3-1-agg-eze-rocket-inspires-gunners-to-reach-champions-league-quarters/) - **Fromthespot.co.uk**
-4. [Leverkusen bow out of Europe as Eze and Rice deliver for Arsenal](https://bulinews.com/leverkusen-bow-out-europe-eze-and-rice-deliver-for-arsenal) - **Bulinews.com**
-5. [Report: Man City eyeing move to sign Serie A midfielder](https://eplindex.com/144144/report-man-city-eyeing-move-to-sign-serie-a-midfielder.html) - **English Premier League Index - Opta Stats**
-6. [Manchester United Are Showing Interest In This Real Madrid Midfielder: Should Carrick Go For Him?](https://the4thofficial.net/2026/03/manchester-united-are-showing-interest-in-this-real-madrid-midfielder-should-carrick-go-for-him/) - **The4thofficial.net**
-7. [Dominant Arsenal see off Leverkusen to reach Champions League quarters](https://www.skysports.com/football/news/11095/13520453/arsenal-2-0-leverkusen-agg-3-1-eberechi-eze-and-declan-rice-score-stunners-to-set-up-sporting-quarter-final) - **Sky Sports**
-8. [Liverpool sent transfer warning as Champions League battle continues](https://anfieldindex.com/92260/liverpool-sent-transfer-warning-as-champions-league-battle-continues.html) - **Anfieldindex.com**
-9. [VAR controversy: Arsenal dodge three penalty calls in title race](https://footballtoday.com/2026/03/17/var-controversy-arsenal-dodge-three-penalty-calls-in-title-race/) - **Footballtoday.com**
+1. [After a 'Champions of the World' banner, PSG's surge sinks Chelsea at Stamford Bridge](https://sports.yahoo.com/articles/champions-world-banner-psgs-surge-224808662.html) - **Yahoo Entertainment**
+2. [Rosenior admits early Chelsea mistakes killed comeback hopes in Champions League](https://www.101greatgoals.com/football/champions-league/rosenior-admits-early-chelsea-mistakes-killed-comeback-hopes-champions-league/) - **101 Great Goals**
+3. [Arteta on ‘outstanding’ Eze and ‘immense’ Rice](http://www.arsenal.com/news/arteta-outstanding-eze-and-immense-rice) - **Arsenal.com**
+4. [From dreams to disaster: How Man City & Chelsea fell apart while Arsenal stood tall](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_36b189b1-f021-4b0b-bc31-dbae5cc42ab5) - **Yahoo Entertainment**
+5. [Vinicius Jr scores twice as Real Madrid knock Man City out of UCL last 16](https://www.aljazeera.com/sports/2026/3/17/vinicius-jr-scores-twice-as-real-madrid-knock-man-city-out-of-ucl-last-16) - **Al Jazeera English**
+6. [Champions League: Declan Rice and Eberechi Eze pick off Bayer Leverkusen as Arsenal cruise into quarter-finals](https://www.irishtimes.com/sport/soccer/2026/03/17/champions-league-declan-rice-and-eberechi-eze-pick-off-bayer-leverkusen-as-arsenal-cruise-into-quarter-finals/) - **The Irish Times**
+7. [Vinicius seals the deal against City](https://www.marca.com/en/football/real-madrid/2026/03/17/69b9d29622601d950f8b45b2.html) - **Marca**
+8. [Eberechi Eze thunderbolt fires efficient Arsenal into last eight and keeps them in hunt on four fronts](https://www.independent.ie/sport/soccer/champions-league/eberechi-eze-thunderbolt-fires-efficient-arsenal-into-last-eight-and-keeps-them-in-hunt-on-four-fronts/a787034619.html) - **Independent.ie**
+9. [Chelsea analysis: Glass ceiling stops Blues in Europe](https://www.bbc.com/sport/football/articles/cgk2kx15ym5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-19 07:03:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-19 07:50:40 (KST) / (하루 100회 제한 준수 중)*
