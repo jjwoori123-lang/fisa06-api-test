@@ -1,16 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arne Slot confirms Alexander Isak is ‘getting closer’ to Liverpool return](https://anfieldindex.com/92248/arne-slot-confirms-alexander-isak-is-getting-closer-to-liverpool-return.html) - **Anfieldindex.com**
-2. [ Dodò-Di Gregorio swap, Napoli want Koné, Milan eye Parrott](https://onefootball.com/en/news/dodo-di-gregorio-swap-napoli-want-kone-milan-eye-parrott-42572467) - **Onefootball.com**
-3. [Eddie Howe confirms Sandro Tonali fitness latest ahead of Barcelona vs Newcastle United](https://www.geordiebootboys.com/news/eddie-howe-confirms-sandro-tonali-fitness-latest-ahead-of-barcelona-vs-newcastle-united/) - **Geordie Boot Boys - Newcastle United F.C. News**
-4. [Nonsense to say Spurs players don't care - Van de Ven](https://www.bbc.com/sport/football/articles/c8eg0ep2k86o) - **BBC News**
-5. [↩️ Hope for Premier League clubs: Biggest Champions League comebacks](https://onefootball.com/en/news/hope-for-premier-league-clubs-biggest-champions-league-comebacks-42572437) - **Onefootball.com**
-6. [Elliot Anderson: Bayern Munich plot counterstrike for Man United target](https://thepeoplesperson.com/2026/03/17/elliot-anderson-bayern-munich-plot-counterstrike-for-man-united-target-307817/) - **The Peoples Person**
-7. [Arsenal stars make Brazil squad as Neymar misses out](https://dailycannon.com/2026/03/brazil-squad-gabriel-martinelli-jesus-neymar/) - **Dailycannon.com**
-8. [Paramount+ Is Giving New And Returning Subscribers It's Ad-Free Option For An Insanely Low Price](https://www.cinemablend.com/streaming-news/paramount-plus-giving-new-returning-subscribers-ad-free-option-insanely-low-price) - **CinemaBlend**
-9. [United in Numbers: How Bruno reached 100 assists](https://www.manutd.com/en/news/detail/united-in-numbers-how-bruno-reached-100-assists) - **Manchester United**
-10. [Henry names the most important trophy that Arsenal needs to win](https://www.justarsenal.com/henry-names-the-most-important-trophy-that-arsenal-needs-to-win/411873) - **Just Arsenal News**
+1. [Fulham agree deal to sign Ricardo Pepi](https://www.playmakerstats.com/news/fulham-agree-deal-to-sign-ricardo-pepi/1077603) - **Playmakerstats.com**
+2. [David Beckham responds with blunt five-word message after Bruno Fernandes broke his record](https://www.marca.com/en/football/premier-league/2026/03/17/69b98d06268e3ec2098b4588.html) - **Marca**
+3. [Liverpool supporters not restless, says Slot ahead of Galatasaray clash](https://www.channelnewsasia.com/sport/liverpool-supporters-not-restless-says-slot-ahead-galatasaray-clash-5999541) - **CNA**
+4. [How to watch Chelsea vs PSG: Free Streams, TV Channels & Preview for Champions League Round of 16 2nd leg](https://www.techradar.com/how-to-watch/football/chelsea-vs-psg-champions-league-round-of-16-2nd-leg-free) - **TechRadar**
+5. [Analysis: How Kayode and Ouattara have transformed Brentford’s right flank](https://www.brentfordfc.com/en/news/article/analysis-michael-kayode-dango-ouattara-brentford-premier-league) - **Brentfordfc.com**
+6. [Milan eyeing transfer for Republic of Ireland international in summer window](https://football-italia.net/milan-eyeing-transfer-for-ro-ireland-striker/) - **Football Italia**
+7. [Champions League Playoff Soccer: Stream Chelsea vs. PSG Live](https://www.cnet.com/tech/services-and-software/champions-league-playoff-soccer-stream-chelsea-vs-psg-live/) - **CNET**
 
 
 ---
-*최근 업데이트: 2026-03-19 01:33:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-19 02:42:56 (KST) / (하루 100회 제한 준수 중)*
