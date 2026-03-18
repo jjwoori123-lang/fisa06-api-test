@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [(Video) Watch Galatasaray fans in Liverpool City Centre despite UEFA ban](https://www.empireofthekop.com/2026/03/17/video-watch-galatasaray-fans-in-liverpool-city-centre-despite-uefa-ban/) - **Empire of The Kop**
-2. [PREVIEW | Shakhtar Donetsk vs Lech Poznan - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-shakhtar-donetsk-vs-lech-poznan-team-news-lineups-predictions/1077736) - **Playmakerstats.com**
-3. [ Tie over? Bernardo Silva sent off for intentional hand-ball ](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_17855e2d-7dd8-49d7-b932-cee6d1ea50fe) - **Yahoo Entertainment**
-4. [Manchester City news: Rodri refuses to deny speculation over Real Madrid move](https://www.marca.com/en/football/manchester-united/2026/03/17/69b9b71222601dca628b45c6.html) - **Marca**
-5. [PREVIEW | Aston Villa vs Lille - team news, lineups, predictions](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8235a1f4-3727-45d2-a457-7a0159eb9070) - **Yahoo Entertainment**
-6. [Report: Man United ready to push to sign Premier League midfielder](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_38044da8-7814-4602-98cb-44dd78908c65) - **Yahoo Entertainment**
-7. [Pep Guardiola Reminds The World Of His Flawed Genius](https://www.forbes.com/sites/zakgarnerpurkis/2026/03/17/pep-guardiola-reminds-the-world-of-his-flawed-genius/) - **Forbes**
-8. [Benjamin Sesko: Carrick lauded for bold decision that has got the best out of Man United hitman](https://thepeoplesperson.com/2026/03/17/benjamin-sesko-carrick-lauded-for-bold-decision-that-has-got-the-best-out-of-man-united-hitman-307829/) - **The Peoples Person**
-9. [Cristiano Ronaldo reportedly pushes to bring Portugal’s Rafael Leao to Al Nassr as AC Milan stance emerges](https://worldsoccertalk.com/news/cristiano-ronaldo-reportedly-pushes-to-bring-portugals-rafael-leao-to-al-nassr-as-ac-milan-stance-emerges/) - **Worldsoccertalk.com**
-10. [The Outer Line: Paris–Nice vs Tirreno Chaos: Vingegaard Dominates, Del Toro Rises & World Cup Security](https://pezcyclingnews.com/features/paris-nice-tirreno-vingegaard-del-toro-calendar-analysis/) - **PezCycling News**
+1. [Liverpool sent transfer warning as Champions League battle continues](https://anfieldindex.com/92260/liverpool-sent-transfer-warning-as-champions-league-battle-continues.html) - **Anfieldindex.com**
+2. [VAR controversy: Arsenal dodge three penalty calls in title race](https://footballtoday.com/2026/03/17/var-controversy-arsenal-dodge-three-penalty-calls-in-title-race/) - **Footballtoday.com**
+3. [West Ham United Monitor This Rangers Centre-back: Why They Should Snap Him Up This Summer](https://the4thofficial.net/2026/03/west-ham-united-monitor-this-rangers-centre-back-why-they-should-snap-him-up-this-summer/) - **The4thofficial.net**
+4. [Government prepares to sue Abramovich after he missed deadline to release £2.5bn from Chelsea sale](https://news.sky.com/story/government-prepares-to-sue-abramovich-after-he-missed-deadline-to-release-2-5bn-from-chelsea-sale-13521043) - **Sky.com**
+5. [Murillo: Man United handed perfect motivation to press on with £70m deal](https://thepeoplesperson.com/2026/03/17/murillo-man-united-handed-perfect-motivation-to-press-on-with-70m-deal-307833/) - **The Peoples Person**
+6. [Reports growing that Liverpool are ready to replace record arrival after one year](https://www.anfieldwatch.co.uk/liverpool-fc/news/reports-growing-that-liverpool-are-ready-to-replace-record-arrival-after-one-year/) - **Anfieldwatch.co.uk**
+7. [Liverpool offered the chance to sign world-class star for just €50m](https://anfieldindex.com/92262/liverpool-offered-the-chance-to-sign-world-class-star-for-just-e50m.html) - **Anfieldindex.com**
+8. [Chelsea vs. PSG LIVE Updates: Halftime at Stamford Bridge with Kvaratskhelia and Barcola leading the French side victory in Champions League (0-2)](https://worldsoccertalk.com/news/chelsea-vs-psg-live-updates-minute-by-minute-coverage-of-the-2025-26-champions-league-round-of-16-second-leg/) - **Worldsoccertalk.com**
+9. [Manchester City vs. Real Madrid LIVE Updates: Erling Haaland scored the equalizer (1-1)](https://worldsoccertalk.com/news/manchester-city-vs-real-madrid-live-updates-minute-by-minute-coverage-of-the-2025-26-champions-league-round-of-16-second-leg/) - **Worldsoccertalk.com**
+10. [Cole: Chelsea players' achievements should not be sullied](https://www.rte.ie/sport/soccer/2026/0317/1563877-cole-chelsea-players-achievements-should-not-be-sullied/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-03-19 05:41:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-19 06:38:12 (KST) / (하루 100회 제한 준수 중)*
