@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How Torpey aims to make Man Utd's academy 'best in the world'](https://www.bbc.com/sport/football/articles/c4gen28n9e4o) - **BBC News**
-2. [Three bracket-busting upsets for watch in the first round of the NCAA Tournament](https://www.swishappeal.com/ncaa/74975/womens-college-bball-wbb-tournament-upsets-bracket-cinderella-seeds-fairfield-notre-dame-hannah-hidalgo-villanova-rhode-island-alabama-texas-tech-mid-major-first-round) - **Swish Appeal**
-3. [EPL: Brighton denied penalty in 1-0 loss to Arsenal, Premier League confirms](https://punchng.com/epl-brighton-denied-penalty-in-1-0-loss-to-arsenal-premier-league-confirms/) - **The Punch**
-4. ['Once you lose that crowd it is very difficult'](https://www.bbc.com/sport/football/articles/c4g7nd1ekn9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Fleetwood interim boss Lawlor appointed until 2028](https://www.bbc.com/sport/football/articles/c1mjd45em15o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [TGL playoffs 2026: Our PGA pro’s best bets for each matchup](https://sports.yahoo.com/articles/tgl-playoffs-2026-pga-pro-115052658.html) - **Yahoo Entertainment**
-7. [Joshua Zirkzee: Man United will take hit to be rid of misfiring Dutch striker](https://thepeoplesperson.com/2026/03/17/joshua-zirkzee-man-united-will-take-hit-to-be-rid-of-misfiring-dutch-striker-307808/) - **The Peoples Person**
-8. [Arsenal vs. Bayer Leverkusen: Will Champions League be a trap game with Carabao Cup final looming on Sunday?](https://www.cbssports.com/soccer/news/arsenal-bayer-leverkusen-champions-league-carabao-cup-final/) - **CBS Sports**
-9. [Edwards gives Wolves more reasons to be cheerful](https://www.bbc.com/sport/football/articles/cly24kpk5xdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [SN 140 Moments: No. 15 - Longshot Leicester City storms to Premier League championship](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e8ad21d3-85f8-4572-8584-5177da2739ad) - **Yahoo Entertainment**
+1. [Seung-Soo Park Loving Life at Newcastle](https://wp.fromthespot.co.uk/27656/seung-soo-park-loving-life-at-newcastle/) - **Fromthespot.co.uk**
+2. [Man City vs Real Madrid: Match Preview, Latest Team News and How to Watch](https://eplindex.com/144114/man-city-vs-real-madrid-match-preview-latest-team-news-and-how-to-watch.html) - **English Premier League Index - Opta Stats**
+3. [Liverpool receive incredible Alexander Isak update as return date confirmed](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_86e2e8d8-607a-4313-88c6-a2de952b8ba5) - **Yahoo Entertainment**
+4. [Gavaskar links Sunrisers signing of Pakistan’s Abrar to Indian deaths](https://www.aljazeera.com/sports/2026/3/17/gavaskar-links-sunrisers-signing-of-pakistan-abrar-to-indian-deaths) - **Al Jazeera English**
+5. [Official: Northern Ireland squad revealed ahead of crucial Italy World Cup play-off](https://football-italia.net/confirmed-northern-ireland-squad-for-italy/) - **Football Italia**
+6. [The wrong move: Arne Slot opens door he wants firmly closed](https://www.anfieldwatch.co.uk/liverpool-fc/news/the-wrong-move-arne-slot-opens-door-he-wants-firmly-closed/) - **Anfieldwatch.co.uk**
+7. [Mika Godts: Man United take major step towards signing Ajax star](https://thepeoplesperson.com/2026/03/17/mika-godts-man-united-take-major-step-towards-signing-ajax-star-307811/) - **The Peoples Person**
+8. [Chelsea get linked with former player that his current club are trying to keep hold of](https://chelsea.news/2026/03/chelsea-get-linked-with-former-player-that-his-current-club-are-trying-to-keep-hold-of/) - **Chelsea.news**
+9. [Hansi Flick just perfectly exposed what Arne Slot’s Liverpool are missing & Carragher 100% agrees](https://www.empireofthekop.com/2026/03/17/hansi-flick-just-perfectly-exposed-what-arne-slots-liverpool-are-missing-carragher-100-agrees/) - **Empire of The Kop**
+10. [Chelsea's cheating - was a fine too lenient?](https://www.bbc.com/sport/football/articles/cx2dx8rjw08o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-18 21:01:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-18 22:56:05 (KST) / (하루 100회 제한 준수 중)*
