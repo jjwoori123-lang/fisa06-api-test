@@ -1,15 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [After a 'Champions of the World' banner, PSG's surge sinks Chelsea at Stamford Bridge](https://sports.yahoo.com/articles/champions-world-banner-psgs-surge-224808662.html) - **Yahoo Entertainment**
-2. [Rosenior admits early Chelsea mistakes killed comeback hopes in Champions League](https://www.101greatgoals.com/football/champions-league/rosenior-admits-early-chelsea-mistakes-killed-comeback-hopes-champions-league/) - **101 Great Goals**
-3. [Arteta on ‘outstanding’ Eze and ‘immense’ Rice](http://www.arsenal.com/news/arteta-outstanding-eze-and-immense-rice) - **Arsenal.com**
-4. [From dreams to disaster: How Man City & Chelsea fell apart while Arsenal stood tall](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_36b189b1-f021-4b0b-bc31-dbae5cc42ab5) - **Yahoo Entertainment**
-5. [Vinicius Jr scores twice as Real Madrid knock Man City out of UCL last 16](https://www.aljazeera.com/sports/2026/3/17/vinicius-jr-scores-twice-as-real-madrid-knock-man-city-out-of-ucl-last-16) - **Al Jazeera English**
-6. [Champions League: Declan Rice and Eberechi Eze pick off Bayer Leverkusen as Arsenal cruise into quarter-finals](https://www.irishtimes.com/sport/soccer/2026/03/17/champions-league-declan-rice-and-eberechi-eze-pick-off-bayer-leverkusen-as-arsenal-cruise-into-quarter-finals/) - **The Irish Times**
-7. [Vinicius seals the deal against City](https://www.marca.com/en/football/real-madrid/2026/03/17/69b9d29622601d950f8b45b2.html) - **Marca**
-8. [Eberechi Eze thunderbolt fires efficient Arsenal into last eight and keeps them in hunt on four fronts](https://www.independent.ie/sport/soccer/champions-league/eberechi-eze-thunderbolt-fires-efficient-arsenal-into-last-eight-and-keeps-them-in-hunt-on-four-fronts/a787034619.html) - **Independent.ie**
-9. [Chelsea analysis: Glass ceiling stops Blues in Europe](https://www.bbc.com/sport/football/articles/cgk2kx15ym5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Proud Pep says City will come back all the stronger in wake of Euro exit](https://www.mancity.com/news/mens/pep-guardiola-manchester-city-v-real-madrid-post-match-reaction-63909386) - **Manchester City FC**
+2. [Papers: Man Utd want Fernandes to stay this summer](https://www.skysports.com/football/news/11095/13521158/man-utd-want-to-keep-bruno-fernandes-at-old-trafford-this-summer-paper-talk-and-football-transfer-gossip) - **Sky Sports**
+3. [UEFA champions league results: Manchester City vs Real Madrid, Chelsea vs PSG, Arsenal vs Leverkusen](https://economictimes.indiatimes.com/news/international/us/uefa-champions-league-results-manchester-city-vs-real-madrid-chelsea-vs-psg-arsenal-vs-leverkusen/articleshow/129644420.cms) - **The Times of India**
+4. [Champions League Debrief: Arsenal win but disappointment for Chelsea & Man City](https://www.bbc.co.uk/sounds/play/p0n776qg) - **BBC News**
+5. [Report: Ricardo Pepi closing in on Fulham summer transfer](https://sbisoccer.com/2026/03/report-ricardo-pepi-closing-in-on-fulham-summer-transfer) - **Sbisoccer.com**
+6. [After PSG mauling, Chelsea face another scramble to salvage their season](https://www.channelnewsasia.com/sport/after-psg-mauling-chelsea-face-another-scramble-salvage-their-season-6000121) - **CNA**
+7. [Eze wonder goal underlining why he's at Arsenal - Arteta](https://www.rte.ie/sport/soccer/2026/0317/1563887-eze-wonder-goal-underlining-why-hes-at-arsenal-arteta/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-03-19 07:50:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-19 08:33:27 (KST) / (하루 100회 제한 준수 중)*
