@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Blow to Kolkata Knight Riders: Harshit Rana set to miss most of IPL 2026 due to knee injury, report says](https://economictimes.indiatimes.com/news/sports/blow-to-kolkata-knight-riders-harshit-rana-set-to-miss-most-of-ipl-2026-due-to-knee-injury-report-says/articleshow/129624174.cms) - **The Times of India**
-2. [Derby Nerves: Rigg & Sunderland Ready for Newcastle](https://rokerreport.sbnation.com/opinion/131215/derby-nerves-rigg-sunderland-ready-for-newcastle) - **SB Nation**
-3. [U18s preview: West Brom v Arsenal](http://www.arsenal.com/news/u18s-preview-west-brom-v-arsenal-0) - **Arsenal.com**
-4. [Rohit Sharma joins MI squad ahead of 2026 IPL season](https://economictimes.indiatimes.com/news/sports/rohit-sharma-joins-mi-squad-ahead-of-2026-ipl-season/articleshow/129623605.cms) - **The Times of India**
-5. [fpl-intelligence 0.9.0](https://pypi.org/project/fpl-intelligence/0.9.0/) - **Pypi.org**
-6. [Gianni Infantino attended the WBC semifinal between Venezuela and Italy: Who did the FIFA President root for?](https://www.marca.com/en/mlb/2026/03/17/69b8d3f646163f3e738b45f7.html) - **Marca**
-7. [fpl-intelligence 0.8.1](https://pypi.org/project/fpl-intelligence/0.8.1/) - **Pypi.org**
-8. [fpl-intelligence 0.7.1](https://pypi.org/project/fpl-intelligence/0.7.1/) - **Pypi.org**
-9. [fpl-intelligence 0.7.0](https://pypi.org/project/fpl-intelligence/0.7.0/) - **Pypi.org**
-10. [fpl-intelligence 0.6.0](https://pypi.org/project/fpl-intelligence/0.6.0/) - **Pypi.org**
+1. [Against-all-odds recoveries: The iconic three-goal UCL comebacks that show Premier League sides it’s never over](https://www.footballmuse.com/features/against-all-odds-recoveries-the-iconic-three-goal-ucl-comebacks-that-show-premier-league-sides-its-never-over) - **Footballmuse.com**
+2. [Transfer rumour roundup: Spurs, West Ham and Forest chase David; Fenerbahce target Wissa](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a874652c-9fd2-4349-966c-c8c458372986) - **Yahoo Entertainment**
+3. [Where to watch Chelsea vs. PSG live stream, TV channel, start time for Champions League match](https://www.sportingnews.com/us/soccer/news/watch-chelsea-vs-psg-live-stream-tv-channel-time-champions-league/972119bb2b7a10058bff4b90) - **Sporting News**
+4. [Where to watch Arsenal vs. Bayer Leverkusen live stream, TV channel, start time for Champions League match](https://www.sportingnews.com/us/soccer/news/watch-arsenal-bayer-leverkusen-live-stream-tv-channel-champions-league/2b449b7199943a084c66df04) - **Sporting News**
+5. [Behind the music - The Guzzlers](https://www.rte.ie/entertainment/2026/0317/1562510-behind-the-music-the-guzzlers/) - **RTE**
+6. [Chelsea can stop sweating now as exclusive says they’re safe from FA sanctions](https://chelsea.news/2026/03/chelsea-can-stop-sweating-now-as-exclusive-says-theyre-safe-from-fa-sanctions/) - **Chelsea.news**
+7. [Chelsea injury latest: Reece James, Estevao and more](https://eplindex.com/144104/chelsea-injury-latest-reece-james-estevao-and-more-2.html) - **English Premier League Index - Opta Stats**
+8. [Richard Hughes agrees deal over potential Liverpool exit](https://anfieldindex.com/92227/richard-hughes-agrees-deal-over-potential-liverpool-exit.html) - **Anfieldindex.com**
+9. [Chelsea vs. PSG, Champions League: Preview, team news, how to watch](https://weaintgotnohistory.sbnation.com/european-tournaments/167001/chelsea-vs-psg-champions-league-preview-team-news-how-to-watch) - **SB Nation**
+10. [Bruno Fernandes: Thierry Henry singles out what he loves about United star](https://thepeoplesperson.com/2026/03/17/bruno-fernandes-thierry-henry-singles-out-what-he-loves-about-united-star-307794/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-03-18 14:48:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-18 16:05:50 (KST) / (하루 100회 제한 준수 중)*
