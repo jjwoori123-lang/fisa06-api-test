@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [IPL 2026: Waaree Energies becomes Title Sponsor of Rajasthan Royals](https://economictimes.indiatimes.com/news/sports/ipl-2026-waaree-energies-becomes-title-sponsor-of-rajasthan-royals/articleshow/129651829.cms) - **The Times of India**
-2. [Hazard, Eto'o, and Luiz named in report](https://www.bbc.com/sport/football/articles/c0q3qe5wl14o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Pep Guardiola hands Erling Haaland fitness update for Carabao Cup final after Real Madrid substitution](https://cityxtra.co.uk/43257/pep-guardiola-hands-erling-haaland-fitness-update-for-carabao-cup-final-after-real-madrid-substitution/) - **Cityxtra.co.uk**
-4. [United aiming to sign off in style](https://www.manutd.com/en/news/detail/man-utd-looking-to-be-in-good-heart-ahead-of-24-day-break) - **Manchester United**
-5. [EFM Global Powers BLAST Premier Open Rotterdam in First Deployment of New Multi-Year Partnership](https://www.globenewswire.com/news-release/2026/03/18/3257937/0/en/EFM-Global-Powers-BLAST-Premier-Open-Rotterdam-in-First-Deployment-of-New-Multi-Year-Partnership.html) - **GlobeNewswire**
-6. ['10 men made it impossible': Guardiola after Champions League exit](https://www.rediff.com/sports/report/10-men-made-it-impossible-guardiola-after-champions-league-exit/20260318.htm) - **Rediff.com**
-7. [Sporting become fifth team in UCL history to overturn three-goal deficit](https://thefootballfaithful.com/sporting-become-fifth-team-in-ucl-history-to-overturn-three-goal-deficit/) - **The Football Faithful**
-8. [What Premier League club are now thinking about selling ‘one of the best players’ in the division to Man United this summer](https://strettynews.com/2026/03/18/everton-iliman-ndiaye-manchester-united-sale/) - **Strettynews.com**
-9. [Bodo humbled, but Kjetil Knutsen remains the manager Celtic should target](https://thecelticstar.com/bodo-humbled-but-kjetil-knutsen-remains-the-manager-celtic-should-target/) - **The Celtic Star**
-10. [Alexis Mac Allister endorses his own £50m midfield replacement](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-equi-fernandez-bayer-leverkusen-alexis-mac-allister-endorses-midfield-replacement/) - **Anfieldwatch.co.uk**
+1. [Can Le Bris be questioned over recent dip in form?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_95a458bc-9e5c-4ff0-a476-fec66c78ae62) - **Yahoo Entertainment**
+2. [Liverpool face Man United battle for Premier League midfielder](https://anfieldindex.com/92272/liverpool-face-united-battle-for-premier-league-midfielder.html) - **Anfieldindex.com**
+3. [Schmeichel: 'I could've potentially played my last game'](https://www.playmakerstats.com/news/schmeichel-i-could-ve-potentially-played-my-last-game-/1078106) - **Playmakerstats.com**
+4. [Pep Guardiola set to decide Manchester City future NEXT WEEK after Carabao Cup final against Arsenal](https://cityxtra.co.uk/43271/pep-guardiola-set-to-decide-manchester-city-future-next-week-after-carabao-cup-final-against-arsenal/) - **Cityxtra.co.uk**
+5. [Transfer rumour roundup: Juventus cool Tonali talk; Milan move for Parrott](https://www.footballmuse.com/features/transfer-rumour-roundup-juventus-cool-tonali-talk-milan-move-for-parrott) - **Footballmuse.com**
+6. [Bruno Fernandes sweeps double honours after standout Villa display](https://thepeoplesperson.com/2026/03/18/bruno-fernandes-sweeps-double-honours-after-standout-villa-display-307832/) - **The Peoples Person**
+7. [Premier League European qualification: Does eighth place qualify for Europe? Champions League, Europa League, Conference League, FA Cup and EFL Cup winners explained](https://www.101greatgoals.com/football/premier-league/premier-league-european-qualification-eighth-qualify/) - **101 Great Goals**
+8. [Manchester United are seriously working on a move for Newcastle United midfielder Sandro Tonali](https://sportsview.co.uk/2026/03/manchester-united-are-seriously-working-on-a-move-for-newcastle-united-midfielder-sandro-tonali?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-are-seriously-working-on-a-move-for-newcastle-united-midfielder-sandro-tonali) - **Sportsview.co.uk**
+9. [Arizona 'built for' March Madness, says one expert. Call it proof of Big 12 surge](https://www.usatoday.com/story/sports/ncaab/2026/03/18/march-madness-arizona-predictions-ncaa-bracket-big-12-basketball-best-conference/89176699007/) - **USA Today**
 
 
 ---
-*최근 업데이트: 2026-03-19 18:04:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-19 19:03:10 (KST) / (하루 100회 제한 준수 중)*
