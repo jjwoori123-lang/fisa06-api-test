@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Both Manchester clubs and Arsenal in battle for Premier League midfielder](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a36b9ba9-0c6c-4f27-830b-6677beade343) - **Yahoo Entertainment**
-2. [Turbulent week at Chelsea sees European humiliation and Enzo doubts follow financial scandal](https://abcnews.com/Politics/wireStory/turbulent-week-chelsea-sees-european-humiliation-enzo-doubts-131177185) - **Abcnews.com**
-3. [Freiburg's Noah Atubolu plans summer move amid links to West Ham and Tottenham](https://bulinews.com/freiburg-noah-atubolu-plans-summer-move-amid-links-west-ham-and-tottenham) - **Bulinews.com**
-4. [Kaden Wetjen's journey: From JUCO to the Iowa football record books](https://hawkeyeswire.usatoday.com/story/sports/college/hawkeyes/football/2026/03/18/kaden-wetjen-nfl-draft-iowa-football-journey/89027004007/) - **USA Today**
-5. [Sandro Tonali: Newcastle star’s stance on Man United transfer emerges](https://thepeoplesperson.com/2026/03/18/sandro-tonali-newcastle-stars-stance-on-man-united-transfer-emerges-307845/) - **The Peoples Person**
-6. [Turbulent week at Chelsea sees European humiliation and Enzo doubts follow financial scandal](https://sports.yahoo.com/articles/turbulent-week-chelsea-sees-european-113101214.html) - **Yahoo Entertainment**
-7. [Top 15 highest-paid MLB players in 2026](https://www.thebiglead.com/top-15-highest-paid-mlb-players-in-2026-v/) - **The Big Lead**
-8. [1.FC Köln’s Said El Mala gives go-ahead to join Brighton in the summer – €35m the likely fee](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5961f890-f7e7-46ca-94c5-f6b29faa3d72) - **Yahoo Entertainment**
-9. ['A very toxic situation at the moment'](https://www.bbc.com/sport/football/articles/clygyjyev81o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Manchester United add left-back to summer wish-list](https://thefootballfaithful.com/manchester-united-add-left-back-to-summer-wish-list/) - **The Football Faithful**
+2. [Manchester United ‘seriously interested’ in £100m-rated Tonali](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1f42ddf5-4c5e-4d5e-8736-80def12da011) - **Yahoo Entertainment**
+3. [Slot Says Liverpool Owe Strong Performance Against Galatasaray to Fans](https://liverpooloffside.sbnation.com/liverpool-fc-news-coverage/79244/slot-says-liverpool-owe-strong-performance-against-galatasaray-to-fans) - **SB Nation**
+4. [Newcastle United Starting XI vs Barcelona: Confirmed Team News and Predicted Lineup](https://eplindex.com/144171/newcastle-united-starting-xi-vs-barcelona-confirmed-team-news-and-predicted-lineup-3.html) - **English Premier League Index - Opta Stats**
+5. [Chelsea punisment 'extremely lenient' - ex-Blues execuctive Purslow](https://www.bbc.com/sport/football/articles/cy9g9nq9vxlo) - **BBC News**
+6. [USA's Weston McKennie to Star in Tubi's 'Destination World Cup' Docuseries](https://www.foxsports.com/stories/soccer/usas-weston-mckennie-star-tubi-world-cup-docuseries) - **Fox Sports**
+7. [Beren Cross, The Athletic: Why Leeds v Brentford will be special game](https://www.brentfordfc.com/en/news/article/analysis-leeds-v-brentford-premier-league-beren-cross-the-athletic) - **Brentfordfc.com**
+8. [Journalist reveals the truth behind Richard Hughes’ potential Liverpool exit](https://anfieldindex.com/92276/report-journalist-claims-no-deal-between-liverpools-hughes-and-saudi-club.html) - **Anfieldindex.com**
+9. [Haway The Podcast | Q&A Part 2 | Set Pieces | Habib Diarra | VAR](https://rokerreport.sbnation.com/haway-the-podcast/131156/haway-the-podcast-qa-part-2-set-pieces-habib-diarra-var) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-03-19 20:52:50 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-19 22:13:12 (KST) / (하루 100회 제한 준수 중)*
