@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Nigeria-UK partnership stable despite painful past – King Charles](https://punchng.com/nigeria-uk-partnership-stable-despite-painful-past-king-charles/) - **The Punch**
-2. [VIDEO: King Charles jokes over jollof rice rivalry at banquet for Tinubu](https://punchng.com/video-king-charles-jokes-over-jollof-rice-rivalry-at-banquet-for-tinubu/) - **The Punch**
-3. [Is Premier League still on for fifth Champions League spot?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_49e6b73a-4162-4228-a1da-876ee3b7f8f8) - **Yahoo Entertainment**
-4. [Is Premier League still on for fifth Champions League spot?](https://www.bbc.com/sport/football/articles/cwy9yxw8dy9o) - **BBC News**
-5. [Ex-AC Milan star Antonio Cassano delivers strong criticism to Rafael Leao: ‘ He wouldn’t even play in training’](https://worldsoccertalk.com/news/ex-ac-milan-star-antonio-cassano-delivers-strong-criticism-to-rafael-leao-he-wouldnt-even-play-in-training/) - **Worldsoccertalk.com**
-6. [Liverpool, Bayern Munich and Atletico Madrid go into the quarters](https://www.marca.com/en/football/champions-league/2026/03/18/69bb25dee2704e3f458b45aa.html) - **Marca**
-7. [Still got it? Mohamed Salah sets up Liverpool vs. PSG showdown in the Champions League](https://sports.yahoo.com/articles/still-got-mohamed-salah-sets-222811001.html) - **Yahoo Entertainment**
-8. [Liverpool thrash Galatasaray 4-0 to reach Champions League quarterfinals](https://www.aljazeera.com/sports/2026/3/18/liverpool-thrash-galatasaray-4-0-to-reach-champions-league-quarterfinals) - **Al Jazeera English**
-9. [UCL: Liverpool thrash Galatasaray 4-0 to reach Champions League quarter-final](https://punchng.com/ucl-liverpool-thrash-galatasaray-4-0-to-reach-champions-league-quarter-final/) - **The Punch**
+1. [Four English teams out in 24 hours - what just happened and why?](https://www.bbc.com/sport/football/articles/cqxd55dxrejo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Four English teams out in 24 hours - what just happened and why?](https://www.bbc.com/sport/football/articles/cqxd55dxrejo) - **BBC News**
+3. [What does the Premier League's disastrous round of 16 tell us about the state of the Champions League?](https://www.cbssports.com/soccer/news/premier-leagues-round-of-16-champions-league/) - **CBS Sports**
+4. [Tudor impressed by 'improved' Spurs despite Champions League exit](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d502e2a3-aab1-4a74-a31f-433b5aaf3dd2) - **Yahoo Entertainment**
+5. [Said El Mala: Brighton poised to derail United’s move for Köln star](https://thepeoplesperson.com/2026/03/18/said-el-mala-brighton-poised-to-derail-uniteds-move-for-koln-star-307871/) - **The Peoples Person**
+6. [Tudor hails ‘beautiful’ support from Spurs fans and praises Archie Gray’s performance](https://hayters.com/tudor-hails-beautiful-support-from-spurs-fans-and-praises-archie-grays-performance/) - **Hayters.com**
+7. [FULL TEXT: King Charles’ speech at state banquet for Tinubu](https://punchng.com/full-text-king-charles-speech-at-state-banquet-for-tinubu/) - **The Punch**
+8. [Ratings: Alvarez steers Atlético into UCL last 8 despite loss at Spurs](https://www.intothecalderon.com/atletico-madrid-player-ratings/22606/tottenham-hotspur-3-2-5-7-atletico-madrid-player-ratings) - **Into The Calderon**
 
 
 ---
-*최근 업데이트: 2026-03-20 07:50:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-20 08:33:15 (KST) / (하루 100회 제한 준수 중)*
