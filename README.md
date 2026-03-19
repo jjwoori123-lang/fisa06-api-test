@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Can Le Bris be questioned over recent dip in form?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_95a458bc-9e5c-4ff0-a476-fec66c78ae62) - **Yahoo Entertainment**
-2. [Liverpool face Man United battle for Premier League midfielder](https://anfieldindex.com/92272/liverpool-face-united-battle-for-premier-league-midfielder.html) - **Anfieldindex.com**
-3. [Schmeichel: 'I could've potentially played my last game'](https://www.playmakerstats.com/news/schmeichel-i-could-ve-potentially-played-my-last-game-/1078106) - **Playmakerstats.com**
-4. [Pep Guardiola set to decide Manchester City future NEXT WEEK after Carabao Cup final against Arsenal](https://cityxtra.co.uk/43271/pep-guardiola-set-to-decide-manchester-city-future-next-week-after-carabao-cup-final-against-arsenal/) - **Cityxtra.co.uk**
-5. [Transfer rumour roundup: Juventus cool Tonali talk; Milan move for Parrott](https://www.footballmuse.com/features/transfer-rumour-roundup-juventus-cool-tonali-talk-milan-move-for-parrott) - **Footballmuse.com**
-6. [Bruno Fernandes sweeps double honours after standout Villa display](https://thepeoplesperson.com/2026/03/18/bruno-fernandes-sweeps-double-honours-after-standout-villa-display-307832/) - **The Peoples Person**
-7. [Premier League European qualification: Does eighth place qualify for Europe? Champions League, Europa League, Conference League, FA Cup and EFL Cup winners explained](https://www.101greatgoals.com/football/premier-league/premier-league-european-qualification-eighth-qualify/) - **101 Great Goals**
-8. [Manchester United are seriously working on a move for Newcastle United midfielder Sandro Tonali](https://sportsview.co.uk/2026/03/manchester-united-are-seriously-working-on-a-move-for-newcastle-united-midfielder-sandro-tonali?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-are-seriously-working-on-a-move-for-newcastle-united-midfielder-sandro-tonali) - **Sportsview.co.uk**
-9. [Arizona 'built for' March Madness, says one expert. Call it proof of Big 12 surge](https://www.usatoday.com/story/sports/ncaab/2026/03/18/march-madness-arizona-predictions-ncaa-bracket-big-12-basketball-best-conference/89176699007/) - **USA Today**
+1. [Five Things Learned: Manchester City 1-2 Real Madrid (Aggregate 1-5) – UEFA Champions League Round of 16 Second Leg](https://cityxtra.co.uk/43251/five-things-learned-manchester-city-1-2-real-madrid-aggregate-1-5-uefa-champions-league-round-of-16-second-leg/) - **Cityxtra.co.uk**
+2. [Fernandez uncertain over Chelsea future after Champions League exit](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_52d07120-ef47-4d3d-aa6a-6b9665210abb) - **Yahoo Entertainment**
+3. [A masterclass from Arbeloa? The Real Madrid coach knocked out Guardiola and Mourinho in the same Champions League](https://www.marca.com/en/football/champions-league/2026/03/18/69ba80b3268e3e2b1b8b45ba.html) - **Marca**
+4. [Why Arsenal’s victory is actually a boost for Liverpool’s Champions League hopes](https://anfieldindex.com/92274/arsenal-victory-a-boost-for-liverpools-champions-league-hopes.html) - **Anfieldindex.com**
+5. [IPL 2026 Build-up Live Updates: Kohli lands in Bengaluru; CSK camp in full swing](https://timesofindia.indiatimes.com/sports/cricket/ipl-2026-live-updates-build-up-indian-premier-league-latest-news-teams-and-squad-players-injury-practice/liveblog/129653994.cms) - **The Times of India**
+6. [Ireland in good nick ahead of the Nations Championship](https://www.irishtimes.com/sport/2026/03/18/ireland-in-good-nick-ahead-of-the-nations-championship/) - **The Irish Times**
+7. [Top 10 Richest Australian Athletes in 2026: NBA Stars, NFL Linemen and F1 Drivers Lead the Pack](https://www.ibtimes.com.au/top-10-richest-australian-athletes-2026-nba-stars-nfl-linemen-f1-drivers-lead-pack-1863686) - **Ibtimes.com.au**
+8. [Senegal stripped, Chelsea fined, Man City charges, never mind](https://footballtoday.com/2026/03/18/senegal-stripped-chelsea-fined-man-city-charges-never-mind/) - **Footballtoday.com**
+9. [Arsenal adds another Newcastle United player to their shopping list](https://www.justarsenal.com/arsenal-adds-another-newcastle-united-player-to-their-shopping-list/411911) - **Just Arsenal News**
+10. [Celtic keeper Schmeichel fears shoulder injury could end his career](https://sports.yahoo.com/articles/celtic-keeper-schmeichel-fears-shoulder-102520589.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-19 19:03:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-19 20:04:17 (KST) / (하루 100회 제한 준수 중)*
