@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United add left-back to summer wish-list](https://thefootballfaithful.com/manchester-united-add-left-back-to-summer-wish-list/) - **The Football Faithful**
-2. [Manchester United ‘seriously interested’ in £100m-rated Tonali](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1f42ddf5-4c5e-4d5e-8736-80def12da011) - **Yahoo Entertainment**
-3. [Slot Says Liverpool Owe Strong Performance Against Galatasaray to Fans](https://liverpooloffside.sbnation.com/liverpool-fc-news-coverage/79244/slot-says-liverpool-owe-strong-performance-against-galatasaray-to-fans) - **SB Nation**
-4. [Newcastle United Starting XI vs Barcelona: Confirmed Team News and Predicted Lineup](https://eplindex.com/144171/newcastle-united-starting-xi-vs-barcelona-confirmed-team-news-and-predicted-lineup-3.html) - **English Premier League Index - Opta Stats**
-5. [Chelsea punisment 'extremely lenient' - ex-Blues execuctive Purslow](https://www.bbc.com/sport/football/articles/cy9g9nq9vxlo) - **BBC News**
-6. [USA's Weston McKennie to Star in Tubi's 'Destination World Cup' Docuseries](https://www.foxsports.com/stories/soccer/usas-weston-mckennie-star-tubi-world-cup-docuseries) - **Fox Sports**
-7. [Beren Cross, The Athletic: Why Leeds v Brentford will be special game](https://www.brentfordfc.com/en/news/article/analysis-leeds-v-brentford-premier-league-beren-cross-the-athletic) - **Brentfordfc.com**
-8. [Journalist reveals the truth behind Richard Hughes’ potential Liverpool exit](https://anfieldindex.com/92276/report-journalist-claims-no-deal-between-liverpools-hughes-and-saudi-club.html) - **Anfieldindex.com**
-9. [Haway The Podcast | Q&A Part 2 | Set Pieces | Habib Diarra | VAR](https://rokerreport.sbnation.com/haway-the-podcast/131156/haway-the-podcast-qa-part-2-set-pieces-habib-diarra-var) - **SB Nation**
+1. [Ranking the top shortstops in MLB entering 2026](https://www.thebiglead.com/ranking-the-top-shortstops-in-mlb-entering-2026/) - **The Big Lead**
+2. ['Absolute class': 18-year-old is coming to solve major Liverpool problem](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_450f3c86-6b79-49bb-83e5-94e8dfcd3ec7) - **Yahoo Entertainment**
+3. [LAMB OF GOD's MARK MORTON Reflects On 30 Years In Music: "The Business Changes – You Have To Adapt"](https://metalinjection.net/news/lamb-of-gods-mark-morton-reflects-on-30-years-in-music-the-business-changes-you-have-to-adapt) - **Metal Injection.net**
+4. [UCL — Barcelona vs. Newcastle — Team News & Match Preview](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/21079/ucl-barcelona-vs-newcastle-team-news-match-preview) - **SB Nation**
+5. [Liverpool join Arsenal, Man City and others in targeting £70m Premier League defender](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1f902a5c-cc30-40e0-90d6-d50eb7f8ab15) - **Yahoo Entertainment**
+6. [Donnarumma tells Capello ‘first thing’ he thought before Valverde’s goal](https://football-italia.net/donnarumma-capello-1st-thing-valverde-goal/) - **Football Italia**
+7. [Chelsea punishment 'lenient' - ex-Blues exec Purslow](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c68ef18c-1922-468a-b3e5-fb77fdc0c340) - **Yahoo Entertainment**
+8. [Boreham Wood hope for double after cup triumph](https://www.bbc.com/sport/football/articles/cedzd6xyvjpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Fine margins, overthinking & Real: Has Pep underperformed in Europe?](https://www.skysports.com/football/news/11945/13521353/why-pep-guardiola-has-struggled-to-turn-domestic-dominance-into-repeated-champions-league-glory-at-man-city) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-03-19 22:13:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-19 23:14:01 (KST) / (하루 100회 제한 준수 중)*
