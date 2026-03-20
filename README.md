@@ -1,13 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tyler Adams sidelined for Bournemouth-Man United showdown after USMNT absence](https://sbisoccer.com/2026/03/tyler-adams-sidelined-for-bournemouth-man-united-showdown-after-usmnt-absence) - **Sbisoccer.com**
-2. [UEFA to discuss VAR changes with Premier League and other top European leagues amid overuse fears](https://worldsoccertalk.com/news/uefa-to-discuss-var-changes-with-premier-league-and-other-top-european-leagues-amid-overuse-fears/) - **Worldsoccertalk.com**
-3. [Premier League darts a big hit for fancy dress merrymakers in Dublin](https://www.irishtimes.com/sport/2026/03/19/premier-league-darts-a-big-hit-for-fancy-dress-merrymakers-in-dublin/) - **The Irish Times**
-4. [Former Everton Chief Tips His Club To Sign Arsenal Player In Place Of Brandt: Right Choice?](https://the4thofficial.net/2026/03/former-everton-chief-tips-his-club-to-sign-arsenal-player-in-place-of-brandt-right-choice/) - **The4thofficial.net**
-5. [Troy Parrott on the scoresheet for AZ Alkmaar in Prague](https://www.irishtimes.com/sport/soccer/2026/03/19/troy-parrott-on-the-scoresheet-for-az-alkmaar-in-prague/) - **The Irish Times**
-6. [Liam Rosenior breaks silence on Enzo Fernandez’s potential Chelsea exit](https://eplindex.com/144248/liam-rosenior-breaks-silence-on-enzo-fernandezs-potential-chelsea-exit.html) - **English Premier League Index - Opta Stats**
-7. [USMNT Roster Drama, Pepi to Fulham Gamble & Premier League’s Champions League Reality Check](https://sports.yahoo.com/soccer/article/usmnt-roster-drama-pepi-to-fulham-gamble--premier-leagues-champions-league-reality-check-214812022.html) - **Yahoo Entertainment**
+1. [Everton makes their intention about Arsenal target clear](https://www.justarsenal.com/everton-makes-their-intention-about-arsenal-target-clear/411990) - **Just Arsenal News**
+2. [Julian Nagelsmann discusses high number of Premier League Germany call ups, explains opinion reversal on Anton Stach](https://www.getfootballnewsgermany.com/2026/anton-stach-germany-sel/) - **Getfootballnewsgermany.com**
+3. [Europa League review: Villa and Forest still on collision course while Freiburg and Celta Vigo enjoy impressive wins](https://www.101greatgoals.com/football/europa-league/europa-league-review-aston-villa-nottingham-forest-freiburg-celta-vigo-enjoy-impressive-wins/) - **101 Great Goals**
+4. [Aston Villa 2-0 Lille: What McGinn and Sancho said](https://www.bbc.com/sport/football/articles/cr71r8g70m4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Captain McGinn lauds super Sancho as Aston Villa progress](https://www.101greatgoals.com/football/europa-league/captain-mcginn-lauds-super-sancho-as-aston-villa-progress/) - **101 Great Goals**
+6. [Big clashes ahead: see all the Europa League quarter-final ties ](https://onefootball.com/en/news/big-clashes-ahead-see-all-the-europa-league-quarter-final-ties-42585222) - **Onefootball.com**
+7. [Littler stuns Price with thrilling Dublin comeback](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bca1da9f-7e53-4efc-a43f-3620eab14e15) - **Yahoo Entertainment**
+8. [Littler storms back from 5-0 down to stun Price in Dublin](https://www.rte.ie/sport/darts/2026/0319/1564288-littler-storms-back-from-5-0-down-to-stun-price-in-dublin/) - **RTE**
+9. [Luke Littler storms back from 5-0 down to grab sensational victory in Dublin epic](https://www.independent.ie/sport/other-sports/darts/luke-littler-storms-back-from-5-0-down-to-grab-sensational-victory-in-dublin-epic/a341303256.html) - **Independent.ie**
+10. [Littler stuns Price with thrilling Dublin comeback](https://www.bbc.com/sport/darts/articles/cx26g0jzw2wo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-21 07:32:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-21 08:00:15 (KST) / (하루 100회 제한 준수 중)*
