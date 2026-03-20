@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [NCAA Men's Basketball Tournament: 68 Names to Know Heading Into March Madness](https://www.foxsports.com/stories/college-basketball/ncaa-mens-basketball-tournament-68-names-know-heading-march-madness) - **Fox Sports**
-2. [IPL 2026: Jos Buttler hopes short break from cricket will help him this season](https://economictimes.indiatimes.com/news/sports/ipl-2026-jos-buttler-hopes-short-break-from-cricket-will-help-him-this-season/articleshow/129671446.cms) - **The Times of India**
-3. [Reasons To Be Cheerful Ahead Of The Wear-Tyne Derby!](https://rokerreport.sbnation.com/opinion/131377/reasons-to-be-cheerful-ahead-of-the-wear-tyne-derby) - **SB Nation**
-4. [Buttler hopeful of England return despite T20 World Cup struggles](https://www.channelnewsasia.com/sport/buttler-hopeful-england-return-despite-t20-world-cup-struggles-6003496) - **CNA**
-5. [Barcelona, Liverpool, waltz into Champions League quarters](https://www.rediff.com/sports/report/barcelona-liverpool-waltz-into-champions-league-quarters-pix/20260319.htm) - **Rediff.com**
-6. [NZ20 v Big Bash League: Will Black Caps, White Ferns strike over domestic T20 future?](https://www.nzherald.co.nz/sport/cricket/nz20-v-big-bash-league-will-black-caps-white-ferns-strike-over-domestic-t20-future/premium/RS6E3SJKFFHSZFTHOXZQ4G34OY/) - **New Zealand Herald**
-7. [2026 Premier League Darts Night 7 draw, match predictions and 3 storylines to watch in Dublin](https://www.sportingnews.com/us/darts/news/2026-premier-league-darts-night-7-draw-match-predictions-dublin/822dfda3956e113107008179) - **Sporting News**
-8. [Report: Randal Kolo Muani is still hoping for a return to Juventus this summer](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_368477b3-c56d-41c7-af44-48f00959f79b) - **Yahoo Entertainment**
-9. [LeBron James' quest for NBA ownership may have hit a major road block](https://www.cbssports.com/nba/news/lebron-james-nba-ownership-expansion-las-vegas/) - **CBS Sports**
-10. [Frankfurt’s asking price the only barrier between United and Nathaniel Brown](https://thepeoplesperson.com/2026/03/19/frankfurts-asking-price-the-only-barrier-between-united-and-nathaniel-brown-307886/) - **The Peoples Person**
+1. [Best Offshore Casinos USA in 2026 — New Offshore Gambling Sites](https://radaronline.com/p/best-offshore-casinos-usa-in-2026-new-offshore-gambling-sites/) - **Radaronline.com**
+2. [Thursday’s Everton News: Lewis-Skelly update, McNeil revival, U21’s ousted](https://royalbluemersey.sbnation.com/everton-news/78898/arsenal-lewis-skelly-update-mcneil-revival-u21s-out-international-cup) - **SB Nation**
+3. [IPL 2026: Mumbai Indians, Kolkata Knight Riders get Ai+ Smartphone as partner](https://economictimes.indiatimes.com/news/sports/ipl-2026-mumbai-indians-kolkata-knight-riders-get-ai-smartphone-as-partner/articleshow/129672768.cms) - **The Times of India**
+4. [Weekly sports quiz: Who is youngest top-flight scorer?](https://www.bbc.com/sport/articles/cge8ex25py8o) - **BBC News**
+5. [FSG's stance on Richard Hughes exit as Al-Hilal deal moves closer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-fsg-stance-on-richard-hughes-exit-as-al-hilal-deal-moves-closer/) - **Anfieldwatch.co.uk**
+6. [Naija no dey carry last, nine things King Charles said about Nigeria](https://punchng.com/naija-no-dey-carry-last-nine-things-king-charles-said-about-nigeria/) - **The Punch**
+7. [FULL LIST: Top 10 fastest players to reach 50 Champions League goals](https://punchng.com/full-list-top-10-fastest-players-to-reach-50-champions-league-goals/) - **The Punch**
+8. [AEK Larnaca vs Crystal Palace – Match preview and team news](https://thefootballfaithful.com/aek-larnaca-vs-crystal-palace-match-preview-and-team-news/) - **The Football Faithful**
+9. [Aston Villa vs Lille – Match preview and team news](https://thefootballfaithful.com/aston-villa-vs-lille-match-preview-and-team-news/) - **The Football Faithful**
+10. [FC Midtjylland vs Nottingham Forest – Match preview and team news](https://thefootballfaithful.com/fc-midtjylland-vs-nottingham-forest-match-preview-and-team-news/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-03-20 14:54:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-20 16:00:46 (KST) / (하루 100회 제한 준수 중)*
