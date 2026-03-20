@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Aston Villa defending 1-0 lead over Lille in Europa League round of 16](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e1812224-adcc-4f7c-9a03-10331a9065da) - **Yahoo Entertainment**
-2. [Gian van Veen pulls out of Premier League darts week seven in Dublin tonight after kidney stones diagnosis](https://www.independent.ie/sport/other-sports/gian-van-veen-pulls-out-of-premier-league-darts-week-seven-in-dublin-tonight-after-kidney-stones-diagnosis/a1473311868.html) - **Independent.ie**
-3. [Bruno Fernandes: Jose Fonte delivers verdict on United skipper’s future](https://thepeoplesperson.com/2026/03/19/bruno-fernandes-jose-fonte-delivers-verdict-on-united-skippers-future-307888/) - **The Peoples Person**
-4. [Brentford owner lifts lid on missed Omar Marmoush transfer before £59M Manchester City switch](https://cityxtra.co.uk/42990/brentford-owner-lifts-lid-on-missed-omar-marmoush-transfer-before-59m-manchester-city-switch/) - **Cityxtra.co.uk**
-5. [‘We need it back’ – Josh Rock makes Killarney suggestion for EuroTour venue as PL darts returns to Dublin](https://www.independent.ie/sport/other-sports/darts/we-need-it-back-josh-rock-makes-killarney-suggestion-for-eurotour-venue-as-pl-darts-returns-to-dublin/a975000598.html) - **Independent.ie**
-6. [Lens needs a favor from former striker Elye Wahi against PSG in Ligue 1 title race](https://sports.yahoo.com/articles/lens-needs-favor-former-striker-092125922.html) - **Yahoo Entertainment**
-7. [Dinesh Karthik & Dipika Pallikal welcome third child. Couple names daughter 'Raaha', here’s the beautiful meaning behind it](https://economictimes.indiatimes.com/news/new-updates/dinesh-karthik-dipika-pallikal-welcome-third-child-couple-names-daughter-raaha-heres-the-beautiful-meaning-behind-it/articleshow/129675282.cms) - **The Times of India**
-8. [Al Ahly SC: sore losers or a calculated victim strategy?](https://foot-africa.com/en/news/al-ahly-sc-sore-losers-or-a-calculated-victim-strategy-1130948/) - **Foot-africa.com**
-9. [Van Veen to skip Dublin due to kidney stones diagnosis](https://www.rte.ie/sport/darts/2026/0319/1564119-van-veen-to-skip-dublin-due-to-kidney-stones-diagnosis/) - **RTE**
+1. [Russell Martin reveals why Kobbie Mainoo has become Carrick’s biggest weapon](https://thepeoplesperson.com/2026/03/19/russell-martin-reveals-why-kobbie-mainoo-has-become-carricks-biggest-weapon-307900/) - **The Peoples Person**
+2. [Tricky Trees take over Herning](https://www.bbc.com/sport/football/articles/cx28229j1ewo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Reds need to use Galatasaray win 'to find consistency' in performances](https://www.bbc.com/sport/football/articles/cvgkg2d6p53o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Who Should Reading Keep At The End Of This Season?](https://thetilehurstend.sbnation.com/2025-26-analysis-opinion-reading-fc-royals/54212/who-should-reading-keep-at-the-end-of-this-season) - **SB Nation**
+5. [Should Kepa start for Arsenal against Man City in Carabao Cup final?](https://www.justarsenal.com/should-kepa-start-for-arsenal-against-man-city-in-carabao-cup-final/411958) - **Just Arsenal News**
+6. [“A True Celt” – Trophies alone do not define Johnny Doyle’s Celtic legacy](https://thecelticstar.com/a-true-celt-trophies-alone-do-not-define-johnny-doyles-celtic-legacy/) - **The Celtic Star**
+7. [Coleman 'proved me wrong' - Hallgrimsson](https://www.rte.ie/sport/soccer/2026/0319/1564135-coleman-proved-me-wrong-hallgrimsson/) - **RTE**
+8. [Report – When Inter Milan Could Table First Offer For Tottenham Hotspur Goalkeeper](https://sempreinter.com/2026/03/19/when-inter-milan-could-make-first-offer-vicario/) - **SempreInter**
+9. [Chelsea lose 2 starters ahead of Manchester City clash](https://dailycannon.com/2026/03/chelsea-injuries-manchester-city/) - **Dailycannon.com**
 
 
 ---
-*최근 업데이트: 2026-03-20 18:47:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-20 19:41:44 (KST) / (하루 100회 제한 준수 중)*
