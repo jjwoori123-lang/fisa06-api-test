@@ -1,15 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Russell Martin reveals why Kobbie Mainoo has become Carrick’s biggest weapon](https://thepeoplesperson.com/2026/03/19/russell-martin-reveals-why-kobbie-mainoo-has-become-carricks-biggest-weapon-307900/) - **The Peoples Person**
-2. [Tricky Trees take over Herning](https://www.bbc.com/sport/football/articles/cx28229j1ewo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Reds need to use Galatasaray win 'to find consistency' in performances](https://www.bbc.com/sport/football/articles/cvgkg2d6p53o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Who Should Reading Keep At The End Of This Season?](https://thetilehurstend.sbnation.com/2025-26-analysis-opinion-reading-fc-royals/54212/who-should-reading-keep-at-the-end-of-this-season) - **SB Nation**
-5. [Should Kepa start for Arsenal against Man City in Carabao Cup final?](https://www.justarsenal.com/should-kepa-start-for-arsenal-against-man-city-in-carabao-cup-final/411958) - **Just Arsenal News**
-6. [“A True Celt” – Trophies alone do not define Johnny Doyle’s Celtic legacy](https://thecelticstar.com/a-true-celt-trophies-alone-do-not-define-johnny-doyles-celtic-legacy/) - **The Celtic Star**
-7. [Coleman 'proved me wrong' - Hallgrimsson](https://www.rte.ie/sport/soccer/2026/0319/1564135-coleman-proved-me-wrong-hallgrimsson/) - **RTE**
-8. [Report – When Inter Milan Could Table First Offer For Tottenham Hotspur Goalkeeper](https://sempreinter.com/2026/03/19/when-inter-milan-could-make-first-offer-vicario/) - **SempreInter**
-9. [Chelsea lose 2 starters ahead of Manchester City clash](https://dailycannon.com/2026/03/chelsea-injuries-manchester-city/) - **Dailycannon.com**
+1. [Tottenham and Chelsea chasing Hoffenheim forward](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_46fa6285-8edc-4b3c-8253-3287bd85588a) - **Yahoo Entertainment**
+2. [United Rugby Championship Round 13: All You Need to Know](https://www.rte.ie/sport/united-rugby-championship/2026/0319/1564153-united-rugby-championship-round-13-all-you-need-to-know/) - **RTE**
+3. [How to watch Premier League Darts 2026 Dublin: Live stream, TV channel and schedule](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_13dc2943-673e-479b-8f66-6baaf212def0) - **Yahoo Entertainment**
+4. [PSG’s Fabián Ruiz set to return for team training after the break](https://www.getfootballnewsfrance.com/2026/psgs-fabian-ruiz-set-to-return-for-team-training-after-the-break/) - **Get French Football News**
+5. [Does Sandro Tonali have a release clause? How much Newcastle star could cost in transfer market amid Man United rumours](https://www.sportingnews.com/us/soccer/newcastle-united/news/sandro-tonali-release-clause-newcastle-transfer-cost/da14c9f1aca7ace1983b490e) - **Sporting News**
+6. [Last League Cup final between Arsenal and Man City shows how much both sides have changed](https://www.playmakerstats.com/news/last-league-cup-final-between-arsenal-and-man-city-shows-how-much-both-sides-have-changed/1078324) - **Playmakerstats.com**
+7. [Arne Slot provides Mo Salah injury update after Liverpool’s win over Galatasaray](https://anfieldindex.com/92315/arne-slot-provides-mo-salah-injury-update-after-liverpools-win-over-galatasaray.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-03-20 19:41:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-20 20:34:45 (KST) / (하루 100회 제한 준수 중)*
