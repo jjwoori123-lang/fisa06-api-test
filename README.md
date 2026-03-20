@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Four pundits and a plasma - debating the next decade in football](https://www.bbc.com/sport/football/articles/cjrqr5zjwd5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Farke on Okafor, Gudmundsson's suspension and Brentford](https://www.bbc.com/sport/football/articles/ckgw2mvgd7ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Fabian Yantorno On Gretna, Hartlepool United And Working In Uruguay](https://worldfootballindex.com/2026/03/fabian-yantorno-on-gretna-hartlepool-united-and-working-in-uruguay/) - **World Football Index**
-4. [Argentina make Lisandro Martinez decision ahead of international break](https://thepeoplesperson.com/2026/03/19/argentina-make-lisandro-martinez-decision-ahead-of-international-break-307904/) - **The Peoples Person**
-5. [Spalletti wants Pellegrini at Juventus, the midfielder also finds interest in the Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_434eb5a4-91ae-4061-8c3b-2ff7c35008d6) - **Yahoo Entertainment**
-6. [Karl, Urbig and Undav in for Germany, Stiller out of March friendlies](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260319-99-881954/) - **Dpa-international.com**
-7. [UEFA calls for VAR summit amid growing concerns](https://www.101greatgoals.com/football/uefa-calls-for-var-summit-amid-growing-concerns/) - **101 Great Goals**
-8. [Report Paratici calls Maresca but ex-Chelsea coach is Man City top choice if Guardiola departs](https://football-italia.net/paratici-calls-maresca-man-city-top-choice/) - **Football Italia**
-9. [Al Hilal plot move for Liverpool sporting director Richard Hughes](https://footballtoday.com/2026/03/19/al-hilal-plot-move-for-liverpool-sporting-director-richard-hughes/) - **Footballtoday.com**
-10. [Ange-Yoan Bonny: How United could hamper Luis Enrique’s plans](https://thepeoplesperson.com/2026/03/19/ange-yoan-bonny-how-united-could-hamper-luis-enriques-plans-307906/) - **The Peoples Person**
+1. [Premier League price cap on away tickets extended](https://www.rte.ie/sport/soccer/2026/0319/1564217-premier-league-price-cap-on-away-tickets-extended/) - **RTE**
+2. [Tudor charged over 'home referee' claim](https://www.bbc.com/sport/football/articles/c9qdglrv05lo) - **BBC News**
+3. [Fernandez completely committed to Chelsea, says Rosenior](https://www.channelnewsasia.com/sport/fernandez-completely-committed-chelsea-says-rosenior-6004801) - **CNA**
+4. [How to watch Arsenal vs Manchester City, League Cup final live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-arsenal-vs-manchester-city-league-cup-final-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
+5. [LOI preview: Bohs looking to make it eight unbeaten](https://www.rte.ie/sport/soccer/2026/0319/1564218-loi-preview-bohs-looking-to-make-it-eight-unbeaten/) - **RTE**
+6. [Bernardo Silva eligibility for Carabao Cup Final after Real Madrid red card](https://cityxtra.co.uk/43384/bernardo-silva-eligibility-for-carabao-cup-final-after-real-madrid-red-card/) - **Cityxtra.co.uk**
+7. [PREVIEW | Fulham vs Burnley - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-fulham-vs-burnley-team-news-lineups-predictions/1079033) - **Playmakerstats.com**
+8. [Farewell number 18, hello number six - inside Man Utd's midfielder hunt](https://www.bbc.com/sport/football/articles/czxr6dzr606o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Farewell number 18, hello number six - inside Man Utd's midfielder hunt](https://www.bbc.com/sport/football/articles/czxr6dzr606o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-20 23:27:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-21 00:26:38 (KST) / (하루 100회 제한 준수 중)*
