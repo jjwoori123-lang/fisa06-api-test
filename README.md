@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Indispensable Germany star green-lights Liverpool move amid agent switch](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-nnamdi-collins-germany-international-eintracht-frankfurt/) - **Anfieldwatch.co.uk**
-2. [Translator troubles another unwelcome Villa distraction](https://www.bbc.com/sport/football/articles/c9dnd3ypev5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [England still in good position for fifth Champions League spot despite exits](https://www.skysports.com/football/news/11945/13521648/fifth-champions-league-place-england-still-in-good-position-in-co-efficient-table-for-extra-spot-despite-last-16-eliminations) - **Sky Sports**
-4. [Johnny Kenny’s World Cup Ambitions aided by Martin O’Neill](https://thecelticstar.com/johnny-kennys-world-cup-ambitions-aided-by-martin-oneill/) - **The Celtic Star**
-5. [Danny Murphy highlights two major problems Chelsea must address, “this has been coming”](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_005369e6-e3ed-441f-a196-248ac163189c) - **Yahoo Entertainment**
-6. [Who is Thiago Pitarch - Real Madrid's latest wonderkid?](https://www.bbc.com/sport/football/articles/cm21274xn43o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Poor Premier League run must end now](https://www.bbc.com/sport/football/articles/c3wlwgwdy5qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Champions League quarter-final draw in full](https://thefootballfaithful.com/champions-league-quarter-final-draw-in-full-arsenal-face-sporting/) - **The Football Faithful**
-9. [Tudor hails Tottenham midfielder Gray after Atletico display](https://thefootballfaithful.com/tudor-hails-tottenham-midfielder-gray-after-atletico-display/) - **The Football Faithful**
-10. [Champions League Awards – Ruthless Raphinha, Sporting stun Bodo](https://thefootballfaithful.com/champions-league-awards-ruthless-raphinha-sporting-stun-bodo/) - **The Football Faithful**
+1. [Aston Villa defending 1-0 lead over Lille in Europa League round of 16](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e1812224-adcc-4f7c-9a03-10331a9065da) - **Yahoo Entertainment**
+2. [Gian van Veen pulls out of Premier League darts week seven in Dublin tonight after kidney stones diagnosis](https://www.independent.ie/sport/other-sports/gian-van-veen-pulls-out-of-premier-league-darts-week-seven-in-dublin-tonight-after-kidney-stones-diagnosis/a1473311868.html) - **Independent.ie**
+3. [Bruno Fernandes: Jose Fonte delivers verdict on United skipper’s future](https://thepeoplesperson.com/2026/03/19/bruno-fernandes-jose-fonte-delivers-verdict-on-united-skippers-future-307888/) - **The Peoples Person**
+4. [Brentford owner lifts lid on missed Omar Marmoush transfer before £59M Manchester City switch](https://cityxtra.co.uk/42990/brentford-owner-lifts-lid-on-missed-omar-marmoush-transfer-before-59m-manchester-city-switch/) - **Cityxtra.co.uk**
+5. [‘We need it back’ – Josh Rock makes Killarney suggestion for EuroTour venue as PL darts returns to Dublin](https://www.independent.ie/sport/other-sports/darts/we-need-it-back-josh-rock-makes-killarney-suggestion-for-eurotour-venue-as-pl-darts-returns-to-dublin/a975000598.html) - **Independent.ie**
+6. [Lens needs a favor from former striker Elye Wahi against PSG in Ligue 1 title race](https://sports.yahoo.com/articles/lens-needs-favor-former-striker-092125922.html) - **Yahoo Entertainment**
+7. [Dinesh Karthik & Dipika Pallikal welcome third child. Couple names daughter 'Raaha', here’s the beautiful meaning behind it](https://economictimes.indiatimes.com/news/new-updates/dinesh-karthik-dipika-pallikal-welcome-third-child-couple-names-daughter-raaha-heres-the-beautiful-meaning-behind-it/articleshow/129675282.cms) - **The Times of India**
+8. [Al Ahly SC: sore losers or a calculated victim strategy?](https://foot-africa.com/en/news/al-ahly-sc-sore-losers-or-a-calculated-victim-strategy-1130948/) - **Foot-africa.com**
+9. [Van Veen to skip Dublin due to kidney stones diagnosis](https://www.rte.ie/sport/darts/2026/0319/1564119-van-veen-to-skip-dublin-due-to-kidney-stones-diagnosis/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-03-20 17:54:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-20 18:47:57 (KST) / (하루 100회 제한 준수 중)*
