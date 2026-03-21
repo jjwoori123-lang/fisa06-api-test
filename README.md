@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Guardiola sidesteps Arsenal League Cup final rivalry as ‘world collapses’](https://www.aljazeera.com/sports/2026/3/20/guardiola-sidesteps-arsenal-rivalry-while-world-is-going-to-collapse) - **Al Jazeera English**
-2. [New midfield talent gets chance to further impress Dutch coach](https://www.channelnewsasia.com/sport/new-midfield-talent-gets-chance-further-impress-dutch-coach-6007406) - **CNA**
-3. [Ireland agree to Afghanistan series despite 'discomfort'](https://www.rte.ie/sport/cricket/2026/0320/1564405-ireland-agree-to-afghanistan-series-despite-discomfort/) - **RTE**
-4. [Andrews wants Brentford to keep calm and carry on](https://www.rte.ie/sport/soccer/2026/0320/1564412-andrews-wants-brentford-to-keep-calm-and-carry-on/) - **RTE**
-5. [How to watch two United games live on Saturday](https://www.manutd.com/en/news/detail/watch-u18s-and-united-women-live-on-saturday-21-march-2026) - **Manchester United**
-6. [Liverpool condemns 'dehumanising, cowardly' racist abuse of Ibrahima Konate](https://sports.yahoo.com/articles/liverpool-condemns-dehumanising-cowardly-racist-153137953.html) - **Yahoo Entertainment**
-7. [Man United Starting XI vs Bournemouth: Confirmed Team News and Predicted Lineup](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ad19658d-368b-49d6-a4f8-6945ea757eec) - **Yahoo Entertainment**
-8. [Vicario blow for Tottenham with Kinsky thrust into relegation battle](https://www.101greatgoals.com/football/premier-league/guglielmo-vicario-blow-for-tottenham-antonin-kinsky-relegation-battle/) - **101 Great Goals**
-9. [PREVIEW | Celta de Vigo vs Alavés - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-celta-de-vigo-vs-alaves-team-news-lineups-predictions/1079843) - **Playmakerstats.com**
+1. [Odegaard’s injury record is causing a concern in Norway](https://www.justarsenal.com/odegaards-injury-record-is-causing-a-concern-in-norway/412036) - **Just Arsenal News**
+2. [Arsenal must 'attack trophy' in League Cup final, says Arteta](https://sports.yahoo.com/articles/arsenal-must-prove-winners-league-153053076.html) - **Yahoo Entertainment**
+3. [Portugal squad announcement: Is Cristiano Ronaldo in Roberto Martinez’s squad with the World Cup looming](https://www.101greatgoals.com/football/internationals/portugal-squad-cristiano-ronaldo-squad-world-cup/) - **101 Great Goals**
+4. [Arsenal must prove they are winners in League Cup final, says Arteta](https://punchng.com/arsenal-must-prove-they-are-winners-in-league-cup-final-says-arteta/) - **The Punch**
+5. [Kinsky set to return as Vicario awaits hernia surgery](https://www.bbc.com/sport/football/articles/cvg34zr1rr4o) - **BBC News**
+6. [Brighton vs. Liverpool: Premier League 2025-26 Preview & Team News](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3442bfdf-f0c8-432a-a556-649abb7c9b7b) - **Yahoo Entertainment**
+7. [How to watch Bournemouth vs Manchester United in the USA: Live Stream and TV for 2025/2026 Premier League](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-bournemouth-vs-manchester-united-in-the-usa-live-stream-and-tv-for-2025-2026-premier-league/) - **Worldsoccertalk.com**
+8. [What to do in Auckland this weekend: Arts festival, EcoFest, World of Cultures and more](https://www.nzherald.co.nz/lifestyle/what-to-do-in-auckland-this-weekend-arts-festival-ecofest-world-of-cultures-and-more/KMFSXYG5ZVBEDDNDWCQGZV5BD4/) - **New Zealand Herald**
+9. [Tottenham statement confirms reason behind Vicario absence from Italy squad](https://football-italia.net/tottenham-explain-vicario-absence-italy-squad/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-03-22 00:54:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-22 01:34:50 (KST) / (하루 100회 제한 준수 중)*
