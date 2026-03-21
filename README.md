@@ -1,15 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Who has the most Premier League assists in a season?](https://www.bbc.com/sport/articles/cd031ddxgdzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Fabrizio Romano confirms Tottenham Hotspur star will leave this summer](https://eplindex.com/144279/fabrizio-romano-confirms-tottenham-hotspur-star-will-leave-this-summer.html) - **English Premier League Index - Opta Stats**
-3. [Real Madrid v Atletico Madrid: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/la-liga-odds/real-madrid-atletico-madrid-preview/) - **101 Great Goals**
-4. [Three Paqueta replacements West Ham should target this summer to fill creativity void](https://sportsview.co.uk/2026/03/three-paqueta-replacements-west-ham-should-target-this-summer-to-fill-creativity-void?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=three-paqueta-replacements-west-ham-should-target-this-summer-to-fill-creativity-void) - **Sportsview.co.uk**
-5. [Guardiola says Trafford will start EFL Cup final](https://www.bbc.com/sport/football/articles/cz0e7j5kj5vo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Man City's Trafford to start final but Arteta opts not to name Arsenal keeper](https://www.bbc.com/sport/football/articles/cz0e7j5kj5vo) - **BBC News**
-7. [How to live stream Hofstra vs Alabama: March Madness, NCAA Tournament, TV channel](https://www.thebiglead.com/how-to-live-stream-hofstra-vs-alabama-march-madness-ncaa-tournament-tv-channel/) - **The Big Lead**
-8. [NZ20 v Big Bash: Why NZ Cricket’s decision is more important for White Ferns than Black Caps](https://www.nzherald.co.nz/sport/cricket/white-ferns/nz20-v-big-bash-why-nz-crickets-decision-is-more-important-for-white-ferns-than-black-caps/QNTUP6F2XJA6XBSGLUAONGTALA/) - **New Zealand Herald**
-9. [What Arsenal must do to keep offering huge wages to their key men](https://www.justarsenal.com/what-arsenal-must-do-to-keep-offering-huge-wages-to-their-key-men/412040) - **Just Arsenal News**
+1. [Alisson out of Brazil squad and will miss Brighton](https://www.bbc.com/sport/football/articles/crm1wr44vxvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [MLB power rankings: As the 2026 season begins, can anybody keep up with the Dodgers?](https://sports.yahoo.com/mlb/article/mlb-power-rankings-as-the-2026-season-begins-can-anybody-keep-up-with-the-dodgers-191331249.html) - **Yahoo Entertainment**
+3. [Alisson out of Brazil squad and will miss Brighton](https://www.bbc.com/sport/football/articles/crm1wr44vxvo) - **BBC News**
+4. [Bogle And Gruev To Start | 3-4-2-1 Leeds United Predicted Lineup Vs Brentford](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_24721563-192b-47f5-9b1c-7d0283445d59) - **Yahoo Entertainment**
+5. [Aston Villa v West Ham: Key stats and talking points](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6b466cf0-87e6-4ffe-b476-a0e1600a58c6) - **Yahoo Entertainment**
+6. [League of Ireland – as it happened: Dundalk foil leaders Bohs, wins for St Pat’s and Rovers, as Drogs draw in Derry](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-as-it-happened-dundalk-foil-leaders-bohs-wins-for-st-pats-and-rovers-as-drogs-draw-in-derry/a1172486904.html) - **Independent.ie**
+7. [League of Ireland: Dundalk and Galway visit Dublin as Drogs and Pat’s hit the road](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-dundalk-and-galway-visit-dublin-as-drogs-and-pats-hit-the-road/a1172486904.html) - **Independent.ie**
 
 
 ---
-*최근 업데이트: 2026-03-22 03:44:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-22 04:27:50 (KST) / (하루 100회 제한 준수 중)*
