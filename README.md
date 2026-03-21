@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [It seems that the media is largely in favour of Manchester C to win the Cup](https://untold-arsenal.com/archives/120047) - **Untold-arsenal.com**
-2. [Is there more than silverware at stake in Carabao Cup final?](https://www.bbc.com/sport/football/articles/cvgjgpxz8z1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Fabrizio Romano does not sound convinced that Chelsea wont sack Liam Rosenior](https://chelsea.news/2026/03/fabrizio-romano-does-not-sound-convinced-that-chelsea-wont-sack-liam-rosenior/) - **Chelsea.news**
-4. [How should Chelsea line up against Everton to get season back on track?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0387aac0-903b-4785-a219-c654215a327b) - **Yahoo Entertainment**
-5. [Avoid free hit & captain Fernandes - the FPL talking point](https://www.bbc.com/sport/football/articles/c5ygy99gx7zo) - **BBC News**
-6. [‘I can guarantee…’: Romano confirms what he’s hearing about Guimaraes to MUFC after ‘advanced talks’ claim](https://strettynews.com/2026/03/20/fabrizio-romano-bruno-guimaraes-manchester-united-newcastle/) - **Strettynews.com**
-7. [Selectors to track ODI World Cup probables in IPL; full-strength squad for Afghanistan Test](https://economictimes.indiatimes.com/news/sports/selectors-to-track-odi-world-cup-probables-in-ipl-full-strength-squad-for-afghanistan-test/articleshow/129694569.cms) - **The Times of India**
-8. [Haway The Podcast | CHIT-CHAT | We Catch Up With Julio Arca And Chat About The Derby!](https://rokerreport.sbnation.com/haway-the-podcast/131468/haway-the-podcast-chit-chat-we-catch-up-with-julio-arca-and-chat-about-the-derby) - **SB Nation**
-9. [Caballero - the shootout king of Wembley](https://www.mancity.com/news/mens/willy-caballero-2016-league-cup-long-read-63909516) - **Manchester City FC**
+1. [Kobbie Mainoo and Harry Maguire set for England recalls](https://thefootballfaithful.com/kobbie-mainoo-and-harry-maguire-set-for-england-recalls/) - **The Football Faithful**
+2. [Brighton & Hove Albion vs Liverpool: Match preview, predicted line-ups, team news and prediction](https://footballtoday.com/2026/03/20/brighton-hove-albion-vs-liverpool-match-preview-predicted-line-ups-team-news-and-prediction/) - **Footballtoday.com**
+3. [FSG, Edwards and the future of Liverpool comes into uncertain focus](https://anfieldindex.com/92352/fsg-edwards-and-the-future-of-liverpool-comes-into-uncertain-focus.html) - **Anfieldindex.com**
+4. [Brady 'baffled' by Vale's hectic fixtures schedule](https://www.bbc.com/sport/football/articles/c80me5m5yd7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Brady 'baffled' by Vale's hectic fixtures schedule](https://www.bbc.com/sport/football/articles/c80me5m5yd7o) - **BBC News**
+6. [Senior centre-back injury issues open door to 'absolute class' 18-year-old](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-mor-talla-ndiaye-joe-gomez-ibrahima-konate/) - **Anfieldwatch.co.uk**
+7. [IPL trails The Hundred, SA20 in WCA rankings on player welfare](https://economictimes.indiatimes.com/news/sports/ipl-trails-the-hundred-sa20-in-wca-rankings-on-player-welfare/articleshow/129696122.cms) - **The Times of India**
+8. [‘Clear frontrunners’: BBC journo drops major update regarding Man Utd’s pursuit of £80m England international](https://strettynews.com/2026/03/20/manchester-united-manchester-city-elliot-anderson-nottingham-forest-frontrunners/) - **Strettynews.com**
+9. [Bournemouth vs. Manchester United: Live stream, Time & How to watch](https://thebusbybabe.sbnation.com/latest-news/34214/bournemouth-vs-manchester-united-live-stream-time-how-to-watch) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-03-21 16:58:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-21 17:46:38 (KST) / (하루 100회 제한 준수 중)*
