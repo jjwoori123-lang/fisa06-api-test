@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Kobbie Mainoo and Harry Maguire set for England recalls](https://thefootballfaithful.com/kobbie-mainoo-and-harry-maguire-set-for-england-recalls/) - **The Football Faithful**
-2. [Brighton & Hove Albion vs Liverpool: Match preview, predicted line-ups, team news and prediction](https://footballtoday.com/2026/03/20/brighton-hove-albion-vs-liverpool-match-preview-predicted-line-ups-team-news-and-prediction/) - **Footballtoday.com**
-3. [FSG, Edwards and the future of Liverpool comes into uncertain focus](https://anfieldindex.com/92352/fsg-edwards-and-the-future-of-liverpool-comes-into-uncertain-focus.html) - **Anfieldindex.com**
-4. [Brady 'baffled' by Vale's hectic fixtures schedule](https://www.bbc.com/sport/football/articles/c80me5m5yd7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Brady 'baffled' by Vale's hectic fixtures schedule](https://www.bbc.com/sport/football/articles/c80me5m5yd7o) - **BBC News**
-6. [Senior centre-back injury issues open door to 'absolute class' 18-year-old](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-mor-talla-ndiaye-joe-gomez-ibrahima-konate/) - **Anfieldwatch.co.uk**
-7. [IPL trails The Hundred, SA20 in WCA rankings on player welfare](https://economictimes.indiatimes.com/news/sports/ipl-trails-the-hundred-sa20-in-wca-rankings-on-player-welfare/articleshow/129696122.cms) - **The Times of India**
-8. [‘Clear frontrunners’: BBC journo drops major update regarding Man Utd’s pursuit of £80m England international](https://strettynews.com/2026/03/20/manchester-united-manchester-city-elliot-anderson-nottingham-forest-frontrunners/) - **Strettynews.com**
-9. [Bournemouth vs. Manchester United: Live stream, Time & How to watch](https://thebusbybabe.sbnation.com/latest-news/34214/bournemouth-vs-manchester-united-live-stream-time-how-to-watch) - **SB Nation**
+1. [Have your say! Your top 10 Premier League players right now...](https://www.skysports.com/football/live-blog/11095/13197324/premier-league-team-news-injury-latest-suspensions-previews-and-fantasy-football-live-updates) - **Sky Sports**
+2. [Juventus ready to send offer for Man City star Bernardo Silva](https://football-italia.net/juventus-ready-offer-man-city-bernardo-silva/) - **Football Italia**
+3. [Sutton questions Liverpool consistency with Brighton prediction](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2acf2dc0-e2d2-47e9-a792-453a5fb82930) - **Yahoo Entertainment**
+4. [What England's midfield is missing? Mainoo's masterclass vs Man City](https://www.skysports.com/football/video/30998/13522114/man-utd-kobbie-mainoos-midfield-masterclass-vs-man-city) - **Sky Sports**
+5. [“He has to be the one you pick”: Rooney picks Gerrard over Scholes and Lampard as the era’s most complete midfielder](https://www.footballmuse.com/news/he-has-to-be-the-one-you-pick-rooney-picks-gerrard-over-scholes-and-lampard-as-the-eras-most-complete-midfielder) - **Footballmuse.com**
+6. [Inside Scott Galloway's messy, money-first activism](https://www.businessinsider.com/scott-galloway-resist-and-unsubscribe-book-paternity-leave-big-tech-2026-3) - **Business Insider**
+7. [Significant financial hurdles facing any Julian Araujo to Celtic deal](https://thecelticstar.com/significant-financial-hurdles-facing-any-julian-araujo-to-celtic-deal/) - **The Celtic Star**
+8. [Real Madrid on alert as top transfer target open to leaving this summer](https://madriduniversal.com/real-madrid-on-alert-as-top-transfer-target-open-to-leaving-this-summer/) - **Madriduniversal.com**
+9. [Where to watch Bournemouth vs. Man United live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a43d3815-a40c-4399-8504-4a7f5abdae08) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-21 17:46:38 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-21 18:35:55 (KST) / (하루 100회 제한 준수 중)*
