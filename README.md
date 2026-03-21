@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tottenham keeper Vicario to undergo hernia surgery next week](https://www.channelnewsasia.com/sport/tottenham-keeper-vicario-undergo-hernia-surgery-next-week-6007496) - **CNA**
-2. [fpl-intelligence 0.17.0](https://pypi.org/project/fpl-intelligence/0.17.0/) - **Pypi.org**
-3. [How to watch Bournemouth vs Man United: TV and streaming details](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a8da21f1-1f38-4af6-ae66-d8e7dcc724eb) - **Yahoo Entertainment**
-4. [Odegaard’s injury record is causing a concern in Norway](https://www.justarsenal.com/odegaards-injury-record-is-causing-a-concern-in-norway/412036) - **Just Arsenal News**
-5. [Arsenal must 'attack trophy' in League Cup final, says Arteta](https://sports.yahoo.com/articles/arsenal-must-prove-winners-league-153053076.html) - **Yahoo Entertainment**
-6. [Portugal squad announcement: Is Cristiano Ronaldo in Roberto Martinez’s squad with the World Cup looming](https://www.101greatgoals.com/football/internationals/portugal-squad-cristiano-ronaldo-squad-world-cup/) - **101 Great Goals**
-7. [Arsenal must prove they are winners in League Cup final, says Arteta](https://punchng.com/arsenal-must-prove-they-are-winners-in-league-cup-final-says-arteta/) - **The Punch**
-8. [Kinsky set to return as Vicario awaits hernia surgery](https://www.bbc.com/sport/football/articles/cvg34zr1rr4o) - **BBC News**
-9. [Brighton vs. Liverpool: Premier League 2025-26 Preview & Team News](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3442bfdf-f0c8-432a-a556-649abb7c9b7b) - **Yahoo Entertainment**
+1. [PREVIEW | Athletic Bilbao vs Real Betis - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-athletic-bilbao-vs-real-betis-team-news-lineups-predictions/1079925) - **Playmakerstats.com**
+2. [Tottenham Hotspur vs Nottingham Forest: Match Preview, Latest Team News and How to Watch](https://eplindex.com/144275/tottenham-hotspur-vs-nottingham-forest-match-preview-latest-team-news-and-how-to-watch.html) - **English Premier League Index - Opta Stats**
+3. [Six talking points from Tuchel’s England squad announcement](https://thefootballfaithful.com/talking-points-tuchel-england-squad/) - **The Football Faithful**
+4. [EFL Cup final: Arsenal boss Arteta insists facing Guardiola adds no extra significance to ‘defining moment’ of the season](https://www.101greatgoals.com/football/arsenal-efl-cup-final-arteta-guardiola/) - **101 Great Goals**
+5. [Trump Ramps Up Attacks on Harvard With New Lawsuit](https://newrepublic.com/post/208030/donald-trump-harvard-new-lawsuit-gaza) - **The New Republic**
+6. [We want it so much, says Arteta, as Arsenal seek end to trophyless run in League Cup final](https://www.channelnewsasia.com/sport/we-want-it-so-much-says-arteta-arsenal-seek-end-trophyless-run-in-league-cup-final-6007526) - **CNA**
+7. [Eddie Howe breaks his silence on Bruno Guimaraes to Man United rumours](https://thepeoplesperson.com/2026/03/20/eddie-howe-breaks-his-silence-on-bruno-guimaraes-to-man-united-rumours-307935/) - **The Peoples Person**
+8. ['There has to be a greater consistency' - Wilder on officiating](https://www.bbc.com/sport/football/articles/cn9qlp00dyjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-22 01:59:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-22 02:35:16 (KST) / (하루 100회 제한 준수 중)*
