@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Chelsea star ready to ‘quit’ and secure move to European giants](https://eplindex.com/144288/report-chelsea-star-ready-to-quit-and-secure-move-to-european-giants.html) - **English Premier League Index - Opta Stats**
-2. [Fabian Hurzeler heaps praise on ‘incredible’ Arne Slot ahead of Liverpool clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ba8e0be2-9f62-421a-8779-d3023ca7d720) - **Yahoo Entertainment**
-3. [Troubled Spurs face Forest showdown, Chelsea needs top-four surge](https://japantoday.com/category/sports/troubled-spurs-face-forest-showdown-chelsea-need-top-four-surge) - **Japan Today**
-4. [DOJ Files Civil Rights Lawsuit Against Harvard, Citing Campus Antisemitism](https://reason.com/2026/03/20/doj-files-civil-rights-lawsuit-against-harvard-citing-campus-antisemitism/) - **Reason**
-5. [Guardiola hits back at Arsenal’s ‘dark arts’ claims ahead of Manchester City’s Carabao Cup final](https://worldsoccertalk.com/news/guardiola-hits-back-at-arsenals-dark-arts-claims-ahead-of-manchester-citys-carabao-cup-final/) - **Worldsoccertalk.com**
-6. [5 things this weekend in boxing: Adames vs. 'Ammo' for all the glory, plus a debut you won't want to miss](https://sports.yahoo.com/boxing/article/5-things-this-weekend-carlos-adames-vs-ammo-williams-oleksandr-khyzhniak-pro-debut-usyk-george-liddard-204031723.html) - **Yahoo Entertainment**
-7. [Liverpool move closer to record deal with third scouting mission](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-move-closer-to-record-deal-with-third-scouting-mission/) - **Anfieldwatch.co.uk**
-8. [Arsenal and Manchester City lineups: James Trafford to start, Mikel Arteta dodges Kepa, David Raya question](https://www.cbssports.com/soccer/news/arsenal-manchester-city-lineups-james-trafford-mikel-arteta-kepa-david-raya-question/) - **CBS Sports**
-9. [PREVIEW | Real Madrid vs Atlético de Madrid - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-real-madrid-vs-atletico-de-madrid-team-news-lineups-predictions/1080052) - **Playmakerstats.com**
-10. [“It’s one to watch” – Former Manchester City defender makes Pep Guardiola future admission](https://cityxtra.co.uk/43287/its-one-to-watch-former-manchester-city-defender-makes-pep-guardiola-future-admission/) - **Cityxtra.co.uk**
+1. [Man Utd pegged back at Bournemouth after Maguire's red card](https://www.skysports.com/football/news/11661/13521390/bournemouth-2-2-manchester-united-harry-maguire-sent-off-as-michael-carricks-side-twice-pegged-back-in-premier-league-draw) - **Sky Sports**
+2. [Gallant Everton defence ultimately embarrassed by 16-year-old kid](http://www.toffeeweb.com/season/25-26/comment/reports/47372.html) - **Toffeeweb**
+3. [Aston Villa Star Ready To Snub Saudi Arabia Offers: Is He Irreplaceable At Villa Park?](https://the4thofficial.net/2026/03/aston-villa-star-ready-to-snub-saudi-arabia-offers-is-he-irreplaceable-at-villa-park/) - **The4thofficial.net**
+4. [Manchester United’s $92M move for Brazil’S Guimaraes reportedly under threat from Real Madrid](https://worldsoccertalk.com/news/manchester-uniteds-92m-move-for-brazils-guimaraes-reportedly-under-threat-from-real-madrid/) - **Worldsoccertalk.com**
+5. [Bruno Fernandes surpasses PL legend with latest Man Utd haul ⬆️](https://onefootball.com/en/news/bruno-fernandes-surpasses-pl-legend-with-latest-man-utd-haul-42590686) - **Onefootball.com**
+6. [U21s: Reading 0 United 1](https://www.manutd.com/en/news/detail/u21s-report-v-reading-20-march-2026) - **Manchester United**
+7. [Leeds United Player Publicly Declares His Transfer Wish: Does The PL Club’s Own Relegation Battle Complicate His Future?](https://the4thofficial.net/2026/03/leeds-united-player-publicly-declares-his-transfer-wish-does-the-pl-clubs-own-relegation-battle-complicate-his-future/) - **The4thofficial.net**
+8. [MLS 2026: LAFC Are Favourites To Win The Title](https://worldfootballindex.com/2026/03/mls-2026-lafc-are-favourites-to-win-the-title/) - **World Football Index**
+9. [Report: Chelsea star ready to ‘quit’ and secure move to European giants](https://eplindex.com/144288/report-chelsea-star-ready-to-quit-and-secure-move-to-european-giants.html) - **English Premier League Index - Opta Stats**
+10. [Fabian Hurzeler heaps praise on ‘incredible’ Arne Slot ahead of Liverpool clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ba8e0be2-9f62-421a-8779-d3023ca7d720) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-22 06:33:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-22 06:54:49 (KST) / (하루 100회 제한 준수 중)*
