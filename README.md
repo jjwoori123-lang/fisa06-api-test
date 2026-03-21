@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [IPL 2026: Sam Curran set to miss tournament for Rajasthan Royals due to groin injury](https://economictimes.indiatimes.com/news/sports/ipl-2026-sam-curran-set-to-miss-tournament-for-rajasthan-royals-due-to-groin-injury/articleshow/129693323.cms) - **The Times of India**
-2. [Rajasthan keen to shield teenager Sooryavanshi from the media glare](https://economictimes.indiatimes.com/news/sports/rajasthan-keen-to-shield-teenager-sooryavanshi-from-the-media-glare/articleshow/129693183.cms) - **The Times of India**
-3. [Rajasthan keen to shield teenager Sooryavanshi from the media glare](https://www.channelnewsasia.com/sport/rajasthan-keen-shield-teenager-sooryavanshi-media-glare-6006231) - **CNA**
-4. [Derby Day Is Looming — Bring It On!](https://rokerreport.sbnation.com/opinion/131529/derby-day-is-looming-bring-it-on) - **SB Nation**
-5. [Fan Letters: “I’m Not Panicking About The Mags On Sunday!”](https://rokerreport.sbnation.com/fan-letters/131473/fan-letters-im-not-panicking-about-the-mags-on-sunday) - **SB Nation**
-6. [Sunderland AFC’s Financial Rise: A Model Built to Last](https://rokerreport.sbnation.com/opinion/131563/sunderland-afcs-financial-rise-a-model-built-to-last) - **SB Nation**
-7. [SRH’s Jack Edwards ruled out of IPL 2026 due to foot injury](https://economictimes.indiatimes.com/news/sports/srhs-jack-edwards-ruled-out-of-ipl-2026-due-to-foot-injury/articleshow/129692488.cms) - **The Times of India**
-8. [A new benchmark: WNBA CBA expected to raise pay for other pro women's sports leagues](https://sports.yahoo.com/articles/benchmark-wnba-cba-expected-raise-044337495.html) - **Yahoo Entertainment**
-9. [Australia’s Cummins, Starc, Hazlewood to miss early IPL 2026 matches](https://economictimes.indiatimes.com/news/sports/australias-cummins-starc-hazlewood-to-miss-early-ipl-2026-matches/articleshow/129692110.cms) - **The Times of India**
+1. [EPL GW31: Team news, injury updates and live chat](https://www.nevermanagealone.com/playerpicks/15755/epl-gw31-team-news-injury-updates-and-live-chat) - **Nevermanagealone.com**
+2. [Liverpool can't afford to lose £43m midfielder to Man City](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-cant-afford-eduardo-camavinga-man-city-real-madrid/) - **Anfieldwatch.co.uk**
+3. [Bournemouth vs Manchester United – Predicted lineup and team news](https://thefootballfaithful.com/bournemouth-vs-manchester-united-predicted-lineup-and-team-news/) - **The Football Faithful**
+4. [Manchester United XI vs Bournemouth – Predicted lineup and team news](https://thefootballfaithful.com/manchester-united-xi-vs-bournemouth-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+5. [Who Should Be England’s Number 10 at the World Cup?](https://footballtoday.com/2026/03/20/who-should-be-englands-number-10-at-the-world-cup/) - **Footballtoday.com**
+6. [Evan Ferguson to be unavailable should Ireland qualify for World Cup](https://www.irishtimes.com/sport/soccer/2026/03/20/evan-ferguson-to-be-unavailable-should-ireland-qualify-for-world-cup/) - **The Irish Times**
+7. [Tiernan Lynch hopes Derry City have finally woken from early-season slumber](https://www.irishtimes.com/sport/soccer/2026/03/20/tiernan-lynch-hopes-derry-city-have-finally-woken-from-early-season-slumber/) - **The Irish Times**
+8. [Listen: James Milner - The Football Interview](https://www.bbc.co.uk/sounds/play/p0n798kw) - **BBC News**
+9. [U18s preview: Arsenal v Fulham](http://www.arsenal.com/news/u18s-preview-arsenal-v-fulham-1) - **Arsenal.com**
+10. [IPL 2026: Sam Curran set to miss tournament for Rajasthan Royals due to groin injury](https://economictimes.indiatimes.com/news/sports/ipl-2026-sam-curran-set-to-miss-tournament-for-rajasthan-royals-due-to-groin-injury/articleshow/129693323.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-03-21 14:57:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-21 15:57:57 (KST) / (하루 100회 제한 준수 중)*
