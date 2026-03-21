@@ -1,15 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [‘Maximum violence’: How Eze’s Champions League stunner slayed Leverkusen](https://dailycannon.com/2026/03/eze-rocket-powers-arsenal-victory/) - **Dailycannon.com**
-2. [Report: Man United in advanced talks to sign Premier League star in £69m deal](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_96dc76fa-1688-4bfb-b842-e6d6d42a947e) - **Yahoo Entertainment**
-3. [Thomas Tuchel names 35-man England squad for March friendlies](https://thefootballfaithful.com/thomas-tuchel-names-35-man-england-squad-for-march-friendlies/) - **The Football Faithful**
-4. [“We are a really good team” – Liverpool star sends warning to PSG](https://anfieldindex.com/92346/we-are-a-really-good-team-liverpool-star-sends-warning-to-psg.html) - **Anfieldindex.com**
-5. [Inter sporting director reportedly in London to open talks for Guglielmo Vicario](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-transfers-rumors/69626/inter-sporting-director-reportedly-in-london-to-open-talks-for-guglielmo-vicario) - **SB Nation**
-6. [Howe on Tonali's fitness, Hall's England call-up and Sunderland](https://www.bbc.com/sport/football/articles/cx2480kx91po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Merson tells Rosenior: Respect the ball? Just don't say it. Stop it!](https://www.skysports.com/football/news/11095/13522162/paul-merson-liam-rosenior-has-to-stop-being-so-honest-with-chelsea-right-up-against-it-to-qualify-for-champions-league) - **Sky Sports**
-8. [Arne Slot confirms Mo Salah injury ahead of Brighton clash](https://www.empireofthekop.com/2026/03/20/arne-slot-confirms-mo-salah-injury-ahead-of-brighton-clash/) - **Empire of The Kop**
-9. [More Inter targets emerge after meeting with Vicario’s agent at Tottenham Stadium](https://football-italia.net/more-inter-targets-meeting-vicario-tottenham/) - **Football Italia**
+1. [Midtjylland 1-2 Nottingham Forest - the fans' verdict](https://www.bbc.com/sport/football/articles/c3r3d7zelzwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Aston Villa 2-0 Lille - the fans' verdict](https://www.bbc.com/sport/football/articles/c4gxl43ndw9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Bournemouth v Manchester United: Key stats and talking points](https://www.bbc.com/sport/football/articles/cx23y53kk8lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [All your FPL stats and Premier League team news in one place](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_29ba482c-bb08-42de-bc0a-ccec931f7c0b) - **Yahoo Entertainment**
+5. [All your FPL stats and Premier League team news in one place](https://www.bbc.com/sport/articles/c87wgx7g0zpo) - **BBC News**
+6. [How to Relax at Home After a Busy Week: Tips and Ideas](https://ahouseinthehills.com/how-to-relax-at-home-after-a-busy-week-tips-and-ideas/) - **Ahouseinthehills.com**
+7. [City v Arsenal feels like the perfect final, says the BBC's John Murray](https://www.mancity.com/news/mens/john-murray-on-the-2026-carabao-cup-final-63909595) - **Manchester City FC**
 
 
 ---
-*최근 업데이트: 2026-03-21 19:58:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-21 20:32:08 (KST) / (하루 100회 제한 준수 중)*
