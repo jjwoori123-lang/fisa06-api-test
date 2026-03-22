@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Brentford analysis: Bees running out of sting?](https://www.bbc.com/sport/football/articles/cyv1y6d7y3zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Leeds analysis: Whites' toothlessness on display again](https://www.bbc.com/sport/football/articles/cede053jeylo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Welbeck scores twice as Brighton beat Liverpool](https://www.bbc.com/sport/football/videos/clyjgjkppgno) - **BBC News**
-4. [Fulham come from behind to beat Burnley and boost European hopes](https://www.bbc.com/sport/football/videos/c4gxexgjwvno) - **BBC News**
-5. [Outrun and in decline – are Rosenior's Chelsea near crisis point?](https://www.bbc.com/sport/football/articles/cede0vvzdgjo) - **BBC News**
-6. ['It's not Allan, it's Arne' - Tudor explains viral moment](https://www.bbc.com/sport/football/articles/crk1dzp4kyyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. ['It's not Allan, it's Arne' - Tudor explains viral moment](https://www.bbc.com/sport/football/articles/crk1dzp4kyyo) - **BBC News**
-8. [Why this Carabao Cup final matters like never before](https://www.skysports.com/football/news/11095/13522255/arsenal-vs-man-city-why-this-years-carabao-cup-final-at-wembley-matters-like-never-before-as-mikel-arteta-and-pep-guardiola-lock-horns) - **Sky Sports**
-9. [7 Great DC Heroes Who Have Never Joined the Justice League](http://comicbook.com/comics/list/7-great-dc-heroes-who-have-never-joined-the-justice-league/) - **ComicBook.com**
+1. [Alessandro Bastoni reports could be great news for Barcelona in their search for Inter’s defender](https://worldsoccertalk.com/news/alessandro-bastoni-reports-could-be-great-news-for-barcelona-in-their-search-for-inters-defender/) - **Worldsoccertalk.com**
+2. [Welbeck dents Liverpool's Champions League hopes in Brighton, Everton thrash Chelsea 3-0](https://www.channelnewsasia.com/sport/welbeck-dents-liverpools-champions-league-hopes-in-brighton-everton-thrash-chelsea-3-0-6009271) - **CNA**
+3. [Arsenal ready for 'big battle' against City - Gabriel](https://www.bbc.com/sport/football/articles/ce358qwjvqdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Bijol Gets 8.5, Ampadu With 7.5 | Leeds United Players Rated In Lackluster Draw Vs Brentford](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fb9e5293-586a-4b24-8aff-b2b9aeef913c) - **Yahoo Entertainment**
+5. [Outrun and in decline – are Rosenior's Chelsea near crisis point?](https://www.bbc.com/sport/football/articles/cede0vvzdgjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Guardiola says this City team can flourish](https://www.mancity.com/news/mens/pep-guardiola-carabao-cup-final-arsenal-embargo-written-63909702) - **Manchester City FC**
+7. [Know Thyself: Sunderland’s Path to Derby Victory](https://rokerreport.sbnation.com/opinion/131733/know-thyself-sunderlands-path-to-derby-victory) - **SB Nation**
+8. [Brentford analysis: Bees running out of sting?](https://www.bbc.com/sport/football/articles/cyv1y6d7y3zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Leeds analysis: Whites' toothlessness on display again](https://www.bbc.com/sport/football/articles/cede053jeylo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Welbeck scores twice as Brighton beat Liverpool](https://www.bbc.com/sport/football/videos/clyjgjkppgno) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-23 07:32:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-23 07:58:23 (KST) / (하루 100회 제한 준수 중)*
