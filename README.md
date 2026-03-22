@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Rangers vs Aberdeen – Match preview and team news](https://thefootballfaithful.com/rangers-vs-aberdeen-match-preview-and-team-news-2/) - **The Football Faithful**
-2. [Rangers vs Aberdeen – Predicted lineup and team news](https://thefootballfaithful.com/rangers-vs-aberdeen-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-3. [Borussia Dortmund vs Hamburger SV – Match preview and team news](https://thefootballfaithful.com/borussia-dortmund-vs-hamburg-match-preview-and-team-news/) - **The Football Faithful**
-4. [AC Milan vs Torino – Predicted lineup and team news](https://thefootballfaithful.com/ac-milan-vs-torino-predicted-lineup-and-team-news/) - **The Football Faithful**
-5. [Arsenal vs. Man City head to head, all-time results, cup finals, trophies won and more](https://www.sportingnews.com/us/soccer/news/arsenal-vs-man-city-head-head-all-time-results-finals-trophies/672071bd1805c7529d217fd6) - **Sporting News**
-6. [Where to watch Everton vs. Chelsea live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ff21e031-4677-491f-b3cb-5175923e6fc7) - **Yahoo Entertainment**
-7. [Bruno Fernandes is your Man of the Match again!](https://www.manutd.com/en/news/detail/bruno-fernandes-voted-man-utd-man-of-the-match-v-bournemouth-20-march-2026) - **Manchester United**
-8. [How to watch Brighton vs Liverpool today from anywhere – TV and live streaming details](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e0f3bd21-53b7-4cb7-b3f9-7466b7b95e7d) - **Yahoo Entertainment**
-9. [Video: McTominay switches from English to Italian in funny post-match interview](https://football-italia.net/mctominay-switches-english-italian-interview/) - **Football Italia**
-10. [Al-Hilal now 'confident' of prising Liverpool man away from Anfield](https://www.anfieldwatch.co.uk/liverpool-fc/news/al-hilal-now-confident-of-prising-liverpool-man-away-from-anfield/) - **Anfieldwatch.co.uk**
+1. [Vancouver Whitecaps Weather Advantage, Liverpool and Fulham Betting Picks for Weekend Soccer Matches](https://weather.com/sports-recreation/news/2026-03-20-soccer-weather-vancouver-liverpool-fulham-betting-picks) - **The Weather Channel**
+2. [Arsenal v Manchester City and a referee with an “interesting” view of fouls and cards](https://untold-arsenal.com/archives/120074) - **Untold-arsenal.com**
+3. [Sutton's predictions: Everton v Chelsea](https://www.bbc.com/sport/football/articles/cz67xdjpgxvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Juventus vs Sassuolo – Match preview and team news](https://thefootballfaithful.com/juventus-vs-sassuolo-match-preview-and-team-news/) - **The Football Faithful**
+5. [Liverpool Confirmed XI vs Brighton](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9303f11d-f1e5-4a58-9c8f-42a4455ba24c) - **Yahoo Entertainment**
+6. [Liverpool team news v Brighton: Mamardashvili replaces Alisson as Slot forced into attacking change](https://www.empireofthekop.com/2026/03/21/liverpool-brighton-team-news-starting-xi-march-2026/) - **Empire of The Kop**
+7. [No Salah or Alisson, Liverpool take a gamble at Brighton](https://onefootball.com/en/news/no-salah-or-alisson-liverpool-take-a-gamble-at-brighton-42592575) - **Onefootball.com**
+8. [Brighton vs Liverpool: Line-ups confirmed for Premier League clash](https://www.101greatgoals.com/football/premier-league/brighton-vs-liverpool-line-ups-confirmed-premier-league-clash/) - **101 Great Goals**
+9. [ BREAKING: Brighton and Liverpool name XIs for early PL kick-off](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b4298de2-16ba-4316-babd-ed58f6a51ff6) - **Yahoo Entertainment**
+10. [Rangers vs Aberdeen – Predicted lineup and team news](https://thefootballfaithful.com/rangers-vs-aberdeen-predicted-lineup-and-team-news-2/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-03-22 19:58:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-22 20:32:49 (KST) / (하루 100회 제한 준수 중)*
