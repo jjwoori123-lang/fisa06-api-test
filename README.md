@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Inter Miami wants a luxury partner for Leo Messi like Bernardo Silva](https://www.marca.com/en/football/mls/2026/03/21/69bf1279ca4741bd7d8b4592.html) - **Marca**
-2. [Rosenior calls on Chelsea to ‘ignore the noise’ after latest defeat](https://www.101greatgoals.com/football/premier-league/rosenior-chelsea-ignore-noise/) - **101 Great Goals**
-3. [Leeds and Brentford produce ultimate stalemate in bore draw](https://www.skysports.com/football/news/11661/13521444/leeds-0-0-brentford-missed-opportunity-for-both-teams-as-they-produce-ultimate-stalemate-in-bore-draw) - **Sky Sports**
-4. [USMNT on alert as coach Pochettino linked with La Liga side Athletic Club](https://worldsoccertalk.com/news/usmnt-on-alert-as-coach-pochettino-linked-with-la-liga-side-athletic-club/) - **Worldsoccertalk.com**
-5. [Steven Gerrard earns high praise from United legend Wayne Rooney](https://thepeoplesperson.com/2026/03/21/steven-gerrard-earns-high-praise-from-united-legend-wayne-rooney-307930/) - **The Peoples Person**
-6. [€10m Player Likely To End Up At Leeds United For Free: Is It A Risk?](https://the4thofficial.net/2026/03/e10m-player-likely-to-end-up-at-leeds-united-for-free-is-it-a-risk/) - **The4thofficial.net**
-7. [Liverpool and Chelsea slump to bruising Premier League defeats as Champions League concerns mount](https://japantoday.com/category/sports/liverpool-loses-2-1-at-brighton-to-continue-downward-spiral-in-premier-league) - **Japan Today**
-8. [Orkun Kökçü: United face major stumbling block in move for Besiktas captain](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c23628fd-3ad6-4b40-b665-108084853dd9) - **Yahoo Entertainment**
-9. [Rosenior's most disappointing night yet | 'I'm still learning'](https://www.skysports.com/football/news/11668/13522892/liam-rosenior-reacts-to-chelseas-3-0-defeat-to-everton-as-he-calls-it-most-disappointing-so-far-im-still-learning) - **Sky Sports**
-10. [Bournemouth wants to beat Arsenal to Chilean youngster](https://www.justarsenal.com/bournemouth-wants-to-beat-arsenal-to-chilean-youngster/412109) - **Just Arsenal News**
+1. [Brentford analysis: Bees running out of sting?](https://www.bbc.com/sport/football/articles/cyv1y6d7y3zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Leeds analysis: Whites' toothlessness on display again](https://www.bbc.com/sport/football/articles/cede053jeylo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Welbeck scores twice as Brighton beat Liverpool](https://www.bbc.com/sport/football/videos/clyjgjkppgno) - **BBC News**
+4. [Fulham come from behind to beat Burnley and boost European hopes](https://www.bbc.com/sport/football/videos/c4gxexgjwvno) - **BBC News**
+5. [Outrun and in decline – are Rosenior's Chelsea near crisis point?](https://www.bbc.com/sport/football/articles/cede0vvzdgjo) - **BBC News**
+6. ['It's not Allan, it's Arne' - Tudor explains viral moment](https://www.bbc.com/sport/football/articles/crk1dzp4kyyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. ['It's not Allan, it's Arne' - Tudor explains viral moment](https://www.bbc.com/sport/football/articles/crk1dzp4kyyo) - **BBC News**
+8. [Why this Carabao Cup final matters like never before](https://www.skysports.com/football/news/11095/13522255/arsenal-vs-man-city-why-this-years-carabao-cup-final-at-wembley-matters-like-never-before-as-mikel-arteta-and-pep-guardiola-lock-horns) - **Sky Sports**
+9. [7 Great DC Heroes Who Have Never Joined the Justice League](http://comicbook.com/comics/list/7-great-dc-heroes-who-have-never-joined-the-justice-league/) - **ComicBook.com**
 
 
 ---
-*최근 업데이트: 2026-03-23 06:56:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-23 07:32:52 (KST) / (하루 100회 제한 준수 중)*
