@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Lookman’s Madrid derby debut headlines Eagles weekend clashes](https://punchng.com/lookmans-madrid-derby-debut-headlines-eagles-weekend-clashes/) - **The Punch**
-2. [Bassey charges Fulham teammates for European push](https://punchng.com/bassey-charges-fulham-teammates-for-european-push/) - **The Punch**
-3. [Archie Gray: Why United are planning to make move for Spurs midfielder](https://thepeoplesperson.com/2026/03/20/archie-gray-why-united-are-planning-to-make-move-for-spurs-midfielder-307960/) - **The Peoples Person**
-4. ['It was chaos' - referee frustrates Carrick as Bournemouth hold Man Utd](https://www.bbc.com/sport/football/videos/cn4393ex2kzo) - **BBC News**
-5. [Carrick: The game flipped on key moments](https://www.manutd.com/en/news/detail/carrick-post-match-press-conference) - **Manchester United**
-6. [Manchester United held at Bournemouth as Maguire sees red](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_73970a1d-40d4-4e10-8e1d-a1c4987f96fc) - **Yahoo Entertainment**
-7. [Bournemouth equalise twice in draw with Man Utd as Maguire sees red](https://www.bbc.com/sport/football/live/c9wn9j281q1t?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [ Manchester United held by Bournemouth](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_38fa9ff9-67f1-4088-abed-5cc2cd02dadd) - **Yahoo Entertainment**
-9. ['There isn't much to discuss' - Iraola unfazed by penalty decisions](https://www.bbc.com/sport/football/videos/cg7393x35e0o) - **BBC News**
-10. [Slot Talk: “We Need To Be Ready From The Start”](https://liverpooloffside.sbnation.com/liverpool-fc-news-coverage/79316/liverpool-fc-team-news-slot-talk-we-need-to-be-ready-from-the-start-brighton) - **SB Nation**
+1. [Jeremiyah Love Analytical Draft Profile](https://www.thehuddle.com/story/sports/fantasy/football/nfl-draft/2026/03/20/jeremiyah-love-analytical-rookie-profile/89203541007/) - **Thehuddle.com**
+2. [Where to watch Brighton vs. Liverpool live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7caee632-f926-487e-8c37-1c264c38ea50) - **Yahoo Entertainment**
+3. [Academy Match Report: Reading U21s 0-1 Manchester United U21s](https://thepeoplesperson.com/2026/03/21/academy-match-report-reading-u21s-0-1-manchester-united-u21s-307963/) - **The Peoples Person**
+4. [PSG Forward Nears Decision on Next Destination, Juventus Tops List](https://psgworld.io/news/psg-forward-nears-decision-on-next-destination-juventus-tops-list) - **Psgworld.io**
+5. [Carrick 'baffled' by inconsistent penalty calls as Man Utd held 2-2 at Bournemouth](https://japantoday.com/category/sports/carrick-%27baffled%27-by-inconsistent-penalty-calls-as-man-utd-held) - **Japan Today**
+6. [Man Utd fury at 'astonishing' and 'baffling' penalty decisions](https://www.bbc.com/sport/football/articles/cwyd7rklyeyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Lookman’s Madrid derby debut headlines Eagles weekend clashes](https://punchng.com/lookmans-madrid-derby-debut-headlines-eagles-weekend-clashes/) - **The Punch**
+8. [Bassey charges Fulham teammates for European push](https://punchng.com/bassey-charges-fulham-teammates-for-european-push/) - **The Punch**
+9. [Archie Gray: Why United are planning to make move for Spurs midfielder](https://thepeoplesperson.com/2026/03/20/archie-gray-why-united-are-planning-to-make-move-for-spurs-midfielder-307960/) - **The Peoples Person**
+10. ['It was chaos' - referee frustrates Carrick as Bournemouth hold Man Utd](https://www.bbc.com/sport/football/videos/cn4393ex2kzo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-22 08:55:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-22 11:36:25 (KST) / (하루 100회 제한 준수 중)*
