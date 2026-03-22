@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United manager Michael Carrick baffled and astonished by refereeing decisions at Bournemouth](https://www.independent.ie/sport/soccer/premier-league/manchester-united-manager-michael-carrick-baffled-and-astonished-by-refereeing-decisions-at-bournemouth/a1810812272.html) - **Independent.ie**
-2. [Countdown to Wembley – It’s all about the numbers](https://www.justarsenal.com/countdown-to-wembley-its-all-about-the-numbers/412065) - **Just Arsenal News**
-3. [Romano reveals how long Juventus has been following Premier League star](https://www.juvefc.com/romano-reveals-how-long-juventus-has-been-following-premier-league-star/) - **JuveFC**
-4. [Barcelona hit by fresh setback as defensive target’s valuation skyrockets](https://barcauniversal.com/barcelona-hit-by-fresh-setback-as-defensive-targets-valuation-skyrockets/) - **Barcauniversal.com**
-5. [Opposition Lowdown: Alex Revell’s Playoff-Chasing Stevenage](https://thetilehurstend.sbnation.com/opposition-lowdown-reading-fc-royals/54230/opposition-lowdown-alex-revells-playoff-chasing-stevenage) - **SB Nation**
-6. ['Exceptional' star has one last chance to save his Liverpool career](https://www.anfieldwatch.co.uk/liverpool-fc/news/exceptional-star-has-one-last-chance-to-save-his-liverpool-career/) - **Anfieldwatch.co.uk**
-7. [Report: Liverpool to step up interest in move for 22-year-old forward](https://anfieldindex.com/92396/report-liverpool-to-step-up-interest-in-move-for-22-year-old-forward.html) - **Anfieldindex.com**
-8. [The Football Interview S01E27 1080p WEB-DL H264-Pr1M371M3](https://post.rlsbb.to/the-football-interview-s01e27-1080p-web-dl-h264-pr1m371m3/) - **Rlsbb.to**
-9. ["It is only going to get tougher": Virat's pep talk to team ahead of RCB's title defence](https://economictimes.indiatimes.com/news/sports/it-is-only-going-to-get-tougher-virats-pep-talk-to-team-ahead-of-rcbs-title-defence/articleshow/129715600.cms) - **The Times of India**
-10. [How would West Ham or Spurs relegation hit London?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8b87eca2-2396-417a-bf4b-918e1ed895ca) - **Yahoo Entertainment**
+1. [Video: McTominay switches from English to Italian in funny post-match interview](https://football-italia.net/mctominay-switches-english-italian-interview/) - **Football Italia**
+2. [Al-Hilal now 'confident' of prising Liverpool man away from Anfield](https://www.anfieldwatch.co.uk/liverpool-fc/news/al-hilal-now-confident-of-prising-liverpool-man-away-from-anfield/) - **Anfieldwatch.co.uk**
+3. [Real Madrid vs Atletico Madrid: La Liga – team news, start, lineups](https://www.aljazeera.com/sports/2026/3/21/real-madrid-vs-atletico-madrid-la-liga-team-news-start-lineups) - **Al Jazeera English**
+4. [Wanindu likely to lose IPL and 2 Crores](https://english.gossiplankanews.com/2026/03/wanindu-likely-to-lose-ipl-and-2-crores.html) - **Gossiplankanews.com**
+5. [Don’t scoff at Celtic’s pursuit of Plymouth Argyle striker Lorent Tolaj](https://thecelticstar.com/dont-scoff-at-celtics-pursuit-of-plymouth-argyle-striker-lorent-tolaj/) - **The Celtic Star**
+6. [Gianluigi Donnarumma: Real Madrid disappointment ‘huge’ but tie was over in first leg](https://cityxtra.co.uk/43305/gianluigi-donnarumma-real-madrid-disappointment-huge-but-tie-was-over-in-first-leg/) - **Cityxtra.co.uk**
+7. [Bayern Munich vs Union Berlin – Predicted lineup and team news](https://thefootballfaithful.com/bayern-munich-vs-union-berlin-predicted-lineup-and-team-news/) - **The Football Faithful**
+8. [Corrupt Premier League, Lille, West Ham, a reason and match facts from the BBC](https://www.thevillablog.co.uk/aston-villa-blog/avfc-opinion/corrupt-premier-league-lille-west-ham-a-reason-and-match-facts-from-the-bbc) - **Thevillablog.co.uk**
+9. [Man City have to live up to Arsenal benchmark, says Pep](https://www.rte.ie/sport/soccer/2026/0321/1564493-man-city-have-to-live-up-to-arsenal-benchmark-says-pep/) - **RTE**
+10. [Arne Slot has already got his perfect Andy Robertson replacement lined up](https://www.anfieldwatch.co.uk/liverpool-fc/news/arne-slot-has-already-got-his-perfect-andy-robertson-replacement-lined-up/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-03-22 18:04:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-22 18:50:02 (KST) / (하루 100회 제한 준수 중)*
