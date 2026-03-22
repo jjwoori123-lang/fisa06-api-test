@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Liverpool and Chelsea involved in ‘open race’ for Champions League-winning midfield brute](https://www.empireofthekop.com/2026/03/21/liverpool-and-chelsea-in-open-race-for-champions-league-winning-midfielder/) - **Empire of The Kop**
-2. [Man Utd open to sensational U-turn on ‘absolutely fantastic’ star; Rooney will be delighted](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_82c50227-54f5-4566-8287-693274fc0cb4) - **Yahoo Entertainment**
-3. [Tottenham v Nottingham Forest: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/premier-league-odds/tottenham-v-nottingham-forest-line-ups-stats-and-preview-2/) - **101 Great Goals**
-4. ['A Guardiola win could shake things up mentally at the Emirates'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5b161f94-4725-4780-8918-3aa7ea41756c) - **Yahoo Entertainment**
-5. [Gunners in 'magnificent place' no matter Carabao Cup result](https://www.bbc.com/sport/football/articles/c5yryy5173go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [“I was nervous” – Kyle Walker explains Pep Guardiola’s 2023 Champions League final speech request](https://cityxtra.co.uk/43306/kyle-walker-explains-pep-guardiolas-2023-champions-league-final-speech-request/) - **Cityxtra.co.uk**
-7. [Premier League scores: Liverpool look to maintain push for a top four finish at Brighton](https://www.independent.ie/sport/soccer/premier-league/premier-league-scores-liverpool-look-to-maintain-push-for-a-top-four-finish-at-brighton/a1661613874.html) - **Independent.ie**
-8. [Premier League scores: Liverpool trailing at Brighton after Hugo Ekitike limps off](https://www.independent.ie/sport/soccer/premier-league/premier-league-scores-liverpool-beaten-at-brighton-as-pressure-mounts-on-arne-slot/a1661613874.html) - **Independent.ie**
-9. [Premier League scores: Fulham and Burnley clash after Liverpool are beaten at Brighton](https://www.independent.ie/sport/soccer/premier-league/premier-league-scores-fulham-and-burnley-clash-after-liverpool-are-beaten-at-brighton/a1661613874.html) - **Independent.ie**
+1. [ Ageing like fine wine: Premier League veteran sets goal record](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a6fdda85-8a50-4c83-916c-de030f914e6b) - **Yahoo Entertainment**
+2. [Hugo Ekitike injury: Liverpool star forced off vs. Brighton](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f1465760-ad41-4def-9eaa-14409c12d690) - **Yahoo Entertainment**
+3. [IPL 2026: Akash Deep ruled out ahead of season opener as KKR’s pace crisis deepens](https://economictimes.indiatimes.com/news/sports/ipl-2026-akash-deep-injury-news-kolkata-knight-riders-pace-crisis-fast-bowlers-ruled-out-season-opener/articleshow/129719864.cms) - **The Times of India**
+4. [“It’s a big challenge for us” Guardiola previews the Carabao Cup final](https://www.justarsenal.com/its-a-big-challenge-for-us-guardiola-previews-the-carabao-cup-final/412077) - **Just Arsenal News**
+5. [What Brighton fans did to tearful Hugo Ekitike as he exited Liverpool match with injury was vile](https://www.empireofthekop.com/2026/03/21/what-brighton-fans-did-to-tearful-hugo-ekitike-as-he-exited-liverpool-match-with-injury-was-vile/) - **Empire of The Kop**
+6. [Premier League Clubs Register Interest In France Star As Inter Milan Sporting Director Completes Mission In England](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_be722687-b630-42f0-97d1-30b4f96634c4) - **Yahoo Entertainment**
+7. [More headaches for Slot as Liverpool dealt yet another major injury blow in early minutes v Brighton](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_75718dc9-bdc3-4f80-8961-70d9108ce2c6) - **Yahoo Entertainment**
+8. [Liverpool injury crisis worsens as £69m forward limps off v Brighton](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-injury-crisis-worsens-as-ps69m-forward-limps-off-v-brighton/) - **Anfieldwatch.co.uk**
+9. [Newcastle v Sunderland: Key stats and talking points](https://www.bbc.com/sport/football/articles/c9d41l25d72o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-22 21:59:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-22 22:50:07 (KST) / (하루 100회 제한 준수 중)*
