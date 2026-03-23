@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The race no-one wants to win - are Everton serious top-five contenders?](https://www.bbc.com/sport/football/articles/czd7104md18o) - **BBC News**
-2. [Alessandro Bastoni reports could be great news for Barcelona in their search for Inter’s defender](https://worldsoccertalk.com/news/alessandro-bastoni-reports-could-be-great-news-for-barcelona-in-their-search-for-inters-defender/) - **Worldsoccertalk.com**
-3. [Welbeck dents Liverpool's Champions League hopes in Brighton, Everton thrash Chelsea 3-0](https://www.channelnewsasia.com/sport/welbeck-dents-liverpools-champions-league-hopes-in-brighton-everton-thrash-chelsea-3-0-6009271) - **CNA**
-4. [Arsenal ready for 'big battle' against City - Gabriel](https://www.bbc.com/sport/football/articles/ce358qwjvqdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Bijol Gets 8.5, Ampadu With 7.5 | Leeds United Players Rated In Lackluster Draw Vs Brentford](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fb9e5293-586a-4b24-8aff-b2b9aeef913c) - **Yahoo Entertainment**
-6. [Outrun and in decline – are Rosenior's Chelsea near crisis point?](https://www.bbc.com/sport/football/articles/cede0vvzdgjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Guardiola says this City team can flourish](https://www.mancity.com/news/mens/pep-guardiola-carabao-cup-final-arsenal-embargo-written-63909702) - **Manchester City FC**
-8. [Know Thyself: Sunderland’s Path to Derby Victory](https://rokerreport.sbnation.com/opinion/131733/know-thyself-sunderlands-path-to-derby-victory) - **SB Nation**
-9. [Brentford analysis: Bees running out of sting?](https://www.bbc.com/sport/football/articles/cyv1y6d7y3zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Chappell Roan Draws Ire Of Soccer Fans After Allegedly Intimidating 11-Year-Old Daughter Of Star Player](https://brobible.com/culture/article/chappell-roan-security-intimidates-jorginho-daughter/) - **BroBible**
+2. [Tottenham Hotspur have chance to turn relegation narrative around against Nottingham Forest](https://www.cbssports.com/soccer/news/tottenham-vs-nottingham-forest-live-stream-preview-odds/) - **CBS Sports**
+3. [Kevin Durant passes Michael Jordan for fifth on NBA's all-time scoring list](https://sports.yahoo.com/nba/article/kevin-durant-passes-michael-jordan-for-fifth-on-nbas-all-time-scoring-list-021742373.html) - **Yahoo Entertainment**
+4. [Maxx Crosby trade update: What it means for the 49ers' 2026 strategy](https://www.marca.com/en/nfl/san-francisco-49ers/2026/03/22/69bf4c7f46163f92338b45a0.html) - **Marca**
+5. [Where to watch Newcastle vs. Sunderland live stream, TV channel, start time for Tyne-Wear derby](https://www.sportingnews.com/us/soccer/news/watch-newcastle-vs-sunderland-live-stream-tv-channel-time-tyne-wear/35dd26d6b81722d1177fee68) - **Sporting News**
+6. [Twist in race for Royal Challengers Bengaluru? Now, Birla-Blitzer consortium also evaluating a bid](https://www.moneycontrol.com/news/business/twist-in-race-for-royal-challengers-bengaluru-now-birla-blitzer-consortium-also-evaluating-a-bid-13866953.html) - **Moneycontrol**
+7. [Saturday Night Live UK review – Some hits, some misses, and a bang-on Princess Di impression](https://www.the-independent.com/arts-entertainment/tv/reviews/saturday-night-live-uk-review-sky-b2942546.html) - **The-independent.com**
+8. [Ndah shines on Stellenbosch FC debut](https://punchng.com/ndah-shines-on-stellenbosch-fc-debut/) - **The Punch**
+9. [Rivers blame Champions League for slump](https://punchng.com/rivers-blame-champions-league-for-slump/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-03-23 08:59:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-23 12:18:45 (KST) / (하루 100회 제한 준수 중)*
