@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [PSV says USMNT forward Ricardo Pepi's transfer to Fulham is off](https://www.usatoday.com/story/sports/soccer/usmnt/2026/03/22/ricardo-pepi-transfer-fulham-off-psv/89274789007/) - **USA Today**
-2. [Pakistan T20 cricket league to be held in empty stadiums amid oil crisis](https://www.aljazeera.com/news/2026/3/22/pakistan-super-league-matches-to-be-held-in-empty-stadiums-amid-oil-crisis) - **Al Jazeera English**
-3. [Pakistan T20 cricket league to be held in empty stadiums amid oil crisis](https://www.aljazeera.com/sports/2026/3/22/pakistan-super-league-matches-to-be-held-in-empty-stadiums-amid-oil-crisis) - **Al Jazeera English**
-4. [Forest ramp up Spurs' relegation fears with thumping win](https://www.skysports.com/football/news/12309/13521457/tottenham-0-3-nottingham-forest-igor-jesus-morgan-gibbs-white-and-taiwo-awoniyi-score-to-win-huge-relegation-battle-clash) - **Sky Sports**
-5. [Report: Man United eyeing move to sign 21-year-old Premier League star](https://eplindex.com/144335/report-man-united-eyeing-move-to-sign-21-year-old-premier-league-star-2.html) - **English Premier League Index - Opta Stats**
-6. [LIVE – Arsenal v Manchester City: Commentary, updates, goals and stats for EFL Cup final](https://www.101greatgoals.com/football/arsenal-v-man-city-live-updates-efl-cup-final/) - **101 Great Goals**
-7. [Villa tighten grip on top-four finish with win over West Ham](https://www.skysports.com/football/news/11095/13521459/aston-villa-2-0-west-ham-john-mcginn-and-ollie-watkins-end-villa-s-losing-run-to-tighten-grip-on-top-four) - **Sky Sports**
-8. [Championship talking points: Race for second hots up as Coventry take step closer to PL](https://www.skysports.com/football/news/11095/13521741/championship-talking-points-race-for-second-and-play-offs-hots-up-as-coventry-take-a-step-closer-to-the-premier-league) - **Sky Sports**
-9. [Watkins among elite PL company despite latest England snub ](https://onefootball.com/en/news/watkins-among-elite-pl-company-despite-latest-england-snub-42599065) - **Onefootball.com**
-10. [Watkins doubles Villa's lead against West Ham!](https://www.skysports.com/football/video/12606/13523085/goal-o-watkins-68-aston-villa-2-0-west-ham) - **Sky Sports**
+1. [EPL: Tottenham edge toward relegation after 3-0 loss to Nottingham Forest](https://punchng.com/epl-tottenham-edge-toward-relegation-after-3-0-loss-to-nottingham-forest/) - **The Punch**
+2. [West Ham analysis: Hammers still in trouble after flat performance](https://www.bbc.com/sport/football/articles/cp3l9vn91p7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Tottenham Hotspur 0-3 Nottingham Forest: Tricky Trees triumph as Spurs wilt again](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ea2dea46-dcaf-4a57-aec3-d968254970f2) - **Yahoo Entertainment**
+4. [Three sporting events to watch this week: Your handy guide to sport on television](https://www.irishtimes.com/sport/2026/03/22/three-sporting-events-to-watch-this-week-your-handy-guide-to-sport-on-television/) - **The Irish Times**
+5. [Villa boost Champions League hopes by defeating West Ham](https://www.rte.ie/sport/soccer/2026/0322/1564665-villa-boost-champions-league-hopes-by-defeating-west-ham/) - **RTE**
+6. [La Liga Soccer: Stream Real Madrid vs. Atlético Madrid Live From Anywhere](https://www.cnet.com/tech/services-and-software/la-liga-soccer-stream-real-madrid-vs-atletico-madrid-live-from-anywhere/) - **CNET**
+7. [Report: Tottenham Hotspur are in the race to sign Serie A forward](https://eplindex.com/144343/report-tottenham-hotspur-are-in-the-race-to-sign-serie-a-forward.html) - **English Premier League Index - Opta Stats**
+8. [Shocking stats, surprise subs and ‘seven finals’ – Spurs’ crisis deepens](https://www.skysports.com/football/news/11675/13523029/tottenhams-premier-league-relegation-fears-deepen-shocking-stats-surprise-subs-and-seven-finals-in-focus) - **Sky Sports**
+9. [Premier League investigating alleged discriminatory abuse in Newcastle-Sunderland game](https://www.channelnewsasia.com/sport/premier-league-investigating-alleged-discriminatory-abuse-in-newcastle-sunderland-game-6010056) - **CNA**
+10. [Tottenham 0-3 Nottingham Forest: What Saltor said](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_796ed952-4a26-4268-8b22-19f35d5e601b) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-24 01:02:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-24 02:11:35 (KST) / (하루 100회 제한 준수 중)*
