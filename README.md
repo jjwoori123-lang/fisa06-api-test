@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Barcelona vs Rayo Vallecano live: Confirmed teams and full lineups in La Liga, TV channel, live streams](https://www.101greatgoals.com/football/la-liga/barcelona-vs-rayo-vallecano-live-confirmed-teams-full-line-ups/) - **101 Great Goals**
-2. [Premier League scores, table and fixtures](https://www.independent.ie/sport/soccer/premier-league/premier-league-scores-table-and-fixtures/a1661613874.html) - **Independent.ie**
-3. [The reigning champions with the most defeats in a Premier League season as Liverpool slump to 10th league defeat](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_eb2893d1-c1eb-4dd4-8887-3dff3ff740cf) - **Yahoo Entertainment**
-4. ['A mammoth effort to stay where we are''](https://www.bbc.com/sport/football/articles/c1d95134q2po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Two cities to host Pakistan Super League in empty stadiums due to spike in oil prices](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a918e6a9-1af7-44db-9559-2af5369a3a95) - **Yahoo Entertainment**
-6. ['For Everton to be in the mix is unbelievable'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e1fcbab3-926f-456a-98cc-c7139925bf02) - **Yahoo Entertainment**
-7. [Tottenham vs Nottm Forest Live Streams: How to watch Premier League 2025/26 from anywhere in the world](https://www.techradar.com/how-to-watch/football/tottenham-vs-nottm-forest-premier-league-2025-26) - **TechRadar**
-8. [Tottenham Hotspur vs. Nottingham Forest: game time, live blog, and how to watch online](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-match-threads/69649/tottenham-hotspur-vs-nottingham-forest-game-time-live-blog-and-how-to-watch-online) - **SB Nation**
-9. ['Reality is Slot needs answers quickly'](https://www.bbc.com/sport/football/articles/cr514jyy5vvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Barcelona defensive duo unfazed by transfer links despite rising demand across Europe](https://barcauniversal.com/barcelona-defensive-duo-unfazed-by-transfer-links-despite-rising-demand-across-europe/) - **Barcauniversal.com**
+1. ['When the Spurs go marching in' | Fans cheer team bus ahead of huge Forest clash](https://www.skysports.com/football/video/33727/13523024/spurs-fans-cheer-their-team-bus-ahead-of-huge-nottingham-forest-clash) - **Sky Sports**
+2. [Aston Villa vs West Ham LIVE updates, watch live, score, analysis, highlights](https://www.nbcsports.com/soccer/news/how-to-watch-aston-villa-vs-west-ham-live-stream-link-tv-channel-latest-team-news-prediction) - **NBCSports.com**
+3. [Tottenham vs Nottingham Forest live: Confirmed Premier League teams and full lineups](https://www.101greatgoals.com/football/premier-league/tottenham-vs-nottingham-forest-live-confirmed-teams-full-line-ups/) - **101 Great Goals**
+4. [Report: Mikel Arteta in control but Arsenal under pressure to sell this summer](https://eplindex.com/144326/report-mikel-arteta-in-control-but-arsenal-under-pressure-to-sell-this-summer.html) - **English Premier League Index - Opta Stats**
+5. [2026 NFL Draft’s RAScals: Top fits for the Chiefs](https://www.arrowheadpride.com/kansas-city-chiefs-draft/197145/2026-nfl-draft-rascals-top-fits-chiefs) - **Arrowhead Pride**
+6. [Manchester City vs Arsenal EFL League Cup final: Predictions, Carabao Cup final live streaming, kick off details](https://economictimes.indiatimes.com/news/international/us/manchester-city-vs-arsenal-efl-league-cup-final-predictions-carabao-cup-final-live-streaming-kick-off-details/articleshow/129733312.cms) - **The Times of India**
+7. [Premier League football match stopped after racist abuse of player reported](https://news.sky.com/story/premier-league-football-match-stopped-after-racist-abuse-of-player-reported-13523016) - **Sky.com**
+8. [Arsenal vs. Manchester City Carabao Cup Final: do the thing!](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bdc212f7-b69f-4b0e-b613-6c869b609b21) - **Yahoo Entertainment**
+9. [Wayne Rooney calls on Chelsea to upgrade on €69m star after Everton defeat](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_35d1a73f-b3d9-4334-b090-b487dc4d0f12) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-23 20:56:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-23 22:25:15 (KST) / (하루 100회 제한 준수 중)*
