@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [EPL: Tottenham edge toward relegation after 3-0 loss to Nottingham Forest](https://punchng.com/epl-tottenham-edge-toward-relegation-after-3-0-loss-to-nottingham-forest/) - **The Punch**
-2. [West Ham analysis: Hammers still in trouble after flat performance](https://www.bbc.com/sport/football/articles/cp3l9vn91p7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Tottenham Hotspur 0-3 Nottingham Forest: Tricky Trees triumph as Spurs wilt again](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ea2dea46-dcaf-4a57-aec3-d968254970f2) - **Yahoo Entertainment**
-4. [Three sporting events to watch this week: Your handy guide to sport on television](https://www.irishtimes.com/sport/2026/03/22/three-sporting-events-to-watch-this-week-your-handy-guide-to-sport-on-television/) - **The Irish Times**
-5. [Villa boost Champions League hopes by defeating West Ham](https://www.rte.ie/sport/soccer/2026/0322/1564665-villa-boost-champions-league-hopes-by-defeating-west-ham/) - **RTE**
-6. [La Liga Soccer: Stream Real Madrid vs. Atlético Madrid Live From Anywhere](https://www.cnet.com/tech/services-and-software/la-liga-soccer-stream-real-madrid-vs-atletico-madrid-live-from-anywhere/) - **CNET**
-7. [Report: Tottenham Hotspur are in the race to sign Serie A forward](https://eplindex.com/144343/report-tottenham-hotspur-are-in-the-race-to-sign-serie-a-forward.html) - **English Premier League Index - Opta Stats**
-8. [Shocking stats, surprise subs and ‘seven finals’ – Spurs’ crisis deepens](https://www.skysports.com/football/news/11675/13523029/tottenhams-premier-league-relegation-fears-deepen-shocking-stats-surprise-subs-and-seven-finals-in-focus) - **Sky Sports**
-9. [Premier League investigating alleged discriminatory abuse in Newcastle-Sunderland game](https://www.channelnewsasia.com/sport/premier-league-investigating-alleged-discriminatory-abuse-in-newcastle-sunderland-game-6010056) - **CNA**
-10. [Tottenham 0-3 Nottingham Forest: What Saltor said](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_796ed952-4a26-4268-8b22-19f35d5e601b) - **Yahoo Entertainment**
+1. [Spurs could not handle 'weight' of relegation clash, coach admits](https://www.channelnewsasia.com/sport/spurs-could-not-handle-weight-relegation-clash-coach-admits-6010101) - **CNA**
+2. [Why did Tottenham care about relegation threat? #sports](https://alltoc.com/sports/why-did-tottenham-care-about-relegation-threat) - **Alltoc.com**
+3. [Paying Trent Williams Might Be 49ers’ Only Option](https://roundtable.io/sports/nfl/49ers/players/paying-trent-williams-might-be-49ers-only-option) - **Roundtable.io**
+4. [Report: Man United eyeing shock move to sign Arsenal star](https://eplindex.com/144345/report-man-united-eyeing-shock-move-to-sign-arsenal-star.html) - **English Premier League Index - Opta Stats**
+5. [Saltor 100% sure Spurs can survive despite Forest farce](https://thefootballfaithful.com/saltor-100-sure-spurs-can-survive-despite-forest-farce/) - **The Football Faithful**
+6. ['Impossible for him to stay' - what next for Tudor and Tottenham?](https://www.bbc.com/sport/football/articles/c2k3dwng90go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Sunderland Triumph Over Newcastle, Forest Win Big Against Spurs](https://www.rediff.com/sports/report/premier-league-sunderland-stun-newcastle-forest-rout-spurs/20260322.htm) - **Rediff.com**
+8. [Cardiff and Wrexham claim derby bragging rights](https://www.bbc.com/sport/football/articles/c5y8w7zyjyno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Nottingham Forest edge Tottenham in vital relegation showdown](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8eab16c4-9d46-4abc-ad65-2e75ad81a209) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-24 02:11:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-24 03:07:06 (KST) / (하루 100회 제한 준수 중)*
