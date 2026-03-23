@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bruno Saltor: Micky van de Ven substitution was “tactical,” not due to injury](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/69672/bruno-saltor-micky-van-de-ven-substitution-was-tactical-not-due-to-injury) - **SB Nation**
-2. [Ex-France, West Ham star Payet announces retirement](https://punchng.com/ex-france-west-ham-star-payet-announces-retirement/) - **The Punch**
-3. [Tottenham coach Igor Tudor misses media duties because of family bereavement](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0a87357d-4641-4441-9586-dd9f08ebb596) - **Yahoo Entertainment**
-4. [Liverpool Identify This Bayern Munich Winger As A Target: Dream Option For Slot?](https://the4thofficial.net/2026/03/liverpool-identify-this-bayern-munich-winger-as-a-target-2/) - **The4thofficial.net**
-5. [Ake: I’m very happy with Carabao Cup success](https://www.mancity.com/news/mens/nathan-ake-2026-carabao-cup-reaction-63909805) - **Manchester City FC**
-6. [Tyne-Wear derby 'largely without incident'](https://www.bbc.com/news/articles/cq8wxl9xewdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Manchester City win Carabao Cup after Nico O’Reilly’s double downs lacklustre Arsenal](https://www.irishtimes.com/sport/soccer/2026/03/22/manchester-city-win-carabao-cup-after-nico-oreillys-double-downs-lacklustre-arsenal/) - **The Irish Times**
-8. [Another blow to PSL, Shanaka set to join Rajasthan Royals as Curran's replacement](https://economictimes.indiatimes.com/news/sports/another-blow-to-psl-shanaka-set-to-join-rajasthan-royals-as-currans-replacement/articleshow/129738321.cms) - **The Times of India**
-9. [Few leaders in Australia are as firmly entrenched in power than Peter Malinauskas](https://www.abc.net.au/news/2026-03-23/peter-malinauskas-place-in-labor/106484008) - **ABC News (AU)**
+1. [Manchester City beats Arsenal 2-0 in English League Cup final win](https://www.pbs.org/newshour/world/manchester-city-beats-arsenal-2-0-in-english-league-cup-final-win) - **PBS**
+2. [Guardiola's dance of joy as Man City pile pressure on desolate Arsenal](https://www.bbc.com/sport/football/articles/ce35w3ewqxyo) - **BBC News**
+3. [Arne Slot favourite offered to clubs ahead of surprise sale](https://www.anfieldwatch.co.uk/liverpool-fc/news/arne-slot-favourite-offered-to-clubs-ahead-of-surprise-sale/) - **Anfieldwatch.co.uk**
+4. [Boyhood Man City fan to Wembley winner - O'Reilly's fairytale continues](https://www.bbc.com/sport/football/articles/cn4vzejl0pno) - **BBC News**
+5. [Manchester City: Guardiola hails ‘signing of the season’ O’Reilly after EFL Cup final heroics](https://www.101greatgoals.com/football/manchester-city-guardiola-oreilly-efl-cup-final-heroics/) - **101 Great Goals**
+6. [Guardiola never gets tired of winning trophies](https://www.mancity.com/news/mens/pep-guardiola-carabao-cup-final-arsenal-matchday-63909785) - **Manchester City FC**
+7. [Football Daily](https://www.bbc.co.uk/sounds/play/p0n861cl) - **BBC News**
+8. [Relief for Hallgrímsson as Troy Parrott and other Ireland players survive weekend unscathed](https://www.irishtimes.com/sport/soccer/2026/03/22/relief-for-hallgrimsson-as-troy-parrott-and-other-ireland-players-survive-weekend-unscathed/) - **The Irish Times**
+9. [€30m Aston Villa Offer For Lazio Star Has Good Chance Of Success: Do They Need Him?](https://the4thofficial.net/2026/03/e30m-aston-villa-offer-for-lazio-star-has-good-chance-of-success-do-they-need-him/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-03-24 04:59:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-24 05:49:20 (KST) / (하루 100회 제한 준수 중)*
