@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Wembley concerts force Community Shield switch to Cardiff](https://www.channelnewsasia.com/sport/wembley-concerts-force-community-shield-switch-cardiff-6011961) - **CNA**
-2. [Report De Zerbi ready for Tottenham if they avoid relegation](https://football-italia.net/report-de-zerbi-ready-for-tottenham-relegation/) - **Football Italia**
-3. [Apple Sports App on iPhone Gets Three New Features](https://www.mactrast.com/2026/03/apple-sports-app-on-iphone-gets-three-new-features/) - **Mactrast.com**
-4. [Coleman has helped to ease weight of captaincy - Collins](https://www.rte.ie/sport/soccer/2026/0323/1564811-coleman-has-helped-to-ease-weight-of-captaincy-collins/) - **RTE**
-5. [Enzo Fernandez addresses Real Madrid transfer rumours as Alexis Mac Allister rues Finalissima ‘shame’](https://www.101greatgoals.com/football/premier-league/enzo-fernandez-real-madrid-transfer/) - **101 Great Goals**
-6. [Carabao Cup win 'not only about the trophy' - Rodri](https://www.bbc.com/sport/football/articles/cqxlwz4x4y2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Pavlovic impressed Chelsea scouts with Milan performance](https://football-italia.net/pavlovic-impressed-chelsea-milan-performance/) - **Football Italia**
-8. [Michael Olise: France’s 2026 World Cup Unsung Hero](https://urbanpitch.com/michael-olise-frances-2026-world-cup-unsung-hero/) - **Urbanpitch.com**
-9. [Takeaways from our March Fans' forum](https://www.manutd.com/en/news/detail/fans-forum-takeaways-23-march-2026) - **Manchester United**
-10. [Tottenham confirm the death of Igor Tudor’s father](https://www.101greatgoals.com/football/premier-league/tottenham-confirm-the-death-of-igor-tudors-father/) - **101 Great Goals**
+1. [Principality Stadium to host 2026 Community Shield](https://www.playmakerstats.com/news/principality-stadium-to-host-2026-community-shield/1081819) - **Playmakerstats.com**
+2. [Have Chelsea progressed under Rosenior? Analysing his Blues tenure](https://www.bbc.com/sport/football/articles/cg547vpj31zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Fixture difficulty? Points needed? Premier League's relegation run-in analysed](https://www.skysports.com/football/video/30998/13523573/premier-leagues-relegation-run-in-analysed) - **Sky Sports**
+4. [Have Chelsea progressed under Rosenior? Analysing his Blues tenure](https://www.bbc.com/sport/football/articles/cg547vpj31zo) - **BBC News**
+5. [Jurgen Klopp may have already sealed Arne Slot’s fate; Liverpool must act after damning evidence](https://www.empireofthekop.com/2026/03/23/jurgen-klopp-may-have-already-sealed-arne-slots-fate-liverpool-must-act-after-damning-evidence/) - **Empire of The Kop**
+6. [Chelsea’s top rated outfield player against Everton could start again next game despite defensive issues](https://chelsea.news/2026/03/chelsea-everton-start-again-top-rated/) - **Chelsea.news**
+7. [Report De Zerbi ready for Tottenham if they avoid relegation](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c647a83b-5f0a-42d2-90df-7231a15c3419) - **Yahoo Entertainment**
+8. [De Zerbi open to Tottenham job if they survive relegation scare](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_da0db595-a488-4e93-8b3f-7a9cb2289b13) - **Yahoo Entertainment**
+9. [As Italy pursues World Cup berth, 'nervous' coach releases standout player Chiesa in apparent rift](https://www.cbc.ca/sports/soccer/gennaro-gattuso-italy-world-cup-pursuit-chiesa-9.7138743) - **CBC News**
+10. [fpl-intelligence 0.19.0](https://pypi.org/project/fpl-intelligence/0.19.0/) - **Pypi.org**
 
 
 ---
-*최근 업데이트: 2026-03-25 01:32:20 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-25 02:35:59 (KST) / (하루 100회 제한 준수 중)*
