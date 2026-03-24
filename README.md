@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle v the system - is Saudi 2030 vision unrealistic?](https://www.bbc.com/sport/football/articles/cp8dxz6173xo) - **BBC News**
-2. [Blackstone considers foraying into sports with its first-ever investment in IPL teams like RCB, Rajasthan Royals](https://www.livemint.com/companies/news/blackstone-considers-foraying-into-sports-with-its-first-ever-investment-in-ipl-teams-like-rcb-rajasthan-royals-11774290109737.html) - **Livemint**
-3. [Ben White called up for England: Why Real Madrid's Trent Alexander-Arnold continues to be frozen out](https://www.cbssports.com/soccer/news/ben-white-england-real-madrid-trent-alexander-arnold/) - **CBS Sports**
-4. [Former Barcelona president Bartomeu talks Messi, Neymar, Laporta, Negreira case](https://barcauniversal.com/former-barcelona-president-bartomeu-talks-messi-neymar-laporta-negreira-case/) - **Barcauniversal.com**
-5. [Who is JJ Gabriel? Why Manchester United have to be patient with ‘big talent’](https://www.101greatgoals.com/football/premier-league/jj-gabriel-manchester-united-england/) - **101 Great Goals**
-6. [Report: West Ham United are in talks to reach agreement for defender](https://eplindex.com/144418/report-west-ham-united-are-in-talks-to-secure-their-first-summer-signing.html) - **English Premier League Index - Opta Stats**
-7. [Can cup final victory spur Man City on to league title?](https://www.bbc.com/sport/football/articles/cx23lxgj6z3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Do Gunners have 'fire in their belly' after cup final defeat?](https://www.bbc.com/sport/football/articles/c87wxe8e03xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [8 architecture and culture groups sue Trump and the Kennedy Center board](https://www.npr.org/2026/03/23/nx-s1-5757505/kennedy-center-trump-lawsuit) - **NPR**
+1. [Gus Poyet tells Manuel Ugarte why he should leave Man United](https://thepeoplesperson.com/2026/03/23/gus-poyet-tells-manuel-ugarte-why-he-should-leave-man-united-308034/) - **The Peoples Person**
+2. [Bayern Munich reportedly change their stance on Alphonso Davies’ future, nearing him to a Premier League move](https://worldsoccertalk.com/news/bayern-munich-reportedly-change-their-stance-on-alphonso-davies-future-nearing-him-to-a-premier-league-move/) - **Worldsoccertalk.com**
+3. [21-year-old super talent about to replace Liverpool club legend](https://www.anfieldwatch.co.uk/liverpool-fc/news/21-year-old-super-talent-about-to-replace-liverpool-club-legend/) - **Anfieldwatch.co.uk**
+4. [Real Madrid president impressed by young defender’s return to form](https://madriduniversal.com/real-madrid-president-impressed-by-young-defenders-return-to-form/) - **Madriduniversal.com**
+5. [fpl-intelligence 0.20.0](https://pypi.org/project/fpl-intelligence/0.20.0/) - **Pypi.org**
+6. [Leeds United To Strengthen Key Position: Is A Bigger Solution Needed?](https://the4thofficial.net/2026/03/leeds-united-to-strengthen-key-position-is-a-bigger-solution-needed/) - **The4thofficial.net**
+7. [Report: Man United ready to push hard for £50m deal to sign midfielder](https://eplindex.com/144420/report-man-united-ready-to-push-hard-for-50m-deal-to-sign-midfielder.html) - **English Premier League Index - Opta Stats**
+8. [When are Lionel Messi and Cristiano Ronaldo playing? Spring 2026 international break fixtures for top stars](https://www.101greatgoals.com/football/internationals/messi-yamal-vinicius-ronaldo-international-fixtures-friendlies/) - **101 Great Goals**
+9. [Tudor messages of condolence from Serie A clubs after bereavement](https://football-italia.net/tudor-messages-condolence-from-serie-a-clubs/) - **Football Italia**
+10. [Stats Prove This Veteran Is Everton’s Secret Weapon: Is Europe Still Possible?](https://the4thofficial.net/2026/03/stats-prove-this-veteran-is-evertons-secret-weapon-is-europe-still-possible/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-03-25 03:37:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-25 04:40:06 (KST) / (하루 100회 제한 준수 중)*
