@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [UEFA confirm potential for seven Premier League teams in UCL](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a5b95c1f-0670-4173-8dcd-959d0154e5ac) - **Yahoo Entertainment**
-2. [The top-scoring English players in the Premier League this season](https://thefootballfaithful.com/the-top-scoring-english-players-in-the-premier-league-this-season/) - **The Football Faithful**
-3. [Chelsea linked with £86m centre-forward transfer](https://thefootballfaithful.com/chelsea-linked-with-86m-lautaro-martinez-transfer/) - **The Football Faithful**
-4. [Former West Ham and France star Dimitri Payet retires from football](https://www.independent.ie/sport/soccer/premier-league/former-west-ham-and-france-star-dimitri-payet-retires-from-football/a901044688.html) - **Independent.ie**
-5. [CSK IPL history, stats, key moments: All you need to know about 2026 rebuild](https://economictimes.indiatimes.com/news/sports/csk-ipl-history-check-wins-records-statistics-key-moments-analysis-of-chennai-super-kings/articleshow/129750627.cms) - **The Times of India**
-6. [Rooney speculates on Trent's absence from England squad: Tuchel punishment related to Bellingham?](https://www.marca.com/en/world-cup/2026/03/23/69c126b4e2704e0f3b8b45d1.html) - **Marca**
-7. [White back in England fold after three years as Barnes also gets late call](https://www.skysports.com/football/news/11095/13523442/england-ben-white-and-harvey-barnes-called-into-thomas-tuchels-squad-for-uruguay-and-japan-friendlies) - **Sky Sports**
-8. [Lineker and Shearer agree on “double whammy” behind United’s frustration](https://thepeoplesperson.com/2026/03/23/lineker-and-shearer-agree-on-double-whammy-behind-uniteds-frustration-308033/) - **The Peoples Person**
+1. [Liverpool forward's contract request scuppers talks: He is set to leave](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_caf4747d-3311-4301-95c6-a1c8f8a9252f) - **Yahoo Entertainment**
+2. [Pereira has given players 'what they needed'](https://www.bbc.com/sport/football/articles/cx2v7nqgzgro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [The race for Europe: SEVEN English teams in the Champions League?](https://www.skysports.com/football/news/11095/13523499/how-champions-league-could-see-seven-english-teams-qualify-next-season-and-as-many-as-11-play-in-europe) - **Sky Sports**
+4. [Roma interested in Spurs defender Cristian Romero](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6c562199-cb51-4553-a8f4-94fe446b0394) - **Yahoo Entertainment**
+5. [United issue major Sesko and Mbeumo update ahead of international break](https://thepeoplesperson.com/2026/03/23/united-issue-major-sesko-and-mbeumo-update-ahead-of-international-break-308037/) - **The Peoples Person**
+6. [Will Pep Guardiola stay at Man City? Carabao Cup win casts manager future, Premier League title hopes in new light](https://www.sportingnews.com/us/soccer/manchester-city/news/pep-guardiola-stay-man-city-carabao-cup-final-premier-league/ce4f75d32b0274a4c70e12a0) - **Sporting News**
+7. [FIFA World Cup 2026: Full England fixtures, schedule, next match including kick off times](https://www.101greatgoals.com/football/internationals/world-cup-2026-england-fixtures-kick-off-times/) - **101 Great Goals**
+8. [Quiz: Name every scorer for an English club in the Champions League in 2025-26](https://www.bbc.com/sport/football/articles/c9vlpgvkvdjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Quiz: Name every scorer for an English club in the Champions League in 2025-26](https://www.bbc.com/sport/football/articles/c9vlpgvkvdjo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-24 20:59:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-24 22:44:28 (KST) / (하루 100회 제한 준수 중)*
