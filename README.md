@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Barcelona defenders react to transfer interest from Liverpool and Inter](https://www.football-espana.net/2026/03/23/barcelona-defenders-transfer-liverpool-inter) - **Football Espana**
-2. [Timothy Fosu-Mensah takes big step towards football comeback](https://thepeoplesperson.com/2026/03/23/timothy-fosu-mensah-takes-big-step-towards-football-comeback-308025/) - **The Peoples Person**
-3. [Richest Film Actor in the World Net Worth Shock](https://www.dumblittleman.com/richest-film-actor-in-the-world/) - **Dumblittleman.com**
-4. [2 Up, 2 Down: The Lads Have Done It Again!](https://rokerreport.sbnation.com/opinion/131701/2-up-2-down-the-lads-have-done-it-again) - **SB Nation**
-5. [Matchday Musings: Talbi And Brobbey Save The Day For Sunderland](https://rokerreport.sbnation.com/features/131684/matchday-musings-talbi-and-brobbey-save-the-day-for-sunderland) - **SB Nation**
-6. [On This Day (23rd March 1996): Reid’s Sunderland Make It Eight In A Row!](https://rokerreport.sbnation.com/features/131603/on-this-day-23rd-march-1996-reids-sunderland-make-it-eight-in-a-row) - **SB Nation**
-7. [“He Fits What Sean Payton Can Do in Denver”: Cam Newton Backs Broncos’ Jaylen Waddle Move](https://thesportsrush.com/nfl-news-he-fits-what-sean-payton-can-do-in-denver-cam-newton-backs-broncos-jaylen-waddle-move/) - **The Sportsrush**
-8. [USMNT roundup: Matt Freese tested by Lionel Messi before camp opens in Atlanta](https://sports.yahoo.com/soccer/article/usmnt-roundup-matt-freese-tested-by-lionel-messi-before-camp-opens-in-atlanta-010807273.html) - **Yahoo Entertainment**
-9. [NZ20: The race against time for Kiwi-based Twenty20 competition’s January launch](https://www.nzherald.co.nz/sport/cricket/nz20-the-race-against-time-for-kiwi-based-twenty20-competitions-january-launch/LRW3O4XBNFATXOJPRDRWTKROJQ/) - **New Zealand Herald**
-10. [Lookman, Ajibade on target as Awoniyi seals Spurs rout](https://punchng.com/lookman-ajibade-on-target-as-awoniyi-seals-spurs-rout/) - **The Punch**
+1. [Ballard set to miss Northern Ireland's Italy play-off](https://www.bbc.com/sport/football/articles/c4gxp019w81o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Ballard set to miss Northern Ireland's Italy play-off](https://www.bbc.com/sport/football/articles/c4gxp019w81o) - **BBC News**
+3. [10 Best Australian Soccer Players of All Time: Socceroos Legends Who Shaped the Game](https://www.ibtimes.com.au/10-best-australian-soccer-players-all-time-socceroos-legends-who-shaped-game-1864091) - **Ibtimes.com.au**
+4. [Fabrizio Romano drops blockbuster weekend update confirming Man Utd have held ‘meeting’ with agent of rival PL star](https://strettynews.com/2026/03/23/fabrizio-romano-bruno-guimaraes-manchester-united-newcastle-meeting/) - **Strettynews.com**
+5. [Kevin Kilbane: I can tell you what disingenuous Thierry Henry said to Richard Dunne](https://www.irishtimes.com/sport/soccer/2026/03/23/kevin-kilbane-from-tehran-tensions-to-the-hand-of-henry-playoffs-are-nerve-racking-affairs/) - **The Irish Times**
+6. [Ken Early: Caution and stop-start play are taking all the fun out of football](https://www.irishtimes.com/sport/soccer/2026/03/23/ken-early-caution-and-stop-start-play-are-taking-all-the-fun-out-of-football/) - **The Irish Times**
+7. [U21s preview: Sunderland v Arsenal](http://www.arsenal.com/news/u21s-preview-sunderland-v-arsenal) - **Arsenal.com**
+8. [Monday’s Everton News: Beto honoured, Garner talks win, Cahill’s ‘unforgettable’ experience](https://royalbluemersey.sbnation.com/everton-news/79004/beto-honoured-garner-talks-win-cahills-unforgettable-experience-toaster-crumpets-man) - **SB Nation**
+9. [Barcelona defenders react to transfer interest from Liverpool and Inter](https://www.football-espana.net/2026/03/23/barcelona-defenders-transfer-liverpool-inter) - **Football Espana**
+10. [Timothy Fosu-Mensah takes big step towards football comeback](https://thepeoplesperson.com/2026/03/23/timothy-fosu-mensah-takes-big-step-towards-football-comeback-308025/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-03-24 14:46:20 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-24 16:08:58 (KST) / (하루 100회 제한 준수 중)*
