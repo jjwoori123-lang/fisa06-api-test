@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [“It hasn’t been easy at all” – James Trafford thanks Pep Guardiola after Carabao Cup Final heroics against Arsenal](https://cityxtra.co.uk/43507/it-hasnt-been-easy-at-all-james-trafford-thanks-pep-guardiola-after-carabao-cup-final-heroics-against-arsenal/) - **Cityxtra.co.uk**
-2. ['Bobadilla deal difficult for Celtic' - gossip](https://www.bbc.com/sport/football/articles/c1eq8e8xzexo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. ['Bobadilla deal difficult for Celtic' - gossip](https://www.bbc.com/sport/football/articles/c1eq8e8xzexo) - **BBC News**
-4. [Rival manager claims no favourite ahead of Liverpool Champions League tie](https://anfieldindex.com/92454/rival-manager-claims-no-favourite-ahead-of-liverpool-champions-league-tie.html) - **Anfieldindex.com**
-5. [Saturday Night Live UK review – Some hits, some misses, and a bang-on Princess Di impression](https://www.the-independent.com/arts-entertainment/tv/reviews/snl-saturday-night-live-uk-review-sky-tina-fey-b2943588.html) - **The-independent.com**
-6. ['Players are fed up' - are autograph hunters going too far?](https://www.bbc.com/sport/football/articles/c78x77wz6q7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Publication names the three goalkeepers Chelsea should be looking at to sign](https://chelsea.news/2026/03/publication-names-the-three-goalkeepers-chelsea-should-be-looking-at-to-sign/) - **Chelsea.news**
-8. [‘Very highly regarded’ – Insider suggests ‘top young manager’ could be a viable successor to Slot](https://www.empireofthekop.com/2026/03/23/insider-suggests-top-young-manager-could-be-a-viable-successor-to-slot/) - **Empire of The Kop**
-9. ['Players are fed up' - are autograph hunters going too far?](https://www.bbc.com/sport/football/articles/c78x77wz6q7o) - **BBC News**
+1. [Konate deal in danger as jaw-dropping contract demands come to light](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-ibrahima-konate-deal-in-danger-as-jaw-dropping-contract-demands-come-to-light/) - **Anfieldwatch.co.uk**
+2. [Andrey Santos: Inter Milan make key decision in pursuit of United target](https://thepeoplesperson.com/2026/03/23/andrey-santos-inter-milan-make-key-decision-in-pursuit-of-united-target-308026/) - **The Peoples Person**
+3. [Journalist claims Slot decision will wait until summer for Liverpool](https://anfieldindex.com/92455/journalist-claims-slot-decision-will-wait-until-summer-for-liverpool.html) - **Anfieldindex.com**
+4. [IPL 2026 SRH Review: Can Sunrisers Hyderabad's batting firepower cover the Orange Army's bowling woes?](https://economictimes.indiatimes.com/news/sports/srh-in-ipl-history-check-wins-records-statistics-key-moments-analysis-of-sunrisers-hyderabad-batting-cover-bowling-woes/articleshow/129747136.cms) - **The Times of India**
+5. [Formidable attacker returning to Liverpool is now inevitable](https://www.anfieldwatch.co.uk/liverpool-fc/news/formidable-attacker-returning-to-liverpool-is-now-inevitable/) - **Anfieldwatch.co.uk**
+6. [How Liverpool lost their intensity under Slot](https://www.skysports.com/football/news/11095/13521716/arne-slots-liverpool-lack-intensity-and-the-numbers-prove-it-betos-big-chances-and-raul-jimenezs-penalty-record) - **Sky Sports**
+7. [Ref Watch: Was Maguire right to see red at Bournemouth?](https://www.skysports.com/football/live-blog/11095/13523326/ref-watch-live-premier-league-efl-and-scottish-premiership-incidents-analysed-by-dermot-gallagher-and-jay-bothroyd) - **Sky Sports**
+8. [Premier League Weekend Review: Slot under fire, Beto’s brace lifts Everton, and Sunderland hoodoo haunts Newcastle](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b4598a2f-58b2-47a7-be17-eba0b09fdcd1) - **Yahoo Entertainment**
+9. [Tottenham 0-3 Nottingham Forest - the fans' verdict](https://www.bbc.com/sport/football/articles/c9wqkwl4w5wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-24 17:03:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-24 18:11:06 (KST) / (하루 100회 제한 준수 중)*
