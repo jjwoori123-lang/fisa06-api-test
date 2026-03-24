@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Principality Stadium to host 2026 Community Shield](https://www.playmakerstats.com/news/principality-stadium-to-host-2026-community-shield/1081819) - **Playmakerstats.com**
-2. [Have Chelsea progressed under Rosenior? Analysing his Blues tenure](https://www.bbc.com/sport/football/articles/cg547vpj31zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Fixture difficulty? Points needed? Premier League's relegation run-in analysed](https://www.skysports.com/football/video/30998/13523573/premier-leagues-relegation-run-in-analysed) - **Sky Sports**
-4. [Have Chelsea progressed under Rosenior? Analysing his Blues tenure](https://www.bbc.com/sport/football/articles/cg547vpj31zo) - **BBC News**
-5. [Jurgen Klopp may have already sealed Arne Slot’s fate; Liverpool must act after damning evidence](https://www.empireofthekop.com/2026/03/23/jurgen-klopp-may-have-already-sealed-arne-slots-fate-liverpool-must-act-after-damning-evidence/) - **Empire of The Kop**
-6. [Chelsea’s top rated outfield player against Everton could start again next game despite defensive issues](https://chelsea.news/2026/03/chelsea-everton-start-again-top-rated/) - **Chelsea.news**
-7. [Report De Zerbi ready for Tottenham if they avoid relegation](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c647a83b-5f0a-42d2-90df-7231a15c3419) - **Yahoo Entertainment**
-8. [De Zerbi open to Tottenham job if they survive relegation scare](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_da0db595-a488-4e93-8b3f-7a9cb2289b13) - **Yahoo Entertainment**
-9. [As Italy pursues World Cup berth, 'nervous' coach releases standout player Chiesa in apparent rift](https://www.cbc.ca/sports/soccer/gennaro-gattuso-italy-world-cup-pursuit-chiesa-9.7138743) - **CBC News**
-10. [fpl-intelligence 0.19.0](https://pypi.org/project/fpl-intelligence/0.19.0/) - **Pypi.org**
+1. [Newcastle v the system - is Saudi 2030 vision unrealistic?](https://www.bbc.com/sport/football/articles/cp8dxz6173xo) - **BBC News**
+2. [Blackstone considers foraying into sports with its first-ever investment in IPL teams like RCB, Rajasthan Royals](https://www.livemint.com/companies/news/blackstone-considers-foraying-into-sports-with-its-first-ever-investment-in-ipl-teams-like-rcb-rajasthan-royals-11774290109737.html) - **Livemint**
+3. [Ben White called up for England: Why Real Madrid's Trent Alexander-Arnold continues to be frozen out](https://www.cbssports.com/soccer/news/ben-white-england-real-madrid-trent-alexander-arnold/) - **CBS Sports**
+4. [Former Barcelona president Bartomeu talks Messi, Neymar, Laporta, Negreira case](https://barcauniversal.com/former-barcelona-president-bartomeu-talks-messi-neymar-laporta-negreira-case/) - **Barcauniversal.com**
+5. [Who is JJ Gabriel? Why Manchester United have to be patient with ‘big talent’](https://www.101greatgoals.com/football/premier-league/jj-gabriel-manchester-united-england/) - **101 Great Goals**
+6. [Report: West Ham United are in talks to reach agreement for defender](https://eplindex.com/144418/report-west-ham-united-are-in-talks-to-secure-their-first-summer-signing.html) - **English Premier League Index - Opta Stats**
+7. [Can cup final victory spur Man City on to league title?](https://www.bbc.com/sport/football/articles/cx23lxgj6z3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Do Gunners have 'fire in their belly' after cup final defeat?](https://www.bbc.com/sport/football/articles/c87wxe8e03xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [8 architecture and culture groups sue Trump and the Kennedy Center board](https://www.npr.org/2026/03/23/nx-s1-5757505/kennedy-center-trump-lawsuit) - **NPR**
 
 
 ---
-*최근 업데이트: 2026-03-25 02:35:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-25 03:37:57 (KST) / (하루 100회 제한 준수 중)*
