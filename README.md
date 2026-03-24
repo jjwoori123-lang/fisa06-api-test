@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United Have Set Their Sights On This Everton Midfielder: Should Carrick Snap Him Up?](https://the4thofficial.net/2026/03/manchester-united-have-set-their-sights-on-this-everton-midfielder/) - **The4thofficial.net**
-2. [Liverpool hierarchy take brave decision on Arne Slot sacking](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-hierarchy-take-brave-decision-on-arne-slot-sacking/) - **Anfieldwatch.co.uk**
-3. [Wayne Rooney: Phil Foden cup final appearance a ‘charity’ substitution](https://www.101greatgoals.com/football/wayne-rooney-phil-foden-cup-final-appearance-a-charity-substitution/) - **101 Great Goals**
-4. [Gus Poyet tells Manuel Ugarte why he should leave Man United](https://thepeoplesperson.com/2026/03/23/gus-poyet-tells-manuel-ugarte-why-he-should-leave-man-united-308034/) - **The Peoples Person**
-5. [Bayern Munich reportedly change their stance on Alphonso Davies’ future, nearing him to a Premier League move](https://worldsoccertalk.com/news/bayern-munich-reportedly-change-their-stance-on-alphonso-davies-future-nearing-him-to-a-premier-league-move/) - **Worldsoccertalk.com**
-6. [21-year-old super talent about to replace Liverpool club legend](https://www.anfieldwatch.co.uk/liverpool-fc/news/21-year-old-super-talent-about-to-replace-liverpool-club-legend/) - **Anfieldwatch.co.uk**
-7. [Real Madrid president impressed by young defender’s return to form](https://madriduniversal.com/real-madrid-president-impressed-by-young-defenders-return-to-form/) - **Madriduniversal.com**
-8. [fpl-intelligence 0.20.0](https://pypi.org/project/fpl-intelligence/0.20.0/) - **Pypi.org**
-9. [Leeds United To Strengthen Key Position: Is A Bigger Solution Needed?](https://the4thofficial.net/2026/03/leeds-united-to-strengthen-key-position-is-a-bigger-solution-needed/) - **The4thofficial.net**
-10. [Report: Man United ready to push hard for £50m deal to sign midfielder](https://eplindex.com/144420/report-man-united-ready-to-push-hard-for-50m-deal-to-sign-midfielder.html) - **English Premier League Index - Opta Stats**
+1. [How Michael Carrick has impacted Man United’s managerial search](https://thepeoplesperson.com/2026/03/23/how-michael-carrick-has-impacted-man-uniteds-managerial-search-308042/) - **The Peoples Person**
+2. [Champions League Power Rankings: Arsenal still behind Bayern Munich after losing in Carabao Cup final](https://www.cbssports.com/soccer/news/champions-league-power-rankings-arsenal-bayern-munich-carabao-cup-final/) - **CBS Sports**
+3. [Slot sacked within days: Replacement has been contacted](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-arne-slot-sacked-within-days-xabi-alonso-has-been-contacted/) - **Anfieldwatch.co.uk**
+4. [Liverpool Identify This Bundesliga Winger As A Target: Good Choice For The Reds?](https://the4thofficial.net/2026/03/liverpool-identify-this-bundesliga-winger-as-a-target-good-choice-for-the-reds/) - **The4thofficial.net**
+5. [Newcastle United will challenge Arsenal for impressive right back](https://www.justarsenal.com/newcastle-united-will-challenge-arsenal-for-impressive-right-back/412204) - **Just Arsenal News**
+6. [Report: Aston Villa set to battle Newcastle United in the race to sign Serie A forward](https://eplindex.com/144412/report-aston-villa-set-to-battle-newcastle-united-in-the-race-to-sign-serie-a-forward.html) - **English Premier League Index - Opta Stats**
+7. [U21s report: Sunderland 3-1 Arsenal](http://www.arsenal.com/fixture/under-21/2026-Mar-23/sunderland-u21-3-1-under-21-match-report) - **Arsenal.com**
+8. [Brighton Lead Race For 24-Year-Old Celtic Target: Does He Suit The Premiership Club?](https://the4thofficial.net/2026/03/brighton-lead-race-for-24-year-old-celtic-target-does-he-suit-the-premiership-club/) - **The4thofficial.net**
+9. [Mock drills, upgrades ahead of IPL opener at Bengaluru’s Chinnaswamy Stadium](https://timesofindia.indiatimes.com/city/bengaluru/mock-drills-upgrades-ahead-of-ipl-opener-at-bengalurus-chinnaswamy-stadium/articleshow/129760646.cms) - **The Times of India**
+10. [Northern Ireland can ‘use Italy pressure to our advantage’ in World Cup play-off](https://football-italia.net/northern-ireland-use-italy-pressure-advantage/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-03-25 05:24:11 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-25 06:21:11 (KST) / (하루 100회 제한 준수 중)*
