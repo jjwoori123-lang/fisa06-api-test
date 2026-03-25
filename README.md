@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mo Salah to leave Liverpool at the end of the season](https://www.rte.ie/sport/soccer/2026/0324/1565044-mo-salah-to-leave-liverpool-at-the-end-of-the-season/) - **RTE**
-2. [“Inevitable”: Danny Murphy Fears Arne Slot Has Lost the Anfield Faithful After Brighton Blow](https://www.101greatgoals.com/football/premier-league/inevitable-danny-murphy-fears-arne-slot-has-lost-the-anfield-faithful-after-brighton-blow/) - **101 Great Goals**
-3. [️ Have your say: who is the best player in Premier League history?](https://onefootball.com/en/news/have-your-say-who-is-the-best-player-in-premier-league-history-42610516) - **Onefootball.com**
-4. [Salah to leave Liverpool at end of season](https://www.channelnewsasia.com/sport/salah-leave-liverpool-end-season-6014546) - **CNA**
-5. [Liverpool's Salah to end glittering Anfield career at end of season](https://www.channelnewsasia.com/sport/liverpools-salah-end-glittering-anfield-career-end-season-6014546) - **CNA**
-6. [Report: Newcastle United plotting double transfer raid on French giants](https://eplindex.com/144456/report-newcastle-united-plotting-double-transfer-raid-on-french-giants.html) - **English Premier League Index - Opta Stats**
-7. [Liverpool dealt blow in pursuit of Bundesliga star after latest Sky Germany update](https://anfieldindex.com/92518/liverpool-dealt-blow-in-pursuit-of-bundesliga-star-after-latest-sky-germany-update.html) - **Anfieldindex.com**
-8. [Liverpool announce Mohamed Salah will leave club at end of current season](https://www.independent.ie/sport/soccer/premier-league/liverpool-announce-mohamed-salah-will-leave-club-at-end-of-current-season/a81279787.html) - **Independent.ie**
-9. [‘Unfortunately, the day has come’ – Mohamed Salah confirms he will leave Liverpool at end of season](https://www.independent.ie/sport/soccer/premier-league/unfortunately-the-day-has-come-mohamed-salah-confirms-he-will-leave-liverpool-at-end-of-season/a81279787.html) - **Independent.ie**
+1. [Crazy Mo Salah stat emerges after shock Liverpool exit announcement](https://www.empireofthekop.com/2026/03/24/crazy-mo-salah-stat-emerges-after-shock-liverpool-exit-announcement/) - **Empire of The Kop**
+2. [A look at Mohamed Salah's trophy-laden career at Liverpool, in numbers](https://sports.yahoo.com/articles/look-mohamed-salahs-trophy-laden-194847057.html) - **Yahoo Entertainment**
+3. [Report: Barcelona have chance to sign Liverpool legend for free](https://barcauniversal.com/report-barcelona-have-chance-to-sign-liverpool-legend-for-free/) - **Barcauniversal.com**
+4. [Mo Salah is leaving Liverpool: Why is Egypt legend quitting Premier League giant?](https://economictimes.indiatimes.com/news/international/us/mo-salah-is-leaving-liverpool-why-is-egypt-legend-quitting-premier-league-giant/articleshow/129786225.cms) - **The Times of India**
+5. [Gabriel Sara: Man United’s plan for Galatasaray midfielder emerges](https://thepeoplesperson.com/2026/03/24/gabriel-sara-man-uniteds-plan-for-galatasaray-midfielder-emerges-308081/) - **The Peoples Person**
+6. [Salah to leave Liverpool at end of season](https://www.rediff.com/sports/report/mohamed-salah-announces-liverpool-departure-after-seven-seasons/20260325.htm) - **Rediff.com**
+7. [Arne Slot Liverpool exit takes shape as next job already decided](https://www.anfieldwatch.co.uk/liverpool-fc/news/arne-slot-liverpool-exit-takes-shape-as-next-job-already-decided/) - **Anfieldwatch.co.uk**
+8. [Mo Salah will leave Liverpool at the end of the season](https://thefootballfaithful.com/mo-salah-will-leave-liverpool/) - **The Football Faithful**
+9. [‘Considerable blow’ – Eddie Howe can’t help but mention Liverpool player after Sunderland defeat](https://www.empireofthekop.com/2026/03/24/eddie-howe-liverpool-player-sunderland-defeat/) - **Empire of The Kop**
 
 
 ---
-*최근 업데이트: 2026-03-26 04:00:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-26 04:51:41 (KST) / (하루 100회 제한 준수 중)*
