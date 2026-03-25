@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Owen says permanent Carrick appointment shouldn’t be ‘a question’](https://thefootballfaithful.com/owen-says-permanent-carrick-appointment-shouldnt-be-a-question/) - **The Football Faithful**
-2. [Where are Leeds' goals coming from in battle for Premier League survival?](https://www.bbc.com/sport/football/articles/c33lerj7ymro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Highest paid NFL wide receivers](https://www.thebiglead.com/?p=136512) - **The Big Lead**
-4. [Game Preview #70: New Jersey Devils @ Dallas Stars](https://www.allaboutthejersey.com/devils-game-previews/67929/game-preview-70-new-jersey-devils-dallas-stars) - **All About The Jersey**
-5. [Delhi Capitals: Close to two decades of promise, one final, still no trophy; a look at how the franchise has done](https://economictimes.indiatimes.com/news/sports/dc-in-ipl-history-check-wins-records-statistics-key-moments-analysis-of-delhi-capitals/articleshow/129775703.cms) - **The Times of India**
-6. [Vaibhav Suryavanshi’s modest home in Samastipur, Bihar](https://timesofindia.indiatimes.com/real-estate/news/vaibhav-suryavanshi-home-vaibhav-suryavanshis-modest-home-in-samastipur-bihar-tells-the-story-of-hard-work-determination-and-family-sacrifices/photostory/129770474.cms) - **The Times of India**
-7. [Udinese and Watford owner: Como ‘miraculous’, Lucca’s regression ‘impossible’](https://football-italia.net/udinese-watford-owner-como-lucca-impossible/) - **Football Italia**
-8. [Jurgen Klopp rubbishes Real Madrid speculation but says his career is not finished as a coach](https://www.irishtimes.com/sport/soccer/2026/03/24/jurgen-klopp-rubbishes-real-madrid-speculation-but-says-his-career-is-not-finished-as-a-coach/) - **The Irish Times**
+1. [Advantage Liverpool: Midfielder transfer target wants to play with Van Dijk](https://www.anfieldwatch.co.uk/liverpool-fc/news/advantage-liverpool-midfielder-kees-smit-transfer-target-wants-to-play-with-van-dijk/) - **Anfieldwatch.co.uk**
+2. [Ranking Iliman Ndiaye's best Everton goals](http://www.toffeeweb.com/season/25-26/news/47404.html) - **Toffeeweb**
+3. [Lens push back against PSG request to postpone Ligue 1 clash](https://www.channelnewsasia.com/sport/lens-push-back-against-psg-request-postpone-ligue-1-clash-6013921) - **CNA**
+4. [KMF Nandini Announces Partnership with RCB for IPL 2026](https://www.rediff.com/sports/report/nandini-partners-with-rcb-for-ipl-t-20-season/20260324.htm) - **Rediff.com**
+5. [Rajasthan Royals sold for $1.63 billion: Who is Kal Somani, the man behind IPL’s biggest deal?](https://www.livemint.com/companies/people/rajasthan-royals-sold-for-1-63-billion-who-is-kal-somani-the-man-behind-ipl-s-biggest-deal-11774356902676.html) - **Livemint**
+6. [Calafiori fit for Italy: ‘I’ve spoken more with Gattuso than with my mother’](https://football-italia.net/calafiori-fit-italy-spoken-gattuso-mum/) - **Football Italia**
+7. [30-0 on opening day! Top-flight start goes utterly wild](https://onefootball.com/en/news/30-0-on-opening-day-top-flight-start-goes-utterly-wild-42608799) - **Onefootball.com**
+8. [O'Shea hopes for 'straightforward' contract talks](https://www.bbc.com/sport/football/articles/cj37mvpd8l0o) - **BBC News**
+9. [Odegaard sets target for Arsenal injury comeback](https://dailycannon.com/2026/03/odegaard-injury-comeback-arsenal-southampton/) - **Dailycannon.com**
 
 
 ---
-*최근 업데이트: 2026-03-25 21:07:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-25 22:52:14 (KST) / (하루 100회 제한 준수 중)*
