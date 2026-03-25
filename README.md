@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Editorial: Derby Delight!](https://rokerreport.sbnation.com/opinion/132025/editorial-derby-delight) - **SB Nation**
-2. [Riggy Shows His Class In A High-Stakes Derby](https://rokerreport.sbnation.com/opinion/131860/riggy-shows-his-class-in-a-high-stakes-derby) - **SB Nation**
-3. [Fan Letters: “The Arrogance Of The Man Is Breathtaking!”](https://rokerreport.sbnation.com/fan-letters/132034/132034) - **SB Nation**
-4. [What Would A Successful End To Sunderland’s Season Look Like?](https://rokerreport.sbnation.com/opinion/132056/what-would-a-successful-end-to-sunderlands-season-look-like) - **SB Nation**
-5. [The player who tackled cancer – and now wants to take on the world](https://www.bbc.com/sport/football/articles/c98mejm5d9zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [The player who tackled cancer – and now wants to take on the world](https://www.bbc.com/sport/football/articles/c98mejm5d9zo) - **BBC News**
-7. [Amid competition for sponsors, top sports clubs are investing in social media operations](http://digiday.com/marketing/amid-competition-for-sponsors-top-sports-clubs-are-investing-in-social-media-operations/) - **Digiday**
-8. [Bayern Munich News: Is FC Bayern planning a heist of Tottenham Hotspur loanee Luka Vušković?](https://www.bavarianfootballworks.com/transfer-rumors/179960/bayern-munich-tottenham-hotspur-vuskovic-real-madrid-arsenal-fc-barcelona-psg-bvb-chelsea) - **Bavarian Football Works**
-9. [MLB roundup: Padres' Pivetta to start vs. Tigers; Ohtani's jersey sells for $1.5M](https://www.detroitnews.com/story/sports/other/2026/03/23/detroit-tigers-will-face-san-diego-padres-starter-nick-pivetta-in-opener/89295653007/) - **The Detroit News**
-10. [Yankees star Aaron Judge disrespect leaves Reggie Jackson feeling outraged](https://www.marca.com/en/mlb/new-york-yankees/2026/03/24/69c1ff8e22601dc0328b45b9.html) - **Marca**
+1. [‘He’s a football killer in the box’: Spotlight on Troy Parrott as Ireland prepare for Czech Republic](https://www.irishtimes.com/sport/soccer/2026/03/24/john-oshea-lauds-irelands-cup-final-intensity-as-spotlight-falls-on-troy-parrott/) - **The Irish Times**
+2. [Tuesday’s Everton News: KDH wanted, Beto pleased, Thomas linked](https://royalbluemersey.sbnation.com/everton-news/79031/dewsbury-hall-wanted-manchester-united-rumours-beto-pleased-thomas-linked) - **SB Nation**
+3. [IPL 2026: Gujarat Titans skipper Shubman Gill wants his fast bowlers to be 'fierce' this season](https://economictimes.indiatimes.com/news/sports/ipl-2026-gujarat-titans-skipper-shubman-gill-wants-his-fast-bowlers-to-be-fierce-this-season/articleshow/129768321.cms) - **The Times of India**
+4. [Argentina star Enzo Fernandez reveals ‘no talks’ with Real Madrid as Chelsea exit reports grow](https://worldsoccertalk.com/news/argentina-star-enzo-fernandez-reveals-no-talks-with-real-madrid-as-chelsea-exit-reports-grow/) - **Worldsoccertalk.com**
+5. [Pre-tax profits surge 36pc to €48.96m at Irish arm of Sports Direct](https://www.independent.ie/business/irish/pre-tax-profits-surge-36pc-to-4896m-at-irish-arm-of-sports-direct/a1559339771.html) - **Independent.ie**
+6. [BCCI names India women’s T20I squad; Anushka Sharma in team](https://economictimes.indiatimes.com/news/sports/harmanpreet-kaur-to-lead-indian-womens-cricket-team-in-exciting-t20i-series-against-south-africa/articleshow/129767455.cms) - **The Times of India**
+7. [ICC Men's T20 World Cup 2026: JioStar flags low TV-digital ad overlap, strong incremental reach in BARC–Nielsen data](https://economictimes.indiatimes.com/industry/media/entertainment/media/icc-mens-t20-world-cup-2026-jiostar-flags-low-tv-digital-ad-overlap-strong-incremental-reach-in-barcnielsen-data/articleshow/129767406.cms) - **The Times of India**
+8. [Editorial: Derby Delight!](https://rokerreport.sbnation.com/opinion/132025/editorial-derby-delight) - **SB Nation**
+9. [Riggy Shows His Class In A High-Stakes Derby](https://rokerreport.sbnation.com/opinion/131860/riggy-shows-his-class-in-a-high-stakes-derby) - **SB Nation**
+10. [Fan Letters: “The Arrogance Of The Man Is Breathtaking!”](https://rokerreport.sbnation.com/fan-letters/132034/132034) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-03-25 14:07:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-25 15:16:04 (KST) / (하루 100회 제한 준수 중)*
