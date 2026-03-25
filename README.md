@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [‘He’s a football killer in the box’: Spotlight on Troy Parrott as Ireland prepare for Czech Republic](https://www.irishtimes.com/sport/soccer/2026/03/24/john-oshea-lauds-irelands-cup-final-intensity-as-spotlight-falls-on-troy-parrott/) - **The Irish Times**
-2. [Tuesday’s Everton News: KDH wanted, Beto pleased, Thomas linked](https://royalbluemersey.sbnation.com/everton-news/79031/dewsbury-hall-wanted-manchester-united-rumours-beto-pleased-thomas-linked) - **SB Nation**
-3. [IPL 2026: Gujarat Titans skipper Shubman Gill wants his fast bowlers to be 'fierce' this season](https://economictimes.indiatimes.com/news/sports/ipl-2026-gujarat-titans-skipper-shubman-gill-wants-his-fast-bowlers-to-be-fierce-this-season/articleshow/129768321.cms) - **The Times of India**
-4. [Argentina star Enzo Fernandez reveals ‘no talks’ with Real Madrid as Chelsea exit reports grow](https://worldsoccertalk.com/news/argentina-star-enzo-fernandez-reveals-no-talks-with-real-madrid-as-chelsea-exit-reports-grow/) - **Worldsoccertalk.com**
-5. [Pre-tax profits surge 36pc to €48.96m at Irish arm of Sports Direct](https://www.independent.ie/business/irish/pre-tax-profits-surge-36pc-to-4896m-at-irish-arm-of-sports-direct/a1559339771.html) - **Independent.ie**
-6. [BCCI names India women’s T20I squad; Anushka Sharma in team](https://economictimes.indiatimes.com/news/sports/harmanpreet-kaur-to-lead-indian-womens-cricket-team-in-exciting-t20i-series-against-south-africa/articleshow/129767455.cms) - **The Times of India**
-7. [ICC Men's T20 World Cup 2026: JioStar flags low TV-digital ad overlap, strong incremental reach in BARC–Nielsen data](https://economictimes.indiatimes.com/industry/media/entertainment/media/icc-mens-t20-world-cup-2026-jiostar-flags-low-tv-digital-ad-overlap-strong-incremental-reach-in-barcnielsen-data/articleshow/129767406.cms) - **The Times of India**
-8. [Editorial: Derby Delight!](https://rokerreport.sbnation.com/opinion/132025/editorial-derby-delight) - **SB Nation**
-9. [Riggy Shows His Class In A High-Stakes Derby](https://rokerreport.sbnation.com/opinion/131860/riggy-shows-his-class-in-a-high-stakes-derby) - **SB Nation**
-10. [Fan Letters: “The Arrogance Of The Man Is Breathtaking!”](https://rokerreport.sbnation.com/fan-letters/132034/132034) - **SB Nation**
+1. [As things stand, Chelsea player who would have expected to is not going to the World Cup](https://chelsea.news/2026/03/as-things-stand-chelsea-player-who-would-have-expected-to-is-not-going-to-the-world-cup/) - **Chelsea.news**
+2. ['Northern Ireland have nothing to fear but everything to gain'](https://www.bbc.com/sport/football/articles/cew7l1qxd08o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. ['Northern Ireland have nothing to fear but everything to gain'](https://www.bbc.com/sport/football/articles/cew7l1qxd08o) - **BBC News**
+4. [Retired Payet 'one of most gifted players' to play for West Ham](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_aa046c56-99ba-4a76-9731-a55674aff72a) - **Yahoo Entertainment**
+5. [Why international break has come at a good time for Brentford](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7880e9a7-f902-44c5-8c6f-28ca231e085c) - **Yahoo Entertainment**
+6. ['To win both derby games is massive'](https://www.bbc.com/sport/football/articles/c87wx3e0p97o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Joshua Kimmich sees heavy Bayern Munich contingent for Germany as a positive](https://www.bavarianfootballworks.com/fifa-world-cup/180907/joshua-kimmich-sees-heavy-bayern-munich-contingent-for-germany-as-a-positive) - **Bavarian Football Works**
+8. [Manchester City could look for a young right-back given how good Matheus Nunes has become in the role](https://esteemedkompany.com/2026/03/24/manchester-city-could-look-for-a-young-right-back-given-how-good-matheus-nunes-has-become-in-the-role/) - **Esteemedkompany.com**
+9. [Late replacement for Netz? Gladbach reportedly keen on second-tier pro](https://onefootball.com/en/news/late-replacement-for-netz-gladbach-reportedly-keen-on-second-tier-pro-42607318) - **Onefootball.com**
 
 
 ---
-*최근 업데이트: 2026-03-25 15:16:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-25 16:32:27 (KST) / (하루 100회 제한 준수 중)*
