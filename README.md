@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Wayne Bridge backs Aston Villa winger Morgan Rogers to start in no.10 role for England at World Cup](https://sportsview.co.uk/2026/03/wayne-bridge-backs-aston-villa-winger-morgan-rogers-to-start-in-no-10-role-for-england-at-world-cup?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=wayne-bridge-backs-aston-villa-winger-morgan-rogers-to-start-in-no-10-role-for-england-at-world-cup) - **Sportsview.co.uk**
-2. [Former England captains question findings of Ashes review](https://www.abc.net.au/news/2026-03-25/england-players-react-to-ashes-review/106494160) - **ABC News (AU)**
-3. [It's on! Liverpool now have golden chance to sign generational midfielder](https://www.anfieldwatch.co.uk/liverpool-fc/news/its-on-liverpool-now-have-golden-chance-to-sign-generational-midfielder/) - **Anfieldwatch.co.uk**
-4. [Jack Grealish tipped for Manchester City exit to potential Premier League newcomers](https://cityxtra.co.uk/43422/jack-grealish-tipped-for-manchester-city-exit-to-potential-premier-league-newcomers/) - **Cityxtra.co.uk**
-5. [Aston Villa considering summer move for PSG prospect Ibrahim Mbaye](https://getfootball.eu/aston-villa-considering-summer-move-for-psg-prospect-ibrahim-mbaye/) - **Getfootball.eu**
-6. [Conmebol Internationals: All South American Teams In Action As Bolivia Chase World Cup Qualification](https://worldfootballindex.com/2026/03/conmebol-internationals-all-south-american-teams-in-action-as-bolivia-chase-world-cup-qualification/) - **World Football Index**
-7. [Manchester City Are In Advanced Talks To Recruit This Nottingham Forest Star: Good Fit For Pep?](https://the4thofficial.net/2026/03/manchester-city-are-in-advanced-talks-to-recruit-this-nottingham-forest-star/) - **The4thofficial.net**
-8. [Salah to leave Liverpool on a free transfer this summer despite contract](https://footballtoday.com/2026/03/24/salah-to-leave-liverpool-on-a-free-transfer-this-summer-despite-contract/) - **Footballtoday.com**
-9. [Eberechi Eze set to be sidelined for one month with injury](https://getfootball.eu/eberechi-eze-set-to-be-sidelined-for-one-month-with-injury/) - **Getfootball.eu**
-10. [Mohamed Salah set to leave Liverpool at end of season](https://getfootball.eu/mohamed-salah-set-to-leave-liverpool-at-end-of-season/) - **Getfootball.eu**
+1. [Hugo Larsson: United set their sights on Eintracht star compared to Man City legend](https://thepeoplesperson.com/2026/03/24/hugo-larsson-united-set-their-sights-on-eintracht-star-compared-to-man-city-legend-308088/) - **The Peoples Person**
+2. ['It wasn't meant to end like this' - Salah exit tough but inevitable](https://www.bbc.com/sport/football/articles/cq8wqq8neg1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. ['It wasn't meant to end like this' - Salah exit tough but inevitable](https://www.bbc.com/sport/football/articles/cq8wqq8neg1o) - **BBC News**
+4. [The Substitutes Had A Great Role To Play: Three Exact Reasons Why Aston Villa Beat West Ham 2-0](https://the4thofficial.net/2026/03/the-substitutes-had-a-great-role-to-play-three-exact-reasons-why-aston-villa-beat-west-ham-2-0/) - **The4thofficial.net**
+5. [Garner dreams of World Cup glory in bid to replicate England under-21 success](https://sports.yahoo.com/articles/garner-dreams-world-cup-glory-221857919.html) - **Yahoo Entertainment**
+6. [Mohamed Salah to Leave Liverpool After 9 Trophy-Laden Years](https://www.foxsports.com/stories/soccer/mohamed-salah-to-leave-liverpool-at-end-of-the-season-after-9-years-with-club) - **Fox Sports**
+7. [Alan Shearer reveals how Rice can win Player of the Season](https://www.justarsenal.com/alan-shearer-reveals-how-rice-can-win-player-of-the-season/412266) - **Just Arsenal News**
+8. [Liverpool make surprise move to sign Real Madrid defender – Report](https://anfieldindex.com/92529/liverpool-make-surprise-move-to-sign-real-madrid-defender-report.html) - **Anfieldindex.com**
+9. [Brazil call-ups signal shift as Thiago and Rayan enter Ancelotti’s plans](https://pitchside-us.com/brazil-call-ups-signal-shift-as-thiago-and-rayan-enter-ancelottis-plans/) - **Pitchside-us.com**
 
 
 ---
-*최근 업데이트: 2026-03-26 06:42:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-26 07:40:32 (KST) / (하루 100회 제한 준수 중)*
