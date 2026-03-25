@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Veteran Tim Ream out to prove he is World Cup answer with USMNT thin at center back](https://nypost.com/2026/03/23/sports/veteran-tim-ream-out-to-prove-he-is-usmnt-world-cup-answer-at-center-back/) - **New York Post**
-2. [Crossing the red line by opposition and ruling party](https://punchng.com/crossing-the-red-line-by-opposition-and-ruling-party/) - **The Punch**
-3. [IPL Cricket Media Rights Set to Plateau at $5.4 Billion in Next Cycle, Media Partners Asia Report Finds](https://variety.com/2026/tv/news/ipl-cricket-media-rights-plateau-5-billion-next-cycle-1236696938/) - **Variety**
-4. [IPL Cricket Media Rights Set to Plateau at $5.4 Billion in Next Cycle, Media Partners Asia Report Finds](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2711a176-ac2a-457e-9513-340d671f431a) - **Yahoo Entertainment**
-5. [Fernando Mendoza makes a major announcement that will affect his earnings in the NFL](https://www.marca.com/en/nfl/las-vegas-raiders/2026/03/24/69c1e23c22601d343a8b45b7.html) - **Marca**
-6. [Roberto De Zerbi Reportedly Negotiating Relegation Clause In Talks With Tottenham](https://www.foxsports.com/stories/soccer/roberto-de-zerbi-to-tottenham-former-brighton-and-marseille-boss-open-to-premier-league-return-but-on-one-condition) - **Fox Sports**
-7. [Fulham to seal €28m Chukwueze deal](https://punchng.com/fulham-to-seal-e28m-chukwueze-deal/) - **The Punch**
-8. [Hull coach fears Ajayi fitness](https://punchng.com/hull-coach-fears-ajayi-fitness/) - **The Punch**
-9. [Istanbulspor debunk Osimhen takeover reports](https://punchng.com/istanbulspor-debunk-osimhen-takeover-reports/) - **The Punch**
-10. [Awoniyi faces sanction for celebration](https://punchng.com/awoniyi-faces-sanction-for-celebration/) - **The Punch**
+1. [Editorial: Derby Delight!](https://rokerreport.sbnation.com/opinion/132025/editorial-derby-delight) - **SB Nation**
+2. [Riggy Shows His Class In A High-Stakes Derby](https://rokerreport.sbnation.com/opinion/131860/riggy-shows-his-class-in-a-high-stakes-derby) - **SB Nation**
+3. [Fan Letters: “The Arrogance Of The Man Is Breathtaking!”](https://rokerreport.sbnation.com/fan-letters/132034/132034) - **SB Nation**
+4. [What Would A Successful End To Sunderland’s Season Look Like?](https://rokerreport.sbnation.com/opinion/132056/what-would-a-successful-end-to-sunderlands-season-look-like) - **SB Nation**
+5. [The player who tackled cancer – and now wants to take on the world](https://www.bbc.com/sport/football/articles/c98mejm5d9zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [The player who tackled cancer – and now wants to take on the world](https://www.bbc.com/sport/football/articles/c98mejm5d9zo) - **BBC News**
+7. [Amid competition for sponsors, top sports clubs are investing in social media operations](http://digiday.com/marketing/amid-competition-for-sponsors-top-sports-clubs-are-investing-in-social-media-operations/) - **Digiday**
+8. [Bayern Munich News: Is FC Bayern planning a heist of Tottenham Hotspur loanee Luka Vušković?](https://www.bavarianfootballworks.com/transfer-rumors/179960/bayern-munich-tottenham-hotspur-vuskovic-real-madrid-arsenal-fc-barcelona-psg-bvb-chelsea) - **Bavarian Football Works**
+9. [MLB roundup: Padres' Pivetta to start vs. Tigers; Ohtani's jersey sells for $1.5M](https://www.detroitnews.com/story/sports/other/2026/03/23/detroit-tigers-will-face-san-diego-padres-starter-nick-pivetta-in-opener/89295653007/) - **The Detroit News**
+10. [Yankees star Aaron Judge disrespect leaves Reggie Jackson feeling outraged](https://www.marca.com/en/mlb/new-york-yankees/2026/03/24/69c1ff8e22601dc0328b45b9.html) - **Marca**
 
 
 ---
-*최근 업데이트: 2026-03-25 12:13:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-25 14:07:02 (KST) / (하루 100회 제한 준수 중)*
