@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Crazy Mo Salah stat emerges after shock Liverpool exit announcement](https://www.empireofthekop.com/2026/03/24/crazy-mo-salah-stat-emerges-after-shock-liverpool-exit-announcement/) - **Empire of The Kop**
-2. [A look at Mohamed Salah's trophy-laden career at Liverpool, in numbers](https://sports.yahoo.com/articles/look-mohamed-salahs-trophy-laden-194847057.html) - **Yahoo Entertainment**
-3. [Report: Barcelona have chance to sign Liverpool legend for free](https://barcauniversal.com/report-barcelona-have-chance-to-sign-liverpool-legend-for-free/) - **Barcauniversal.com**
-4. [Mo Salah is leaving Liverpool: Why is Egypt legend quitting Premier League giant?](https://economictimes.indiatimes.com/news/international/us/mo-salah-is-leaving-liverpool-why-is-egypt-legend-quitting-premier-league-giant/articleshow/129786225.cms) - **The Times of India**
-5. [Gabriel Sara: Man United’s plan for Galatasaray midfielder emerges](https://thepeoplesperson.com/2026/03/24/gabriel-sara-man-uniteds-plan-for-galatasaray-midfielder-emerges-308081/) - **The Peoples Person**
-6. [Salah to leave Liverpool at end of season](https://www.rediff.com/sports/report/mohamed-salah-announces-liverpool-departure-after-seven-seasons/20260325.htm) - **Rediff.com**
-7. [Arne Slot Liverpool exit takes shape as next job already decided](https://www.anfieldwatch.co.uk/liverpool-fc/news/arne-slot-liverpool-exit-takes-shape-as-next-job-already-decided/) - **Anfieldwatch.co.uk**
-8. [Mo Salah will leave Liverpool at the end of the season](https://thefootballfaithful.com/mo-salah-will-leave-liverpool/) - **The Football Faithful**
-9. [‘Considerable blow’ – Eddie Howe can’t help but mention Liverpool player after Sunderland defeat](https://www.empireofthekop.com/2026/03/24/eddie-howe-liverpool-player-sunderland-defeat/) - **Empire of The Kop**
+1. [Tottenham contact former Monaco boss Adi Hütter over managerial vacancy](https://www.getfootballnewsfrance.com/2026/tottenham-contact-former-monaco-boss-adi-hutter-over-managerial-vacancy/) - **Get French Football News**
+2. [Mo Salah to leave on a free transfer following Liverpool agreement](https://thefootballfaithful.com/mo-salah-free-transfer-liverpool/) - **The Football Faithful**
+3. [Manchester United assessing striker market with Joshua Zirkzee’s summer exit looking increasingly likely](https://sportsview.co.uk/2026/03/manchester-united-assessing-striker-market-with-joshua-zirkzees-summer-exit-looking-increasingly-likely?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-assessing-striker-market-with-joshua-zirkzees-summer-exit-looking-increasingly-likely) - **Sportsview.co.uk**
+4. [Premier League great Salah will leave lifetime of memories](https://www.bbc.com/sport/football/articles/c0r929g5p5eo) - **BBC News**
+5. [Arsenal Are Keeping Tabs On This Ligue 1 Midfielder: One For The Future?](https://the4thofficial.net/2026/03/arsenal-are-keeping-tabs-on-this-ligue-1-midfielder-one-for-the-future/) - **The4thofficial.net**
+6. [Mauricio Pochettino hints at future after USMNT: Spurs reunion looms?](https://www.marca.com/en/football/tottenham/2026/03/24/69c2f04722601ddb028b45ce.html) - **Marca**
+7. [Griezmann reveals Champions League ambition as Atletico Madrid ‘last dance’ begins ahead of Orlando City switch](https://worldsoccertalk.com/news/griezmann-reveals-champions-league-ambition-as-atletico-madrid-last-dance-begins-ahead-of-orlando-city-switch/) - **Worldsoccertalk.com**
+8. [Manchester United assessing the striker market with Joshua Zirkzee’s exit looking increasingly likely](https://sportsview.co.uk/2026/03/manchester-united-assessing-the-striker-market-with-joshua-zirkzees-exit-looking-increasingly-likely?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-assessing-the-striker-market-with-joshua-zirkzees-exit-looking-increasingly-likely) - **Sportsview.co.uk**
+9. [Mo Salah’s agent sends warning after shock Liverpool exit announcement](https://www.empireofthekop.com/2026/03/24/mo-salahs-agent-sends-warning-after-shock-liverpool-exit-announcement/) - **Empire of The Kop**
 
 
 ---
-*최근 업데이트: 2026-03-26 04:51:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-26 05:42:44 (KST) / (하루 100회 제한 준수 중)*
