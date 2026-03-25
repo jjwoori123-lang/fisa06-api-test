@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Hugo Larsson: United set their sights on Eintracht star compared to Man City legend](https://thepeoplesperson.com/2026/03/24/hugo-larsson-united-set-their-sights-on-eintracht-star-compared-to-man-city-legend-308088/) - **The Peoples Person**
-2. ['It wasn't meant to end like this' - Salah exit tough but inevitable](https://www.bbc.com/sport/football/articles/cq8wqq8neg1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. ['It wasn't meant to end like this' - Salah exit tough but inevitable](https://www.bbc.com/sport/football/articles/cq8wqq8neg1o) - **BBC News**
-4. [The Substitutes Had A Great Role To Play: Three Exact Reasons Why Aston Villa Beat West Ham 2-0](https://the4thofficial.net/2026/03/the-substitutes-had-a-great-role-to-play-three-exact-reasons-why-aston-villa-beat-west-ham-2-0/) - **The4thofficial.net**
-5. [Garner dreams of World Cup glory in bid to replicate England under-21 success](https://sports.yahoo.com/articles/garner-dreams-world-cup-glory-221857919.html) - **Yahoo Entertainment**
-6. [Mohamed Salah to Leave Liverpool After 9 Trophy-Laden Years](https://www.foxsports.com/stories/soccer/mohamed-salah-to-leave-liverpool-at-end-of-the-season-after-9-years-with-club) - **Fox Sports**
-7. [Alan Shearer reveals how Rice can win Player of the Season](https://www.justarsenal.com/alan-shearer-reveals-how-rice-can-win-player-of-the-season/412266) - **Just Arsenal News**
-8. [Liverpool make surprise move to sign Real Madrid defender – Report](https://anfieldindex.com/92529/liverpool-make-surprise-move-to-sign-real-madrid-defender-report.html) - **Anfieldindex.com**
-9. [Brazil call-ups signal shift as Thiago and Rayan enter Ancelotti’s plans](https://pitchside-us.com/brazil-call-ups-signal-shift-as-thiago-and-rayan-enter-ancelottis-plans/) - **Pitchside-us.com**
+1. [Barcelona teammate could facilitate Joao Cancelo transfer](https://www.football-espana.net/2026/03/24/barcelona-teammate-joao-cancelo-transfer) - **Football Espana**
+2. [Papers: Rosenior safe even if Chelsea miss out on Champions League](https://www.skysports.com/football/transfer-paper-talk/12709/13524053/chelsea-not-planning-to-sack-liam-rosenior-if-they-miss-out-on-champions-league-paper-talk-and-football-transfer-gossip) - **Sky Sports**
+3. [Mohamed Salah's Remarkable Career At Liverpool, Broken Down In Numbers](https://www.foxsports.com/stories/soccer/a-look-at-mohamed-salahs-trophyladen-career-at-liverpool-in-numbers) - **Fox Sports**
+4. [Revamped safety systems in place in Bengaluru ahead of IPL season](https://timesofindia.indiatimes.com/city/bengaluru/revamped-safety-systems-in-place-in-bengaluru-ahead-of-ipl-season/articleshow/129785687.cms) - **The Times of India**
+5. [“Seemed like it was all over”: Hojlund makes honest Man United admission](https://thepeoplesperson.com/2026/03/24/seemed-like-it-was-all-over-hojlund-makes-honest-man-united-admission-308087/) - **The Peoples Person**
+6. [Detroit Lions owner Sheila Hamp buys Indian cricket team](https://www.freep.com/story/sports/nfl/lions/2026/03/24/detroit-lions-owner-sheila-hamp-buys-indian-cricket-team/89306145007/) - **Detroit Free Press**
+7. [Carra: Salah ahead of Ronaldo among Premier League greats](https://www.skysports.com/football/news/11095/13524030/mohamed-salah-liverpool-forward-eclipsed-cristiano-ronaldos-premier-league-legacy-claims-jamie-carragher) - **Sky Sports**
+8. [Cristiano Ronaldo could see Al-Nassr teammate Joao Felix return to Premier League with Manchester United as player’s preference emerges](https://worldsoccertalk.com/news/cristiano-ronaldo-could-see-al-nassr-teammate-joao-felix-return-to-premier-league-with-manchester-united-as-players-preference-emerges/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-03-26 07:40:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-26 08:38:52 (KST) / (하루 100회 제한 준수 중)*
