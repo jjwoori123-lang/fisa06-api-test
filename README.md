@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tottenham contact former Monaco boss Adi Hütter over managerial vacancy](https://www.getfootballnewsfrance.com/2026/tottenham-contact-former-monaco-boss-adi-hutter-over-managerial-vacancy/) - **Get French Football News**
-2. [Mo Salah to leave on a free transfer following Liverpool agreement](https://thefootballfaithful.com/mo-salah-free-transfer-liverpool/) - **The Football Faithful**
-3. [Manchester United assessing striker market with Joshua Zirkzee’s summer exit looking increasingly likely](https://sportsview.co.uk/2026/03/manchester-united-assessing-striker-market-with-joshua-zirkzees-summer-exit-looking-increasingly-likely?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-assessing-striker-market-with-joshua-zirkzees-summer-exit-looking-increasingly-likely) - **Sportsview.co.uk**
-4. [Premier League great Salah will leave lifetime of memories](https://www.bbc.com/sport/football/articles/c0r929g5p5eo) - **BBC News**
-5. [Arsenal Are Keeping Tabs On This Ligue 1 Midfielder: One For The Future?](https://the4thofficial.net/2026/03/arsenal-are-keeping-tabs-on-this-ligue-1-midfielder-one-for-the-future/) - **The4thofficial.net**
-6. [Mauricio Pochettino hints at future after USMNT: Spurs reunion looms?](https://www.marca.com/en/football/tottenham/2026/03/24/69c2f04722601ddb028b45ce.html) - **Marca**
-7. [Griezmann reveals Champions League ambition as Atletico Madrid ‘last dance’ begins ahead of Orlando City switch](https://worldsoccertalk.com/news/griezmann-reveals-champions-league-ambition-as-atletico-madrid-last-dance-begins-ahead-of-orlando-city-switch/) - **Worldsoccertalk.com**
-8. [Manchester United assessing the striker market with Joshua Zirkzee’s exit looking increasingly likely](https://sportsview.co.uk/2026/03/manchester-united-assessing-the-striker-market-with-joshua-zirkzees-exit-looking-increasingly-likely?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-assessing-the-striker-market-with-joshua-zirkzees-exit-looking-increasingly-likely) - **Sportsview.co.uk**
-9. [Mo Salah’s agent sends warning after shock Liverpool exit announcement](https://www.empireofthekop.com/2026/03/24/mo-salahs-agent-sends-warning-after-shock-liverpool-exit-announcement/) - **Empire of The Kop**
+1. [Wayne Bridge backs Aston Villa winger Morgan Rogers to start in no.10 role for England at World Cup](https://sportsview.co.uk/2026/03/wayne-bridge-backs-aston-villa-winger-morgan-rogers-to-start-in-no-10-role-for-england-at-world-cup?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=wayne-bridge-backs-aston-villa-winger-morgan-rogers-to-start-in-no-10-role-for-england-at-world-cup) - **Sportsview.co.uk**
+2. [Former England captains question findings of Ashes review](https://www.abc.net.au/news/2026-03-25/england-players-react-to-ashes-review/106494160) - **ABC News (AU)**
+3. [It's on! Liverpool now have golden chance to sign generational midfielder](https://www.anfieldwatch.co.uk/liverpool-fc/news/its-on-liverpool-now-have-golden-chance-to-sign-generational-midfielder/) - **Anfieldwatch.co.uk**
+4. [Jack Grealish tipped for Manchester City exit to potential Premier League newcomers](https://cityxtra.co.uk/43422/jack-grealish-tipped-for-manchester-city-exit-to-potential-premier-league-newcomers/) - **Cityxtra.co.uk**
+5. [Aston Villa considering summer move for PSG prospect Ibrahim Mbaye](https://getfootball.eu/aston-villa-considering-summer-move-for-psg-prospect-ibrahim-mbaye/) - **Getfootball.eu**
+6. [Conmebol Internationals: All South American Teams In Action As Bolivia Chase World Cup Qualification](https://worldfootballindex.com/2026/03/conmebol-internationals-all-south-american-teams-in-action-as-bolivia-chase-world-cup-qualification/) - **World Football Index**
+7. [Manchester City Are In Advanced Talks To Recruit This Nottingham Forest Star: Good Fit For Pep?](https://the4thofficial.net/2026/03/manchester-city-are-in-advanced-talks-to-recruit-this-nottingham-forest-star/) - **The4thofficial.net**
+8. [Salah to leave Liverpool on a free transfer this summer despite contract](https://footballtoday.com/2026/03/24/salah-to-leave-liverpool-on-a-free-transfer-this-summer-despite-contract/) - **Footballtoday.com**
+9. [Eberechi Eze set to be sidelined for one month with injury](https://getfootball.eu/eberechi-eze-set-to-be-sidelined-for-one-month-with-injury/) - **Getfootball.eu**
+10. [Mohamed Salah set to leave Liverpool at end of season](https://getfootball.eu/mohamed-salah-set-to-leave-liverpool-at-end-of-season/) - **Getfootball.eu**
 
 
 ---
-*최근 업데이트: 2026-03-26 05:42:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-26 06:42:45 (KST) / (하루 100회 제한 준수 중)*
