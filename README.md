@@ -1,14 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Yankees Birthday of the Day: Ernie Shore](https://www.pinstripealley.com/yankees-history-trivia/180369/yankees-history-ernie-shore-babe-ruth-combined-no-hitter-perfect-game-red-sox-yankees) - **Pinstripe Alley**
-2. [Ravens land a future Pro Bowler in Field Yates' two-round mock draft](https://ravenswire.usatoday.com/story/sports/nfl/ravens/2026/03/24/ravens-spencer-fano-tj-parker-espn-two-round-mock-draft/89299122007/) - **USA Today**
-3. [Aston Villa considering move for PSG youngster Ibrahim Mbaye](https://footballtoday.com/2026/03/24/aston-villa-considering-move-for-psg-youngster-ibrahim-mbaye/) - **Footballtoday.com**
-4. [2026 NFL draft guide: Biggest roster holes & best team fits after free agency](https://www.thebiglead.com/2026-nfl-draft-guide-biggest-roster-holes-best-team-fits-after-free-agency/) - **The Big Lead**
-5. [Antoine Griezmann leaving Atlético Madrid for Orlando City in the summer](https://sports.yahoo.com/soccer/article/antoine-griezmann-leaving-atletico-madrid-for-orlando-city-in-the-summer-142943155.html) - **Yahoo Entertainment**
-6. [How do we know that referees are persistently biased?](https://untold-arsenal.com/archives/120098) - **Untold-arsenal.com**
-7. [I miss English football - Pochettino](https://www.bbc.com/sport/football/articles/c0mjzmyx80ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [I miss English football - Pochettino](https://www.bbc.com/sport/football/articles/c0mjzmyx80ro) - **BBC News**
+1. [IPL's Royal Challengers Bengaluru scooped by consortium for $1.78 billion](https://www.channelnewsasia.com/sport/ipls-royal-challengers-bengaluru-scooped-consortium-178-billion-6014266) - **CNA**
+2. [Birla, Blitzer, Blackstone, Times of India consortium to buy IPL team RCB for $1.78 billion](https://www.channelnewsasia.com/sport/birla-blitzer-blackstone-times-india-consortium-buy-ipl-team-rcb-178-billion-6014266) - **CNA**
+3. [Arsenal's Eze suffers injury set-back just as he was finding form](https://www.skysports.com/football/news/12040/13523936/eberechi-eze-injury-arsenal-midfielder-facing-several-weeks-out-with-calf-problem-ahead-of-crucial-run) - **Sky Sports**
+4. [Man Utd wants to beat Juventus to sign free agent](https://www.juvefc.com/man-utd-wants-to-beat-juventus-to-sign-free-agent/) - **JuveFC**
+5. [Does international break help or hinder Chelsea?](https://www.bbc.com/sport/football/articles/c98kd87d05eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Danny Murphy: Slot must achieve what no past Liverpool manager has done in order to keep his job](https://www.empireofthekop.com/2026/03/24/danny-murphy-slot-difficult-win-back-liverpool-fans/) - **Empire of The Kop**
+7. [Premier League Relegation Predictions 2026: 5 Key Games to Decide Who Stays Up](https://www.101greatgoals.com/football/premier-league/premier-league-relegation-predictions-2026-5-key-games-to-decide-who-stays-up/) - **101 Great Goals**
+8. [Richard Hughes is rubbing his eyes: He can't believe £56m forward offer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-cody-gakpo-atletico-madrid-richard-hughes-is-rubbing-his-eyes-he-cant-believe-ps56m-forward-offer/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-03-26 00:03:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-26 01:38:19 (KST) / (하루 100회 제한 준수 중)*
