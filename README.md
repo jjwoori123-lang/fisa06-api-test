@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The Premier League’s top scorers since Mohamed Salah’s Liverpool debut](https://thefootballfaithful.com/the-premier-leagues-top-scorers-since-mohamed-salahs-liverpool-debut/) - **The Football Faithful**
-2. [The five favourites to sign Mohamed Salah](https://thefootballfaithful.com/favourites-to-sign-mohamed-salah-next-club-odds/) - **The Football Faithful**
-3. [Former Leverkusen boss Xabi Alonso "ready for Liverpool"](https://bulinews.com/former-leverkusen-boss-xabi-alonso-ready-for-liverpool) - **Bulinews.com**
-4. [Cheers to IPL exit! Brokerages say Rs 16,660-crore RCB stake sale will unlock value for United Spirits](https://economictimes.indiatimes.com/markets/stocks/news/cheers-to-ipl-exit-brokerages-say-rs-16660-crore-rcb-stake-sale-will-unlock-value-for-united-spirits/articleshow/129796162.cms) - **The Times of India**
-5. [Rajasthan Royals IPL trophy wins, records, statistics, key moments & analysis in Indian Premier League](https://economictimes.indiatimes.com/news/sports/rajasthan-royals-ipl-trophy-wins-records-statistics-key-moments-analysis-in-indian-premier-league/articleshow/129795974.cms) - **The Times of India**
-6. [Mohamed Salah set to leave Liverpool at the end of the season](https://sportsview.co.uk/2026/03/mohamed-salah-set-to-leave-liverpool-at-the-end-of-the-season?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=mohamed-salah-set-to-leave-liverpool-at-the-end-of-the-season) - **Sportsview.co.uk**
-7. [On-loan Man Utd man says he fell out of love with football at Old Trafford, everyone wrote him off](https://strettynews.com/2026/03/25/rasmus-hojlund-fell-out-love-football-manchester-united-napoli/) - **Strettynews.com**
-8. [Report: West Ham United face major competition in the race for 21-year-old forward](https://eplindex.com/144482/report-west-ham-united-face-major-competition-in-the-race-for-21-year-old-forward.html) - **English Premier League Index - Opta Stats**
-9. [El Khannouss to stay at Stuttgart beyond the season](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260325-99-935580/) - **Dpa-international.com**
+1. [Diomande? Hall? Ndiaye? New transfer targets revealed as Man Utd plan for summer](https://www.skysports.com/football/news/11095/13524186/man-utd-transfers-lewis-hall-iliman-ndiaye-and-yan-diomande-emerge-as-targets-as-summer-plans-revealed) - **Sky Sports**
+2. [Carragher ranks Salah above Ronaldo in Premier League greats list](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bf9ff6d1-95fe-49a6-aa20-5806c7257328) - **Yahoo Entertainment**
+3. [Man United confirm Fernandes, Cunha and Casemiro battle for top accolade](https://thepeoplesperson.com/2026/03/25/man-united-confirm-fernandes-cunha-and-casemiro-battle-for-top-accolade-308097/) - **The Peoples Person**
+4. [Zac Brown Band to Star in "Sunday Night Baseball" Open on NBC and Peacock](http://www.thefutoncritic.com/news/2026/03/25/zac-brown-band-to-star-in-sunday-night-baseball-open-on-nbc-and-peacock-841011/20260325nbc01/) - **Thefutoncritic.com**
+5. [2026 NFL Draft big board: Ranking the top 150 best players available](https://www.usatoday.com/story/sports/nfl/draft/2026/03/25/2026-nfl-draft-rankings-top-150-college-football-prospects/89057705007/) - **USA Today**
+6. [Arne Slot approached by Bundesliga side as Liverpool exit looms – Report](https://anfieldindex.com/92528/arne-slot-approached-by-bundesliga-side-as-liverpool-exit-looms-report.html) - **Anfieldindex.com**
+7. [Former Celtic striker appointed Crawley Town manager](https://thecelticstar.com/former-celtic-striker-appointed-crawley-town-manager/) - **The Celtic Star**
+8. [Iran war fallout forces Pakistan Super League into empty stadiums and 2-city footprint](https://sports.yahoo.com/articles/iran-war-fallout-forces-pakistan-094413325.html) - **Yahoo Entertainment**
+9. [Ex-Prem striker Kazim-Richards takes over struggling Crawley](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ee24d87c-be31-43b4-9375-3a7ee6cf320b) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-26 18:16:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-26 19:15:29 (KST) / (하루 100회 제한 준수 중)*
