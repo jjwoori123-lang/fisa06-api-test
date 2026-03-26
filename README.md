@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Diomande? Hall? Ndiaye? New transfer targets revealed as Man Utd plan for summer](https://www.skysports.com/football/news/11095/13524186/man-utd-transfers-lewis-hall-iliman-ndiaye-and-yan-diomande-emerge-as-targets-as-summer-plans-revealed) - **Sky Sports**
-2. [Carragher ranks Salah above Ronaldo in Premier League greats list](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bf9ff6d1-95fe-49a6-aa20-5806c7257328) - **Yahoo Entertainment**
-3. [Man United confirm Fernandes, Cunha and Casemiro battle for top accolade](https://thepeoplesperson.com/2026/03/25/man-united-confirm-fernandes-cunha-and-casemiro-battle-for-top-accolade-308097/) - **The Peoples Person**
-4. [Zac Brown Band to Star in "Sunday Night Baseball" Open on NBC and Peacock](http://www.thefutoncritic.com/news/2026/03/25/zac-brown-band-to-star-in-sunday-night-baseball-open-on-nbc-and-peacock-841011/20260325nbc01/) - **Thefutoncritic.com**
-5. [2026 NFL Draft big board: Ranking the top 150 best players available](https://www.usatoday.com/story/sports/nfl/draft/2026/03/25/2026-nfl-draft-rankings-top-150-college-football-prospects/89057705007/) - **USA Today**
-6. [Arne Slot approached by Bundesliga side as Liverpool exit looms – Report](https://anfieldindex.com/92528/arne-slot-approached-by-bundesliga-side-as-liverpool-exit-looms-report.html) - **Anfieldindex.com**
-7. [Former Celtic striker appointed Crawley Town manager](https://thecelticstar.com/former-celtic-striker-appointed-crawley-town-manager/) - **The Celtic Star**
-8. [Iran war fallout forces Pakistan Super League into empty stadiums and 2-city footprint](https://sports.yahoo.com/articles/iran-war-fallout-forces-pakistan-094413325.html) - **Yahoo Entertainment**
-9. [Ex-Prem striker Kazim-Richards takes over struggling Crawley](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ee24d87c-be31-43b4-9375-3a7ee6cf320b) - **Yahoo Entertainment**
+1. [Mohamed Salah to leave Liverpool this summer - NBC Sports](https://slashdot.org/firehose.pl?op=view&amp;id=181100670) - **Slashdot.org**
+2. [Liverpool nearly unbeatable as walking champions of Europe](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-nearly-unbeatable-as-walking-champions-of-europe/) - **Anfieldwatch.co.uk**
+3. [New Era At Borussia Dortmund As Ole Book Replaces Sebastian Kehl As Sporting Director](https://worldfootballindex.com/2026/03/new-era-at-borussia-dortmund-as-ole-book-replaces-sebastian-kehl-as-sporting-director/) - **World Football Index**
+4. [Is break 'invaluable' or 'won't make a blind bit of difference'?](https://www.bbc.com/sport/football/articles/crl13n5le6eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Sunrise and Sunset Time on March 26, 2026: Worship Lord Surya and perform kanya pujan on ashtami tithi](https://timesofindia.indiatimes.com/religion/hindu-mythology/sunrise-and-sunset-time-on-march-26-2026-worship-lord-surya-and-perform-kanya-pujan-on-ashtami-tithi/articleshow/129797451.cms) - **The Times of India**
+6. ['Invention is required' - how do Leeds start scoring again?](https://www.bbc.com/sport/football/articles/c2lwd1nw125o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Pitch Points: Gio Reyna’s contradiction, World Cup playoffs, and Arsenal’s evolution](https://sports.yahoo.com/articles/pitch-points-gio-reyna-contradiction-110006467.html) - **Yahoo Entertainment**
+8. ['I can't imagine Arsenal panicking in the dressing room' - Sutton](https://www.bbc.com/sport/football/articles/c0709lxk30yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Today’s papers: Lippi backs Gattuso & Italy, Napoli want Goretzka, Vlahovic renewal close at Juventus](https://football-italia.net/todays-papers-lippi-backs-gattuso-italy-napoli-want-goretzka-vlahovic-renewal-close-at-juventus/) - **Football Italia**
+10. [Arne Slot’s Absence Raises Serious Questions at Liverpool – Opinion](https://anfieldindex.com/92534/arne-slots-absence-raises-serious-questions-at-liverpool-opinion.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-03-26 19:15:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-26 20:14:37 (KST) / (하루 100회 제한 준수 중)*
