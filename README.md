@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Cristiano Ronaldo’s Saudi Pro League and Lionel Messi’s MLS in the mix as Mohamed Salah’s potential next club comes to light](https://worldsoccertalk.com/news/cristiano-ronaldos-saudi-pro-league-and-lionel-messis-mls-in-the-mix-as-mohamed-salahs-potential-next-club-comes-to-light/) - **Worldsoccertalk.com**
-2. [Baltimore Ravens come out looking two-faced after new Maxx Crosby trade details emerge](https://www.marca.com/en/nfl/baltimore-ravens/2026/03/25/69c30b31ca47418f3c8b45b7.html) - **Marca**
-3. [Arsenal injury latest: Eberechi Eze, William Saliba and more](https://eplindex.com/144452/arsenal-injury-latest-eberechi-eze-william-saliba-and-more.html) - **English Premier League Index - Opta Stats**
-4. [Mexicans Abroad Round-Up](https://www.fmfstateofmind.com/mexicans-abroad/26766/mexicans-abroad-round-up) - **Fmfstateofmind.com**
-5. [Barcelona teammate could facilitate Joao Cancelo transfer](https://www.football-espana.net/2026/03/24/barcelona-teammate-joao-cancelo-transfer) - **Football Espana**
-6. [Papers: Rosenior safe even if Chelsea miss out on Champions League](https://www.skysports.com/football/transfer-paper-talk/12709/13524053/chelsea-not-planning-to-sack-liam-rosenior-if-they-miss-out-on-champions-league-paper-talk-and-football-transfer-gossip) - **Sky Sports**
-7. [Mohamed Salah's Remarkable Career At Liverpool, Broken Down In Numbers](https://www.foxsports.com/stories/soccer/a-look-at-mohamed-salahs-trophyladen-career-at-liverpool-in-numbers) - **Fox Sports**
-8. [Revamped safety systems in place in Bengaluru ahead of IPL season](https://timesofindia.indiatimes.com/city/bengaluru/revamped-safety-systems-in-place-in-bengaluru-ahead-of-ipl-season/articleshow/129785687.cms) - **The Times of India**
+1. [Rs 16,600 crore in the bag! United Spirits shares in focus as firm finalises sale of IPL giant RCB](https://economictimes.indiatimes.com/markets/stocks/news/rs-16600-crore-in-the-bag-united-spirits-shares-in-focus-as-firm-finalises-sale-of-ipl-giant-rcb/articleshow/129790317.cms) - **The Times of India**
+2. [Atletico Madrid add Villarreal star to transfer shortlist ahead of summer](https://www.football-espana.net/2026/03/25/atletico-madrid-villarreal-star-transfer) - **Football Espana**
+3. [David Blitzer and Blackstone-backed group snaps up Indian cricket franchise for $1.8 billion](https://www.cnbc.com/2026/03/25/david-blitzer-blackstone-ipl-rcb-purchase.html) - **CNBC**
+4. [18 stocks to watch today: Bharat Electronics Limited, United Spirits, Tata Steel, Jindal Steel and Power in focus](https://www.thehindubusinessline.com/markets/18-stocks-to-watch-today-bharat-electronics-limited-united-spirits-tata-steel-jindal-steel-and-power-in-focus/article70782442.ece) - **BusinessLine**
+5. [Remo coach confident of escaping relegation](https://punchng.com/remo-coach-confident-of-escaping-relegation/) - **The Punch**
+6. [Awoniyi’s celebration sparks religious debate](https://punchng.com/awoniyis-celebration-sparks-religious-debate/) - **The Punch**
+7. [Nigerian football mourns NRA president Zubairu](https://punchng.com/nigerian-football-mourns-nra-president-zubairu/) - **The Punch**
+8. [Gattuso Cuts Chiesa As Italy Faces ‘No Alibis’ World Cup Playoff](https://www.foxsports.com/stories/soccer/italy-coach-gattuso-says-no-alibis-for-world-cup-playoff-as-he-sends-chiesa-home) - **Fox Sports**
+9. [Cristiano Ronaldo’s Saudi Pro League and Lionel Messi’s MLS in the mix as Mohamed Salah’s potential next club comes to light](https://worldsoccertalk.com/news/cristiano-ronaldos-saudi-pro-league-and-lionel-messis-mls-in-the-mix-as-mohamed-salahs-potential-next-club-comes-to-light/) - **Worldsoccertalk.com**
+10. [Baltimore Ravens come out looking two-faced after new Maxx Crosby trade details emerge](https://www.marca.com/en/nfl/baltimore-ravens/2026/03/25/69c30b31ca47418f3c8b45b7.html) - **Marca**
 
 
 ---
-*최근 업데이트: 2026-03-26 09:04:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-26 12:29:42 (KST) / (하루 100회 제한 준수 중)*
