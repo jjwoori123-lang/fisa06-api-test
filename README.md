@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [MLB Opening Day 2026: With Yankees vs. Giants, the Tony Vitello era in San Francisco begins](https://sports.yahoo.com/mlb/article/mlb-opening-day-2026-with-yankees-vs-giants-the-tony-vitello-era-in-san-francisco-begins-223616290.html) - **Yahoo Entertainment**
-2. [How MLS could add Casemiro to its growing list of superstars](https://www.marca.com/en/football/mls/2026/03/25/69c457c346163f59098b45c0.html) - **Marca**
-3. [Richard Hughes puts three forwards on shortlist to replace Mo Salah](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-richard-hughes-puts-three-forwards-on-shortlist-to-replace-mo-salah-1/) - **Anfieldwatch.co.uk**
-4. [Sunderland Forward Is Generating Interest From Aston Villa: Should Le Bris Cash In On Him?](https://the4thofficial.net/2026/03/sunderland-forward-is-generating-interest-from-aston-villa-should-le-bris-cash-in-on-him/) - **The4thofficial.net**
-5. [Arsenal is now targeting two Brazilian defenders](https://www.justarsenal.com/arsenal-is-now-targeting-two-brazilian-defenders/412345) - **Just Arsenal News**
-6. [Séamus Coleman: Ireland’s Mr Dependable will give it his all to make World Cup](https://www.irishtimes.com/sport/soccer/2026/03/25/seamus-coleman-irelands-mr-dependable-will-give-it-his-all-to-make-world-cup/) - **The Irish Times**
-7. [U20: Tobin's haul helps Tipp edge out Cork in opener](https://www.rte.ie/sport/hurling/2026/0325/1565240-u20-tobins-haul-helps-tipp-edge-out-cork-in-opener/) - **RTE**
-8. [Orlando’s new professional indoor football team, the Pirates, to host an open practice & Fan Fest](https://sports.yahoo.com/articles/orlando-professional-indoor-football-team-214734233.html) - **Yahoo Entertainment**
-9. [2026 Premier League Darts walk-on songs ranked: From Luke Littler to Luke Humphries](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b6a44255-2cb7-4319-9766-567bcbfaac38) - **Yahoo Entertainment**
-10. [Lionel Messi could link up with a Real Madrid legend at Inter Miami](https://getfootballnewsspain.com/lionel-messi-could-link-up-with-a-real-madrid-legend-at-inter-miami/) - **Getfootballnewsspain.com**
+1. [Benjamin Sesko’s camp sends Man United a warning](https://thepeoplesperson.com/2026/03/25/benjamin-seskos-camp-sends-manchester-united-a-warning-308059/) - **The Peoples Person**
+2. ['It's not must': SC nixes plea against Vande Mataram circular](https://timesofindia.indiatimes.com/india/its-not-must-sc-nixes-plea-against-vande-circular/articleshow/129813783.cms) - **The Times of India**
+3. [Amid oppn protest, FCRA amendment bill tabled in Lok Sabha](https://timesofindia.indiatimes.com/india/amid-oppn-protest-fcra-amendment-bill-tabled-in-lok-sabha/articleshow/129813767.cms) - **The Times of India**
+4. [PG admission row: Petitioner contacts CJI kin amid SC heat](https://timesofindia.indiatimes.com/india/pg-admission-row-petitioner-contacts-cji-kin-amid-sc-heat/articleshow/129813758.cms) - **The Times of India**
+5. [India tightens digital security with strict rules](https://timesofindia.indiatimes.com/india/india-tightens-digital-security-with-strict-rules/articleshow/129813742.cms) - **The Times of India**
+6. [Cristian Romero: Spanish giants fear United could beat them to World Cup winner](https://thepeoplesperson.com/2026/03/25/cristian-romero-spanish-giants-fear-united-could-beat-them-to-world-cup-winner-308121/) - **The Peoples Person**
+7. [Railways fines IRCTC Rs 10L for poor food quality](https://timesofindia.indiatimes.com/india/rlys-fines-irctc-rs-10l-for-poor-food-quality/articleshow/129813735.cms) - **The Times of India**
+8. [Dodgers have the best lineup in baseball… if healthy](https://nypost.com/2026/03/25/sports/dodgers-lineup-loaded-with-ohtani-tucker-betts-and-freeman/) - **New York Post**
+9. [Papers: Liverpool eye Bayern's Olise as Salah replacement](https://www.skysports.com/football/transfer-paper-talk/12709/13524485/liverpool-target-bayern-munichs-michael-olise-as-mohamed-salah-replacement-paper-talk-and-football-transfer-gossip) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-03-27 07:41:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-27 08:35:57 (KST) / (하루 100회 제한 준수 중)*
