@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [American investors bet big on Indian cricket with two separate billion-dollar deals for IPL teams](https://sports.yahoo.com/articles/american-investors-bet-big-indian-180848166.html) - **Yahoo Entertainment**
-2. [American investors bet big on Indian cricket with two separate billion-dollar deals for IPL teams](https://sports.yahoo.com/articles/american-investors-bet-big-indian-180848361.html) - **Yahoo Entertainment**
-3. [Nashville SC striker Sam Surridge named MLS Player of the Month for February and March](https://www.tennessean.com/story/sports/nashvillesc/2026/03/25/nashville-sc-sam-surridge-mls-player-of-the-month/89317657007/) - **Tennessean**
-4. [Liverpool’s Move for Anthony Gordon Hinges on Forward Sale: Report](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/21189/liverpools-move-for-anthony-gordon-hinges-on-forward-sale-report) - **SB Nation**
-5. [Milan Tracking Growth of Bologna Center-Forward](https://cultofcalcio.com/milan-tracking-growth-of-bologna-center-forward/) - **Cultofcalcio.com**
-6. [Woltemade and Wissa 'totally different' to 'pivotal' Isak](https://www.bbc.com/sport/football/articles/ce8jn64e69no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Where do Spurs go from here?](https://www.bbc.com/sport/football/articles/c86ewvy4xx9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Celtic selling players never the issue – Failing to replace them is the problem](https://thecelticstar.com/celtic-selling-players-never-the-issue-failing-to-replace-them-is-the-problem/) - **The Celtic Star**
-9. [Erling Haaland makes donation worth £100,000 to hometown](https://eplindex.com/144509/haaland-donates-100000-viking-book-to-home-town.html) - **English Premier League Index - Opta Stats**
+1. [Juventus tell Aston Villa how much Douglas Luiz will cost](https://www.juvefc.com/juventus-tell-aston-villa-how-much-douglas-luiz-will-cost/) - **JuveFC**
+2. [2026 Premier League Darts Night 8 draw, match predictions and 3 storylines to watch in Berlin](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2fea06de-71bf-40ed-aa74-450d556e5a63) - **Yahoo Entertainment**
+3. [ESPN: Marcus Rashford allowed to rejoin Man Utd squad following Amorim’s departure](https://strettynews.com/2026/03/25/marcus-rashford-man-utd-ruben-amorim-barcelona/) - **Strettynews.com**
+4. [Sheffield United: The most mid-table side ever?](https://sheffunitedway.co.uk/2026/03/25/sheffield-united-the-most-mid-table-side-ever/) - **Sheffunitedway.co.uk**
+5. [Mohamed Salah's long goodbye brings curtain down on golden era for Liverpool](https://economictimes.indiatimes.com/news/sports/mohamed-salahs-long-goodbye-brings-curtain-down-on-golden-era-for-liverpool/articleshow/129810551.cms) - **The Times of India**
+6. [IPL franchise valuations surge after RCB Rs 16,660-crore deal](https://economictimes.indiatimes.com/news/sports/ipl-franchise-valuations-surge-after-rcb-rs-16660-crore-deal/articleshow/129810508.cms) - **The Times of India**
+7. [Benjamin Sesko: Dimitar Berbatov makes bold claim about United ace](https://thepeoplesperson.com/2026/03/25/benjamin-sesko-dimitar-berbatov-makes-bold-claim-about-united-ace-308114/) - **The Peoples Person**
+8. [NCAA Transfer Portal: Top 10 college basketball players currently expected to enter](https://www.on3.com/transfer-portal/news/ncaa-transfer-portal-top-10-college-basketball-players-currently-expected-to-enter/) - **On3.com**
+9. [Richard Hughes and Arne Slot hung £400k p/w Mo Salah out to dry](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-richard-hughes-and-arne-slot-hung-ps400k-pw-mo-salah-out-to-dry/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-03-27 03:12:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-27 04:34:07 (KST) / (하루 100회 제한 준수 중)*
