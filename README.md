@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [10 moments that defined Mohamed Salah’s Liverpool legacy](https://footballtoday.com/2026/03/25/10-moments-that-defined-mohamed-salahs-liverpool-legacy/) - **Footballtoday.com**
-2. [Newcastle Set to Fight Arsenal, Barcelona for Borussia Dortmund’s Free Agent](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/20940/newcastle-set-to-fight-arsenal-barcelona-for-borussia-dortmunds-free-agent) - **SB Nation**
-3. [How to watch MLB 2026: live streams, cheap Major League Baseball broadcasts, season schedule](https://www.techradar.com/how-to-watch/sport/mlb-2026) - **TechRadar**
-4. [Transfer rumour roundup: Man Utd eye Fermin Lopez; Everton chase Arsenal’s Ben White](https://www.footballmuse.com/features/transfer-rumour-roundup-man-utd-eye-fermin-lopez-everton-chase-arsenals-ben-white) - **Footballmuse.com**
-5. [Liverpool star pays heartfelt tribute to Mohamed Salah](https://anfieldindex.com/92543/liverpool-star-in-heartfelt-tribute-to-departing-teammate.html) - **Anfieldindex.com**
-6. [Sky: Man Utd ready to replicate Cunha coup with early-bird onslaught for ‘unstoppable’ £86m teenager](https://strettynews.com/2026/03/25/man-utd-matheus-cunha-yan-diomande/) - **Strettynews.com**
-7. [Mohamed Salah: Is Liverpool exit the end? Can World Cup spur Egypt star?](https://www.aljazeera.com/sports/2026/3/25/mohamed-salah-is-liverpool-exit-the-end-or-can-world-cup-spur-egypt-star) - **Al Jazeera English**
-8. [IPL 2026 ticket prices: Check venue-wise booking details for this year’s Indian Premier League](https://economictimes.indiatimes.com/news/sports/ipl-2026-ticket-prices-check-venue-wise-booking-details-for-this-years-indian-premier-league/articleshow/129803072.cms) - **The Times of India**
-9. [Richard Hughes' monumental Mo Salah error has cost Liverpool at least £70m](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-richard-hughes-monumental-mo-salah-error-has-cost-at-least-ps70m/) - **Anfieldwatch.co.uk**
+1. [3 Risky Trade Scenarios for the Jaguars to Improve Pass Rush](https://www.bigcatcountry.com/jacksonville-jaguars-analysis/83570/2026-nfl-trades-jonathan-greenard-jalen-carter) - **Big Cat Country**
+2. [“They dropped a bit physically” – Rodri makes Arsenal personality admission after Carabao Cup triumph](https://cityxtra.co.uk/43605/they-dropped-a-bit-physically-rodri-makes-arsenal-personality-admission-after-carabao-cup-triumph/) - **Cityxtra.co.uk**
+3. [Ange Postecoglou gives verdict on Tottenham’s Premier League survival chances](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4954527f-024c-42a3-987f-b4be94046a6b) - **Yahoo Entertainment**
+4. [No chance: Liverpool suffer blow in race to land potential Salah replacement](https://cfbayerninsider.com/2026/03/liverpool-bayern-munich-michael-olise/) - **Cfbayerninsider.com**
+5. [Big-ticket RCB deal underscores monetisation potential of IPL teams](https://www.thehindubusinessline.com/news/big-ticket-rcb-deal-underscores-monetisation-potential-of-ipl-teams/article70784830.ece) - **BusinessLine**
+6. [Shi has made 'good start' repairing 'fractured relationship'](https://www.bbc.com/sport/football/articles/cqj8z2qjveko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Salah Q&A: Who made the call - and what now for the player and Liverpool?](https://www.skysports.com/football/news/11669/13524318/mohamed-salah-q-and-a-who-made-the-call-for-the-liverpool-star-to-leave-what-do-liverpool-and-the-player-do-now-and-does-it-affect-arne-slots-future) - **Sky Sports**
+8. [FSG ‘working overtime’: Liverpool identify the ‘marquee signing’ they want as Salah’s successor](https://www.empireofthekop.com/2026/03/25/liverpool-identify-marquee-signing-they-want-as-salah-successor/) - **Empire of The Kop**
 
 
 ---
-*최근 업데이트: 2026-03-26 23:01:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-27 00:45:06 (KST) / (하루 100회 제한 준수 중)*
