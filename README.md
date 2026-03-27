@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Neville and Keane disagree with Carragher over one huge Salah claim](https://www.empireofthekop.com/2026/03/26/neville-and-keane-disagree-with-carragher-over-one-huge-salah-claim/) - **Empire of The Kop**
-2. [Three reasons why Serie A giants could sell 26-year-old key player to Barcelona – report](https://barcauniversal.com/three-reasons-why-serie-a-giants-could-sell-26-year-old-key-player-to-barcelona-report/) - **Barcauniversal.com**
-3. [2025 Bluebird Banter Top 40 Blue Jays Prospects: 33-36](https://www.bluebirdbanter.com/general/61393/2026-bluebird-banter-top-40-prospects-17-20) - **Bluebird Banter**
-4. [Franchises expand sponsorship rosters, extend ties ahead of IPL 2026](https://www.thehindubusinessline.com/companies/franchises-expand-sponsorship-rosters-and-extend-tie-ups-ahead-of-ipl-2026/article70789043.ece) - **BusinessLine**
-5. [Where does Salah rank among Premier League greats?](https://shows.acast.com/timesthegame/episodes/where-does-salah-rank-among-premier-league-greats) - **Acast.com**
-6. [Kai Rooney: Man United starlet confirms devastating injury blow](https://thepeoplesperson.com/2026/03/26/kai-rooney-man-united-starlet-confirms-devastating-injury-blow-308148/) - **The Peoples Person**
-7. [Juventus in the Mix to Sign Ageing Real Madrid Star](https://cultofcalcio.com/juventus-in-the-mix-to-sign-ageing-real-madrid-star-rudiger/) - **Cultofcalcio.com**
-8. [Polymarket promo code NYPMAX: Deposit $20 Get $20 Bonus, Use our Code to Skip the Waitlist | March 2026](https://nypost.com/betting/polymarket-promo-code/) - **New York Post**
-9. [No release clause, but Cristian Romero tipped for summer Spurs exit amid La Liga and Premier League interest](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f027fa31-4c08-4718-9d7d-f1ba25325b8c) - **Yahoo Entertainment**
-10. [Rodri open to Real Madrid move despite Atletico past](https://www.bbc.com/sport/football/articles/ce3dnnn50ppo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [MLB's top-selling jerseys: Dodgers dominate a top-20 list that features a few surprises](https://www.cbssports.com/mlb/news/mlb-top-selling-dodgers-dominate-shohei-ohtani/) - **CBS Sports**
+2. [Shubman Gill joins the list of critics for Impact Player rule in IPL: ‘Takes the skill out of the game’](https://indianexpress.com/article/sports/cricket/shubman-gill-critics-impact-player-rule-ipl-skill-out-10603257/) - **The Indian Express**
+3. [Would winning just one trophy still make this a fine campaign for Arsenal?](https://www.justarsenal.com/would-winning-just-one-trophy-still-make-this-a-fine-campaign-for-arsenal/412384) - **Just Arsenal News**
+4. [Vicario joins Italy camp for World Cup play-offs three days after surgery](https://football-italia.net/vicario-joins-italy-squad-world-cup-play-offs/) - **Football Italia**
+5. [MLS club opens door to Mohamed Salah move after Liverpool exit](https://anfieldindex.com/92599/mls-club-opens-door-to-mohamed-salah-move-after-liverpool-exit.html) - **Anfieldindex.com**
+6. [2026 Premier League Darts Night 8 Berlin Live results, scores and schedule](https://www.sportingnews.com/us/darts/news/premier-league-darts-night-8-berlin-live-results-scores-schedule/27d25774b52375a657415ac8) - **Sporting News**
+7. [Rodri open to the idea of joining Real Madrid](https://www.rte.ie/sport/soccer/2026/0326/1565387-rodri-open-to-the-idea-of-joining-real-madrid/) - **RTE**
+8. [Arsenal offered chance to sign Real Madrid midfielder](https://www.football-espana.net/2026/03/26/arsenal-sign-real-madrid-midfielder) - **Football Espana**
+9. [ That duo would be outrageous: Inter Miami want a global star](https://onefootball.com/en/news/that-duo-would-be-outrageous-inter-miami-want-a-global-star-42619455) - **Onefootball.com**
+10. ['If you're three points behind, you have to believe you can overtake that team'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_63f713f8-2526-4603-8ad6-eeba76aaab7b) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-28 00:29:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-28 01:33:06 (KST) / (하루 100회 제한 준수 중)*
