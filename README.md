@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Liverpool eyeing Everton star in shock transfer raid](https://anfieldindex.com/92603/report-liverpool-eyeing-everton-star-in-shock-transfer-raid.html) - **Anfieldindex.com**
-2. [Report: Newcastle United to join the race to sign £50m Arsenal star](https://eplindex.com/144552/report-newcastle-united-to-join-the-race-to-sign-50m-arsenal-star.html) - **English Premier League Index - Opta Stats**
-3. [Keely Hodgkinson mocks Premier League club over lack of trophies](https://news.sky.com/story/west-ham-united-fans-hit-out-at-olympic-gold-medallist-keely-hodgkinson-over-medals-jibe-13524852) - **Sky.com**
-4. [Salah one of the all-time greats - Klopp](https://www.bbc.com/sport/football/articles/c3931xlwxjro) - **BBC News**
-5. [Sheffield United summer signings 2019-2020: Where are they now?](https://sheffunitedway.co.uk/2026/03/26/sheffield-united-summer-signings-2019-2020-where-are-they-now/) - **Sheffunitedway.co.uk**
-6. [Ajax football club hack exposed fan data, enabled ticket hijack](https://www.bleepingcomputer.com/news/security/ajax-football-club-hack-exposed-fan-data-enabled-ticket-hijack/) - **BleepingComputer**
-7. [Report: £30m Premier League star could replace Mo Salah at Liverpool](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2676563e-3ac8-47b4-b8e7-2eeb84563172) - **Yahoo Entertainment**
-8. [Spencer Jones Remains the Nuggets’ Unsung Hero](https://theleadsm.com/spencer-jones-remains-the-denver-nuggets-unsung-hero/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=spencer-jones-remains-the-denver-nuggets-unsung-hero) - **Theleadsm.com**
-9. [Bengaluru getting IPL-ready6 holding areas, 45 exits & 2k cops](https://timesofindia.indiatimes.com/city/bengaluru/bengaluru-getting-ipl-ready6-holding-areas-45-exits-2k-cops/articleshow/129832099.cms) - **The Times of India**
-10. [A major statement: Mo Salah to make romantic return to former club](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-roma-mo-salah-to-make-romantic-return-to-former-club/) - **Anfieldwatch.co.uk**
+1. [PR Roundup: Air Canada Crisis, the Second Screen of March Madness, and CCOs are not Happy](https://www.prnewsonline.com/pr-roundup-air-canada-crisis-the-second-screen-of-march-madness-and-ccos-are-not-happy/) - **Prnewsonline.com**
+2. [Manchester City’s Rodri open to Real Madrid move](https://getfootball.eu/manchester-citys-rodri-open-to-real-madrid-move/) - **Getfootball.eu**
+3. [Barcelona add Newcastle star to transfer watchlist](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fe44ca89-df9b-40f5-867d-77a8e9c797d8) - **Yahoo Entertainment**
+4. [Klopp hails Salah as one of Liverpool's 'all-time greats'](https://sports.yahoo.com/articles/klopp-hails-salah-one-liverpools-212322093.html) - **Yahoo Entertainment**
+5. [Barcelona star wanted by Man United & Man City](https://getfootballnewsspain.com/barcelona-star-wanted-by-man-united-man-city/) - **Getfootballnewsspain.com**
+6. [Alejandro Garnacho convicted after breaking law days before United exit](https://thepeoplesperson.com/2026/03/26/alejandro-garnacho-convicted-after-breaking-law-days-before-united-exit-308156/) - **The Peoples Person**
+7. [Liverpool discussing sensational move for Tottenham Hotspur star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-discussing-sensational-move-for-tottenham-hotspur-star/) - **Anfieldwatch.co.uk**
+8. [Jamie Carragher reveals one key profile that the Arsenal team is missing](https://www.justarsenal.com/jamie-carragher-reveals-one-key-profile-that-the-arsenal-team-is-missing/412408) - **Just Arsenal News**
+9. [Hugo Viana and Manchester City to prevent Erling Haaland exit despite possible Pep Guardiola departure](https://cityxtra.co.uk/43660/hugo-viana-and-manchester-city-to-prevent-erling-haaland-exit-despite-possible-pep-guardiola-departure/) - **Cityxtra.co.uk**
+10. [Report: Liverpool eyeing Everton star in shock transfer raid](https://anfieldindex.com/92603/report-liverpool-eyeing-everton-star-in-shock-transfer-raid.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-03-28 05:58:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-28 06:47:49 (KST) / (하루 100회 제한 준수 중)*
