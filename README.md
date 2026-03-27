@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [MLB's top-selling jerseys: Dodgers dominate a top-20 list that features a few surprises](https://www.cbssports.com/mlb/news/mlb-top-selling-dodgers-dominate-shohei-ohtani/) - **CBS Sports**
-2. [Shubman Gill joins the list of critics for Impact Player rule in IPL: ‘Takes the skill out of the game’](https://indianexpress.com/article/sports/cricket/shubman-gill-critics-impact-player-rule-ipl-skill-out-10603257/) - **The Indian Express**
-3. [Would winning just one trophy still make this a fine campaign for Arsenal?](https://www.justarsenal.com/would-winning-just-one-trophy-still-make-this-a-fine-campaign-for-arsenal/412384) - **Just Arsenal News**
-4. [Vicario joins Italy camp for World Cup play-offs three days after surgery](https://football-italia.net/vicario-joins-italy-squad-world-cup-play-offs/) - **Football Italia**
-5. [MLS club opens door to Mohamed Salah move after Liverpool exit](https://anfieldindex.com/92599/mls-club-opens-door-to-mohamed-salah-move-after-liverpool-exit.html) - **Anfieldindex.com**
-6. [2026 Premier League Darts Night 8 Berlin Live results, scores and schedule](https://www.sportingnews.com/us/darts/news/premier-league-darts-night-8-berlin-live-results-scores-schedule/27d25774b52375a657415ac8) - **Sporting News**
-7. [Rodri open to the idea of joining Real Madrid](https://www.rte.ie/sport/soccer/2026/0326/1565387-rodri-open-to-the-idea-of-joining-real-madrid/) - **RTE**
-8. [Arsenal offered chance to sign Real Madrid midfielder](https://www.football-espana.net/2026/03/26/arsenal-sign-real-madrid-midfielder) - **Football Espana**
-9. [ That duo would be outrageous: Inter Miami want a global star](https://onefootball.com/en/news/that-duo-would-be-outrageous-inter-miami-want-a-global-star-42619455) - **Onefootball.com**
-10. ['If you're three points behind, you have to believe you can overtake that team'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_63f713f8-2526-4603-8ad6-eeba76aaab7b) - **Yahoo Entertainment**
+1. [Baller League targets soccer re-invention after Miami launch](https://www.channelnewsasia.com/sport/baller-league-targets-soccer-re-invention-after-miami-launch-6019426) - **CNA**
+2. [How to watch USMNT vs Belgium live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-usmnt-vs-belgium-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
+3. [Report: Liverpool are considering move to sign Chelsea star this summer](https://anfieldindex.com/92582/report-liverpool-are-considering-surprise-move-to-sign-chelsea-star-this-summer.html) - **Anfieldindex.com**
+4. [Not every club is losing money, and the question for Arsenal is what happens now.](https://untold-arsenal.com/archives/120141) - **Untold-arsenal.com**
+5. [Leinster suffer blow as RG Snyman ruled out for the remainder of the season with knee injury](https://www.irishtimes.com/sport/rugby/2026/03/26/leinster-suffer-blow-as-rg-snyman-ruled-out-for-the-remainder-of-the-season-with-knee-injury/) - **The Irish Times**
+6. [Atletico ready to make Julian Alvarez highest-paid player amid Barcelona interest](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/116181/atletico-ready-to-make-julian-alvarez-highest-paid-player-amid-barcelona-interest) - **Barca Blaugranes**
+7. [How to watch Brazil vs France live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-brazil-vs-france-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
+8. ['Estevao played as if it was a children's kickabout'](https://www.bbc.com/sport/football/articles/cy81yprpnp8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [IPL 2026 schedule - fixtures and start times](https://www.bbc.com/sport/cricket/articles/c4g2ne51903o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Report: Liverpool are in the race to sign 23-year-old Bundesliga star](https://anfieldindex.com/92585/report-liverpool-are-in-the-race-to-sign-23-year-old-bundesliga-star.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-03-28 01:33:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-28 02:32:25 (KST) / (하루 100회 제한 준수 중)*
