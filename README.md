@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bayern president Hoeness rules out €200m Olise Liverpool switch](https://www.101greatgoals.com/football/bundesliga/bayern-rules-out-liverpool-move/) - **101 Great Goals**
-2. [Sky Sports Reporter: Man United considering move to sign Arsenal star](https://eplindex.com/144555/sky-sports-reporter-man-united-considering-move-to-sign-arsenal-star.html) - **English Premier League Index - Opta Stats**
-3. [Torp working with mind coach - how can they help?](https://www.bbc.com/sport/football/articles/c36r07w2zylo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [How Man City have reacted to Rodri’s transfer comments concerning Real Madrid](https://cityxtra.co.uk/43687/how-man-city-have-reacted-to-rodris-transfer-comments-concerning-real-madrid/) - **Cityxtra.co.uk**
-5. [Conceicao on Liverpool report: ‘I’m happy at big club Juventus’](https://football-italia.net/conceicao-liverpool-report-happy-big-juventus/) - **Football Italia**
-6. [Manchester United make Tonali the top midfield target for summer 2026](https://football-italia.net/manchester-united-make-tonali-top-target/) - **Football Italia**
-7. [Watch the best RefCam moments from Newcastle v Sunderland](https://www.skysports.com/football/video/37483/13524794/newcastle-v-sunderland-watch-the-best-refcam-moments-from-newcastle-v-sunderland) - **Sky Sports**
-8. [Report: Liverpool to battle Man United in the race to sign French defender](https://anfieldindex.com/92587/report-liverpool-to-battle-man-united-in-the-race-to-sign-french-defender.html) - **Anfieldindex.com**
-9. [Huge Sandro Tonali to United update as Bruno Fernandes approves move](https://thepeoplesperson.com/2026/03/26/huge-sandro-tonali-to-united-update-as-bruno-fernandes-approves-move-308151/) - **The Peoples Person**
-10. [Report: Man United want to replace Bruno Fernandes with Premier League star](https://eplindex.com/144546/report-man-united-want-to-replace-bruno-fernandes-with-premier-league-star.html) - **English Premier League Index - Opta Stats**
+1. [Journalist: Liverpool make initial contact to sign Bundesliga star](https://anfieldindex.com/92594/journalist-liverpool-make-initial-contact-to-sign-bundesliga-star.html) - **Anfieldindex.com**
+2. [Alexandre Pato makes exciting Matheus Cunha World Cup prediction](https://thepeoplesperson.com/2026/03/26/alexandre-pato-makes-exciting-matheus-cunha-world-cup-prediction-308153/) - **The Peoples Person**
+3. [Brazil vs France LIVE Updates: Minute-by-Minute Coverage of 2026 International Friendly](https://worldsoccertalk.com/news/brazil-vs-france-live-updates-minute-by-minute-coverage-of-2026-international-friendly/) - **Worldsoccertalk.com**
+4. [Harry Maguire: Man United ace has his say on next permanent coach](https://thepeoplesperson.com/2026/03/26/harry-maguire-man-united-ace-has-his-say-on-next-permanent-coach-308152/) - **The Peoples Person**
+5. [SHANKLY: Britain Loses The One Muslim We’d Like To Keep](https://dailycaller.com/2026/03/26/mo-salah-departure-liverpool-united-kingdom-muslim-immigration/) - **The Daily Caller**
+6. [Who will be Liverpool's new No11? Ranking the contenders](https://www.anfieldwatch.co.uk/liverpool-fc/news/who-will-be-liverpool-new-no11-ranking-the-contenders/) - **Anfieldwatch.co.uk**
+7. [Bayern president Hoeness rules out €200m Olise Liverpool switch](https://www.101greatgoals.com/football/bundesliga/bayern-rules-out-liverpool-move/) - **101 Great Goals**
+8. [Sky Sports Reporter: Man United considering move to sign Arsenal star](https://eplindex.com/144555/sky-sports-reporter-man-united-considering-move-to-sign-arsenal-star.html) - **English Premier League Index - Opta Stats**
+9. [Torp working with mind coach - how can they help?](https://www.bbc.com/sport/football/articles/c36r07w2zylo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [How Man City have reacted to Rodri’s transfer comments concerning Real Madrid](https://cityxtra.co.uk/43687/how-man-city-have-reacted-to-rodris-transfer-comments-concerning-real-madrid/) - **Cityxtra.co.uk**
 
 
 ---
-*최근 업데이트: 2026-03-28 03:33:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-28 04:27:21 (KST) / (하루 100회 제한 준수 중)*
