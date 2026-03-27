@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Which players will seize their chance to impress Tuchel?](https://www.skysports.com/football/news/12016/13524599/england-vs-uruguay-harry-maguire-kobbie-mainoo-and-phil-foden-among-players-hoping-to-impress-thomas-tuchel) - **Sky Sports**
-2. [‘Looks so short of confidence’ – Liverpool regular accused of ‘complacency’ amid tough season](https://www.empireofthekop.com/2026/03/26/liverpool-regular-accused-of-complacency-amid-tough-season/) - **Empire of The Kop**
-3. [Alan Shearer thinks Chelsea are implementing plan which won’t ever be successful](https://chelsea.news/2026/03/alan-shearer-chelsea-model-success/) - **Chelsea.news**
-4. [Arsenal is still monitoring Nottingham Forest man](https://www.justarsenal.com/arsenal-is-still-monitoring-nottingham-forest-man/412359) - **Just Arsenal News**
-5. [What Is TV’s Problem With Professors?](https://newrepublic.com/article/208111/tv-problem-professors-rooster-vladimir) - **The New Republic**
-6. [Alejandro Balde’s stance on Barcelona exit amid “firm interest” from United](https://thepeoplesperson.com/2026/03/26/alejandro-baldes-stance-on-barcelona-exit-amid-firm-interest-from-united-308142/) - **The Peoples Person**
-7. [Navi UPI ties up with Sunrisers Hyderabad](https://www.thehindubusinessline.com/money-and-banking/navi-upi-ties-up-with-sunrisers-hyderabad/article70787537.ece) - **BusinessLine**
-8. [Fan fury as FSG intend to raise ticket prices for three years in a row](https://anfieldindex.com/92590/fan-fury-as-fsg-intend-to-raise-ticket-prices-for-three-years-in-a-row.html) - **Anfieldindex.com**
-9. [Maguire: Amorim's Ideas 'Didn't Work' at Manchester United](https://www.rediff.com/sports/report/maguire-amorims-ideas-didnt-work-at-manchester-united/20260326.htm) - **Rediff.com**
+1. [Inter Set Large Price Tag for Barcelona-Linked Bastoni](https://cultofcalcio.com/inter-set-large-price-tag-for-barcelona-linked-bastoni/) - **Cultofcalcio.com**
+2. [ BREAKING: Premier League reveal nominees for March Player of the Month](https://onefootball.com/en/news/breaking-premier-league-reveals-nominees-for-march-player-of-the-month-42618145) - **Onefootball.com**
+3. [Tom Brady on Ferrero Partnership, World Cup Soccer & 'Heated Rivalry'](http://www.hollywoodreporter.com/lifestyle/lifestyle-news/tom-brady-ferrero-world-cup-soccer-contest-campaign-details-1236547243/) - **Hollywood Reporter**
+4. [Raya nominated for PL Player of the Month](http://www.arsenal.com/news/raya-nominated-pl-player-month) - **Arsenal.com**
+5. [Man Utd and Man City among Premier League clubs keen on Barcelona’s Alejandro Balde](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5dd0e512-c41a-4f3a-ba17-c4aa980ca1f0) - **Yahoo Entertainment**
+6. [Barcelona star says Raya is the worlds best goalkeeper](https://www.justarsenal.com/barcelona-star-says-raya-is-the-worlds-best-goalkeeper/412360) - **Just Arsenal News**
+7. [Kai Havertz explains his love of donkeys](https://dailycannon.com/2026/03/kai-havertz-donkeys/) - **Dailycannon.com**
+8. [Top 10 Highest-Paid Socceroos in 2026 Led by European Stars as Club Salaries Eclipse National Team Pay](https://www.ibtimes.com.au/top-10-highest-paid-socceroos-2026-led-european-stars-club-salaries-eclipse-national-team-pay-1864525) - **Ibtimes.com.au**
 
 
 ---
-*최근 업데이트: 2026-03-27 19:08:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-27 20:09:21 (KST) / (하루 100회 제한 준수 중)*
