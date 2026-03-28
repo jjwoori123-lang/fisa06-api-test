@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Match to raise funds for ex-rugby star's MND charity](https://www.bbc.com/news/articles/cm2r9pgyx4eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Sandro Tonali's breakfast-table dream pays off for childhood idol Gattuso in Italy's World Cup playoff win](https://economictimes.indiatimes.com/news/sports/sandro-tonalis-breakfast-table-dream-pays-off-for-childhood-idol-gattuso-in-italys-world-cup-playoff-win/articleshow/129853450.cms) - **The Times of India**
-3. [My off-field behaviour during Ashes was unacceptable, says England's Duckett](https://www.channelnewsasia.com/sport/my-field-behaviour-during-ashes-was-unacceptable-says-englands-duckett-6022196) - **CNA**
-4. [Barcelona will consider selling 22-year-old defender only if big offers arrive – Romano](https://barcauniversal.com/barcelona-will-consider-selling-22-year-old-defender-only-if-big-offers-arrive-romano/) - **Barcauniversal.com**
-5. [Journalist: Liverpool are ‘coming in hot’ for world-class forward](https://anfieldindex.com/92641/journalist-liverpool-are-coming-in-hot-for-world-class-forward.html) - **Anfieldindex.com**
-6. [Report: Arsenal ready to hijack move to sign £100m midfielder](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9f64154f-3e89-47b6-bf7f-b98d0fa85c56) - **Yahoo Entertainment**
-7. [Boost for Manchester United as key summer target ready to leave Premier League club](https://footballtoday.com/2026/03/27/boost-for-manchester-united-as-key-summer-target-ready-to-leave-premier-league-club/) - **Footballtoday.com**
-8. [Yankees Mailbag: Streaming headaches and bullpen musings](https://www.pinstripealley.com/pinstripe-alley-discussions/181146/yankees-mailbag-streaming-expansion-broadcasts-paul-blackburn-bullpen-depth-cade-winquest-rule-5) - **Pinstripe Alley**
-9. [Just in: ‘Outstanding’ Man Utd target keen for summer move; He was deemed ideal Casemiro heir](https://strettynews.com/2026/03/27/casemiro-man-utd-adam-wharton-crystal-palace/) - **Strettynews.com**
-10. [3/28/26: Golden State Storm - $25](https://sf.funcheap.com/golden-state-storm/) - **Funcheap.com**
+1. [A former Premier League star claims: "Cristiano Ronaldo goes to bed at night and thinks, 'I wish I were as good as Messi!'"](https://www.marca.com/en/football/2026/03/27/69c6c966e2704ed6238b45d9.html) - **Marca**
+2. [IPL 2026: RCB vs SRH marks emotional return at Chinnaswamy amid global turmoil and billion-dollar cricket boom](https://economictimes.indiatimes.com/news/sports/ipl-2026-rcb-vs-srh-marks-emotional-return-at-chinnaswamy-amid-global-turmoil-and-billion-dollar-cricket-boom/articleshow/129853572.cms) - **The Times of India**
+3. [Leicester City post loss of £71.7m from 2024-25 season](https://getfootball.eu/leicester-city-post-loss-of-71-7m-from-2024-25-season/) - **Getfootball.eu**
+4. [Ederson: Man United ramp up pursuit of Atlanta midfield monster](https://thepeoplesperson.com/2026/03/27/ederson-man-united-ramp-up-pursuit-of-atlanta-midfield-monster-308178/) - **The Peoples Person**
+5. [IPL 2026: From Kohli to Bhuvi, five RCB players who could shape the season](https://economictimes.indiatimes.com/news/sports/ipl-2026-from-kohli-to-bhuvi-five-rcb-players-who-could-shape-the-season/articleshow/129853586.cms) - **The Times of India**
+6. [Leeds United Midfielder Is Gathering Interest From Germany: Should Farke Move Him On?](https://the4thofficial.net/2026/03/leeds-united-midfielder-is-gathering-interest-from-germany-should-farke-move-him-on/) - **The4thofficial.net**
+7. [Match Rescheduled: Manchester United v Liverpool](https://liverpooloffside.sbnation.com/english-premier-league/79442/match-rescheduled-manchester-united-v-liverpool) - **SB Nation**
+8. [More motivated than ever, says Shashank on PBKS youth](https://timesofindia.indiatimes.com/sports/cricket/ipl/top-stories/more-motivated-than-ever-says-shashank-on-pbks-youth/articleshow/129853596.cms) - **The Times of India**
+9. [Match to raise funds for ex-rugby star's MND charity](https://www.bbc.com/news/articles/cm2r9pgyx4eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-29 03:56:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-29 04:34:40 (KST) / (하루 100회 제한 준수 중)*
