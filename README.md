@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [From top picks to rising arms, prospects drive Red Wings roster](https://www.democratandchronicle.com/story/sports/baseball/2026/03/27/red-wings-opening-day-roster-features-top-nationals-prospects/89336451007/) - **Rochester Democrat and Chronicle**
-2. [Which records could we still break in 2025/26?](http://www.arsenal.com/news/which-records-could-we-still-break-202526) - **Arsenal.com**
-3. [Could England's set-pieces win them the World Cup?](https://www.bbc.com/sport/football/articles/cy417p1ekx0o) - **BBC News**
-4. [Why Liverpool need to rip up their transfer model to replace Mo Salah](https://www.anfieldwatch.co.uk/liverpool-fc/news/why-liverpool-need-to-rip-up-their-transfer-model-to-replace-mo-salah-harry-wilson-jarrod-bowen/) - **Anfieldwatch.co.uk**
-5. [IPL 2026: Irfan Pathan hints at MS Dhoni’s successor in CSK, names this star](https://economictimes.indiatimes.com/news/sports/sanju-samson-ipl-2026-irfan-pathan-hints-at-ms-dhonis-successor-in-csk-names-this-star/articleshow/129840366.cms) - **The Times of India**
-6. [FM26 gamer helps football team win in real life](https://www.bbc.com/news/articles/c93eqg10z15o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Japan’s Gaming and Entertainment Landscape in 2026: A Complete Guide](https://whatjapanthinks.com/japans-gaming-and-entertainment-landscape/) - **Whatjapanthinks.com**
-8. [Manchester United set sights on Arsenal star with one Premier League start](https://footballtoday.com/2026/03/27/manchester-united-set-sights-on-arsenal-star-with-one-premier-league-start/) - **Footballtoday.com**
-9. [Paul Pogba nets goal for Monaco in friendly defeat to Brentford](https://www.getfootballnewsfrance.com/2026/paul-pogba-nets-goal-for-monaco-in-friendly-defeat-to-brentford/) - **Get French Football News**
-10. [Where Does Sunday’s Derby Victory Rank Among The Most Iconic?](https://rokerreport.sbnation.com/opinion/132369/where-does-sundays-derby-victory-rank-among-the-most-iconic) - **SB Nation**
+1. [Pep Guardiola will leave Manchester City this summer, says his former Bayern Munich colleague](https://footballtoday.com/2026/03/27/pep-guardiola-will-leave-manchester-city-this-summer-says-his-former-bayern-munich-colleague/) - **Footballtoday.com**
+2. [Lucknow Super Giants in IPL: Trophy wins, major records, and detailed performance analysis](https://economictimes.indiatimes.com/news/sports/lucknow-super-giants-in-ipl-trophy-wins-major-records-and-detailed-performance-analysis/articleshow/129841774.cms) - **The Times of India**
+3. [Switzerland vs Germany – Match preview and team news](https://thefootballfaithful.com/switzerland-vs-germany-match-preview-and-team-news/) - **The Football Faithful**
+4. [David Raya: Joan Garcia hails Arsenal Star as world’s best](https://thefootballfaithful.com/david-raya-joan-garcia-hails-arsenal-star-as-worlds-best/) - **The Football Faithful**
+5. [Liverpool lead Man Utd and Arsenal in race for £60m French defender](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-castello-lukeba-man-utd-and-arsenal-in-race-for-ps60m-french-defender/) - **Anfieldwatch.co.uk**
+6. [Paul Pogba: Former Man United star makes stunning return to action](https://thepeoplesperson.com/2026/03/27/paul-pogba-former-man-united-star-makes-stunning-return-to-action-308168/) - **The Peoples Person**
+7. [Will Uruguay be tough test Tuchel's England need?](https://www.bbc.com/sport/football/articles/cd9ggjj1je5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [From top picks to rising arms, prospects drive Red Wings roster](https://www.democratandchronicle.com/story/sports/baseball/2026/03/27/red-wings-opening-day-roster-features-top-nationals-prospects/89336451007/) - **Rochester Democrat and Chronicle**
+9. [Which records could we still break in 2025/26?](http://www.arsenal.com/news/which-records-could-we-still-break-202526) - **Arsenal.com**
+10. [Could England's set-pieces win them the World Cup?](https://www.bbc.com/sport/football/articles/cy417p1ekx0o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-28 16:03:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-28 16:55:42 (KST) / (하루 100회 제한 준수 중)*
