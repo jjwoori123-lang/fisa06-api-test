@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [‘On May 31st, we will be playing at the Chinnaswamy and lifting the cup’: Punjab Kings’ Shashank Singh](https://indianexpress.com/article/sports/cricket/punjab-kings-shashank-singh-ipl-2026-final-cup-lift-chinnaswamy-10604722/) - **The Indian Express**
-2. [Punjab Kings: IPL’s eternal enigma still chasing its perfect season, a look at how the franchise has done since the first season](https://economictimes.indiatimes.com/news/sports/pbks-in-ipl-history-check-wins-records-statistics-key-moments-analysis-of-punjab-kings/articleshow/129846161.cms) - **The Times of India**
-3. [Marine & Southport one step away from Wembley](https://www.bbc.com/sport/football/articles/cvgexrr0j1eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [RCB suffer big blow as Nuwan Thushara fails fitness test, denied IPL 2026 NOC](https://economictimes.indiatimes.com/news/sports/rcb-suffer-big-blow-as-nuwan-thushara-fails-fitness-test-denied-ipl-2026-noc/articleshow/129846094.cms) - **The Times of India**
-5. [Watch Brentford in the ePremier League finals this weekend](https://www.brentfordfc.com/en/news/article/club-news-epremier-league-2026-ea-sports-fc26) - **Brentfordfc.com**
-6. [Larry David Lends Comedic Talents to YES Network Ad Campaign](https://www.sportico.com/business/media/2026/larry-david-yankees-yes-network-ad-campaign-michael-kay-1234888429/) - **Sportico.com**
-7. [From Trent to Toney: The ultimate England XI excluded from Thomas Tuchel’s 35-man squad](https://www.footballmuse.com/features/from-trent-to-toney-the-ultimate-england-xi-excluded-from-thomas-tuchels-35-man-squad) - **Footballmuse.com**
-8. [Inter Milan Weigh Up Loan Move For Liverpool Starlet After Difficult First Season In Premier League](https://sempreinter.com/2026/03/27/inter-loan-liverpool-talent-leoni/) - **SempreInter**
-9. [What was Premier League like when Salah joined Liverpool?](https://www.bbc.com/sport/football/articles/c937lg90wvpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Bosnia and Herzegovina: Serie A duo joins Dzeko to challenge Italy for World Cup spot](https://football-italia.net/bosnia-2-serie-a-players-dzeko-challenge-italy/) - **Football Italia**
+1. [Photos of the Week: Fallas Festival, Butterfly Gathering, Beach Violin](https://www.theatlantic.com/photography/2026/03/photos-of-the-week-fallas-festival-butterfly-gathering-beach-violin/686553/) - **The Atlantic**
+2. [Who owns the Premier League and why are they minded not to make any changes?](https://untold-arsenal.com/archives/120157) - **Untold-arsenal.com**
+3. [USMNT World Cup places up for grabs: Five players who need big games in March to win over Mauricio Pochettino](https://www.sportingnews.com/us/soccer/news/usmnt-world-cup-places-players-march-pochettino/db6f63999b1df1e92218e6ee) - **Sporting News**
+4. [Summer transfer budgets and could Gray return?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5ceccfb7-ad14-418d-a682-03a9a9701183) - **Yahoo Entertainment**
+5. [Yeovil Town sign Southampton striker Merry on loan](https://www.bbc.com/sport/football/articles/c62l7el5el2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Mo Salah’s Departure and Its Impact on Liverpool](https://www.empireofthekop.com/2026/03/27/mo-salah-departure-and-its-impact-on-liverpool/) - **Empire of The Kop**
+7. [Man Utd can finally sign ‘unbelievable’ 25-yo who ‘upstaged’ Messi as his club changes stance](https://strettynews.com/2026/03/27/bayern-munich-alphonso-davies-sale-man-utd/) - **Strettynews.com**
+8. [Exclusive says transfer for Chelsea youngster is “within Bayern Munich’s range”](https://chelsea.news/2026/03/transfer-acheampong-within-bayern-munichs-range/) - **Chelsea.news**
+9. [Liverpool handed clear answer on Gakpo swap for Leipzig talent – report](https://www.empireofthekop.com/2026/03/27/liverpool-handed-clear-answer-on-gakpo-swap-for-leipzig-talent-report/) - **Empire of The Kop**
 
 
 ---
-*최근 업데이트: 2026-03-28 20:45:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-28 22:02:22 (KST) / (하루 100회 제한 준수 중)*
