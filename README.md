@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [‘For Ireland, football is suffering’, but that one really hurt](https://www.irishtimes.com/sport/2026/03/27/for-ireland-football-is-suffering-but-that-one-really-hurt/) - **The Irish Times**
-2. [Ishan Kishan’s 15,000 sq ft Patna bungalow is all about cricket dreams, private pool, gym and family-first living](https://timesofindia.indiatimes.com/real-estate/news/ishan-kishans-15000-sq-ft-patna-bungalow-is-all-about-cricket-dreams-private-pool-gym-and-family-first-living/photostory/129843463.cms) - **The Times of India**
-3. [Everton Stars in Demand as Man Utd Prepare Major Double Signing](https://eplindex.com/144561/everton-stars-in-demand-as-man-utd-prepare-major-double-signing.html) - **English Premier League Index - Opta Stats**
-4. [Why Gloucester are swapping Kingsholm for Villa Park](https://www.bbc.com/sport/rugby-union/articles/czd74ed0rjno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Why Gloucester are swapping Kingsholm for Villa Park](https://www.bbc.com/sport/rugby-union/articles/czd74ed0rjno) - **BBC News**
-6. [Liverpool's Salah replacement is a dribble monster: He will get fans out of their seats](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-francisco-conceicao-juventus-salah-replacement/) - **Anfieldwatch.co.uk**
-7. [Marcus Rashford: Aston Villa’s stance on reuniting with United ace revealed](https://thepeoplesperson.com/2026/03/27/marcus-rashford-aston-villas-stance-on-reuniting-with-united-ace-revealed-308162/) - **The Peoples Person**
-8. [Arteta rewarded with award nomination for Arsenal’s fine form](https://www.justarsenal.com/arteta-rewarded-with-award-nomination-for-arsenals-fine-form/412424) - **Just Arsenal News**
-9. [Chappell Roan: Should I hate her now?](https://www.thedailymash.co.uk/news/celebrity/chappell-roan-should-i-hate-her-now-20260327265179) - **Thedailymash.co.uk**
+1. [Bernardo Silva: I’m really happy I didn’t leave Manchester City before we won the treble](https://cityxtra.co.uk/43706/bernardo-silva-im-really-happy-i-didnt-leave-manchester-city-before-we-won-the-treble/) - **Cityxtra.co.uk**
+2. [For women's hockey fans, the league's first U.S. broadcast is a watershed moment](https://www.nbcnews.com/sports/hockey/womens-hockey-fans-leagues-first-us-broadcast-watershed-moment-rcna264790) - **NBC News**
+3. [International round-up: Thiago earns first Brazil cap, Damsgaard scores for Denmark](https://www.brentfordfc.com/en/news/article/international-round-up-igor-thiago-earns-first-brazil-cap-mikkel-damsgaard-scores-for-denmark-world-cup-play-offs) - **Brentfordfc.com**
+4. [Lille’s Nathan Ngoy attracting Premier League interest](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_83a9c817-42be-4726-88c2-03aa0bb9d1fa) - **Yahoo Entertainment**
+5. [Iran launches one-point ‘You’ll f**k off eventually’ plan for peace](https://www.thedailymash.co.uk/news/international/iran-launches-one-point-youll-fk-off-eventually-plan-for-peace-20260327265194) - **Thedailymash.co.uk**
+6. [What next for Craig Bellamy and his exciting brand of football?](https://www.skysports.com/football/news/11095/13524903/wales-reporter-notebook-world-cup-dreams-are-over-but-what-next-for-craig-bellamy-and-his-exciting-brand-of-football) - **Sky Sports**
+7. [How to watch E3 Saxo Bank Classic 2026: Live stream cycling online from anywhere for FREE](https://www.techradar.com/how-to-watch/cycling/e3-saxo-bank-classic-2026-live-stream) - **TechRadar**
+8. [West Ham and Crystal Palace interested in promising Lille midfielder](https://www.getfootballnewsfrance.com/2026/west-ham-and-crystal-palace-interested-in-promising-lille-midfielder/) - **Get French Football News**
+9. [‘For Ireland, football is suffering’, but that one really hurt](https://www.irishtimes.com/sport/2026/03/27/for-ireland-football-is-suffering-but-that-one-really-hurt/) - **The Irish Times**
+10. [Ishan Kishan’s 15,000 sq ft Patna bungalow is all about cricket dreams, private pool, gym and family-first living](https://timesofindia.indiatimes.com/real-estate/news/ishan-kishans-15000-sq-ft-patna-bungalow-is-all-about-cricket-dreams-private-pool-gym-and-family-first-living/photostory/129843463.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-03-28 18:40:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-28 19:35:56 (KST) / (하루 100회 제한 준수 중)*
