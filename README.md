@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Picking potential next clubs for Tottenham's troubled team as Premier League relegation threat looms](https://www.footballmuse.com/features/picking-potential-next-clubs-for-tottenhams-troubled-team-as-premier-league-relegation-threat-looms) - **Footballmuse.com**
-2. [Spurs fan groups urge club to scrap Roberto De Zerbi pursuit](https://footballtoday.com/2026/03/28/spurs-fan-groups-urge-club-to-scrap-roberto-de-zerbi-pursuit/) - **Footballtoday.com**
-3. [How do Man City replace captain Silva if he leaves?](https://www.bbc.com/sport/football/articles/c77mj3je86yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [How do Man City replace captain Silva if he leaves?](https://www.bbc.com/sport/football/articles/c77mj3je86yo) - **BBC News**
-5. [The Premier League’s two giant problems: bullying of youngsters and making huge losses](https://untold-arsenal.com/archives/120137) - **Untold-arsenal.com**
-6. [“Every footballer goes through moments” – Chelsea star reveals whether he regrets joining the club](https://chelsea.news/2026/03/mamadou-sarr-strasbourg-chelsea-transfer/) - **Chelsea.news**
-7. [‘He’d be the one…’: Ex-Red urges Man Utd to sign ‘powerful’ star to rival summer signing next season](https://strettynews.com/2026/03/28/nicky-butt-benjamin-sesko-victor-osimshen-manchester-united/) - **Strettynews.com**
-8. [NRL Round 4 2026: Knights Smash Bulldogs 24-16 as Panthers](https://www.ibtimes.com.au/nrl-round-4-2026-knights-smash-bulldogs-24-16-panthers-1864731) - **Ibtimes.com.au**
-9. [Everton vs Liverpool – Predicted lineup and team news](https://thefootballfaithful.com/everton-vs-liverpool-predicted-lineup-and-team-news-3/) - **The Football Faithful**
+1. [National media all in agreement as they react to Cole Palmer’s latest England performance](https://chelsea.news/2026/03/cole-palmer-england-uruguay-performance/) - **Chelsea.news**
+2. [Sources: Everton prepare €30m move for Real Madrid academy defender](https://madriduniversal.com/sources-everton-prepare-e30m-move-for-real-madrid-academy-defender/) - **Madriduniversal.com**
+3. [‘What a player he was’ – Jurgen Klopp swoons over ex-Liverpool star he could ‘sing a song about’](https://www.empireofthekop.com/2026/03/28/jurgen-klopp-swoons-over-ex-liverpool-star-he-could-sing-a-song-about/) - **Empire of The Kop**
+4. [Generational star confirms he's now ready to join Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/generational-star-confirms-hes-now-ready-to-join-liverpool/) - **Anfieldwatch.co.uk**
+5. [Tottenham plot ambitious summer move for versatile Real Madrid star – report](https://madriduniversal.com/tottenham-plot-ambitious-summer-move-for-versatile-real-madrid-star-report/) - **Madriduniversal.com**
+6. [My only aim is to win matches for the team I play for: Angkrish Raghuvanshi](https://economictimes.indiatimes.com/news/sports/my-only-aim-is-to-win-matches-for-the-team-i-play-for-angkrish-raghuvanshi/articleshow/129861558.cms) - **The Times of India**
+7. [Report: Tottenham one of three Premier League clubs weighing up move for “interesting” Chelsea star](https://chelsea.news/2026/03/tottenham-chelsea-josh-acheampong-interest/) - **Chelsea.news**
+8. [Messi or Ronaldo: Who Would Solidify as Soccer's GOAT After 2026 World Cup? Debate Intensifies](https://www.ibtimes.com.au/messi-ronaldo-who-would-solidify-soccers-goat-after-2026-world-cup-debate-intensifies-1864749) - **Ibtimes.com.au**
+9. [IPL 2026: Bangladesh govt. opens door for broadcast in the country](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_36c8a0c3-7ef5-403b-9d50-f0842c4d45cb) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-29 17:06:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-29 18:01:29 (KST) / (하루 100회 제한 준수 중)*
