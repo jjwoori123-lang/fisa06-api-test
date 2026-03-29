@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mail: Man Utd move in front of Arsenal, Madrid and City in race for ‘best midfielder in the country’](https://strettynews.com/2026/03/28/manchester-united-race-sandro-tonali-newcastle/) - **Strettynews.com**
-2. [Amid IPL hullabaloo, there's a constant piracy war that goes on](https://economictimes.indiatimes.com/news/sports/ipl-2026-illegal-streaming-india-piracy-networks-fight-to-stop-piracy-jiostar-fancode-delhi-high-court/articleshow/129859499.cms) - **The Times of India**
-3. [Amid IPL hullabaloo, there's a constant piracy war that goes on](https://economictimes.indiatimes.com/news/sports/ipl-2026-illegal-streaming-india-piracy-networks-fight-to-stop-piracy-jiostar-fancode-delhi-high-court/articleshow/129859880.cms) - **The Times of India**
-4. [IPL 2026 RCB vs SRH: Will rain play spoilsport in the opening match? Check weather forecast, pitch report and other key details](https://economictimes.indiatimes.com/news/sports/ipl-2026-rcb-vs-srh-will-rain-play-spoilsport-in-the-opening-match-check-weather-forecast-pitch-report-and-other-key-details/articleshow/129859788.cms) - **The Times of India**
-5. [How Diageo is set to make a frothy $1bn from a cricket team](https://www.irishtimes.com/business/2026/03/28/how-diageo-is-set-to-make-a-frothy-1bn-from-a-cricket-team/) - **The Irish Times**
-6. [Haway The Podcast | NEWS ROUNDUP | Le Bris, Mayenda, Xhaka, Ronaldinho, & Farage](https://rokerreport.sbnation.com/haway-the-podcast/132643/haway-the-podcast-news-roundup-le-bris-mayenda-xhaka-ronaldinho-farage) - **SB Nation**
-7. [On This Day ( 28th March 1998): Bury At The SoL – A Crucial Win On The Road To Wembley](https://rokerreport.sbnation.com/features/132395/on-this-day-28th-march-1998-bury-at-the-sol-a-crucial-win-on-the-road-to-wembley) - **SB Nation**
-8. [We’ve Got Le Fée – I Just Don’t Think You Understand](https://rokerreport.sbnation.com/opinion/132530/weve-got-le-fee-i-just-dont-think-you-understand) - **SB Nation**
-9. [MS Dhoni ruled out for first two weeks of IPL 2026 with injury, confirm CSK](https://indianexpress.com/article/sports/cricket/ms-dhoni-ruled-out-injury-2-weeks-csk-ipl-2026-10605864/) - **The Indian Express**
-10. [Bayern Munich News: The aftermath of Germany’s 4-3 win over Switzerland](https://www.bavarianfootballworks.com/transfer-rumors/181923/bayern-munich-news-the-aftermath-of-germanys-4-3-win-over-switzerland) - **Bavarian Football Works**
+1. [‘He’d be the one…’: Ex-Red urges Man Utd to sign ‘powerful’ star to rival summer signing next season](https://strettynews.com/2026/03/28/nicky-butt-benjamin-sesko-victor-osimshen-manchester-united/) - **Strettynews.com**
+2. [NRL Round 4 2026: Knights Smash Bulldogs 24-16 as Panthers](https://www.ibtimes.com.au/nrl-round-4-2026-knights-smash-bulldogs-24-16-panthers-1864731) - **Ibtimes.com.au**
+3. [Everton vs Liverpool – Predicted lineup and team news](https://thefootballfaithful.com/everton-vs-liverpool-predicted-lineup-and-team-news-3/) - **The Football Faithful**
+4. [Liverpool now one step closer to nightmare Alexander Isak scenario](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-now-one-step-closer-to-nightmare-alexander-isak-scenario/) - **Anfieldwatch.co.uk**
+5. [“My hot take is” – Journalist tells Chelsea to sign Premier League ace to solve problem position](https://chelsea.news/2026/03/chelsea-everton-jordan-pickford-transfer/) - **Chelsea.news**
+6. [Is Omar Marmoush ready to step up to the next level for Manchester City?](https://esteemedkompany.com/2026/03/28/is-omar-marmoush-ready-to-step-up-to-the-next-level-for-manchester-city/) - **Esteemedkompany.com**
+7. [Crystal Palace eye move for Ngal’ayel Mukau](https://sportsview.co.uk/2026/03/crystal-palace-eye-move-for-ngalayel-mukau?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=crystal-palace-eye-move-for-ngalayel-mukau) - **Sportsview.co.uk**
+8. [Phil Foden substituted with injury after horror tackle in England draw with Uruguay](https://cityxtra.co.uk/43745/phil-foden-substituted-with-injury-after-horror-tackle-in-england-draw-with-uruguay/) - **Cityxtra.co.uk**
+9. [IPL 2026 opener sparks 300 runs buzz as Ravichandran Ashwin backs record-breaking season](https://economictimes.indiatimes.com/news/sports/ipl-2026-opener-sparks-300-runs-buzz-as-ravichandran-ashwin-backs-record-breaking-season/articleshow/129860352.cms) - **The Times of India**
+10. [Tottenham forward Dominic Solanke fails England audition](https://sportsview.co.uk/2026/03/tottenham-forward-dominic-solanke-fails-england-audition?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-forward-dominic-solanke-fails-england-audition) - **Sportsview.co.uk**
 
 
 ---
-*최근 업데이트: 2026-03-29 15:37:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-29 16:37:57 (KST) / (하루 100회 제한 준수 중)*
