@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tonali urged to reject Arsenal and stay at Newcastle United](https://www.justarsenal.com/tonali-urged-to-reject-arsenal-and-stay-at-newcastle-united/412493) - **Just Arsenal News**
-2. [Bernardo Silva comments fuel transfer speculation amid Juventus interest](https://football-italia.net/latest-bernardo-silva-juventus-speculation/) - **Football Italia**
-3. [Tottenham Hotspur XI vs Arsenal – Predicted lineup and team news](https://thefootballfaithful.com/tottenham-hotspur-xi-vs-arsenal-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-4. [Kevin De Bruyne expects 'aggresive' USMNT under Mauricio Pochettino to be stiff test for Belgium in friendly](https://www.cbssports.com/soccer/news/kevin-de-bruyne-usmnt-mauricio-pochettino-belgium/) - **CBS Sports**
-5. [Argentine media deliver verdict on Enzo Fernandez after he scored in latest win](https://chelsea.news/2026/03/enzo-fernandez-argentina-performance-praise/) - **Chelsea.news**
-6. [Kane the lock, Trent’s redemption, and Toney’s rise: the England squad we’d take to the 2026 World Cup](https://www.footballmuse.com/features/kane-the-lock-trents-redemption-and-toneys-rise-the-england-squad-wed-take-to-the-2026-world-cup) - **Footballmuse.com**
-7. [How to watch IPL 2026: Cricket live streams, TV channels, start times, full fixture schedule for Indian Premier League](https://www.sportingnews.com/us/cricket/news/watch-ipl-2026-cricket-live-streams-tv-channels-start-times-schedule/6f1174385115e855dc2c3978) - **Sporting News**
-8. [How to watch Virat Kohli at IPL 2026](https://www.techradar.com/how-to-watch/cricket/how-to-watch-virat-kohli-at-ipl-2026) - **TechRadar**
-9. [Romano: Juventus bringing Sandro Tonali back to Italy looks incredibly unlikely](https://www.blackwhitereadallover.com/juventus-transfer-rumours-news/37437/sandro-tonali-juventus-italy-newcastle-united-2026-serie-a-premier-league-summer-transfer-rumors) - **Black & White & Read All Over**
-10. [How to watch IPL 2026: live streams, fixture list for Indian Premier League cricket season](https://www.techradar.com/how-to-watch/cricket/ipl-2026-live-streams) - **TechRadar**
+1. [Why is Tyler Adams not playing for USMNT vs. Belgium?](https://www.usatoday.com/story/sports/soccer/usmnt/2026/03/28/tyler-adams-not-playing-usmnt-vs-belgium/89291461007/) - **USA Today**
+2. [How to watch RCB vs Sunrisers Hyderabad: live stream the 2026 IPL opener from anywhere](https://www.techradar.com/how-to-watch/cricket/rcb-vs-sunrisers-hyderabad-live-stream-2026-ipl-opener) - **TechRadar**
+3. [Real Madrid handed boost as €100m-rated midfield target wants to leave Premier League club](https://madriduniversal.com/real-madrid-handed-boost-as-e100m-rated-midfield-target-wants-to-leave-premier-league-club/) - **Madriduniversal.com**
+4. [Journalist: Liverpool eyeing move to sign midfielder ‘similar to Rodri’](https://anfieldindex.com/92656/journalist-liverpool-could-be-set-to-sign-midfielder-similar-to-rodri.html) - **Anfieldindex.com**
+5. [Report: Liverpool considering €80m bid for Nottingham Forest star](https://eplindex.com/144599/report-liverpool-considering-e80m-bid-for-nottingham-forest-star.html) - **English Premier League Index - Opta Stats**
+6. [Report: Liverpool have ‘discussed’ potential summer swoop for ‘mega talent’ valued at £52m](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fd8f728c-a959-47d4-9f70-0bad5f130fb6) - **Yahoo Entertainment**
+7. [Potential Liverpool head coach candidate jets in as pressure mounts on Arne Slot](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-arne-slot-successor-albert-riera-jets-in/) - **Anfieldwatch.co.uk**
+8. [IPL 2026 Live: RCB begin title defence at home against powerhouse SRH](https://timesofindia.indiatimes.com/sports/cricket/news/rcb-vs-srh-today-ipl-2026-match-live-score-royal-challengers-bengaluru-vs-sunrisers-hyderabad-scorecard-playing-11-virat-kohli-abhishek-sharma-chinnaswamy-stadium-bengaluru/liveblog/129863189.cms) - **The Times of India**
+9. [Tonali urged to reject Arsenal and stay at Newcastle United](https://www.justarsenal.com/tonali-urged-to-reject-arsenal-and-stay-at-newcastle-united/412493) - **Just Arsenal News**
+10. [Bernardo Silva comments fuel transfer speculation amid Juventus interest](https://football-italia.net/latest-bernardo-silva-juventus-speculation/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-03-29 19:38:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-29 20:04:27 (KST) / (하루 100회 제한 준수 중)*
