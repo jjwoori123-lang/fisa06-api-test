@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [IPL 2026 Gujarat Titans: From Shubhman Gill to Sai Sudharsan, here are top players to watch out](https://economictimes.indiatimes.com/news/sports/ipl-2026-gujarat-titans-from-shubhman-gill-to-sai-sudharsan-here-are-top-players-to-watch-out/articleshow/129856991.cms) - **The Times of India**
-2. [Chris Richards, Miles Robinson Out For USMNT vs. Belgium](https://www.ussoccer.com/stories/on-the-pitch/2026/03/usmnt/injury-center-back-chris-richards-miles-robinson-out-vs-belgium-mauricio-pochettino) - **U.S. Soccer**
-3. [Papers: Man Utd target Wharton expecting summer Palace exit](https://www.skysports.com/football/news/12040/13525343/x-paper-talk-and-football-transfer-gossip) - **Sky Sports**
-4. [IPL Cricket 2026 Livestream: How to Watch the Indian Premier League From Anywhere](https://www.cnet.com/tech/services-and-software/ipl-cricket-2026-livestream-how-to-watch-the-indian-premier-league-from-anywhere/) - **CNET**
-5. [Wharton eyes Crystal Palace exit - Saturday's gossip](https://www.bbc.com/sport/football/articles/c9qdj9pw733o) - **BBC News**
-6. [Morocco draw first game under new coach, Algeria, Egypt post big wins](https://www.channelnewsasia.com/sport/morocco-draw-first-game-under-new-coach-algeria-egypt-post-big-wins-6022506) - **CNA**
-7. [“I’ve been at the top level since January” – Rodri on Manchester City form after come-and-get-me Real Madrid call](https://cityxtra.co.uk/43724/ive-been-at-the-top-level-since-january-rodri-on-manchester-city-form-after-come-and-get-me-real-madrid-call/) - **Cityxtra.co.uk**
-8. ['We're in the present': Canada set to take on Iceland in World Cup tune-up](https://www.cbc.ca/sports/soccer/canada-mens-national-team-take-on-iceland-friendly-9.7145262) - **CBC News**
-9. [Manchester United Are Among The Clubs Hoping To Land This Barcelona Ace: Good Fit For Carrick?](https://the4thofficial.net/2026/03/manchester-united-are-among-the-clubs-hoping-to-land-this-barcelona-ace-good-fit-for-carrick/) - **The4thofficial.net**
-10. [Fast bowler under fire for criticizing politician's presence at start of closed-doors cricket game](https://sports.yahoo.com/articles/fast-bowler-under-fire-criticizing-220202483.html) - **Yahoo Entertainment**
+1. [Antonee Robinson hoping to put rocky injury rehab behind him for USMNT](https://nypost.com/2026/03/27/sports/usmnts-antonee-robinson-hoping-to-put-rocky-injury-rehab/) - **New York Post**
+2. [Bruno Fernandes wins March award after standout United month](https://thepeoplesperson.com/2026/03/28/bruno-fernandes-wins-march-award-after-standout-united-month-308189/) - **The Peoples Person**
+3. [Adam Wharton has made a decision on his future](https://thepeoplesperson.com/2026/03/28/adam-wharton-has-made-a-decision-on-his-future-308197/) - **The Peoples Person**
+4. [England vs Uruguay: Tuchel explains why ‘outstanding’ Foden started, praises Solanke for ‘working like a dog’](https://www.101greatgoals.com/football/internationals/england-vs-uruguay-foden-solanke-calvert-lewin/) - **101 Great Goals**
+5. [Tough choices Liberty face as expansion draft looms — and why Breanna Stewart could be left unprotected](https://nypost.com/2026/03/27/sports/tough-choices-liberty-face-as-expansion-draft-looms/) - **New York Post**
+6. [War queers pitch for gig players this IPL season](https://economictimes.indiatimes.com/news/company/corporate-trends/war-queers-pitch-for-gig-players-this-ipl-season/articleshow/129853956.cms) - **The Times of India**
+7. [“Usually, I would say…” Bryan Robson discusses Dowman’s World Cup call](https://www.justarsenal.com/usually-i-would-say-bryan-robson-discusses-dowmans-world-cup-call/412484) - **Just Arsenal News**
+8. [If these were the Tuchel trials, Foden - among others - failed](https://www.bbc.com/sport/football/articles/c4gj9qq8d5ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [IPL 2026 Gujarat Titans: From Shubhman Gill to Sai Sudharsan, here are top players to watch out](https://economictimes.indiatimes.com/news/sports/ipl-2026-gujarat-titans-from-shubhman-gill-to-sai-sudharsan-here-are-top-players-to-watch-out/articleshow/129856991.cms) - **The Times of India**
+10. [Chris Richards, Miles Robinson Out For USMNT vs. Belgium](https://www.ussoccer.com/stories/on-the-pitch/2026/03/usmnt/injury-center-back-chris-richards-miles-robinson-out-vs-belgium-mauricio-pochettino) - **U.S. Soccer**
 
 
 ---
-*최근 업데이트: 2026-03-29 08:49:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-29 11:45:59 (KST) / (하루 100회 제한 준수 중)*
