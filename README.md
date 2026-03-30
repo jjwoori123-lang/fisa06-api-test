@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: £70m-rated defender on Liverpool’s radar ahead of summer window](https://eplindex.com/144631/report-70m-rated-defender-on-liverpools-radar-ahead-of-summer-window.html) - **English Premier League Index - Opta Stats**
-2. [Football Daily](https://www.bbc.co.uk/sounds/play/p0n9grxj) - **BBC News**
-3. [Real Madrid among top clubs interested in £150 million-rated Premier League superstar](https://madriduniversal.com/real-madrid-among-top-clubs-interested-in-150-million-rated-premier-league-superstar/) - **Madriduniversal.com**
-4. [Igor Tudor out at Tottenham Hotspur - Who’s next for struggling Spurs?](https://www.nbcsports.com/soccer/news/igor-tudor-out-at-tottenham-hotspur-whos-next-for-struggling-spurs) - **NBCSports.com**
-5. [Arsenal: Zubimendi becomes 10th Gunners player to withdraw from international duty](https://www.101greatgoals.com/football/premier-league/arsenal-zubimendi-withdraw-spain-squad/) - **101 Great Goals**
-6. [Zidan: it ‘might be time’ for Salah to leave Liverpool](https://www.empireofthekop.com/2026/03/29/zidan-it-might-be-time-for-salah-to-leave-liverpool/) - **Empire of The Kop**
-7. [Igor Tudor leaves Tottenham by mutual consent as relegation crisis peaks](https://footballtoday.com/2026/03/29/igor-tudor-leaves-tottenham-by-mutual-consent-as-relegation-crisis-peaks/) - **Footballtoday.com**
-8. [ Kalulu to the Premier League, Inter eye Serie B, Lazio-Milik? ](https://onefootball.com/en/news/kalulu-to-the-premier-league-inter-eye-serie-b-lazio-milik-42632559) - **Onefootball.com**
-9. [Three sporting events to watch this week: Your handy guide to sport on television](https://www.irishtimes.com/sport/2026/03/29/three-sporting-events-to-watch-this-week-your-handy-guide-to-sport-on-television/) - **The Irish Times**
-10. [Report: Liverpool have joined the race to sign Premier League defender](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c777262d-c902-48af-8ef8-b495d2084701) - **Yahoo Entertainment**
+1. [Big Six Clubs Leave Newcastle In the Dust for AZ Alkmaar Target: Report](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/21211/big-six-clubs-leave-newcastle-in-the-dust-for-az-alkmaar-target-report) - **SB Nation**
+2. [Report: Liverpool ready to pay £70m to sign Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d9e2af4d-c782-4314-b6bf-54be9979d225) - **Yahoo Entertainment**
+3. [Report: Arsenal favourites to sign German striker worth £26m](https://eplindex.com/144635/report-arsenal-favourites-to-sign-german-striker-worth-26m.html) - **English Premier League Index - Opta Stats**
+4. ['There is no time left to waste - the next move has to be perfect'](https://www.bbc.com/sport/football/articles/cy01xnyk213o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Spurs have addressed their Tudor error - but they can't afford another](https://www.bbc.com/sport/football/articles/c0le1l7dkdzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [One final roll of the dice: Why did Spurs have to act now?](https://www.skysports.com/football/news/11095/13525889/igor-tudors-departure-was-inevitable-as-spurs-roll-the-dice-one-final-time-in-search-of-premier-league-safety) - **Sky Sports**
+7. [Barcelona make call on Xavi Simons return](https://getfootballnewsspain.com/barcelona-make-call-on-xavi-simons-return/) - **Getfootballnewsspain.com**
+8. [Spurs have addressed their Tudor error - but they can't afford another](https://www.bbc.com/sport/football/articles/c0le1l7dkdzo) - **BBC News**
+9. [Ferran Torres’ future in doubt as Barcelona star reportedly draws interest from two big Premier League sides](https://worldsoccertalk.com/news/ferran-torres-future-in-doubt-as-barcelona-star-reportedly-draws-interest-from-two-big-premier-league-sides/) - **Worldsoccertalk.com**
+10. [Tottenham sack Igor Tudor: Spurs set for third coach of season amid Premier League relegation worries](https://www.cbssports.com/soccer/news/tottenham-sack-igor-tudor-spurs-premier-league-relegation-worries/) - **CBS Sports**
 
 
 ---
-*최근 업데이트: 2026-03-31 01:59:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-31 03:01:01 (KST) / (하루 100회 제한 준수 중)*
