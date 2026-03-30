@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [“The way he’s been playing” – Wayne Rooney claims Chelsea target has been better than Cole Palmer](https://chelsea.news/2026/03/wayne-rooney-cole-palmer-morgan-rogers-england/) - **Chelsea.news**
-2. [Journalist rules out Liverpool swap deal for Bundesliga forward](https://anfieldindex.com/92680/journalist-rules-out-liverpool-swap-deal-for-bundesliga-forward.html) - **Anfieldindex.com**
-3. [Anthony Ralston reaches 25 caps for Scotland – That deserves respect](https://thecelticstar.com/anthony-ralston-reaches-25-caps-for-scotland-that-deserves-respect/) - **The Celtic Star**
-4. [Man United have “strong interest” in €45 million “warrior” with historic feat](https://strettynews.com/2026/03/29/man-united-want-evan-ndicka/) - **Strettynews.com**
-5. [Report: Chelsea set to battle Liverpool for 6ft 4in star valued at £8m](https://chelsea.news/2026/03/chelsea-oh-leuven-roggerio-nyakossi/) - **Chelsea.news**
-6. [Scotland 0-1 Japan – Daizen has last laugh on his Hampden boo-boys](https://thecelticstar.com/scotland-0-1-japan-daizen-has-last-laugh-on-his-hampden-boo-boys/) - **The Celtic Star**
-7. [Man United leading race for 21-year-old forward, ready to offer £52m in summer](https://strettynews.com/2026/03/29/man-united-andreas-schjelderup-transfer/) - **Strettynews.com**
-8. [Which footballers have the most goals and assists combined in the Premier League era?](https://www.footballmuse.com/features/which-footballers-have-the-most-goals-and-assists-combined-in-the-premier-league-era) - **Footballmuse.com**
-9. [“I’d blow my entire year’s salary” – How Manchester City’s Rodri has stayed humble despite Ballon d’Or glory](https://cityxtra.co.uk/43728/id-blow-my-entire-years-salary-how-manchester-citys-rodri-has-stayed-humble-despite-ballon-dor-glory/) - **Cityxtra.co.uk**
-10. [Report: Man United expected to move for Premier League star despite manager uncertainty](https://eplindex.com/144619/insider-suggests-manchester-united-move-for-newcastle-star-linked-to-manager-appointment.html) - **English Premier League Index - Opta Stats**
+1. [A key decision by the Manchester City captain may have exposed City’s summer transfer plans](https://esteemedkompany.com/2026/03/29/a-key-decision-by-the-manchester-city-captain-may-have-exposed-citys-summer-transfer-plans/) - **Esteemedkompany.com**
+2. [Richard Hughes can't miss out on deal for £80m Firmino 2.0](https://www.anfieldwatch.co.uk/liverpool-fc/news/richard-hughes-cant-miss-out-on-deal-for-ps80m-firmino-20/) - **Anfieldwatch.co.uk**
+3. [IPL live stream 2026: how to watch Kolkata Knight Riders vs Mumbai Indians in Indian Premier League online from anywhere](https://www.techradar.com/how-to-watch/cricket/kolkata-knight-riders-vs-mumbai-indians-ipl-2026) - **TechRadar**
+4. [Newcastle United frontrunners to sign Manchester City’s James Trafford this summer](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6be0fdf4-a152-47d9-924c-f3fd2ee4ebc7) - **Yahoo Entertainment**
+5. [Barcelona will challenge Arsenal for Premier League defender](https://www.justarsenal.com/barcelona-will-challenge-arsenal-for-premier-league-defender/412555) - **Just Arsenal News**
+6. [“That amount of money,” – Alan Shearer blasts Chelsea over “baffling” transfer decision](https://chelsea.news/2026/03/alan-shearer-chelsea-transfer-criticism/) - **Chelsea.news**
+7. [Nagelsmann defends Wirtz against harsh Liverpool criticism](https://thefootballfaithful.com/nagelsmann-defends-wirtz-against-harsh-liverpool-criticism/) - **The Football Faithful**
+8. [Manchester City plan revamp, set to spend millions this window ](https://onefootball.com/en/news/manchester-city-plan-revamp-set-to-spend-millions-this-window-42631368) - **Onefootball.com**
+9. [“The way he’s been playing” – Wayne Rooney claims Chelsea target has been better than Cole Palmer](https://chelsea.news/2026/03/wayne-rooney-cole-palmer-morgan-rogers-england/) - **Chelsea.news**
+10. [Journalist rules out Liverpool swap deal for Bundesliga forward](https://anfieldindex.com/92680/journalist-rules-out-liverpool-swap-deal-for-bundesliga-forward.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-03-30 19:19:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-30 20:30:39 (KST) / (하루 100회 제한 준수 중)*
