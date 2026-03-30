@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool want £70m Brazil star to replace Van Dijk](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-murillo-nottingham-forest-brazil-star-to-replace-van-dijk/) - **Anfieldwatch.co.uk**
-2. [John Stones recalled to Manchester City by Pep Guardiola after England calf injury](https://cityxtra.co.uk/43771/john-stones-recalled-to-manchester-city-by-pep-guardiola-after-england-calf-injury/) - **Cityxtra.co.uk**
-3. ['Mohamed Salah gave us hope in divisive times'](https://www.bbc.com/news/articles/cd9vqpknvp0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Leipzig's Diomande a top-three candidate to replace Mo Salah at Liverpool](https://bulinews.com/leipzig-diomande-top-three-candidate-replace-salah-liverpool) - **Bulinews.com**
-5. [Eight players leave England camp ahead of Japan clash](https://thefootballfaithful.com/eight-players-leave-england-camp-ahead-of-japan-clash/) - **The Football Faithful**
-6. [IPL 2026 KKR vs MI: Check probable playing 11, squads, pitch, weather and live streaming](https://economictimes.indiatimes.com/news/sports/kkr-vs-mi-match-2-date-time-live-streaming-predicated-playing-11-head-to-head-weather-pitch-report/articleshow/129876474.cms) - **The Times of India**
-7. [Where Might Sunderland Look To Strengthen In The Summer?](https://rokerreport.sbnation.com/opinion/132701/where-might-sunderland-look-to-strengthen-in-the-summer) - **SB Nation**
-8. [One Week On… And I’m Still Buzzing!](https://rokerreport.sbnation.com/opinion/132660/one-week-on-and-im-still-buzzing) - **SB Nation**
-9. [Liverpool legend agrees it’s natural there’s pressure on Arne Slot](https://anfieldindex.com/92676/liverpool-legend-agrees-its-natural-theres-pressure-on-arne-slot.html) - **Anfieldindex.com**
-10. [Can you ever stop supporting your football team?](https://www.bbc.com/sport/football/articles/cgrlw1y802lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Report: Man United expected to move for Premier League star despite manager uncertainty](https://eplindex.com/144619/insider-suggests-manchester-united-move-for-newcastle-star-linked-to-manager-appointment.html) - **English Premier League Index - Opta Stats**
+2. [‘You’ll always be the boss’ – Roy Keane shares tribute to late mother Marie](https://www.independent.ie/irish-news/youll-always-be-the-boss-roy-keane-shares-tribute-to-late-mother-marie/a2078230774.html) - **Independent.ie**
+3. [There is now a £116m reason why Arne Slot must leave Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/there-is-now-a-ps116m-reason-why-arne-slot-must-leave-liverpool/) - **Anfieldwatch.co.uk**
+4. [Julian Alvarez’s clause makes Arsenal move almost impossible](https://www.justarsenal.com/julian-alvarezs-clause-makes-arsenal-move-almost-impossible/412553) - **Just Arsenal News**
+5. [Would Fisnik Asllani be a good signing for Barcelona?](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/114409/would-fisnik-asllani-be-a-good-signing-for-barcelona) - **Barca Blaugranes**
+6. [IPL 2026: Virat Kohli's aggressive powerplay approach from 31% to 66% shot percentage](https://economictimes.indiatimes.com/news/sports/ipl-2026-virat-kohlis-aggressive-powerplay-approach-from-31-to-66-shot-percentage/articleshow/129877433.cms) - **The Times of India**
+7. [The Premier League Team of the Season, according to Opta](https://thefootballfaithful.com/the-premier-league-team-of-the-season-according-to-opta/) - **The Football Faithful**
+8. [The Premier League players with 10+ goal contributions in each of the last six seasons](https://thefootballfaithful.com/the-premier-league-players-with-10-goal-contributions-in-each-of-the-last-six-seasons/) - **The Football Faithful**
+9. [Liverpool to make move for £60m defender as 'growing suspicion' shared](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-to-make-move-for-ps60m-defender-as-growing-suspicion-shared/) - **Anfieldwatch.co.uk**
+10. [Football in chaos: so no change there](https://untold-arsenal.com/archives/120180) - **Untold-arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-03-30 16:09:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-30 17:51:30 (KST) / (하루 100회 제한 준수 중)*
