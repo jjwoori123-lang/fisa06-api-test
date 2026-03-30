@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Martin Zubimendi sidelined for Spain vs Egypt, adds to Arsenal injury woes](https://footballtoday.com/2026/03/29/martin-zubimendi-sidelined-for-spain-vs-egypt-adds-to-arsenal-injury-woes/) - **Footballtoday.com**
-2. [Martin Skrtel delivers classy message on Mo Salah leaving](https://www.empireofthekop.com/2026/03/29/martin-skrtel-delivers-classy-message-on-mo-salah-leaving/) - **Empire of The Kop**
-3. [Biscan delivers huge claim after Liverpool Legends clash](https://www.empireofthekop.com/2026/03/29/biscan-delivers-huge-claim-after-liverpool-legends-clash/) - **Empire of The Kop**
-4. [Tudor leaves after just seven games as Spurs battle for survival](https://sports.yahoo.com/articles/tudor-leaves-just-seven-games-153421375.html) - **Yahoo Entertainment**
-5. [Rashford reports of Milan and PSG interest intensifying](https://football-italia.net/rashford-reports-milan-psg-interest-intensify/) - **Football Italia**
-6. [Are Arsenal facing an injury crisis? International break withdrawals reaches 10 ahead of home stretch](https://www.cbssports.com/soccer/news/arsenal-injury-crisis-international-break-gunners-premier-league-mikel-arteta-ucl/) - **CBS Sports**
-7. ['Tudor sacking felt inevitable' | Where do Spurs go from here?](https://www.skysports.com/football/video/16466/13525864/premier-league-igor-tudor-sacked-by-tottenham-after-only-seven-games) - **Sky Sports**
-8. [Igor Tudor leaves role as Tottenham head coach after seven games](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260329-99-980843/) - **Dpa-international.com**
-9. [This is Liverpool's chance to finally replace Cody Gakpo with dream winger](https://www.anfieldwatch.co.uk/liverpool-fc/news/this-is-liverpools-chance-to-finally-replace-cody-gakpo-with-dream-winger/) - **Anfieldwatch.co.uk**
+1. [Report: £70m-rated defender on Liverpool’s radar ahead of summer window](https://eplindex.com/144631/report-70m-rated-defender-on-liverpools-radar-ahead-of-summer-window.html) - **English Premier League Index - Opta Stats**
+2. [Football Daily](https://www.bbc.co.uk/sounds/play/p0n9grxj) - **BBC News**
+3. [Real Madrid among top clubs interested in £150 million-rated Premier League superstar](https://madriduniversal.com/real-madrid-among-top-clubs-interested-in-150-million-rated-premier-league-superstar/) - **Madriduniversal.com**
+4. [Igor Tudor out at Tottenham Hotspur - Who’s next for struggling Spurs?](https://www.nbcsports.com/soccer/news/igor-tudor-out-at-tottenham-hotspur-whos-next-for-struggling-spurs) - **NBCSports.com**
+5. [Arsenal: Zubimendi becomes 10th Gunners player to withdraw from international duty](https://www.101greatgoals.com/football/premier-league/arsenal-zubimendi-withdraw-spain-squad/) - **101 Great Goals**
+6. [Zidan: it ‘might be time’ for Salah to leave Liverpool](https://www.empireofthekop.com/2026/03/29/zidan-it-might-be-time-for-salah-to-leave-liverpool/) - **Empire of The Kop**
+7. [Igor Tudor leaves Tottenham by mutual consent as relegation crisis peaks](https://footballtoday.com/2026/03/29/igor-tudor-leaves-tottenham-by-mutual-consent-as-relegation-crisis-peaks/) - **Footballtoday.com**
+8. [ Kalulu to the Premier League, Inter eye Serie B, Lazio-Milik? ](https://onefootball.com/en/news/kalulu-to-the-premier-league-inter-eye-serie-b-lazio-milik-42632559) - **Onefootball.com**
+9. [Three sporting events to watch this week: Your handy guide to sport on television](https://www.irishtimes.com/sport/2026/03/29/three-sporting-events-to-watch-this-week-your-handy-guide-to-sport-on-television/) - **The Irish Times**
+10. [Report: Liverpool have joined the race to sign Premier League defender](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c777262d-c902-48af-8ef8-b495d2084701) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-03-31 00:45:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-31 01:59:54 (KST) / (하루 100회 제한 준수 중)*
