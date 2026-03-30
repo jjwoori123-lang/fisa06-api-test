@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Kohli's one-format focus fuels strong IPL start](https://www.channelnewsasia.com/sport/kohlis-one-format-focus-fuels-strong-ipl-start-6023941) - **CNA**
-2. [Anushka Sharma’s hilarious reaction to Virat Kohli dropping catch during IPL 2026 opener draws attention; couple exchange flying kisses after RCB’s win](https://indianexpress.com/article/entertainment/bollywood/anushka-sharmas-hilarious-reaction-to-virat-kohli-dropping-catch-during-ipl-2026-opener-draws-attention-10607178/) - **The Indian Express**
-3. [Bayern Munich News: Bryan Zaragoza likely to return; Tottenham eyeing Fisnik Asllani; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/182169/bayern-munich-zaragoza-tottenham-asllani-fc-barcelona-liverpool-chelsea-as-roma-real-madrid) - **Bavarian Football Works**
-4. ['Excited' Jos Buttler rejuvenated for IPL after horror T20 World Cup](https://economictimes.indiatimes.com/news/sports/excited-jos-buttler-rejuvenated-for-ipl-after-horror-t20-world-cup/articleshow/129875199.cms) - **The Times of India**
-5. [Duke vs. UConn NCAA Tournament Elite Eight predictions: Odds, recent stats, trends and best bets](https://www.nbcsports.com/mens-college-basketball/news/duke-vs-uconn-ncaa-tournament-elite-eight-predictions-odds-recent-stats-trends-and-best-bets) - **NBCSports.com**
-6. [Papers: Palmer disillusioned at Chelsea amid Man Utd interest](https://www.skysports.com/football/transfer-paper-talk/12709/13525668/cole-palmer-disillusioned-at-chelsea-amid-manchester-united-interest-paper-talk-and-football-transfer-gossip) - **Sky Sports**
-7. [Could Newcastle Lost Two Of Its Best Players In The Summer?](https://www.forbes.com/sites/grahamruthven/2026/03/28/could-newcastle-lost-two-of-its-best-players-in-the-summer/) - **Forbes**
-8. [Arsenal face big competition for Nottingham Forest man](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_424f0ac2-e422-448f-882c-ac492b53e27c) - **Yahoo Entertainment**
-9. [Arsenal face big competition for Nottingham Forest man](https://www.justarsenal.com/arsenal-face-big-competition-for-nottingham-forest-man/412538) - **Just Arsenal News**
-10. [Why Tielemans Joined Belgium Duty Despite Aston Villa Injury Concerns: Does It Show The Culture Of Emery?](https://the4thofficial.net/2026/03/why-tielemans-joined-belgium-duty-despite-aston-villa-injury-concerns-does-it-show-the-culture-of-emery/) - **The4thofficial.net**
+1. [Liverpool want £70m Brazil star to replace Van Dijk](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-murillo-nottingham-forest-brazil-star-to-replace-van-dijk/) - **Anfieldwatch.co.uk**
+2. [John Stones recalled to Manchester City by Pep Guardiola after England calf injury](https://cityxtra.co.uk/43771/john-stones-recalled-to-manchester-city-by-pep-guardiola-after-england-calf-injury/) - **Cityxtra.co.uk**
+3. ['Mohamed Salah gave us hope in divisive times'](https://www.bbc.com/news/articles/cd9vqpknvp0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Leipzig's Diomande a top-three candidate to replace Mo Salah at Liverpool](https://bulinews.com/leipzig-diomande-top-three-candidate-replace-salah-liverpool) - **Bulinews.com**
+5. [Eight players leave England camp ahead of Japan clash](https://thefootballfaithful.com/eight-players-leave-england-camp-ahead-of-japan-clash/) - **The Football Faithful**
+6. [IPL 2026 KKR vs MI: Check probable playing 11, squads, pitch, weather and live streaming](https://economictimes.indiatimes.com/news/sports/kkr-vs-mi-match-2-date-time-live-streaming-predicated-playing-11-head-to-head-weather-pitch-report/articleshow/129876474.cms) - **The Times of India**
+7. [Where Might Sunderland Look To Strengthen In The Summer?](https://rokerreport.sbnation.com/opinion/132701/where-might-sunderland-look-to-strengthen-in-the-summer) - **SB Nation**
+8. [One Week On… And I’m Still Buzzing!](https://rokerreport.sbnation.com/opinion/132660/one-week-on-and-im-still-buzzing) - **SB Nation**
+9. [Liverpool legend agrees it’s natural there’s pressure on Arne Slot](https://anfieldindex.com/92676/liverpool-legend-agrees-its-natural-theres-pressure-on-arne-slot.html) - **Anfieldindex.com**
+10. [Can you ever stop supporting your football team?](https://www.bbc.com/sport/football/articles/cgrlw1y802lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-03-30 14:28:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-30 16:09:55 (KST) / (하루 100회 제한 준수 중)*
