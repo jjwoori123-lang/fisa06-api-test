@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [A key decision by the Manchester City captain may have exposed City’s summer transfer plans](https://esteemedkompany.com/2026/03/29/a-key-decision-by-the-manchester-city-captain-may-have-exposed-citys-summer-transfer-plans/) - **Esteemedkompany.com**
-2. [Richard Hughes can't miss out on deal for £80m Firmino 2.0](https://www.anfieldwatch.co.uk/liverpool-fc/news/richard-hughes-cant-miss-out-on-deal-for-ps80m-firmino-20/) - **Anfieldwatch.co.uk**
-3. [IPL live stream 2026: how to watch Kolkata Knight Riders vs Mumbai Indians in Indian Premier League online from anywhere](https://www.techradar.com/how-to-watch/cricket/kolkata-knight-riders-vs-mumbai-indians-ipl-2026) - **TechRadar**
-4. [Newcastle United frontrunners to sign Manchester City’s James Trafford this summer](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6be0fdf4-a152-47d9-924c-f3fd2ee4ebc7) - **Yahoo Entertainment**
-5. [Barcelona will challenge Arsenal for Premier League defender](https://www.justarsenal.com/barcelona-will-challenge-arsenal-for-premier-league-defender/412555) - **Just Arsenal News**
-6. [“That amount of money,” – Alan Shearer blasts Chelsea over “baffling” transfer decision](https://chelsea.news/2026/03/alan-shearer-chelsea-transfer-criticism/) - **Chelsea.news**
-7. [Nagelsmann defends Wirtz against harsh Liverpool criticism](https://thefootballfaithful.com/nagelsmann-defends-wirtz-against-harsh-liverpool-criticism/) - **The Football Faithful**
-8. [Manchester City plan revamp, set to spend millions this window ](https://onefootball.com/en/news/manchester-city-plan-revamp-set-to-spend-millions-this-window-42631368) - **Onefootball.com**
-9. [“The way he’s been playing” – Wayne Rooney claims Chelsea target has been better than Cole Palmer](https://chelsea.news/2026/03/wayne-rooney-cole-palmer-morgan-rogers-england/) - **Chelsea.news**
-10. [Journalist rules out Liverpool swap deal for Bundesliga forward](https://anfieldindex.com/92680/journalist-rules-out-liverpool-swap-deal-for-bundesliga-forward.html) - **Anfieldindex.com**
+1. [How Manchester City grew a die-hard fanbase in Uganda](https://esteemedkompany.com/2026/03/29/how-manchester-city-grew-a-die-hard-fanbase-in-uganda/) - **Esteemedkompany.com**
+2. [McTominay focus is only on Napoli, reassures expert Romano](https://football-italia.net/mctominay-focus-is-only-on-napoli-reassures/) - **Football Italia**
+3. [Hincapie returns to Arsenal due to an injury](https://sportsview.co.uk/2026/03/hincapie-returns-to-arsenal-due-to-an-injury?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=hincapie-returns-to-arsenal-due-to-an-injury) - **Sportsview.co.uk**
+4. [‘This win, we dedicate to the 11 fans who we lost’: RCB skipper Rajat Patidar after victory vs SRH in IPL opener](https://indianexpress.com/article/sports/cricket/rajat-patidar-rcb-win-vs-srh-dedication-11-fans-stampede-ipl-10608081/) - **The Indian Express**
+5. [Liverpool, Man City & Man Utd Interested In Inter Milan Defender With Release Clause Active In The Summer](https://sempreinter.com/2026/03/29/liverpool-man-utd-keen-inter-dumfries/) - **SempreInter**
+6. [AIFF Reviews Commercial Bids, Examines Sports Governance Act Implications](https://www.rediff.com/sports/report/aiff-exco-studies-bids-for-key-competitions/20260329.htm) - **Rediff.com**
+7. [Liverpool urged to sign two Premier League midfielders this summer](https://anfieldindex.com/92682/opinion-wharton-and-gomes-should-be-on-liverpool-midfielders-list-for-summer.html) - **Anfieldindex.com**
+8. [Chelsea’s Malo Gusto defends ‘top coach’ Liam Rosenior](https://thefootballfaithful.com/chelseas-malo-gusto-defends-top-coach-liam-rosenior/) - **The Football Faithful**
+9. [IPL 2026 MI VS KKR Live Streaming: How to watch epic clash live in US, UK, Canada](https://economictimes.indiatimes.com/news/international/us/ipl-2026-mi-vs-kkr-today-match-live-streaming-channel-online-how-to-watch-in-us-uk-canada/articleshow/129880031.cms) - **The Times of India**
+10. [Which Players Should FC Barcelona Swap For Alessandro Bastoni](https://www.forbes.com/sites/tomsanderson/2026/03/29/which-players-should-fc-barcelona-swap-for-alessandro-bastoni/) - **Forbes**
 
 
 ---
-*최근 업데이트: 2026-03-30 20:30:39 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-30 21:38:53 (KST) / (하루 100회 제한 준수 중)*
