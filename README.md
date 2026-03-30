@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How Manchester City grew a die-hard fanbase in Uganda](https://esteemedkompany.com/2026/03/29/how-manchester-city-grew-a-die-hard-fanbase-in-uganda/) - **Esteemedkompany.com**
-2. [McTominay focus is only on Napoli, reassures expert Romano](https://football-italia.net/mctominay-focus-is-only-on-napoli-reassures/) - **Football Italia**
-3. [Hincapie returns to Arsenal due to an injury](https://sportsview.co.uk/2026/03/hincapie-returns-to-arsenal-due-to-an-injury?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=hincapie-returns-to-arsenal-due-to-an-injury) - **Sportsview.co.uk**
-4. [‘This win, we dedicate to the 11 fans who we lost’: RCB skipper Rajat Patidar after victory vs SRH in IPL opener](https://indianexpress.com/article/sports/cricket/rajat-patidar-rcb-win-vs-srh-dedication-11-fans-stampede-ipl-10608081/) - **The Indian Express**
-5. [Liverpool, Man City & Man Utd Interested In Inter Milan Defender With Release Clause Active In The Summer](https://sempreinter.com/2026/03/29/liverpool-man-utd-keen-inter-dumfries/) - **SempreInter**
-6. [AIFF Reviews Commercial Bids, Examines Sports Governance Act Implications](https://www.rediff.com/sports/report/aiff-exco-studies-bids-for-key-competitions/20260329.htm) - **Rediff.com**
-7. [Liverpool urged to sign two Premier League midfielders this summer](https://anfieldindex.com/92682/opinion-wharton-and-gomes-should-be-on-liverpool-midfielders-list-for-summer.html) - **Anfieldindex.com**
-8. [Chelsea’s Malo Gusto defends ‘top coach’ Liam Rosenior](https://thefootballfaithful.com/chelseas-malo-gusto-defends-top-coach-liam-rosenior/) - **The Football Faithful**
-9. [IPL 2026 MI VS KKR Live Streaming: How to watch epic clash live in US, UK, Canada](https://economictimes.indiatimes.com/news/international/us/ipl-2026-mi-vs-kkr-today-match-live-streaming-channel-online-how-to-watch-in-us-uk-canada/articleshow/129880031.cms) - **The Times of India**
-10. [Which Players Should FC Barcelona Swap For Alessandro Bastoni](https://www.forbes.com/sites/tomsanderson/2026/03/29/which-players-should-fc-barcelona-swap-for-alessandro-bastoni/) - **Forbes**
+1. [Who is the soccer legend who could be considered the GOAT alongside Messi? Here's what Joe Cole thinks](https://www.marca.com/en/football/2026/03/29/69c932e1e2704ed2778b457e.html) - **Marca**
+2. [Charlie Cresswell: Leeds’ loss could be United’s gain](https://thepeoplesperson.com/2026/03/29/charlie-cresswell-leeds-loss-could-be-uniteds-gain-308233/) - **The Peoples Person**
+3. [Manchester City player at risk of ban for Arsenal match](https://dailycannon.com/2026/03/manchester-city-ban-risk-arsenal/) - **Dailycannon.com**
+4. [Israeli footballer’s role in assault on southern Lebanon sparks outrage](https://www.aljazeera.com/sports/2026/3/29/israeli-footballers-role-in-assault-on-southern-lebanon-sparks-outrage) - **Al Jazeera English**
+5. [Israeli footballer’s role in assault on southern Lebanon sparks outrage](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f2d4034a-c937-450f-ab3d-5b94040d631a) - **Yahoo Entertainment**
+6. [Young Magpies win Premier League U15 International Tournament](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b2ddfa42-4743-48ec-949d-9524ad69969a) - **Yahoo Entertainment**
+7. [Casemiro approaches Inter Miami and Leo Messi could reconcile with one of his 'enemies'](https://www.marca.com/en/football/mls/2026/03/29/69c92338e2704e47048b458f.html) - **Marca**
+8. [From Spain: Bernardo Silva pushing for Barcelona transfer amid Jorge Mendes and Deco negotiations](https://cityxtra.co.uk/43776/from-spain-bernardo-silva-pushing-for-barcelona-transfer-amid-jorge-mendes-and-deco-negotiations/) - **Cityxtra.co.uk**
+9. [Premier League heavyweights weighing move for out-of-form Barcelona star](https://barcauniversal.com/premier-league-heavyweights-weighing-move-for-out-of-form-barcelona-star/) - **Barcauniversal.com**
+10. [Seminoles turn heads at Pro Day ahead of 2026 NFL Draft](https://www.fsunews.com/story/sports/2026/03/29/fsu-pro-day-2026-nfl-draft-darrell-jackson-castellanos/89363541007/) - **Fsunews.com**
 
 
 ---
-*최근 업데이트: 2026-03-30 21:38:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-30 23:12:11 (KST) / (하루 100회 제한 준수 중)*
