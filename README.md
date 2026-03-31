@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Revolut Bank ordered to hand over details of more than 300 Sky TV subscribers connected to piracy operation — TV provider expected to pursue subscribers who paid for illicit 'IPTV is Easy' service in unprecedented move](https://www.tomshardware.com/service-providers/tv-providers/sky-wins-irish-court-order-forcing-revolut-to-unmask-over-300-pirate-iptv-subscribers) - **Tom's Hardware UK**
-2. [Merson: De Zerbi the best money Spurs will ever spend if he keeps them up](https://www.skysports.com/football/news/11095/13526182/roberto-de-zerbi-tottenham-must-spend-whatever-it-takes-to-bring-in-ex-brighton-boss-and-avoid-relegation-says-paul-merson) - **Sky Sports**
-3. [Liverpool receive Mo Salah injury update ahead of Manchester City clash](https://cityxtra.co.uk/43858/liverpool-receive-mo-salah-injury-update-ahead-of-manchester-city-clash/) - **Cityxtra.co.uk**
-4. [Former Manchester City defender issues “100 per cent” verdict on Phil Foden’s England World Cup place](https://cityxtra.co.uk/43808/former-manchester-city-defender-issues-100-per-cent-verdict-on-phil-fodens-england-world-cup-place/) - **Cityxtra.co.uk**
-5. [Fabrizio Romano confirms Richard Hughes is making transfer blunder](https://www.anfieldwatch.co.uk/liverpool-fc/news/fabrizio-romano-confirms-richard-hughes-is-making-transfer-blunder-sandro-tonali/) - **Anfieldwatch.co.uk**
-6. [Letters to the Editor dated March 30, 2026](https://www.thehindubusinessline.com/opinion/letters/letters-to-editor/article70804064.ece) - **BusinessLine**
-7. [Black Caps v Bangladesh: Will O’Rourke returns from back surgery, sets sights on England and Australia](https://www.nzherald.co.nz/sport/cricket/black-caps/black-caps-v-bangladesh-will-orourke-back-from-back-surgery-sets-sights-on-england-and-australia/X4M3R3Q5HNECHFSU4UGSUHFJLU/) - **New Zealand Herald**
-8. [Why national team coaches understand Arsenal’s withdrawals](https://www.justarsenal.com/why-national-team-coaches-understand-arsenals-withdrawals/412641) - **Just Arsenal News**
-9. [Report: Newcastle United are in the race to sign £56m midfielder](https://eplindex.com/144680/report-newcastle-united-are-in-the-race-to-sign-56m-midfielder.html) - **English Premier League Index - Opta Stats**
-10. [Italy Nears Leader Decisions at State Firms Worth €250 Billion](https://financialpost.com/pmn/business-pmn/italy-nears-leader-decisions-at-state-firms-worth-e250-billion) - **Financial Post**
+1. [Hodgson 'happy' retired but Robins 'hard to turn down'](https://www.bbc.com/sport/football/articles/c0le09jx59do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Report: Liverpool ready to trigger £21.7m clause to sign Dutch defender](https://anfieldindex.com/92719/report-liverpool-ready-to-trigger-21-7m-clause-to-sign-dutch-defender.html) - **Anfieldindex.com**
+3. [Young Sooryavanshi hits 15-ball fifty as Rajasthan thumps Chennai by eight wickets in IPL](https://sports.yahoo.com/articles/young-sooryavanshi-hits-15-ball-175132727.html) - **Yahoo Entertainment**
+4. [Report: Liverpool set to reignite interest in defender with £21m clause](https://eplindex.com/144686/report-liverpool-set-to-reignite-interest-in-defender-with-21m-clause.html) - **English Premier League Index - Opta Stats**
+5. [Canada becomes testing ground for FIFA’s proposed ‘daylight’ offside rule](https://theconversation.com/canada-becomes-testing-ground-for-fifas-proposed-daylight-offside-rule-278374) - **The Conversation Africa**
+6. [Dortmund centre-half set for shock exit amid Premier League interest?](https://bulinews.com/dortmund-centre-half-set-for-shock-exit-premier-league-interest) - **Bulinews.com**
+7. [Salah and Tonali Improbable Targets for Serie A Teams](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_86cfc8dd-2595-41cb-b8e8-8618b1081dbd) - **Yahoo Entertainment**
+8. [Suryavanshi's fifty blasts RR to victory over CSK](https://www.bbc.com/sport/cricket/articles/c625g0dq26no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Report: Liverpool interested in controversial move for €70m-rated England star](https://anfieldindex.com/92716/report-liverpool-interested-in-controversial-move-for-e70m-rated-england-star.html) - **Anfieldindex.com**
+10. [KSCA to give 3 IPL tickets per MLA, 2 for internationals, says Dy CM DK Shivakumar](https://economictimes.indiatimes.com/news/politics-and-nation/ksca-to-give-3-ipl-tickets-per-mla-2-for-internationals-says-dy-cm-dk-shivakumar/articleshow/129907501.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-04-01 01:40:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-01 02:57:21 (KST) / (하루 100회 제한 준수 중)*
