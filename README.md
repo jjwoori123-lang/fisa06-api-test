@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Hodgson 'happy' retired but Robins 'hard to turn down'](https://www.bbc.com/sport/football/articles/c0le09jx59do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Report: Liverpool ready to trigger £21.7m clause to sign Dutch defender](https://anfieldindex.com/92719/report-liverpool-ready-to-trigger-21-7m-clause-to-sign-dutch-defender.html) - **Anfieldindex.com**
-3. [Young Sooryavanshi hits 15-ball fifty as Rajasthan thumps Chennai by eight wickets in IPL](https://sports.yahoo.com/articles/young-sooryavanshi-hits-15-ball-175132727.html) - **Yahoo Entertainment**
-4. [Report: Liverpool set to reignite interest in defender with £21m clause](https://eplindex.com/144686/report-liverpool-set-to-reignite-interest-in-defender-with-21m-clause.html) - **English Premier League Index - Opta Stats**
-5. [Canada becomes testing ground for FIFA’s proposed ‘daylight’ offside rule](https://theconversation.com/canada-becomes-testing-ground-for-fifas-proposed-daylight-offside-rule-278374) - **The Conversation Africa**
-6. [Dortmund centre-half set for shock exit amid Premier League interest?](https://bulinews.com/dortmund-centre-half-set-for-shock-exit-premier-league-interest) - **Bulinews.com**
-7. [Salah and Tonali Improbable Targets for Serie A Teams](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_86cfc8dd-2595-41cb-b8e8-8618b1081dbd) - **Yahoo Entertainment**
-8. [Suryavanshi's fifty blasts RR to victory over CSK](https://www.bbc.com/sport/cricket/articles/c625g0dq26no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Report: Liverpool interested in controversial move for €70m-rated England star](https://anfieldindex.com/92716/report-liverpool-interested-in-controversial-move-for-e70m-rated-england-star.html) - **Anfieldindex.com**
-10. [KSCA to give 3 IPL tickets per MLA, 2 for internationals, says Dy CM DK Shivakumar](https://economictimes.indiatimes.com/news/politics-and-nation/ksca-to-give-3-ipl-tickets-per-mla-2-for-internationals-says-dy-cm-dk-shivakumar/articleshow/129907501.cms) - **The Times of India**
+1. [Best RB fits for the Raiders in the 2026 draft](https://www.silverandblackpride.com/las-vegas-raiders-draft/125720/best-rb-fits-for-the-raiders-in-the-2026-draft) - **Silver And Black Pride**
+2. [“Really nothing like this”: Joshua Zirkzee reveals best part about being a United star](https://thepeoplesperson.com/2026/03/30/really-nothing-like-this-joshua-zirkzee-reveals-best-part-about-being-a-united-star-308242/) - **The Peoples Person**
+3. [5 Things Roberto De Zerbi Has to Do at Spurs to Spark a Revolution](https://www.101greatgoals.com/football/premier-league/5-things-roberto-de-zerbi-has-to-do-at-spurs-to-spark-a-white-hart-lane-revolution/) - **101 Great Goals**
+4. [Three ideal replacements for Morgan Rogers at Aston Villa this summer](https://sportsview.co.uk/2026/03/three-ideal-replacements-for-morgan-rogers-at-aston-villa-this-summer?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=three-ideal-replacements-for-morgan-rogers-at-aston-villa-this-summer) - **Sportsview.co.uk**
+5. [ Salah on PSG, Bayern and Italian clubs' radar, says official](https://onefootball.com/en/news/salah-on-psg-bayern-and-italian-clubs-radar-says-official-42637279) - **Onefootball.com**
+6. [Report Bernardo Silva ready to leave Manchester City, as Juventus and Barcelona battle](https://football-italia.net/report-bernardo-silva-manchester-city-juventus/) - **Football Italia**
+7. [Fifteen‑year‑old Sooryavanshi tears apart Chennai with 15‑ball fifty in IPL](https://www.channelnewsasia.com/sport/fifteen-year-old-sooryavanshi-tears-apart-chennai-15-ball-fifty-in-ipl-6026586) - **CNA**
+8. [Big Bets Report: Bettor Loses Chance at $500k After Shocking Duke Loss](https://www.foxsports.com/stories/college-basketball/big-bets-report-bettor-loses-chance-500k-after-shocking-duke-loss) - **Fox Sports**
+9. [Journalist: European club ‘dreaming’ of signing Mohamed Salah after Liverpool exit](https://anfieldindex.com/92721/journalist-european-club-dreaming-of-signing-mohamed-salah-after-liverpool-exit.html) - **Anfieldindex.com**
+10. [Report: Aston Villa are in the race to sign Premier League defender](https://eplindex.com/144690/report-aston-villa-are-in-the-race-to-sign-premier-league-defender.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-04-01 02:57:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-01 04:14:18 (KST) / (하루 100회 제한 준수 중)*
