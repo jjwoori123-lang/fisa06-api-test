@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [FA Cup QF: How to buy tickets for Manchester City vs. Liverpool](https://football-italia.net/fa-cup-buy-tickets-manchester-city-v-liverpool/) - **Football Italia**
-2. [Italy used to rule the World Cup. Now it could miss a third straight.](https://www.nbcnews.com/sports/soccer/fifa-world-cup-italy-bosnia-and-herzegovina-gennaro-gattuso-rcna265757) - **NBC News**
-3. [IPL 2026 RR vs CSK Live Streaming: When and where to watch Rajasthan Royals vs Chennai Super Kings match live](https://economictimes.indiatimes.com/news/sports/ipl-2026-rr-vs-csk-live-streaming-when-where-to-watch-rajasthan-royals-vs-chennai-super-kings-t20-today-match-30-march-live-telecast-on-tv-and-online-free-in-india/articleshow/129897441.cms) - **The Times of India**
-4. [Zubimendi adds to Arsenal's injury headaches](https://www.rte.ie/sport/soccer/2026/0330/1565886-zubimendi-adds-to-arsenals-injury-headaches/) - **RTE**
-5. [Where could Arsenal play in their pre-season tour?](https://www.justarsenal.com/where-could-arsenal-play-in-their-pre-season-tour/412630) - **Just Arsenal News**
-6. [More than the Score](https://www.bbc.co.uk/sounds/play/p0n9k8s2) - **BBC News**
-7. [The non-sporting reasons why Bernardo Silva is leaving Man City](https://www.marca.com/en/football/premier-league/2026/03/30/69ca3eb2ca4741ef558b4585.html) - **Marca**
-8. [Under-15s heading to China for Next Gen Cup](http://www.arsenal.com/news/under-15s-heading-china-next-gen-cup) - **Arsenal.com**
+1. [Zubimendi joins Arsenal withdrawals from international squads](https://www.channelnewsasia.com/sport/zubimendi-joins-arsenal-withdrawals-international-squads-6025791) - **CNA**
+2. [Is De Zerbi the right coach at the wrong time for Spurs?](https://www.skysports.com/football/news/11095/13526090/roberto-de-zerbi-tottenham-turn-to-combustible-italian-but-is-it-a-case-of-right-coach-wrong-time) - **Sky Sports**
+3. [De Zerbi open to taking Tottenham job as Spurs fan groups protest](https://football-italia.net/de-zerbi-open-tottenham-job-spurs-fans-protest/) - **Football Italia**
+4. [Arsecast Extra Episode 688 - 30.03.2026](https://shows.acast.com/arseblog/episodes/arsecast-extra-episode-688-30032026) - **Acast.com**
+5. [urban-gro, Inc. Positions for Entry into Multi-Billion-Dollar T20 Cricket Market with LPL Season Six Player Auction on May 15, 2026 via IPG Platform](https://financialpost.com/globe-newswire/urban-gro-inc-positions-for-entry-into-multi-billion-dollar-t20-cricket-market-with-lpl-season-six-player-auction-on-may-15-2026-via-ipg-platform) - **Financial Post**
+6. [urban-gro, Inc. Positions for Entry into Multi-Billion-Dollar T20 Cricket Market with LPL Season Six Player Auction on May 15, 2026 via IPG Platform](https://www.globenewswire.com/news-release/2026/03/30/3264505/0/en/urban-gro-Inc-Positions-for-Entry-into-Multi-Billion-Dollar-T20-Cricket-Market-with-LPL-Season-Six-Player-Auction-on-May-15-2026-via-IPG-Platform.html) - **GlobeNewswire**
+7. [Zirkzee: There’s nothing on earth like Old Trafford](https://www.manutd.com/en/news/detail/joshua-zirkzee-says-nothing-on-the-planet-like-old-trafford) - **Manchester United**
+8. [Winning the details: Why set pieces matter more than ever](https://www.justarsenal.com/winning-the-details-why-set-pieces-matter-more-than-ever/412614) - **Just Arsenal News**
+9. [Share Market Highlights: Sensex, Nifty tumble over 2% as FY26 closes on a weak note](https://www.thehindubusinessline.com/markets/stock-market-highlights-30-march-2026/article70799147.ece) - **BusinessLine**
 
 
 ---
-*최근 업데이트: 2026-03-31 19:36:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-31 20:33:36 (KST) / (하루 100회 제한 준수 중)*
