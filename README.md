@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Over 75% of fans do not support VAR in Premier League, says FSA survey](https://www.channelnewsasia.com/sport/over-75-fans-do-not-support-var-in-premier-league-says-fsa-survey-6024916) - **CNA**
-2. [Egypt national team director warns Salah against MLS move](https://www.channelnewsasia.com/sport/egypt-national-team-director-warns-salah-against-mls-move-6024876) - **CNA**
-3. [Who won yesterday's MI vs KKR IPL match? How Mumbai Indians chased 221 to stun Kolkata Knight Riders by 6 wickets at Wankhede Stadium](https://economictimes.indiatimes.com/news/new-updates/who-won-yesterdays-mi-vs-kkr-ipl-match-how-mumbai-indians-chased-221-to-stun-kolkata-knight-riders-by-6-wickets-at-wankhede-stadium/articleshow/129889771.cms) - **The Times of India**
-4. [Jacob Wheeler Earns 11th Bass Pro Tour Win at Suzuki Marine Stage 4 Presented by Plano](https://www.globenewswire.com/news-release/2026/03/30/3264265/0/en/Jacob-Wheeler-Earns-11th-Bass-Pro-Tour-Win-at-Suzuki-Marine-Stage-4-Presented-by-Plano.html) - **GlobeNewswire**
-5. [John Lynch: 49ers are optimistic about a deal with Trent Williams](https://www.nbcsports.com/nfl/profootballtalk/rumor-mill/news/john-lynch-49ers-are-optimistic-about-a-deal-with-trent-williams) - **NBCSports.com**
-6. [Real Madrid are hyper aware of the Bayern Munich challenge says Antonio Rüdiger](https://www.bavarianfootballworks.com/bayern-munich-champions-league/181993/bayern-munich-vs-real-madrid-champions-league-quarter-final-antonio-rudiger-harry-kane-first-leg-bernabeu-challenge) - **Bavarian Football Works**
-7. [Casemiro reportedly gets closer to Messi’s Inter Miami despite Cristiano Ronaldo’s Al Nassr interest](https://worldsoccertalk.com/news/casemiro-reportedly-gets-closer-to-messis-inter-miami-despite-cristiano-ronaldos-al-nassr-interest/) - **Worldsoccertalk.com**
-8. [75% of fans oppose VAR in Premier League, says FSA](https://www.bbc.com/sport/football/articles/ce84xpdedpvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [75% of fans oppose VAR in Premier League, says FSA](https://www.bbc.com/sport/football/articles/ce84xpdedpvo) - **BBC News**
+1. [Shades of Gascoigne - the rise of England's Anderson](https://www.bbc.com/sport/football/articles/cpqxdr3gzxvo) - **BBC News**
+2. [How to watch Sky Go from anywhere](https://www.techradar.com/how-to-watch/sky-go-from-anywhere) - **TechRadar**
+3. [Lionel Messi’s exit from FC Barcelona was ‘the right decision,’ says president Joan Laporta](https://worldsoccertalk.com/news/lionel-messis-exit-from-fc-barcelona-was-the-right-decision-says-president-joan-laporta/) - **Worldsoccertalk.com**
+4. [Dear Vicki: How can I stop the ‘blah blah’ at the start of all our Monday morning meetings?](https://www.independent.ie/business/in-the-workplace/dear-vicki-how-can-i-stop-the-blah-blah-at-the-start-of-all-our-monday-morning-meetings/a1900676191.html) - **Independent.ie**
+5. [Hyrox travel: How hotels are tapping the global fitness racing boom](https://www.straitstimes.com/life/travel/hyrox-travel-how-hotels-are-tapping-the-global-fitness-racing-boom) - **The Straits Times**
+6. [Ticket info: West Ham United v Arsenal](http://www.arsenal.com/tickets/arsenal/2026-May-09/west-ham-united) - **Arsenal.com**
+7. [Waiting to believe](https://africasacountry.com/2026/03/waiting-to-believe/) - **Africasacountry.com**
+8. [Today's NYT Connections: Sports Edition Hints and Answers for March 30, #553](https://www.cnet.com/tech/gaming/todays-nyt-connections-sports-edition-hints-and-answers-for-march-30-553/) - **CNET**
+9. [Over 75% of fans do not support VAR in Premier League, says FSA survey](https://www.channelnewsasia.com/sport/over-75-fans-do-not-support-var-in-premier-league-says-fsa-survey-6024916) - **CNA**
+10. [Egypt national team director warns Salah against MLS move](https://www.channelnewsasia.com/sport/egypt-national-team-director-warns-salah-against-mls-move-6024876) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-03-31 11:41:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-03-31 14:12:10 (KST) / (하루 100회 제한 준수 중)*
