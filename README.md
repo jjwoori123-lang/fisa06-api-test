@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [All Whites power rankings: Who is making the plane to the Fifa World Cup?](https://www.nzherald.co.nz/sport/football/all-whites/all-whites-power-rankings-who-is-making-the-plane-to-the-fifa-world-cup/premium/P7GF5MTVKNGAFJZFSGUYCLSXZY/) - **New Zealand Herald**
-2. [Is Xavi the best option for Tottenham if they can’t get De Zerbi?](https://www.sportingnews.com/us/soccer/tottenham-hotspur/news/xavi-tottenham-if-they-cant-get-de-zerbi/0a1e069b56e1deb509ae3143) - **Sporting News**
-3. [fpl-copilot 0.1.3](https://pypi.org/project/fpl-copilot/0.1.3/) - **Pypi.org**
-4. [USMNT coach leaves door open for coming back after World Cup as rumors of Premier League return swirl](https://nypost.com/2026/03/30/sports/usmnt-coach-leaves-door-open-for-career-after-world-cup-as-rumors-of-premier-league-swirl/) - **New York Post**
-5. [fpl-copilot 0.1.1](https://pypi.org/project/fpl-copilot/0.1.1/) - **Pypi.org**
-6. [fpl-copilot added to PyPI](https://pypi.org/project/fpl-copilot/) - **Pypi.org**
-7. [When will Odegaard be ready to play for Arsenal again?](https://www.justarsenal.com/when-will-odegaard-be-ready-to-play-for-arsenal-again/412665) - **Just Arsenal News**
-8. [Who is the most irreplaceable USMNT player heading into the World Cup?](https://www.nbcsports.com/soccer/news/who-is-the-most-irreplaceable-usmnt-player-heading-into-the-world-cup) - **NBCSports.com**
-9. [Papers: Pochettino refuses to rule out Spurs return despite De Zerbi talks](https://www.skysports.com/football/transfer-paper-talk/12709/13526283/mauricio-pochettino-leaves-door-open-for-tottenham-return-after-world-cup-paper-talk-and-football-transfer-gossip) - **Sky Sports**
-10. [MLB All-Star Names Fenway Park As Favorite Place To Play](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c8dadd70-2bdb-4e28-a3ad-2d00ab20a3eb) - **Yahoo Entertainment**
+1. [Chargers 2026 salary cap update: Where things currently stand](https://chargerswire.usatoday.com/story/sports/nfl/chargers/2026/03/30/chargers-cap-space-nfl-draft-free-agency/89382614007/) - **USA Today**
+2. [Italy on brink of another World Cup disaster ahead of decisive playoff vs Bosnia](https://www.marca.com/en/world-cup/2026/03/31/69cb2d47e2704ef3108b45aa.html) - **Marca**
+3. [Mind games: How football stars are fuelling chess boom](https://sports.yahoo.com/articles/mind-games-football-stars-fuelling-020746903.html) - **Yahoo Entertainment**
+4. [Addo out as Ghana's coach 72 days before World Cup](https://www.channelnewsasia.com/sport/addo-out-ghanas-coach-72-days-world-cup-6027126) - **CNA**
+5. [NFL announces what city will host the Super Bowl in 2029](https://www.cbsnews.com/news/super-bowl-las-vegas-2029-nfl/) - **CBS News**
+6. ['There's No Option But To Win:' Italy Playing For Pride vs. Bosnia and Herzegovina](https://www.foxsports.com/stories/soccer/theres-no-option-win-italy-playing-pride-vs-bosnia-herzegovina) - **Fox Sports**
+7. ['If Chris Richards Is Available, It's Good': USA Set To Have Its Star Defender vs. Portugal](https://www.foxsports.com/stories/soccer/usmnt-news-chris-richards-injury-update-vs-portugal) - **Fox Sports**
+8. [Matchday 27 of the GPL delivers stunning upsets as heavyweights stumble](https://thechronicle.com.gh/matchday-27-of-the-gpl-delivers-stunning-upsets-as-heavyweights-stumble/) - **Thechronicle.com.gh**
+9. [Tudor's disastrous six-week stint has left Spurs even closer to relegation. What happened?](https://www.espn.com/soccer/story/_/id/48346073/igor-tudor-disastrous-stint-tottenham-hotspur-manager-leaves-club-even-closer-relegation) - **ESPN**
 
 
 ---
-*최근 업데이트: 2026-04-01 09:03:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-01 12:47:04 (KST) / (하루 100회 제한 준수 중)*
