@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [ BREAKING: Tottenham appoint Roberto De Zerbi in bid to avoid relegation](https://onefootball.com/en/news/breaking-tottenham-appoint-roberto-de-zerbi-in-bid-to-avoid-relegation-42640866) - **Onefootball.com**
-2. [Spurs appoint De Zerbi as third head coach of the season](https://www.skysports.com/football/news/11675/13526564/roberto-de-zerbi-spurs-appoint-italian-as-third-head-coach-of-the-season-on-five-year-contract) - **Sky Sports**
-3. [Pros and Cons of Tottenham’s appointment of Roberto De Zerbi](https://www.getfootballnewsitaly.com/2026/pros-and-cons-of-tottenhams-appointment-of-roberto-de-zerbi/) - **Getfootballnewsitaly.com**
-4. [FIFA starts 'daylight offside' and challenges by coaches in Canada](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260331-99-00399/) - **Dpa-international.com**
-5. ['He has to turn losers into winners - instantly'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1a28781f-d8b5-4b0f-9d6f-981d1be546be) - **Yahoo Entertainment**
-6. [Tottenham Supporters' Trust says it cannot support De Zerbi appointment](https://www.bbc.com/sport/football/articles/c0mjrnr4ld3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Exclusive: Arne Slot sent sack warning by former Liverpool star](https://anfieldindex.com/92744/exclusive-arne-slot-sent-sack-warning-by-former-liverpool-star-2.html) - **Anfieldindex.com**
-8. [Playnance Takes Sports and Esports Onchain With $GCOIN, Covering 2.5 Million Live Events a Year](https://zycrypto.com/playnance-takes-sports-and-esports-onchain-with-gcoin-covering-2-5-million-live-events-a-year/) - **ZyCrypto**
-9. [£60m new Frenkie de Jong is begging to join Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-kees-smit-new-frenkie-de-jong-is-begging-to-join/) - **Anfieldwatch.co.uk**
+1. [Tottenham confirm Roberto De Zerbi as new head coach on long-term deal](https://footballtoday.com/2026/03/31/tottenham-confirm-roberto-de-zerbi-as-new-head-coach-on-long-term-deal/) - **Footballtoday.com**
+2. [Report: Real Madrid plotting another Liverpool transfer raid for £69m forward](https://anfieldindex.com/92735/report-real-madrid-plotting-another-liverpool-transfer-raid-for-69m-forward.html) - **Anfieldindex.com**
+3. [England cricketer fined over 93mph speeding offence](https://www.bbc.com/news/articles/czxry569q31o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Tottenham appoint De Zerbi in battle for Premier League survival](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_757c0de4-ff10-4f5f-bae4-ee5bbf031268) - **Yahoo Entertainment**
+5. [Report – Inter Milan Set To Overhaul Right Wingback Position In The Summer – All Three Current Options Could Leave San Siro](https://sempreinter.com/2026/03/31/inter-milan-set-overhaul-right-wingback-position-this-summer/) - **SempreInter**
+6. [Tottenham hires another new manager in Premier League relegation battle](https://www.usatoday.com/story/sports/soccer/epl/2026/03/31/tottenham-roberto-de-zerbi-premier-league-relegation-odds/89402937007/) - **USA Today**
+7. [Martin Breheny: Jim McGuinness is not a genius – Kerry’s sloppiness rather than Donegal tactics were decisive in final](https://www.independent.ie/sport/gaelic-games/martin-breheny-jim-mcguinness-is-not-a-genius-kerrys-sloppiness-rather-than-donegal-tactics-were-decisive-in-final/a1961605506.html) - **Independent.ie**
+8. [Tottenham appoint Roberto De Zerbi as new manager on long-term deal](https://www.irishtimes.com/sport/soccer/2026/03/31/tottenham-appoint-roberto-de-zerbi-as-new-manager-on-long-term-deal/) - **The Irish Times**
+9. [Roberto De Zerbi to Tottenham: Are Spurs gambling with their Premier League future in a relegation battle?](https://www.cbssports.com/soccer/news/roberto-de-zerbi-to-tottenham-spurs-premier-league-relegation-battle/) - **CBS Sports**
 
 
 ---
-*최근 업데이트: 2026-04-02 00:47:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-02 01:59:51 (KST) / (하루 100회 제한 준수 중)*
