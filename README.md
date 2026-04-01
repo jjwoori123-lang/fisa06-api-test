@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Inter Milan & France Talismanic Striker Faces Make-Or-Break Serie A Run-In Amid Uncertain Future](https://sempreinter.com/2026/03/31/inter-milan-star-marcus-thuram-faces-crucial-serie-a-run-in/) - **SempreInter**
-2. [Marc Cucurella slams Chelsea’s transfer policy and says club should not have sacked Enzo Maresca](https://www.101greatgoals.com/football/premier-league/enzo-maresca-transfer-policy-chelsea-defender-marc-cucurella/) - **101 Great Goals**
-3. [Cucurella: Maresca’s exit had ‘big impact’ on Chelsea, ‘you’d die for him’](https://football-italia.net/cucurella-maresca-exit-big-imact-chelsea/) - **Football Italia**
-4. [The 50-day curse: Igor Tudor’s swift Spurs exit joins Stellini, Allardyce, Postecoglou and Reed on ignominious list](https://www.footballmuse.com/features/the-50-day-curse-igor-tudors-swift-spurs-exit-joins-stellini-allardyce-postecoglou-and-reed-on-ignominious-list) - **Footballmuse.com**
-5. ['No reason' not to believe Rice and Saka - Tuchel](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c61915ea-f203-46b0-8eb0-54bfb6fa42f8) - **Yahoo Entertainment**
-6. [Newcastle say no manager change 'at the moment'](https://sports.yahoo.com/articles/newcastle-no-manager-change-moment-095031252.html) - **Yahoo Entertainment**
-7. [Cucurella: Maresca shouldn't have left | 'Chelsea squad lacks experience'](https://www.skysports.com/football/news/11668/13526410/marc-cucurella-chelsea-have-paid-the-price-for-inexperience-and-why-enzo-maresca-shouldnt-have-left) - **Sky Sports**
-8. [Newcastle CEO gives Howe tepid support after painful losses](https://www.channelnewsasia.com/sport/newcastle-ceo-gives-howe-tepid-support-after-painful-losses-6028136) - **CNA**
-9. [Report – Inter Milan & Italy Veteran Sought In Saudi Arabia: Dutch Center-Back Has A Host Of Admirers In Europe](https://sempreinter.com/2026/03/31/inter-milan-ace-acerbi-closely-followed-saudi-pro-league-clubs/) - **SempreInter**
+1. [The next step for a young defender is a role in the Manchester City squad](https://esteemedkompany.com/2026/03/31/the-next-step-for-a-young-defender-is-a-role-in-the-manchester-city-squad/) - **Esteemedkompany.com**
+2. [Barcelona move difficult to turn down - Cucurella](https://www.bbc.com/sport/football/articles/c8dlgd8562yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Newcastle offer tentative backing to under-fire boss Howe](https://www.rte.ie/sport/soccer/2026/0331/1566074-newcastle-offer-tentative-backing-to-under-fire-boss-howe/) - **RTE**
+4. [Barcelona move difficult to turn down - Cucurella](https://www.bbc.com/sport/football/articles/c8dlgd8562yo) - **BBC News**
+5. [Vitek's viral moments & progress at Bristol City](https://www.bbc.com/sport/football/articles/c62lx9kln98o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Meet the man from Man Utd who managed Afghanistan](https://www.skysports.com/football/news/11095/13505757/ashley-westwood-interview-kerala-blasters-new-head-coach-on-being-manager-of-afghanistan-and-much-more) - **Sky Sports**
+7. [“There must be a reason” – Norway manager talks Erling Haaland’s visit to renowned knee specialist](https://cityxtra.co.uk/43881/there-must-be-a-reason-norway-manager-talks-erling-haalands-visit-to-renowned-knee-specialist/) - **Cityxtra.co.uk**
+8. [Man Utd plan to make £100m in summer rebuild with five players to leave](https://www.skysports.com/football/news/11667/13526418/manchester-united-hoping-to-make-over-lb100m-as-part-of-summer-rebuild-with-five-players-set-to-leave-old-trafford) - **Sky Sports**
+9. [Report: Liverpool face major competition to sign Premier League defender](https://anfieldindex.com/92730/report-liverpool-face-major-competition-to-sign-premier-league-defender.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-04-01 19:18:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-01 20:27:32 (KST) / (하루 100회 제한 준수 중)*
