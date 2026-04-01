@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chargers 2026 salary cap update: Where things currently stand](https://chargerswire.usatoday.com/story/sports/nfl/chargers/2026/03/30/chargers-cap-space-nfl-draft-free-agency/89382614007/) - **USA Today**
-2. [Italy on brink of another World Cup disaster ahead of decisive playoff vs Bosnia](https://www.marca.com/en/world-cup/2026/03/31/69cb2d47e2704ef3108b45aa.html) - **Marca**
-3. [Mind games: How football stars are fuelling chess boom](https://sports.yahoo.com/articles/mind-games-football-stars-fuelling-020746903.html) - **Yahoo Entertainment**
-4. [Addo out as Ghana's coach 72 days before World Cup](https://www.channelnewsasia.com/sport/addo-out-ghanas-coach-72-days-world-cup-6027126) - **CNA**
-5. [NFL announces what city will host the Super Bowl in 2029](https://www.cbsnews.com/news/super-bowl-las-vegas-2029-nfl/) - **CBS News**
-6. ['There's No Option But To Win:' Italy Playing For Pride vs. Bosnia and Herzegovina](https://www.foxsports.com/stories/soccer/theres-no-option-win-italy-playing-pride-vs-bosnia-herzegovina) - **Fox Sports**
-7. ['If Chris Richards Is Available, It's Good': USA Set To Have Its Star Defender vs. Portugal](https://www.foxsports.com/stories/soccer/usmnt-news-chris-richards-injury-update-vs-portugal) - **Fox Sports**
-8. [Matchday 27 of the GPL delivers stunning upsets as heavyweights stumble](https://thechronicle.com.gh/matchday-27-of-the-gpl-delivers-stunning-upsets-as-heavyweights-stumble/) - **Thechronicle.com.gh**
-9. [Tudor's disastrous six-week stint has left Spurs even closer to relegation. What happened?](https://www.espn.com/soccer/story/_/id/48346073/igor-tudor-disastrous-stint-tottenham-hotspur-manager-leaves-club-even-closer-relegation) - **ESPN**
+1. [Mumbai Indians fan’s heartfelt proposal nearly ends in disaster as ring disappears in stand; video goes viral](https://indianexpress.com/article/trending/trending-in-india/mumbai-indians-fan-heartfelt-proposal-nearly-ends-in-disaster-as-ring-disappears-in-stand-10610869/) - **The Indian Express**
+2. [Steven Gerrard anoints 'brilliant' Mo Salah successor](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-crysencio-summerville-west-ham-steven-gerrard-anoints-brilliant-mo-salah-successor/) - **Anfieldwatch.co.uk**
+3. [Who are the Japan players England should look out for?](https://www.bbc.com/sport/football/articles/cgldy0p024ro) - **BBC News**
+4. [Kaif and Chawla back Sooryavanshi for fast-track to India T20 squad](https://www.channelnewsasia.com/sport/kaif-and-chawla-back-sooryavanshi-fast-track-india-t20-squad-6027616) - **CNA**
+5. [Sourav Ganguly backs BCCI, says Tests must be shared across venues, not just traditional centres](https://economictimes.indiatimes.com/news/sports/sourav-ganguly-backs-bcci-says-tests-must-be-shared-across-venues-not-just-traditional-centres/articleshow/129916724.cms) - **The Times of India**
+6. [Olise? Vinicius? Lamine Yamal? Ranking the most exciting wide men](https://www.bbc.com/sport/football/articles/cvg0wgy2ve7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [‘I Had a Macedonia’: Ireland’s tricky opponents are proud minnows with record of surprises](https://www.irishtimes.com/sport/soccer/2026/03/31/i-had-a-macedonia-irelands-tricky-opponents-are-proud-minnows-with-record-of-surprises/) - **The Irish Times**
+8. [Sunderland’s Evolved Model – 43 Points and Rising](https://rokerreport.sbnation.com/opinion/132924/sunderlands-evolved-model-43-points-and-rising) - **SB Nation**
+9. [Is It The Right Call For Sunderland To Move On From David Bruce?](https://rokerreport.sbnation.com/opinion/133044/david-bruce-to-depart-sunderland-our-writers-have-their-say) - **SB Nation**
+10. [Sunderland’s Unexpected European Chase – Thanks, Lads!](https://rokerreport.sbnation.com/opinion/132920/sunderlands-unexpected-european-chase-thanks-lads) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-04-01 12:47:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-01 14:56:47 (KST) / (하루 100회 제한 준수 중)*
