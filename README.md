@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tottenham confirm Roberto De Zerbi as new head coach on long-term deal](https://footballtoday.com/2026/03/31/tottenham-confirm-roberto-de-zerbi-as-new-head-coach-on-long-term-deal/) - **Footballtoday.com**
-2. [Report: Real Madrid plotting another Liverpool transfer raid for £69m forward](https://anfieldindex.com/92735/report-real-madrid-plotting-another-liverpool-transfer-raid-for-69m-forward.html) - **Anfieldindex.com**
-3. [England cricketer fined over 93mph speeding offence](https://www.bbc.com/news/articles/czxry569q31o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Tottenham appoint De Zerbi in battle for Premier League survival](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_757c0de4-ff10-4f5f-bae4-ee5bbf031268) - **Yahoo Entertainment**
-5. [Report – Inter Milan Set To Overhaul Right Wingback Position In The Summer – All Three Current Options Could Leave San Siro](https://sempreinter.com/2026/03/31/inter-milan-set-overhaul-right-wingback-position-this-summer/) - **SempreInter**
-6. [Tottenham hires another new manager in Premier League relegation battle](https://www.usatoday.com/story/sports/soccer/epl/2026/03/31/tottenham-roberto-de-zerbi-premier-league-relegation-odds/89402937007/) - **USA Today**
-7. [Martin Breheny: Jim McGuinness is not a genius – Kerry’s sloppiness rather than Donegal tactics were decisive in final](https://www.independent.ie/sport/gaelic-games/martin-breheny-jim-mcguinness-is-not-a-genius-kerrys-sloppiness-rather-than-donegal-tactics-were-decisive-in-final/a1961605506.html) - **Independent.ie**
-8. [Tottenham appoint Roberto De Zerbi as new manager on long-term deal](https://www.irishtimes.com/sport/soccer/2026/03/31/tottenham-appoint-roberto-de-zerbi-as-new-manager-on-long-term-deal/) - **The Irish Times**
-9. [Roberto De Zerbi to Tottenham: Are Spurs gambling with their Premier League future in a relegation battle?](https://www.cbssports.com/soccer/news/roberto-de-zerbi-to-tottenham-spurs-premier-league-relegation-battle/) - **CBS Sports**
+1. [De Zerbi appointment met by criticism from Tottenham supporters’ groups](https://football-italia.net/de-zerbi-criticism-from-tottenham-fan-groups/) - **Football Italia**
+2. [Report: Arsenal have joined the race to sign £17m Real Madrid star](https://eplindex.com/144735/report-arsenal-have-joined-the-race-to-sign-17m-real-madrid-star.html) - **English Premier League Index - Opta Stats**
+3. [Relegation-battling Spurs get third coach of season!](https://www.rediff.com/sports/report/english-premier-league-struggling-tottenham-hotspur-appoint-de-zerbi-as-manager/20260331.htm) - **Rediff.com**
+4. [Just in on Tuesday evening: Man Utd will be ‘front of the queue’ if ‘brilliant’ Premier League star becomes available](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3a88f329-3734-4fae-8bd5-be7a4d62fa19) - **Yahoo Entertainment**
+5. [Arne Slot to make agonising Alexander Isak call](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-arne-slot-to-make-agonising-alexander-isak-call/) - **Anfieldwatch.co.uk**
+6. [Struggling Premier League club Tottenham hires Roberto De Zerbi amid concerns from women’s fan group](https://indianexpress.com/article/sports/football/tottenham-hires-roberto-de-zerbi-concerns-womens-fan-group-10612190/) - **The Indian Express**
+7. [Concerns about whether Jota can regain his sparkle at Celtic](https://thecelticstar.com/concerns-about-whether-jota-can-regain-his-sparkle-at-celtic/) - **The Celtic Star**
+8. [Why Kayode is not part of the Italy squad for 2026 World Cup play-offs](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1898bfb8-82e3-4b07-8073-e5871b813916) - **Yahoo Entertainment**
+9. [Spurs tried to bring in De Zerbi after Frank exit](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_afd7983d-999b-4cb9-bf92-5b76f35b79d4) - **Yahoo Entertainment**
+10. [Why Kayode is not part of the Italy squad for 2026 World Cup play-offs](https://football-italia.net/why-kayode-is-not-part-of-italy-squad/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-04-02 01:59:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-02 02:57:55 (KST) / (하루 100회 제한 준수 중)*
