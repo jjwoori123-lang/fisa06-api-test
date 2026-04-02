@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [(Image): Chelsea’s crazy agent spending has little to show for it after disappointing year](https://chelsea.news/2026/04/chelsea-agent-spending-little-show-it/) - **Chelsea.news**
-2. [IPL 2026: Sameer Rizvi's unbeaten 70 helps DC beat LSG by six wickets](https://economictimes.indiatimes.com/news/sports/ipl-2026-match-winner-sameer-rizvis-unbeaten-70-helps-dc-beat-lsg-by-six-wickets/articleshow/129959331.cms) - **The Times of India**
-3. [Liverpool set to say goodbye to another club legend](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-set-to-say-goodbye-to-another-club-legend/) - **Anfieldwatch.co.uk**
-4. [Chelsea’s £65m tops list of Premier League fees paid to agents, Wrexham spend up 367 per cent](https://sports.yahoo.com/articles/chelsea-65m-tops-list-premier-173107983.html) - **Yahoo Entertainment**
-5. [‘I’m back where I belong’ – Luke Littler’s message for the doubters after Premier League resurgence](https://www.independent.ie/sport/other-sports/im-back-where-i-belong-luke-littlers-message-for-the-doubters-after-premier-league-resurgence/a1638539763.html) - **Independent.ie**
-6. [Arne Slot breaks silence on Salah’s shock Liverpool exit announcement](https://anfieldindex.com/92776/arne-slot-breaks-silence-on-salahs-shock-liverpool-exit-announcement.html) - **Anfieldindex.com**
-7. [Jules Kounde in demand as Man City, Liverpool and Chelsea eye Barcelona star](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/116610/jules-kounde-in-demand-as-man-city-liverpool-and-chelsea-eye-barcelona-star) - **Barca Blaugranes**
-8. [Harry Maguire charged by FA after Bournemouth red card](https://www.101greatgoals.com/football/premier-league/harry-maguire-charged-fa-bournemouth-red-card/) - **101 Great Goals**
+1. [Ailing Italy at new low after missing out on yet another World Cup](https://economictimes.indiatimes.com/news/sports/ailing-italy-at-new-low-after-missing-out-on-yet-another-world-cup/articleshow/129961320.cms) - **The Times of India**
+2. [Richard Hughes can solve heartbreaking Darwin Nunez crisis](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-richard-hughes-can-solve-heartbreaking-darwin-nunez-crisis/) - **Anfieldwatch.co.uk**
+3. [Rivals will be forced to sell long-term target to Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/rivals-will-be-forced-to-sell-long-term-target-to-liverpool-newcastle-anthony-gordon/) - **Anfieldwatch.co.uk**
+4. [Chelsea Finances Revealed Following Strong Revenue And Trophies](https://eplindex.com/144771/chelsea-post-record-deficit-despite-strong-revenue-and-trophies.html) - **English Premier League Index - Opta Stats**
+5. [Robert Lewandowski and four other stars who will miss the 2026 Word Cup](https://worldsoccertalk.com/news/robert-lewandowski-and-four-other-stars-who-will-miss-the-2026-word-cup/) - **Worldsoccertalk.com**
+6. [Engels To Start? | Predicted 4-2-3-1 Celtic Lineup To Face Dundee FC](https://the4thofficial.net/2026/04/engels-to-start-predicted-4-2-3-1-celtic-lineup-to-face-dundee-fc/) - **The4thofficial.net**
+7. [Casemiro names Kobbie Mainoo as the future leader of Manchester United: ‘He is one of the best no.8’](https://worldsoccertalk.com/news/casemiro-names-kobbie-mainoo-as-the-future-leader-of-manchester-united-he-is-one-of-the-best-no-8/) - **Worldsoccertalk.com**
+8. [Pep Guardiola formally approached by club executives over Manchester City future plans](https://cityxtra.co.uk/43984/pep-guardiola-formally-approached-by-club-executives-over-manchester-city-future-plans/) - **Cityxtra.co.uk**
+9. [Impact substitute Rizvi anchors Delhi to a 6-wicket win over Lucknow in IPL](https://sports.yahoo.com/articles/impact-substitute-rizvi-anchors-delhi-183226166.html) - **Yahoo Entertainment**
+10. [Phil Foden: Searching for the smile behind the decorated Manchester City and England star](https://cityxtra.co.uk/43839/phil-foden-searching-for-the-smile-behind-one-of-england-and-manchester-citys-most-decorated-talents/) - **Cityxtra.co.uk**
 
 
 ---
-*최근 업데이트: 2026-04-03 03:04:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-03 04:18:40 (KST) / (하루 100회 제한 준수 중)*
