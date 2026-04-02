@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester City stance on Vitor Reis future revealed following Girona and Brazil heroics](https://cityxtra.co.uk/43917/manchester-city-stance-on-vitor-reis-future-revealed-following-girona-and-brazil-heroics/) - **Cityxtra.co.uk**
-2. [Mike Macdonald sheds light on plan that fueled JSN to record contract](https://seahawkswire.usatoday.com/story/sports/nfl/seahawks/2026/04/01/mike-macdonald-sheds-light-on-plan-that-fueled-jsn-to-record-contract/89418438007/) - **USA Today**
-3. [Slot hoping Salah can still burnish Liverpool legacy](https://sports.yahoo.com/articles/slot-hoping-salah-still-burnish-195744293.html) - **Yahoo Entertainment**
-4. [Fowler sees bigger plan for Isak as Salah exit reshapes Liverpool attack](https://anfieldindex.com/92778/fowler-sees-bigger-plan-for-isak-as-salah-exit-reshapes-liverpool-attack.html) - **Anfieldindex.com**
-5. [Adarabioyo, Delap And Estevao To Start | 4-2-3-1 Chelsea Predicted Lineup Vs Port Vale](https://the4thofficial.net/2026/04/adarabioyo-delap-and-estevao-to-start-4-2-3-1-chelsea-predicted-lineup-vs-port-vale/) - **The4thofficial.net**
-6. [Report: Eddie Howe Faces Summer Battle as Newcastle Stars Eye Exit](https://eplindex.com/144773/report-eddie-howe-faces-summer-battle-as-newcastle-stars-eye-exit.html) - **English Premier League Index - Opta Stats**
-7. [Marcus Rashford Set For Man United Return as Barcelona Transfer Clause Expires](https://www.foxsports.com/stories/soccer/marcus-rashford-man-utd-return-barcelona-transfer-clause) - **Fox Sports**
-8. [Timber, Lewis-Skelly And Norgaard To Start | 4-2-3-1 Arsenal Predicted Lineup Vs Southampton](https://the4thofficial.net/2026/04/4-2-3-1-arsenal-predicted-lineup-vs-southampton-2/) - **The4thofficial.net**
-9. [Chelsea report biggest-ever loss in English football](https://www.rediff.com/sports/report/chelsea-report-biggest-ever-loss-in-english-football/20260402.htm) - **Rediff.com**
-10. [EPL: Chelsea lead Premier League agent spending at £65.1m](https://punchng.com/epl-chelsea-lead-premier-league-agent-spending-at-65-1m/) - **The Punch**
+1. [The first Champions semi-finalists are now known](https://onefootball.com/en/news/the-first-champions-semi-finalists-are-now-known-42647086) - **Onefootball.com**
+2. [Tuchel says Foden cannot be sure of a place in England World Cup squad](https://www.channelnewsasia.com/sport/tuchel-says-foden-cannot-be-sure-place-in-england-world-cup-squad-6032101) - **CNA**
+3. [Report: De Zerbi Names Key Signing as Tottenham Plot For Premier League Survival](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a6887954-c250-4837-9761-86931b43923d) - **Yahoo Entertainment**
+4. [Everton interested in Stones return - Thursday's gossip](https://www.bbc.com/sport/football/articles/ckge4elpp46o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Liverpool favourites to land deal for invaluable Brazilian No9](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_dd316cb5-6cf6-421e-8f6c-fd527602f324) - **Yahoo Entertainment**
+6. [Everton interested in Stones return - Thursday's gossip](https://www.bbc.com/sport/football/articles/ckge4elpp46o) - **BBC News**
+7. [‘I’d be surprised if he plays in the Premier League again’ —Pundit says Bayern Munich’s Harry Kane might never return home](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/183732/id-be-surprised-if-he-plays-in-the-premier-league-again-pundit-says-bayer-munichs-harry-kane-might-never-return-home) - **Bavarian Football Works**
+8. [Tottenham Hotspur Are Eyeing A Move For This Talented Midfielder: Should Spurs Move In For Him?](https://the4thofficial.net/2026/04/tottenham-hotspur-are-eyeing-a-move-for-this-talented-midfielder-2/) - **The4thofficial.net**
+9. [In the semi-final! FCB Women knock out United](https://fcbayern.com/frauen/en/matches/frauen/champions-league/2025-2026/cl-frauen-viertelfinale-rueckspiel-fc-bayern-frauen---manchester-utd-01.04.2026/report) - **Fcbayern.com**
+10. [Liverpool gifted incredible chance to sign sensational midfield star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-gifted-incredible-chance-to-sign-sensational-midfield-star/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-04-03 05:00:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-03 05:56:38 (KST) / (하루 100회 제한 준수 중)*
