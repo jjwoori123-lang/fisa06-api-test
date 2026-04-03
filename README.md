@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea players reportedly unhappy with Enzo Fernandez for shouting at them](https://chelsea.news/2026/04/chelsea-players-reportedly-unhappy-with-enzo-fernandez-for-shouting-at-them/) - **Chelsea.news**
-2. [JioStar terminates agreements for IPL and WPL media rights in Bangladesh over "payment defaults"](https://www.thehindubusinessline.com/info-tech/jiostar-terminates-agreements-for-ipl-and-wpl-media-rights-in-bangladesh-over-payment-defaults/article70814154.ece) - **BusinessLine**
-3. [‘Manchester United need the training more than us’ – Armagh’s Oisín Conaty on Carton House clash](https://www.independent.ie/sport/gaelic-games/gaelic-football/manchester-united-need-the-training-more-than-us-armaghs-oisin-conaty-on-carton-house-clash/a1586083605.html) - **Independent.ie**
-4. [Make it easier to watch live sport in one place and you’ll do away with dodgy boxes](https://www.irishtimes.com/business/innovation/2026/04/30/make-it-easier-to-watch-live-sport-in-one-place-and-youll-do-away-with-dodgy-boxes/) - **The Irish Times**
-5. [Parkinson hails Wrexham Women's Adran Premier success](https://www.bbc.com/sport/football/articles/c2lwk2kqz5qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Bayern Munich News: An opening for Manchester United on Harry Kane?](https://www.bavarianfootballworks.com/transfer-rumors/183589/bayern-munich-manchester-united-kane-real-madrid-fc-barcelona-chelsea-arsenal-psg-bvb-inter-city) - **Bavarian Football Works**
-7. [Isak ready for team training return after injury layoff in boost for Liverpool, Sweden](https://www.channelnewsasia.com/sport/isak-ready-team-training-return-after-injury-layoff-in-boost-liverpool-sweden-6032786) - **CNA**
-8. [FIFA gives green light to Arsene Wenger’s offside rule for pilot test in Canadian Premier League](https://worldsoccertalk.com/news/fifa-gives-green-light-to-arsene-wengers-offside-rule-for-pilot-test-in-canadian-premier-league/) - **Worldsoccertalk.com**
-9. [Miotto’s Musings: Italy’s World Cup Disappointments Speak to Broader Issues in Italian Football](https://www.chiesaditotti.com/as-roma-news-features/40381/miottos-musings-italys-world-cup-disappointments-speak-to-broader-issues-in-italian-football) - **Chiesa Di Totti**
+1. [RB Leipzig willing to negotiate a deal beneath Castello Lukeba’s release clause amid Arsenal interest](https://www.getfootballnewsfrance.com/2026/rb-leipzig-willing-to-negotiate-a-deal-beneath-castello-lukebas-release-clause-amid-arsenal-interest/) - **Get French Football News**
+2. [Everton plotting sensational move for Manchester City defender](https://footballtoday.com/2026/04/02/everton-plotting-sensational-move-for-manchester-city-defender/) - **Footballtoday.com**
+3. [Let’s Hope That Dennis Cirkin’s Future Is Red And White!](https://rokerreport.sbnation.com/opinion/132839/lets-hope-that-dennis-cirkins-future-is-red-and-white) - **SB Nation**
+4. [Real Madrid midfielder attracting strong interest from PSG and Premier League giants](https://madriduniversal.com/real-madrid-midfielder-attracting-strong-interest-from-psg-and-premier-league-giants/) - **Madriduniversal.com**
+5. [“You shouldn’t wear the blue jersey!” – John Obi Mikel has message for Chelsea player](https://chelsea.news/2026/04/you-shouldnt-wear-the-blue-jersey-john-obi-mikel-has-message-for-chelsea-player/) - **Chelsea.news**
+6. [Thursday’s Everton News: Mykolenko injury, Coleman shines, new Keane contract discussed](https://royalbluemersey.sbnation.com/everton-news/79130/mykolenko-injury-coleman-shines-new-keane-contract-discussed) - **SB Nation**
+7. [Is success crucial? BBC Sport experts pick their player of the season](https://www.bbc.com/sport/football/articles/cr5139qvl55o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Is success crucial? BBC Sport experts pick their player of the season](https://www.bbc.com/sport/football/articles/cr5139qvl55o) - **BBC News**
+9. [Chelsea player appears to support Liam Rosenior on IG in wake of player criticism](https://chelsea.news/2026/04/chelsea-player-appears-to-support-liam-rosenior-on-ig-in-wake-of-player-criticism/) - **Chelsea.news**
+10. [Man Utd insider: ‘One of the best’ players in the Premier League now views Old Trafford as ‘dream move’ amid interest](https://strettynews.com/2026/04/02/iliman-ndiaye-manchester-united-dream-everton/) - **Strettynews.com**
 
 
 ---
-*최근 업데이트: 2026-04-03 13:55:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-03 15:13:12 (KST) / (하루 100회 제한 준수 중)*
