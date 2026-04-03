@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Pep Guardiola to delay Manchester City future decision until the end of the season](https://footballtoday.com/2026/04/02/pep-guardiola-to-delay-manchester-city-future-decision-until-the-end-of-the-season/) - **Footballtoday.com**
-2. [FA Cup Semi-Final Draw: Date, Time, Ball Numbers, and How to Watch Live](https://cityxtra.co.uk/44055/fa-cup-semi-final-draw-date-time-ball-numbers-and-how-to-watch-live/) - **Cityxtra.co.uk**
-3. [Tipp minors and Clare face off, Roscommon begin Connacht defence and Dublin eye 1B glory – Easter weekend GAA storylines](https://www.independent.ie/sport/gaelic-games/tipp-minors-and-clare-face-off-roscommon-begin-connacht-defence-and-dublin-eye-1b-glory-easter-weekend-gaa-storylines/a612548615.html) - **Independent.ie**
-4. [Tipp minors and Clare face off, Roscommon begin Connacht defence and Dublin eye 1B glory – five Easter weekend GAA storylines](https://www.independent.ie/sport/gaelic-games/tipp-minors-and-clare-face-off-roscommon-begin-connacht-defence-and-dublin-eye-1b-glory-five-easter-weekend-gaa-storylines/a612548615.html) - **Independent.ie**
-5. [Tipp minors and Clare face off, Roscommon begin Connacht defence and Dublin eye 1B glory – five weekend GAA storylines](https://www.independent.ie/sport/gaelic-games/tipp-minors-and-clare-face-off-roscommon-begin-connacht-defence-and-dublin-eye-1b-glory-five-weekend-gaa-storylines/a612548615.html) - **Independent.ie**
-6. [Tipp minors and Clare face off, Roscommon begin Connacht defence and Dublin eye 1B glory – four Easter weekend GAA storylines](https://www.independent.ie/sport/gaelic-games/tipp-minors-and-clare-face-off-roscommon-begin-connacht-defence-and-dublin-eye-1b-glory-four-easter-weekend-gaa-storylines/a612548615.html) - **Independent.ie**
-7. [Former Premier League Executive Urges Newcastle to Sell Anthony Gordon Quickly](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/21249/former-premier-league-executive-urges-newcastle-to-sell-anthony-gordon-quickly) - **SB Nation**
-8. [De Zerbi responds to criticism of Greenwood handling in first Spurs interview: ‘I never wanted to downplay the issue; I didn’t mean to take a stance’](https://football-italia.net/de-zerbi-responds-criticism-greenwood-handling/) - **Football Italia**
-9. [One Moment in Time: Stones' title-winning clearance](https://www.mancity.com/news/mens/one-moment-in-time-stones-title-winning-clearance-63910730) - **Manchester City FC**
-10. [Enzo Fernandez's Madrid ambition fuels tension at Chelsea](https://www.marca.com/en/football/real-madrid/2026/04/02/69ce8bc122601de93b8b45ca.html) - **Marca**
+1. [Liverpool make first move for €40m-rated midfielder](https://anfieldindex.com/92794/liverpool-make-first-move-for-e40m-rated-midfielder.html) - **Anfieldindex.com**
+2. [Fabrizio Romano’s afternoon manager update is absolutely massive news for Arne Slot](https://www.empireofthekop.com/2026/04/02/fabrizio-romanos-afternoon-manager-update-is-absolutely-massive-news-for-arne-slot/) - **Empire of The Kop**
+3. [‘I am sorry if I offended anyone’ – Roberto De Zerbi backtracks on Mason Greenwood comments in first Spurs interview](https://www.independent.ie/sport/soccer/premier-league/i-am-sorry-if-i-offended-anyone-roberto-de-zerbi-backtracks-on-mason-greenwood-comments-in-first-spurs-interview/a1807810680.html) - **Independent.ie**
+4. [New Spurs boss De Zerbi apologises for Greenwood remarks](https://www.rte.ie/sport/soccer/2026/0402/1566511-new-spurs-boss-de-zerbi-apologises-for-greenwood-remarks/) - **RTE**
+5. [PREVIEW | Chelsea vs Port Vale - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-chelsea-vs-port-vale-team-news-lineups-predictions/1086590) - **Playmakerstats.com**
+6. [Preity Zinta's requests Australian player Cooper Connolly to chant 'Jai Bajrangbali'; Watch video](https://economictimes.indiatimes.com/news/sports/preity-zintas-requests-australian-player-cooper-connolly-to-chant-jai-bajrangbali-watch-video/articleshow/129984105.cms) - **The Times of India**
+7. [The NBA is planning a European basketball league. Investors think it's worth billions.](https://www.nbcnews.com/sports/basketball/nba-planning-european-basketball-league-investors-think-billions-rcna266410) - **NBC News**
+8. [Pep Guardiola to delay Manchester City future decision until the end of the season](https://footballtoday.com/2026/04/02/pep-guardiola-to-delay-manchester-city-future-decision-until-the-end-of-the-season/) - **Footballtoday.com**
+9. [FA Cup Semi-Final Draw: Date, Time, Ball Numbers, and How to Watch Live](https://cityxtra.co.uk/44055/fa-cup-semi-final-draw-date-time-ball-numbers-and-how-to-watch-live/) - **Cityxtra.co.uk**
 
 
 ---
-*최근 업데이트: 2026-04-04 01:06:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-04 01:59:07 (KST) / (하루 100회 제한 준수 중)*
