@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Cymru Premier: Good Friday fixtures](https://www.bbc.com/sport/football/articles/czexyn9kz5yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Lukeba price tag revealed as Premier League teams target Leipzig defender](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d9c679b4-52fc-4391-a7af-5b39efd547ce) - **Yahoo Entertainment**
-3. [Chelsea vs Tottenham - prediction, team news, lineups](https://www.playmakerstats.com//news/chelsea-vs-tottenham-prediction-team-news-lineups/775289) - **Playmakerstats.com**
-4. [Juventus Could Be Forced to Sell a Big Name Without UCL](https://cultofcalcio.com/juventus-could-be-forced-to-sell-a-big-name-without-ucl/) - **Cultofcalcio.com**
-5. [Report: Liverpool, Chelsea and Man City are all interested in move for Barcelona star](https://eplindex.com/144783/report-liverpool-chelsea-and-man-city-are-all-interested-in-move-for-barcelona-star.html) - **English Premier League Index - Opta Stats**
-6. [Paul Joyce shares huge update on Xabi Alonso’s potential Liverpool return](https://anfieldindex.com/92790/paul-joyce-shares-huge-update-on-xabi-alonsos-potential-liverpool-return.html) - **Anfieldindex.com**
-7. [Transfer rumour roundup: De Zerbi eyes first Spurs signing as Locatelli tops list; Arsenal chase Kofane](https://www.footballmuse.com/features/transfer-rumour-roundup-de-zerbi-eyes-first-spurs-signing-as-locatelli-tops-list-arsenal-chase-kofane) - **Footballmuse.com**
-8. [Croke Park to host Manchester Utd-Leeds Utd friendly](https://www.rte.ie/sport/soccer/2026/0402/1566430-croke-park-to-host-manchester-utd-leeds-utd-friendly/) - **RTE**
-9. [Liverpool's next Divock Origi is locked in their sights](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpools-next-divock-origi-is-locked-in-their-sights/) - **Anfieldwatch.co.uk**
-10. [Nuwan Thushara to take legal action against Shammi for not allowing him to go to the IPL](https://english.gossiplankanews.com/2026/04/nuwan-thushara-to-take-legal-action.html) - **Gossiplankanews.com**
+1. [Has this season shown it’s time for Chelsea to finally change their model?](https://hayters.com/has-this-season-shown-its-time-for-chelsea-to-finally-change-their-model/) - **Hayters.com**
+2. [Which clubs have used academy players most in Premier League?](https://www.bbc.com/sport/football/articles/c78lnw7nlgwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Newcastle United keen on Bayer Leverkusen striker Christian Kofane](https://sportsview.co.uk/2026/04/newcastle-united-keen-on-bayer-leverkusen-striker-christian-kofane?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-united-keen-on-bayer-leverkusen-striker-christian-kofane) - **Sportsview.co.uk**
+4. [Gerrard opens up on Salah talks after Liverpool legend confirms summer exit](https://www.101greatgoals.com/football/premier-league/gerrard-opens-up-salah-talks-liverpool/) - **101 Great Goals**
+5. [What is happening with Man Utd's teenage striker Chido?](https://www.bbc.com/sport/football/articles/cwydk9m43wxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [What is happening with Man Utd's teenage striker Chido?](https://www.bbc.com/sport/football/articles/cwydk9m43wxo) - **BBC News**
+7. [Arteta needs to find the right balance on Saturday](https://www.justarsenal.com/arteta-needs-to-find-the-right-balance-on-saturday/412790) - **Just Arsenal News**
+8. [Gerrard reveals how he rejected Man United move after Ferguson approach](https://www.empireofthekop.com/2026/04/02/gerrard-reveals-how-he-rejected-man-united-move-after-ferguson-approach/) - **Empire of The Kop**
+9. [The magical rise of Lincoln City - on cusp of Championship return after 65 years away](https://www.skysports.com/football/news/11760/13526813/lincoln-city-on-cusp-of-championship-return-after-65-years-away) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-04-03 19:26:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-03 20:24:10 (KST) / (하루 100회 제한 준수 중)*
