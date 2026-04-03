@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool make first move for €40m-rated midfielder](https://anfieldindex.com/92794/liverpool-make-first-move-for-e40m-rated-midfielder.html) - **Anfieldindex.com**
-2. [Fabrizio Romano’s afternoon manager update is absolutely massive news for Arne Slot](https://www.empireofthekop.com/2026/04/02/fabrizio-romanos-afternoon-manager-update-is-absolutely-massive-news-for-arne-slot/) - **Empire of The Kop**
-3. [‘I am sorry if I offended anyone’ – Roberto De Zerbi backtracks on Mason Greenwood comments in first Spurs interview](https://www.independent.ie/sport/soccer/premier-league/i-am-sorry-if-i-offended-anyone-roberto-de-zerbi-backtracks-on-mason-greenwood-comments-in-first-spurs-interview/a1807810680.html) - **Independent.ie**
-4. [New Spurs boss De Zerbi apologises for Greenwood remarks](https://www.rte.ie/sport/soccer/2026/0402/1566511-new-spurs-boss-de-zerbi-apologises-for-greenwood-remarks/) - **RTE**
-5. [PREVIEW | Chelsea vs Port Vale - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-chelsea-vs-port-vale-team-news-lineups-predictions/1086590) - **Playmakerstats.com**
-6. [Preity Zinta's requests Australian player Cooper Connolly to chant 'Jai Bajrangbali'; Watch video](https://economictimes.indiatimes.com/news/sports/preity-zintas-requests-australian-player-cooper-connolly-to-chant-jai-bajrangbali-watch-video/articleshow/129984105.cms) - **The Times of India**
-7. [The NBA is planning a European basketball league. Investors think it's worth billions.](https://www.nbcnews.com/sports/basketball/nba-planning-european-basketball-league-investors-think-billions-rcna266410) - **NBC News**
-8. [Pep Guardiola to delay Manchester City future decision until the end of the season](https://footballtoday.com/2026/04/02/pep-guardiola-to-delay-manchester-city-future-decision-until-the-end-of-the-season/) - **Footballtoday.com**
-9. [FA Cup Semi-Final Draw: Date, Time, Ball Numbers, and How to Watch Live](https://cityxtra.co.uk/44055/fa-cup-semi-final-draw-date-time-ball-numbers-and-how-to-watch-live/) - **Cityxtra.co.uk**
+1. [EverPass Media Expands Relationship with Netflix; Secures Exclusive Commercial Rights to Distribute Upcoming Fury vs. Makhmudov Fight in the U.S.](https://www.globenewswire.com/news-release/2026/04/02/3267739/0/en/EverPass-Media-Expands-Relationship-with-Netflix-Secures-Exclusive-Commercial-Rights-to-Distribute-Upcoming-Fury-vs-Makhmudov-Fight-in-the-U-S.html) - **GlobeNewswire**
+2. [Manchester City vs Liverpool: Match preview, predicted line-ups, team news and prediction](https://footballtoday.com/2026/04/02/manchester-city-vs-liverpool-match-preview-predicted-line-ups-team-news-and-prediction/) - **Footballtoday.com**
+3. [Sunrisers beat KKR for first win of this year's IPL](https://www.bbc.com/sport/cricket/articles/c070dd85r2mo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [2026 Premier League Darts Night 9 Manchester live results, scores and schedule](https://www.sportingnews.com/us/darts/news/premier-league-darts-night-9-manchester-live-results-scores-schedule/441f0a727ac0fcd914a91143) - **Sporting News**
+5. [What a difference a year makes...](https://www.bbc.com/sport/football/articles/cj40eexx7rxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [£150k per week Liverpool starter is begging for a Real Madrid offer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-ibrahima-konate-is-begging-for-a-real-madrid-offer/) - **Anfieldwatch.co.uk**
+7. [Gerrard Opens up on Advice to Salah: “Go on Your Terms, Go the Right Way”](https://liverpooloffside.sbnation.com/liverpool-fc-news-coverage/79524/gerrard-opens-up-on-advice-to-salah-go-on-your-terms-go-the-right-way) - **SB Nation**
+8. [De Zerbi apologises to fans for Greenwood comments](https://www.bbc.com/sport/football/articles/cwyvq3gqwpyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [De Zerbi apologises to fans for Greenwood comments](https://www.bbc.com/sport/football/articles/cwyvq3gqwpyo) - **BBC News**
+10. [Player strain, brain health and cyber threats high on FA priorities](https://www.bbc.com/sport/football/articles/c5ywkqk1pj3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-04 01:59:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-04 02:47:05 (KST) / (하루 100회 제한 준수 중)*
