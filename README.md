@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How to watch 9Now outside Australia – stream online and from anywhere with a VPN](https://www.techradar.com/how-to-watch/9now-outside-australia-free) - **TechRadar**
-2. [IPL chairman Arun Dhumal claims there is ‘less interest in some bilateral games’: ‘Will try to get bigger window (for league) in next cycle’](https://indianexpress.com/article/sports/cricket/ipl-expansion-chairman-arun-singh-dhumal-international-bilateral-10615979/) - **The Indian Express**
-3. [Juventus helpless as 'perfect' defender lined up for £47m Liverpool deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-gleison-bremer-juventus-perfect-47m-release-clause/) - **Anfieldwatch.co.uk**
-4. [FA Cup talking points: Dowman in spotlight, how strong will Pep and Slot go?](https://www.skysports.com/football/news/34651/13527172/fa-cup-quarter-final-talking-points-spotlight-on-max-dowman-for-injury-hit-arsenal-how-strong-will-pep-guardiola-and-arne-slot-go) - **Sky Sports**
-5. [FA Cup talking points: Dowman in spotlight, how strong will Pep and Slot go?](https://www.skysports.com/football/news/34651/13527172/fa-cup-quarter-final-talking-points-spotlight-on-max-dowman-for-injury-hit-arsenal-how-strong-will-pep-guardiola-and-arne-slot-go) - **Sky Sports**
-6. [FA Cup talking points: Dowman in spotlight, how strong will Pep and Slot go?](https://www.skysports.com/football/news/34651/13527172/fa-cup-quarter-final-talking-points-spotlight-on-max-dowman-for-injury-hit-arsenal-how-strong-will-pep-guardiola-and-arne-slot-go) - **Sky Sports**
-7. [Breaking: Man United held meeting with Premier League defender in Feb as they begin scouting Maguire’s successor](https://strettynews.com/2026/04/02/manchester-united-jarrad-branthwaite-everton-meeting/) - **Strettynews.com**
-8. [Report: Tottenham Hotspur in talks over move for €45m midfielder](https://eplindex.com/144801/report-tottenham-hotspur-in-talks-over-move-for-e45m-midfielder.html) - **English Premier League Index - Opta Stats**
-9. [RCB pick Nuwan Thushara moves court against Sri Lanka Cricket over IPL NOC denial](https://economictimes.indiatimes.com/news/sports/rcb-pick-nuwan-thushara-moves-court-against-sri-lanka-cricket-over-ipl-noc-denial/articleshow/129982347.cms) - **The Times of India**
-10. [Gerrard's regret over Rangers exit](https://www.bbc.com/sport/articles/cvg06xzrex2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Pep Guardiola to delay Manchester City future decision until the end of the season](https://footballtoday.com/2026/04/02/pep-guardiola-to-delay-manchester-city-future-decision-until-the-end-of-the-season/) - **Footballtoday.com**
+2. [FA Cup Semi-Final Draw: Date, Time, Ball Numbers, and How to Watch Live](https://cityxtra.co.uk/44055/fa-cup-semi-final-draw-date-time-ball-numbers-and-how-to-watch-live/) - **Cityxtra.co.uk**
+3. [Tipp minors and Clare face off, Roscommon begin Connacht defence and Dublin eye 1B glory – Easter weekend GAA storylines](https://www.independent.ie/sport/gaelic-games/tipp-minors-and-clare-face-off-roscommon-begin-connacht-defence-and-dublin-eye-1b-glory-easter-weekend-gaa-storylines/a612548615.html) - **Independent.ie**
+4. [Tipp minors and Clare face off, Roscommon begin Connacht defence and Dublin eye 1B glory – five Easter weekend GAA storylines](https://www.independent.ie/sport/gaelic-games/tipp-minors-and-clare-face-off-roscommon-begin-connacht-defence-and-dublin-eye-1b-glory-five-easter-weekend-gaa-storylines/a612548615.html) - **Independent.ie**
+5. [Tipp minors and Clare face off, Roscommon begin Connacht defence and Dublin eye 1B glory – five weekend GAA storylines](https://www.independent.ie/sport/gaelic-games/tipp-minors-and-clare-face-off-roscommon-begin-connacht-defence-and-dublin-eye-1b-glory-five-weekend-gaa-storylines/a612548615.html) - **Independent.ie**
+6. [Tipp minors and Clare face off, Roscommon begin Connacht defence and Dublin eye 1B glory – four Easter weekend GAA storylines](https://www.independent.ie/sport/gaelic-games/tipp-minors-and-clare-face-off-roscommon-begin-connacht-defence-and-dublin-eye-1b-glory-four-easter-weekend-gaa-storylines/a612548615.html) - **Independent.ie**
+7. [Former Premier League Executive Urges Newcastle to Sell Anthony Gordon Quickly](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/21249/former-premier-league-executive-urges-newcastle-to-sell-anthony-gordon-quickly) - **SB Nation**
+8. [De Zerbi responds to criticism of Greenwood handling in first Spurs interview: ‘I never wanted to downplay the issue; I didn’t mean to take a stance’](https://football-italia.net/de-zerbi-responds-criticism-greenwood-handling/) - **Football Italia**
+9. [One Moment in Time: Stones' title-winning clearance](https://www.mancity.com/news/mens/one-moment-in-time-stones-title-winning-clearance-63910730) - **Manchester City FC**
+10. [Enzo Fernandez's Madrid ambition fuels tension at Chelsea](https://www.marca.com/en/football/real-madrid/2026/04/02/69ce8bc122601de93b8b45ca.html) - **Marca**
 
 
 ---
-*최근 업데이트: 2026-04-04 00:26:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-04 01:06:19 (KST) / (하루 100회 제한 준수 중)*
