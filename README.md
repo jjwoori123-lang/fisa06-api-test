@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arne Slot On “Exciting” Challenge of Facing Manchester City and PSG](https://liverpooloffside.sbnation.com/liverpool-fc-news-coverage/79521/arne-slot-on-exciting-challenge-of-facing-manchester-city-and-psg) - **SB Nation**
-2. [Farke on Calvert-Lewin and chance for Leeds to 'write history'](https://www.bbc.com/sport/football/articles/ckge5004dyvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [“One of the best in 10 years”: Arne Slot pays tribute to Salah as Liverpool great prepares to leave Anfield](https://www.footballmuse.com/news/one-of-the-best-in-10-years-arne-slot-pays-tribute-to-salah-as-liverpool-great-prepares-to-leave-anfield) - **Footballmuse.com**
-4. [Arthur backs 'national treasure' Bashir to regain form](https://www.bbc.com/sport/cricket/articles/cn08z4e6yp4o) - **BBC News**
-5. [From the vault: Six classic wins at Southampton](http://www.arsenal.com/news/vault-six-classic-wins-southampton) - **Arsenal.com**
-6. [Pep Guardiola delays Manchester City future decision until end of May](https://cityxtra.co.uk/44033/pep-guardiola-delays-manchester-city-future-decision-until-end-of-may/) - **Cityxtra.co.uk**
-7. [Roma interested in Brentford fullback Rico Henry](https://romapress.net/roma-interested-in-brentford-fullback-rico-henry/) - **RomaPress**
-8. [The case for Semenyo to win player of the year](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e1fb5afc-f714-479b-ac4a-496a6fb72548) - **Yahoo Entertainment**
-9. [The case for 'sensational' Rice to win player of the year](https://www.bbc.com/sport/football/articles/c5yx2728mz5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Stumped podcast: The teen sensation hitting the IPL for six](https://www.bbc.co.uk/sounds/play/w3ct99f0) - **BBC News**
+1. [More injuries than anyone else – why Arsenal’s title push deserves context](https://hayters.com/more-injuries-than-anyone-else-why-arsenals-title-push-deserves-context/) - **Hayters.com**
+2. [How to watch Chelsea vs Port Vale live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-chelsea-vs-port-vale-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
+3. [Lawlor 'going to go to the top', says Roberts](https://www.bbc.com/sport/football/articles/cx2r341lgp2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [When will Juventus international stars return to training?](https://www.juvefc.com/when-will-juventus-international-stars-return-to-training/) - **JuveFC**
+5. [Street League Skateboarding and BMW M join Forces, "Owning the Streets" Worldwide](https://www.press.bmwgroup.com/global/article/detail/T0456775EN/street-league-skateboarding-and-bmw-m-join-forces-owning-the-streets-worldwide?language=en) - **Bmwgroup.com**
+6. [Despite the outcries against it, NCAA tournament expansion 'will happen.' Here's why that's the case](https://sports.yahoo.com/mens-college-basketball/article/despite-the-outcries-against-it-ncaa-tournament-expansion-will-happen-heres-why-thats-the-case-135942077.html) - **Yahoo Entertainment**
+7. [Game 'killer' or 'fairer' - does the Championship need VAR?](https://www.bbc.com/sport/football/articles/cx288ypvyq5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. ['Game killer' or 'fairer' - does the Championship need VAR?](https://www.bbc.com/sport/football/articles/cx288ypvyq5o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-03 22:39:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-03 23:27:44 (KST) / (하루 100회 제한 준수 중)*
