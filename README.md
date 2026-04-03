@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [More injuries than anyone else – why Arsenal’s title push deserves context](https://hayters.com/more-injuries-than-anyone-else-why-arsenals-title-push-deserves-context/) - **Hayters.com**
-2. [How to watch Chelsea vs Port Vale live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-chelsea-vs-port-vale-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
-3. [Lawlor 'going to go to the top', says Roberts](https://www.bbc.com/sport/football/articles/cx2r341lgp2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [When will Juventus international stars return to training?](https://www.juvefc.com/when-will-juventus-international-stars-return-to-training/) - **JuveFC**
-5. [Street League Skateboarding and BMW M join Forces, "Owning the Streets" Worldwide](https://www.press.bmwgroup.com/global/article/detail/T0456775EN/street-league-skateboarding-and-bmw-m-join-forces-owning-the-streets-worldwide?language=en) - **Bmwgroup.com**
-6. [Despite the outcries against it, NCAA tournament expansion 'will happen.' Here's why that's the case](https://sports.yahoo.com/mens-college-basketball/article/despite-the-outcries-against-it-ncaa-tournament-expansion-will-happen-heres-why-thats-the-case-135942077.html) - **Yahoo Entertainment**
-7. [Game 'killer' or 'fairer' - does the Championship need VAR?](https://www.bbc.com/sport/football/articles/cx288ypvyq5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. ['Game killer' or 'fairer' - does the Championship need VAR?](https://www.bbc.com/sport/football/articles/cx288ypvyq5o) - **BBC News**
+1. [How to watch 9Now outside Australia – stream online and from anywhere with a VPN](https://www.techradar.com/how-to-watch/9now-outside-australia-free) - **TechRadar**
+2. [IPL chairman Arun Dhumal claims there is ‘less interest in some bilateral games’: ‘Will try to get bigger window (for league) in next cycle’](https://indianexpress.com/article/sports/cricket/ipl-expansion-chairman-arun-singh-dhumal-international-bilateral-10615979/) - **The Indian Express**
+3. [Juventus helpless as 'perfect' defender lined up for £47m Liverpool deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-gleison-bremer-juventus-perfect-47m-release-clause/) - **Anfieldwatch.co.uk**
+4. [FA Cup talking points: Dowman in spotlight, how strong will Pep and Slot go?](https://www.skysports.com/football/news/34651/13527172/fa-cup-quarter-final-talking-points-spotlight-on-max-dowman-for-injury-hit-arsenal-how-strong-will-pep-guardiola-and-arne-slot-go) - **Sky Sports**
+5. [FA Cup talking points: Dowman in spotlight, how strong will Pep and Slot go?](https://www.skysports.com/football/news/34651/13527172/fa-cup-quarter-final-talking-points-spotlight-on-max-dowman-for-injury-hit-arsenal-how-strong-will-pep-guardiola-and-arne-slot-go) - **Sky Sports**
+6. [FA Cup talking points: Dowman in spotlight, how strong will Pep and Slot go?](https://www.skysports.com/football/news/34651/13527172/fa-cup-quarter-final-talking-points-spotlight-on-max-dowman-for-injury-hit-arsenal-how-strong-will-pep-guardiola-and-arne-slot-go) - **Sky Sports**
+7. [Breaking: Man United held meeting with Premier League defender in Feb as they begin scouting Maguire’s successor](https://strettynews.com/2026/04/02/manchester-united-jarrad-branthwaite-everton-meeting/) - **Strettynews.com**
+8. [Report: Tottenham Hotspur in talks over move for €45m midfielder](https://eplindex.com/144801/report-tottenham-hotspur-in-talks-over-move-for-e45m-midfielder.html) - **English Premier League Index - Opta Stats**
+9. [RCB pick Nuwan Thushara moves court against Sri Lanka Cricket over IPL NOC denial](https://economictimes.indiatimes.com/news/sports/rcb-pick-nuwan-thushara-moves-court-against-sri-lanka-cricket-over-ipl-noc-denial/articleshow/129982347.cms) - **The Times of India**
+10. [Gerrard's regret over Rangers exit](https://www.bbc.com/sport/articles/cvg06xzrex2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-03 23:27:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-04 00:26:22 (KST) / (하루 100회 제한 준수 중)*
