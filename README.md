@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Thursday training: City get back to business](https://www.mancity.com/news/mens/manchester-city-return-to-training-thursday-april-2-63910750) - **Manchester City FC**
-2. [Liverpool make contact to begin massive transfer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-make-contact-to-begin-massive-transfer/) - **Anfieldwatch.co.uk**
-3. [Man United Plans To Axe Five Top Earners To Free Up More Than $1M Per Week](https://www.foxsports.com/stories/soccer/revealed-man-united-plan-to-axe-five-high-earners-to-free-up-more-than-1m-per-week-on-wage-bill) - **Fox Sports**
-4. [Chelsea’s precarious project further rocked by Marc Cucurella and Enzo Fernández comments](https://www.irishtimes.com/sport/2026/04/02/chelseas-precarious-project-further-rocked-by-marc-cucurella-and-enzo-fernandez-comments/) - **The Irish Times**
-5. [Late bloomer O'Keeffe eager for league honours](https://www.rte.ie/sport/camogie/2026/0402/1566542-late-bloomer-okeeffe-eager-for-league-honours/) - **RTE**
-6. [How many Premier League teams will qualify for Champions, Europa, Conference League?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_13869e11-1b5a-43a3-b5a2-9cc739e37b60) - **Yahoo Entertainment**
-7. [Pape Gueye: United target shares exciting update on his future](https://thepeoplesperson.com/2026/04/02/pape-gueye-united-target-shares-exciting-update-on-his-future-308352/) - **The Peoples Person**
-8. [Leeds United’s Obsession With This 24-Year-Old Forward Continues: Does He Solve The Club’s Actual Problem?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9630869c-91c9-4aa5-b4b1-b1dc73ae7ae0) - **Yahoo Entertainment**
-9. [Liverpool could strike blockbuster triple deal with giant club](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-could-strike-blockbuster-triple-deal-with-giant-club/) - **Anfieldwatch.co.uk**
+1. [Why billionaires abandoning Wall Street for English soccer clubs...](https://dnyuz.com/2026/04/02/why-american-billionaires-are-abandoning-wall-street-for-english-soccer-clubs/) - **Dnyuz.com**
+2. [Agent confirms Arsenal has “genuine” interest in his client](https://www.justarsenal.com/agent-confirms-arsenal-has-genuine-interest-in-his-client/412816) - **Just Arsenal News**
+3. [Championship predictions: Middlesbrough to take step closer to Premier League](https://www.skysports.com/football/news/11095/13527390/championship-predictions-and-best-bets-middlesbrough-to-take-a-step-closer-to-premier-league-with-good-friday-win) - **Sky Sports**
+4. [Roberto De Zerbi responds to criticism over Mason Greenwood comments whilst at Marseille](https://www.getfootballnewsfrance.com/2026/roberto-de-zerbi-responds-to-criticism-over-mason-greenwood-comments-whilst-at-marseille/) - **Get French Football News**
+5. [Report: Liverpool plotting move to sign Barcelona star](https://anfieldindex.com/92785/report-liverpool-considering-summer-move-to-sign-barcelona-star.html) - **Anfieldindex.com**
+6. [Chelsea injury latest: Reece James, Trevoh Chalobah and more](https://eplindex.com/144814/chelsea-injury-latest-reece-james-trevoh-chalobah-and-more-2.html) - **English Premier League Index - Opta Stats**
+7. [Arsenal Identify This Bundesliga Striker As A Target: One For The Future?](https://the4thofficial.net/2026/04/arsenal-identify-this-bundesliga-striker-as-a-target/) - **The4thofficial.net**
+8. [De Zerbi commits to stay at Spurs next season regardless of results](https://www.channelnewsasia.com/sport/de-zerbi-commits-stay-spurs-next-season-regardless-results-6034421) - **CNA**
+9. [Thursday training: City get back to business](https://www.mancity.com/news/mens/manchester-city-return-to-training-thursday-april-2-63910750) - **Manchester City FC**
 
 
 ---
-*최근 업데이트: 2026-04-04 04:40:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-04 05:04:26 (KST) / (하루 100회 제한 준수 중)*
