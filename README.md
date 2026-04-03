@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Hyderabad cruises to big win over Kolkata in the Indian Premier League](https://sports.yahoo.com/articles/hyderabad-cruises-big-win-over-184813043.html) - **Yahoo Entertainment**
-2. [Manchester United Have Set Their Sights On This Newcastle United Star: Good Choice For Carrick?](https://the4thofficial.net/2026/04/manchester-united-have-set-their-sights-on-this-newcastle-united-star/) - **The4thofficial.net**
-3. [Former Aberdeen Chief Bats For 18-Year-Old To be Good Signing For The Rangers: Do They Need Him?](https://the4thofficial.net/2026/04/former-aberdeen-chief-bats-for-18-year-old-to-be-good-signing-for-the-rangers-do-they-need-him/) - **The4thofficial.net**
-4. [Best NBA Player Props Today for April 2: Bow down to the King in OKC](https://www.covers.com/nba/player-prop-bets-thursday-april-2-2026) - **Covers.com**
-5. [ESPN dubs DT DeSean Watts Washington's top newcomer for 2026](https://uwhuskieswire.usatoday.com/story/sports/college/huskies/football/2026/04/02/desean-watts-uw-football-transfer-portal-washington-huskies-jedd-fisch-matt-doherty/89421768007/) - **USA Today**
-6. [India’s microdrama market braces for new wave of competition](https://economictimes.indiatimes.com/industry/media/entertainment/indias-microdrama-market-braces-for-new-wave-of-competition/articleshow/129987207.cms) - **The Times of India**
-7. [Sutton's FA Cup predictions v boxer Richard Riakporhe](https://www.bbc.com/sport/football/articles/ce3dvdryr4zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Sutton's FA Cup predictions v boxer Richard Riakporhe](https://www.bbc.com/sport/football/articles/ce3dvdryr4zo) - **BBC News**
-9. [Liverpool Identify This Real Madrid Playmaker As A Target: What Will He Bring To Anfield?](https://the4thofficial.net/2026/04/liverpool-identify-this-real-madrid-playmaker-as-a-target-2/) - **The4thofficial.net**
-10. [Pundits argue over Wenger’s place among top managers](https://www.justarsenal.com/pundits-argue-over-wengers-place-among-top-managers/412814) - **Just Arsenal News**
+1. [Thursday training: City get back to business](https://www.mancity.com/news/mens/manchester-city-return-to-training-thursday-april-2-63910750) - **Manchester City FC**
+2. [Liverpool make contact to begin massive transfer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-make-contact-to-begin-massive-transfer/) - **Anfieldwatch.co.uk**
+3. [Man United Plans To Axe Five Top Earners To Free Up More Than $1M Per Week](https://www.foxsports.com/stories/soccer/revealed-man-united-plan-to-axe-five-high-earners-to-free-up-more-than-1m-per-week-on-wage-bill) - **Fox Sports**
+4. [Chelsea’s precarious project further rocked by Marc Cucurella and Enzo Fernández comments](https://www.irishtimes.com/sport/2026/04/02/chelseas-precarious-project-further-rocked-by-marc-cucurella-and-enzo-fernandez-comments/) - **The Irish Times**
+5. [Late bloomer O'Keeffe eager for league honours](https://www.rte.ie/sport/camogie/2026/0402/1566542-late-bloomer-okeeffe-eager-for-league-honours/) - **RTE**
+6. [How many Premier League teams will qualify for Champions, Europa, Conference League?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_13869e11-1b5a-43a3-b5a2-9cc739e37b60) - **Yahoo Entertainment**
+7. [Pape Gueye: United target shares exciting update on his future](https://thepeoplesperson.com/2026/04/02/pape-gueye-united-target-shares-exciting-update-on-his-future-308352/) - **The Peoples Person**
+8. [Leeds United’s Obsession With This 24-Year-Old Forward Continues: Does He Solve The Club’s Actual Problem?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9630869c-91c9-4aa5-b4b1-b1dc73ae7ae0) - **Yahoo Entertainment**
+9. [Liverpool could strike blockbuster triple deal with giant club](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-could-strike-blockbuster-triple-deal-with-giant-club/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-04-04 03:53:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-04 04:40:05 (KST) / (하루 100회 제한 준수 중)*
