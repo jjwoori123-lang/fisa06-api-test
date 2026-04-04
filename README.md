@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [League of Ireland: Early Dundalk double stuns Shels as domestic football returns following the international break](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-early-dundalk-double-stuns-shels-as-domestic-football-returns-following-the-international-break/a862073934.html) - **Independent.ie**
-2. [League of Ireland: Dundalk win at Shels, Hoops held in Waterford and Bohs Drogs draw sees Pat’s go top with win over Sligo](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-dundalk-win-at-shels-hoops-held-in-waterford-and-bohs-drogs-draw-sees-pats-go-top-with-win-over-sligo/a862073934.html) - **Independent.ie**
-3. [PSG makes Arsenal man a key transfer target](https://www.justarsenal.com/psg-makes-arsenal-man-a-key-transfer-target/412864) - **Just Arsenal News**
-4. [League of Ireland: Dundalk lead again at Shels as Hoops equalise in Waterford and Pat’s run riot against Sligo](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-dundalk-lead-again-at-shels-as-hoops-equalise-in-waterford-and-pats-run-riot-against-sligo/a862073934.html) - **Independent.ie**
-5. [League of Ireland: Shels peg Dundalk back as Hoops fall behind in Waterford and Pat’s run riot against Sligo](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-shels-peg-dundalk-back-as-hoops-fall-behind-in-waterford-and-pats-run-riot-against-sligo/a862073934.html) - **Independent.ie**
-6. [League of Ireland: Dundalk stun Shels early on as domestic football returns following the international break](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-dundalk-stun-shels-early-on-as-domestic-football-returns-following-the-international-break/a862073934.html) - **Independent.ie**
-7. [League of Ireland: All the action as domestic football returns following the international break](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-all-the-action-as-domestic-football-returns-following-the-international-break/a862073934.html) - **Independent.ie**
-8. [League of Ireland as it happened: Wins for Pat’s, Dundalk and Galway see Saints go top as Bohs and Hoops held on road](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-as-it-happened-wins-for-pats-dundalk-and-galway-see-saints-go-top-as-bohs-and-hoops-held-on-road/a862073934.html) - **Independent.ie**
-9. [League of Ireland: Shels peg Dundalk back as Hoops equalise in Waterford and Pat’s run riot against Sligo](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-shels-peg-dundalk-back-as-hoops-equalise-in-waterford-and-pats-run-riot-against-sligo/a862073934.html) - **Independent.ie**
+1. [Punjab Kings chase down 210 to beat Chennai Super Kings in the IPL](https://sports.yahoo.com/articles/punjab-kings-chase-down-210-190248961.html) - **Yahoo Entertainment**
+2. [Liverpool Goalkeeper Alisson To Miss Champions League Games Against PSG](https://www.foxsports.com/stories/soccer/liverpool-goalkeeper-alisson-to-miss-champions-league-games-against-psg) - **Fox Sports**
+3. [Arsenal handed boost in Kofane’s pursuit as Bayern Munich ruled out of the race for the Cameroonian](https://footballtoday.com/2026/04/03/arsenal-handed-boost-in-kofanes-pursuit-as-bayern-munich-ruled-out-of-the-race-for-the-cameroonian/) - **Footballtoday.com**
+4. [Three talking points ahead of Mallorca vs Real Madrid | La Liga MD 30](https://madriduniversal.com/three-talking-points-ahead-of-mallorca-vs-real-madrid-la-liga-md-30/) - **Madriduniversal.com**
+5. [Liverpool can repeat Fabinho transfer trick and sign €65m midfielder](https://anfieldindex.com/92830/liverpool-can-repeat-fabinho-transfer-trick-and-sign-e65m-midfielder.html) - **Anfieldindex.com**
+6. [Joshua Zirkzee: What Napoli are doing to take Manchester United’s Dutch striker back to Italy](https://thepeoplesperson.com/2026/04/03/joshua-zirkzee-what-napoli-are-doing-to-take-manchester-uniteds-dutch-striker-back-to-italy-308384/) - **The Peoples Person**
+7. [Jamie Carragher slams Liverpool fans: "Acting like Manchester United supporters"](https://www.marca.com/en/football/premier-league/2026/04/03/69cff9cbe2704ed03a8b458b.html) - **Marca**
+8. [FSG know exactly who is to blame for Liverpool's disastrous season](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-richard-hughes-michael-edwards-arne-slot-blame-fsg/) - **Anfieldwatch.co.uk**
+9. [Barcelona thrashed Real Madrid in the Women’s Champions League. It’s time to reconsider El Clasico](https://sports.yahoo.com/articles/barcelona-thrashed-real-madrid-women-181606015.html) - **Yahoo Entertainment**
+10. [Punjab beat CSK to continue chaser dominance at IPL](https://www.bbc.com/sport/cricket/articles/c4g4egz74njo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-05 03:01:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-05 04:03:45 (KST) / (하루 100회 제한 준수 중)*
