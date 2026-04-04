@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Projecting the USA's 2026 World Cup Roster Following Losses To Portugal, Belgium](https://www.foxsports.com/stories/soccer/usmnt-2026-fifa-world-cup-roster-prediction) - **Fox Sports**
-2. [Chelsea announce first ever visit to Lagos](https://punchng.com/chelsea-announce-first-ever-visit-to-lagos/) - **The Punch**
-3. [World Cup Title Favorites, Sleepers, Debut Teams? All 48 Teams By Tiers](https://www.foxsports.com/stories/soccer/world-cup-tiers-48-teams-favorites-sleeper-picks-usmnt-mexico-canada-argentina-england) - **Fox Sports**
-4. [Court sanctions Getafe over failed Uche clause](https://punchng.com/court-sanctions-getafe-over-failed-uche-clause/) - **The Punch**
-5. [British Airways Is Forcing Its Employee Football Club To Drop The Name — Ending An 80-Year Link](https://viewfromthewing.com/british-airways-is-forcing-its-employee-football-club-to-drop-the-name-ending-an-80-year-link/) - **Viewfromthewing.com**
-6. [5 Greatest Batman Villainesses (That Aren’t Catwoman, Harley Quinn or Poison Ivy)](http://comicbook.com/comics/list/5-greatest-batman-villainesses-that-arent-catwoman-harley-quinn-or-poison-ivy/) - **ComicBook.com**
-7. [Seattle City Council committee backs push for NBA Expansion, eyes 2028–29 Season](https://sports.yahoo.com/articles/seattle-city-council-committee-backs-001347157.html) - **Yahoo Entertainment**
-8. [Manchester City move to shield star player amid Real Madrid interest](https://www.football-espana.net/2026/04/03/man-city-shield-star-player-real-madrid) - **Football Espana**
-9. [Cristian Orozco deal agreed: How many summer signings are planned at United](https://thepeoplesperson.com/2026/04/02/cristian-orozco-deal-agreed-how-many-summer-signings-are-planned-at-united-308361/) - **The Peoples Person**
-10. [Mbappe, Vinicius top La Liga salary ranking at $37M as Real Madrid outpace Barcelona](https://worldsoccertalk.com/news/mbappe-vinicius-top-la-liga-salary-ranking-at-37m-as-real-madrid-outpace-barcelona/) - **Worldsoccertalk.com**
+1. [Inside Sky’s war on dodgy boxes: ‘A member of the family who is a garda has one – half the station has them’](https://www.independent.ie/sport/soccer/premier-league/inside-skys-war-on-dodgy-boxes-a-member-of-the-family-who-is-a-garda-has-one-half-the-station-has-them/a677957927.html) - **Independent.ie**
+2. [Sky’s war on dodgy boxes: ‘A member of the family who is a garda has one – half the station has them’](https://www.independent.ie/business/technology/skys-war-on-dodgy-boxes-a-member-of-the-family-who-is-a-garda-has-one-half-the-station-has-them/a677957927.html) - **Independent.ie**
+3. [Inside Sky’s war on dodgy boxes: ‘A member of the family who is a garda has one – half the station has them’](https://www.independent.ie/business/technology/inside-skys-war-on-dodgy-boxes-a-member-of-the-family-who-is-a-garda-has-one-half-the-station-has-them/a677957927.html) - **Independent.ie**
+4. [fplkit 1.0.0](https://pypi.org/project/fplkit/1.0.0/) - **Pypi.org**
+5. [fplkit added to PyPI](https://pypi.org/project/fplkit/) - **Pypi.org**
+6. [Barca need Yamal at best without Raphinha for Atletico 'trilogy'](https://sports.yahoo.com/articles/barca-yamal-best-without-raphinha-035446671.html) - **Yahoo Entertainment**
+7. [Hunger the key for Matos as Swans take on Blades](https://www.bbc.com/sport/football/articles/c80mp7x23e9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [IPL 2026: 'They are jealous from success I got': Rahane lambasts critics for 'certain agenda' against his batting after defeat to SRH](https://economictimes.indiatimes.com/news/sports/ipl-2026-they-are-jealous-from-success-i-got-rahane-lambasts-critics-for-certain-agenda-against-his-batting-after-defeat-to-srh/articleshow/129993203.cms) - **The Times of India**
+9. [Projecting the USA's 2026 World Cup Roster Following Losses To Portugal, Belgium](https://www.foxsports.com/stories/soccer/usmnt-2026-fifa-world-cup-roster-prediction) - **Fox Sports**
+10. [Chelsea announce first ever visit to Lagos](https://punchng.com/chelsea-announce-first-ever-visit-to-lagos/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-04-04 11:30:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-04 13:30:37 (KST) / (하루 100회 제한 준수 중)*
