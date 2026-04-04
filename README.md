@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Eddie Howe could push to sign Arsenal man in the summer](https://www.justarsenal.com/eddie-howe-could-push-to-sign-arsenal-man-in-the-summer/412852) - **Just Arsenal News**
-2. [Arteta hopes League Cup loss will 'fuel' Arsenal season run-in](https://sports.yahoo.com/articles/arteta-hopes-league-cup-loss-152309263.html) - **Yahoo Entertainment**
-3. [Liverpool goalkeeper Alisson to miss Champions League games against PSG](https://sports.yahoo.com/articles/liverpool-goalkeeper-alisson-miss-champions-151554087.html) - **Yahoo Entertainment**
-4. [Southampton v Arsenal: the referee, and what he will get up to](https://untold-arsenal.com/archives/120263) - **Untold-arsenal.com**
-5. [Bruno Fernandes: Major update emerges on United star’s future](https://thepeoplesperson.com/2026/04/03/bruno-fernandes-major-update-emerges-on-united-stars-future-308374/) - **The Peoples Person**
-6. [Chelsea Drops Enzo Fernández for Two Games After Madrid Living Comments Spark Transfer Fury](https://www.ibtimes.com.au/chelsea-drops-enzo-fernandez-two-games-after-madrid-living-comments-spark-transfer-fury-1865330) - **Ibtimes.com.au**
-7. [Why was Enzo Fernandez benched but not Marc Cucurella? Only one star dropped by Liam Rosenior for critical comments](https://www.sportingnews.com/us/soccer/chelsea/news/why-enzo-fernandez-benched-cucurella-benched-chelsea-rosenior/cf4916904957951607a879e8) - **Sporting News**
-8. [Wolverhampton vs. West Ham prediction: Premier League odds, picks, and best bets](https://nypost.com/2026/04/03/betting/wolverhampton-vs-west-ham-prediction-premier-league-odds-picks-and-best-bets/) - **New York Post**
-9. [Enzo Fernández dropped for Chelseas next two games](https://www.playmakerstats.com/news/enzo-fernandez-dropped-for-chelsea-s-next-two-games/1086905) - **Playmakerstats.com**
-10. [Jake Flannery gets the nod at outhalf as Ulster face Ospreys in Challenge Cup](https://www.irishtimes.com/sport/rugby/2026/04/03/jake-flannery-gets-the-nod-at-outhalf-as-ulster-face-ospreys-in-challenge-cup/) - **The Irish Times**
+1. ['We have found a couple of bits where we are able to hurt them' - Eckert](https://www.bbc.com/sport/football/articles/cq593n9ez0jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [The Chiefs pressuring NFL to leave United States and play at the Bernabeu in 2026](https://www.marca.com/en/nfl/kansas-city-chiefs/2026/04/03/69cfaf8046163f153e8b4586.html) - **Marca**
+3. [Pep Guardiola to make final Man City decision this summer](https://eplindex.com/144842/pep-guardiola-to-make-final-man-city-decision-this-summer.html) - **English Premier League Index - Opta Stats**
+4. [Report: Liverpool are in the race to sign €65m star](https://anfieldindex.com/92825/report-liverpool-are-in-the-race-to-sign-e65m-star.html) - **Anfieldindex.com**
+5. [Manchester City vs. Liverpool: FA Cup Quarter Final 2025-26 Preview & Team News](https://liverpooloffside.sbnation.com/liverpool-fa-cup-coverage/79538/manchester-city-vs-liverpool-fa-cup-quarter-final-2025-26-preview-team-news) - **SB Nation**
+6. [EPL: Arteta denies manipulating players injuries](https://punchng.com/epl-arteta-denies-manipulating-players-injuries/) - **The Punch**
+7. [Juventus make contact with Jorge Mendes over move for Man City midfielder Bernardo Silva](https://football-italia.net/juventus-contact-jorge-mendes-bernardo-silva/) - **Football Italia**
+8. [Eddie Howe could push to sign Arsenal man in the summer](https://www.justarsenal.com/eddie-howe-could-push-to-sign-arsenal-man-in-the-summer/412852) - **Just Arsenal News**
+9. [Arteta hopes League Cup loss will 'fuel' Arsenal season run-in](https://sports.yahoo.com/articles/arteta-hopes-league-cup-loss-152309263.html) - **Yahoo Entertainment**
+10. [Liverpool goalkeeper Alisson to miss Champions League games against PSG](https://sports.yahoo.com/articles/liverpool-goalkeeper-alisson-miss-champions-151554087.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-04-05 00:36:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-05 01:00:39 (KST) / (하루 100회 제한 준수 중)*
