@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea drops Enzo Fernandez for two games after comments on future](https://www.usatoday.com/story/sports/soccer/epl/2026/04/03/enzo-fernandez-dropped-by-chelsea-for-two-games-after-comments-on-future/89447850007/) - **USA Today**
-2. [‘A line was crossed’ – Enzo Fernandez dropped for Chelsea’s next two matches](https://www.independent.ie/sport/soccer/premier-league/a-line-was-crossed-enzo-fernandez-dropped-for-chelseas-next-two-matches/a2083030257.html) - **Independent.ie**
-3. [Slot: Isak has returned from long lay-off stronger and fitter](https://www.skysports.com/football/news/11669/13527475/liverpool-striker-alexander-isak-has-returned-from-long-lay-off-stronger-and-fitter-says-arne-slot) - **Sky Sports**
-4. [Anthony Gordon: Louis Saha explains why United should raid Newcastle](https://thepeoplesperson.com/2026/04/03/anthony-gordon-louis-saha-explains-why-united-should-raid-newcastle-308368/) - **The Peoples Person**
-5. [EPL: Chelsea drop Fernandez for two games over comments on future](https://punchng.com/epl-chelsea-drop-fernandez-for-two-games-over-comments-on-future/) - **The Punch**
-6. [Chelsea drops Enzo Fernandez after 'a line was crossed' with Madrid comments](https://sports.yahoo.com/articles/chelsea-drops-enzo-fernandez-line-113523446.html) - **Yahoo Entertainment**
-7. [Köln hope to sell Said El Mala to Premier League this summer](https://thefootballfaithful.com/koln-hope-to-sell-said-el-mala-to-premier-league-this-summer/) - **The Football Faithful**
-8. [What did Enzo Fernandez say on future as Chelsea vice-captain dropped?](https://thefootballfaithful.com/what-did-enzo-fernandez-say-on-future-as-chelsea-vice-captain-dropped/) - **The Football Faithful**
-9. [Alexander Isak in contention for dramatic Liverpool return in FA Cup quarter-final with Man City](https://www.independent.ie/sport/soccer/premier-league/alexander-isak-in-contention-for-dramatic-liverpool-return-in-fa-cup-quarter-final-with-man-city/a330959912.html) - **Independent.ie**
+1. [WNBA Mock Draft 2026: Azzi Fudd Reunites with Paige Bueckers; Who Will Sun Pick?](https://nesn.com/connecticut-sun/news/wnba-mock-draft-2026-azzi-fudd-paige-bueckers-sun-pick/4cc50333ea7e59cca4bcb8ad) - **NESN**
+2. [Why has Enzo Fernandez been dropped by Chelsea? Real Madrid links explained](https://www.sportingnews.com/us/soccer/news/why-has-enzo-fernandez-been-dropped-chelsea-their-next-two-games/e5d73f968b1b2f789cb92ab8) - **Sporting News**
+3. [Raiders to sign Kirk Cousins; Final Four preview and picks; WNBA expansion mock draft](https://www.cbssports.com/nfl/news/raiders-kirk-cousins-final-four-preview-picks-wnba-expansion-mock-draft/) - **CBS Sports**
+4. [Enzo Fernandez banned for two games by Chelsea after comments: "The line was crossed"](https://www.nbcsports.com/soccer/news/enzo-fernandez-banned-for-two-games-by-chelsea-after-comments-the-line-was-crossed) - **NBCSports.com**
+5. [Gennaro Gattuso resigns: Italy boss becomes latest failure after third straight World Cup miss for Azzurri](https://www.cbssports.com/soccer/news/gennaro-gattuso-resigns-italy-world-cup/) - **CBS Sports**
+6. [Guardiola on 'incredible milestones', Foden form and Rodri interview](https://www.bbc.com/sport/football/articles/ceqw7dl5xx3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Big news is coming: Liverpool forward looks set for exit](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-keyrol-figueroa-big-news-is-coming-forward-looks-set-for-exit/) - **Anfieldwatch.co.uk**
+8. [Italy and Gattuso 'mutually terminate' contract](https://www.bbc.com/sport/football/articles/cevk0mn93ejo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Chelsea drop vice-captain Enzo Fernandez for ‘crossing a line’](https://footballtoday.com/2026/04/03/chelsea-drop-vice-captain-enzo-fernandez-for-crossing-a-line/) - **Footballtoday.com**
+10. [Fernandes wins award after stand-out March](https://www.bbc.com/sport/football/articles/cr41w930r0ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-04 20:46:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-04 22:03:01 (KST) / (하루 100회 제한 준수 중)*
