@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [“We decided” – Enzo Fernandez’s agent sends strong message to Chelsea, reveals why current deal wasn’t renewed](https://chelsea.news/2026/04/javier-pastore-enzo-fernandez-chelsea-contract/) - **Chelsea.news**
-2. [IPL 2026: 'We looked at many bowlers but missed out,' CSK head coach says after failing to defend 210 against PBKS](https://economictimes.indiatimes.com/news/sports/ipl-2026-we-looked-at-many-bowlers-but-missed-out-csk-head-coach-says-after-failing-to-defend-210-against-pbks/articleshow/130014151.cms) - **The Times of India**
-3. [Pep Guardiola hopes Rodri will stay at Manchester City but accepts lure of Real Madrid](https://footballtoday.com/2026/04/04/pep-guardiola-hopes-rodri-will-stay-at-manchester-city-but-accepts-lure-of-real-madrid/) - **Footballtoday.com**
-4. [Arne Slot Faces Defining Two Weeks as Pressure Mounts at Liverpool](https://anfieldindex.com/92840/arne-slot-faces-defining-two-weeks-as-pressure-mounts-at-liverpool.html) - **Anfieldindex.com**
-5. [Bangladesh Cricket Board seeks new partnerships with BCCI](https://economictimes.indiatimes.com/news/sports/bangladesh-cricket-board-seeks-new-partnerships-with-bcci/articleshow/130013901.cms) - **The Times of India**
-6. [Report: Liverpool face major competition to sign Serie A midfielder](https://eplindex.com/144856/report-liverpool-face-major-competition-to-sign-serie-a-midfielder.html) - **English Premier League Index - Opta Stats**
-7. [Pep Guardiola has full faith that a key Manchester City player will return to his best](https://esteemedkompany.com/2026/04/04/pep-guardiola-has-full-faith-that-a-key-manchester-city-player-will-return-to-his-best/) - **Esteemedkompany.com**
-8. [Women's 5000M World Record In Track And Field: Here's What To Know](https://www.flotrack.org/articles/15745059-womens-5000m-world-record-in-track-and-field-heres-what-to-know?utm_medium=rss) - **Flotrack.org**
-9. [Manchester City vs Liverpool: Latest City injury news and predicted City starting XI ahead of today’s match](https://esteemedkompany.com/2026/04/04/manchester-city-vs-liverpool-latest-city-injury-news-and-predicted-city-starting-xi-ahead-of-todays-match/) - **Esteemedkompany.com**
-10. [Bundesliga Watch: RB Leipzig’s Castello Lukeba looking for ‘new challenge’](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/184194/bundesliga-watch-rb-leipzigs-castello-lukeba-looking-for-new-challenge) - **Bavarian Football Works**
+1. [Unavailable for Italy, fit for Liverpool: Chiesa infuriates Azzurri fans](https://football-italia.net/unavailable-italy-fit-liverpool-chiesa-fans/) - **Football Italia**
+2. [Manchester City vs. Liverpool: FA Cup 2025-26 Live Coverage & How to Watch](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/79548/manchester-city-liverpool-fa-cup-2025-26-live-coverage-how-to-watch-tv-streaming) - **SB Nation**
+3. [Who’s getting promotion, and toda’ys the day: Southampton v Arsenal](https://untold-arsenal.com/archives/120268) - **Untold-arsenal.com**
+4. [Champions League: How to buy Sporting CP vs. Arsenal tickets](https://football-italia.net/how-buy-sporting-cp-arsenal-tickets-ucl/) - **Football Italia**
+5. [Liam Rosenior confirms whether Enzo Fernandez will remain vice captain after suspension](https://chelsea.news/2026/04/liam-rosenior-enzo-fernandez-chelsea-vice-captain/) - **Chelsea.news**
+6. [Kenya ex-skipper Victor Wanyama retires aged 34](https://sports.yahoo.com/articles/kenya-ex-skipper-victor-wanyama-070235440.html) - **Yahoo Entertainment**
+7. [Everton Under 21s fall out of top 16, eliminated from Premier League 2 playoffs](https://royalbluemersey.sbnation.com/everton-fc-youth/79155/everton-under-21s-eliminated-from-premier-league-2-playoffs-professional-development-league) - **SB Nation**
+8. [Uli Hoeneß advocates for the eradication of the 50+1 rule from German football](https://www.bavarianfootballworks.com/bayern-munich-bundesliga/184269/uli-hoenes-advocates-for-the-eradication-of-the-501-rule-from-german-football) - **Bavarian Football Works**
 
 
 ---
-*최근 업데이트: 2026-04-05 15:39:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-05 16:41:35 (KST) / (하루 100회 제한 준수 중)*
