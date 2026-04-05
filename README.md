@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [RB Leipzig ready to move for Arsenal man in the summer](https://www.justarsenal.com/rb-leipzig-ready-to-move-for-arsenal-man-in-the-summer/412906) - **Just Arsenal News**
-2. [ Another debacle looming: Liverpool overwhelmed by Haaland](https://onefootball.com/en/news/another-debacle-looming-liverpool-overwhelmed-by-haaland-42659304) - **Onefootball.com**
-3. [Mallorca vs Real Madrid live: Confirmed teams, full lineups in La Liga as Mbappe starts](https://www.101greatgoals.com/football/mallorca-vs-real-madrid-live-teams-lineups-tv-stream/) - **101 Great Goals**
-4. [Martin O’Neill’s Jota reassurance: “I don’t see this as being a career-threatening injury”](https://thecelticstar.com/martin-oneills-jota-reassurance-i-dont-see-this-as-being-a-career-threatening-injury/) - **The Celtic Star**
-5. [Manchester City star at ban risk for Arsenal showdown](https://dailycannon.com/2026/04/manchester-city-silva-ban-arsenal/) - **Dailycannon.com**
-6. [Chelsea suspend key midfielder for Manchester City clash](https://dailycannon.com/2026/04/chelsea-suspend-enzo-fernandez/) - **Dailycannon.com**
-7. [Homegrown heroes, heavyweight fees: Inside the top 10 clubs minting millions from academy sales since 2016](https://www.footballmuse.com/features/homegrown-heroes-heavyweight-fees-inside-the-top-10-clubs-minting-millions-from-academy-sales-since-2016) - **Footballmuse.com**
-8. [Why is Enzo Fernandez not playing for Chelsea vs. Port Vale?](https://www.usatoday.com/story/sports/soccer/2026/04/04/enzo-fernandez-chelsea-vs-port-vale-real-madrid-comments/89450232007/) - **USA Today**
-9. [Mexicans Abroad: How to Watch](https://www.fmfstateofmind.com/mexicans-abroad/26803/mexicans-abroad-how-to-watch) - **Fmfstateofmind.com**
-10. [Where is Pep Guardiola? Why Pep Lijnders is on the Man City bench against former team Liverpool in the FA Cup](https://www.sportingnews.com/us/soccer/news/where-pep-guardiola-pep-lijnders-man-city-bench-liverpool-fa-cup/cccf44e89f53dfde81197a0f) - **Sporting News**
+1. [Barcelona gets serious about beating Arsenal to World Cup winner](https://www.justarsenal.com/barcelona-gets-serious-about-beating-arsenal-to-world-cup-winner/412907) - **Just Arsenal News**
+2. [Capitals gain after Rizvi impact sinks Mumbai](https://www.channelnewsasia.com/sport/capitals-gain-after-rizvi-impact-sinks-mumbai-6036706) - **CNA**
+3. [Mount reveals song that gets him ready for a game](https://www.manutd.com/en/news/detail/mason-mount-on-united-roads-playing-before-games-4-april-2026) - **Manchester United**
+4. [Haaland grabs hat-trick as Man City thrash Liverpool to reach FA Cup semis](https://www.aljazeera.com/sports/2026/4/4/haaland-grabs-hat-trick-as-man-city-thrash-liverpool-to-reach-fa-cup-semis) - **Al Jazeera English**
+5. [Man City 4-0 Liverpool: Report, result, goals as Haaland scores hat-trick in FA Cup quarter final](https://www.101greatgoals.com/football/man-city-liverpool-report-result-goals-fa-cup-haaland/) - **101 Great Goals**
+6. [Brilliant Rizvi helps Delhi Capitals down Mumbai](https://www.bbc.com/sport/cricket/articles/c7vql704rq2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Stephon Gilmore Net Worth: How much is the NFL star worth after 13 seasons?](https://www.marca.com/en/lifestyle/celebrity-net-worth/2026/04/04/69d0f6ecca4741e35f8b458c.html) - **Marca**
+8. [Arsenal Emerge as Favorites to Win 2026 FA Cup Amid Tight Big-Six Battle](https://www.ibtimes.com.au/arsenal-emerge-favorites-win-2026-fa-cup-amid-tight-big-six-battle-1865391) - **Ibtimes.com.au**
+9. [Match Report & Player Ratings: Manchester City 4-0 Liverpool (FA Cup Quarter Final)](https://cityxtra.co.uk/44137/match-report-player-ratings-manchester-city-4-0-liverpool-fa-cup-quarter-final/) - **Cityxtra.co.uk**
+10. [Man United coach Adam Lawrence confirms exciting Shea Lacey news](https://thepeoplesperson.com/2026/04/04/man-united-coach-adam-lawrence-confirms-exciting-shea-lacey-news-308396/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-04-05 22:05:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-05 23:02:24 (KST) / (하루 100회 제한 준수 중)*
