@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Gabriel Magalhaes injury news: Arsenal defenders limps off FA Cup tie at Southampton](https://www.nbcsports.com/soccer/news/gabriel-magalhaes-injury-news-arsenal-defenders-limps-off-fa-cup-tie-at-southampton) - **NBCSports.com**
-2. [Liverpool planning first-team clear out to fund summer spending](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-planning-first-team-clear-out-to-fund-summer-spending/) - **Anfieldwatch.co.uk**
-3. [Leeds United Are Trying To Build Their Squad Around This Defender: Do The Club Need Him?](https://the4thofficial.net/2026/04/leeds-united-are-trying-to-build-their-squad-around-this-defender-do-the-club-need-him/) - **The4thofficial.net**
-4. [Aurelien Tchouameni: United trying to beat rivals to the signing of Real Madrid star](https://thepeoplesperson.com/2026/04/04/aurelien-tchouameni-united-trying-to-beat-rivals-to-the-signing-of-real-madrid-star-308411/) - **The Peoples Person**
-5. [Stewart pounces on White error to give Southampton shock lead against Arsenal](https://www.bbc.com/sport/football/videos/c393dzjl0p8o) - **BBC News**
-6. [HT: Southampton 1-0 Arsenal: White error gifts Stewart the opener with Gunners lacking attacking threat](https://www.101greatgoals.com/football/ht-southampton-1-0-arsenal-ben-white-error-gifts-ross-stewart/) - **101 Great Goals**
-7. [Latest Update On The Future Of Everton Manager: Has Friedkin Group Finally Found Their Long-Term Answer?](https://the4thofficial.net/2026/04/latest-update-on-the-future-of-everton-manager-has-friedkin-group-finally-found-their-long-term-answer/) - **The4thofficial.net**
-8. [Liverpool have finally found their Trent Alexander-Arnold successor: He will cost £39m](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-marco-palestra-cagliari-atalanta/) - **Anfieldwatch.co.uk**
-9. ['Things aren't what people think' - Rosenior insists he and Enzo 'in a good place'](https://www.skysports.com/football/news/11668/13528037/chelsea-liam-rosenior-insists-relationship-with-enzo-fernandez-in-a-very-good-place-despite-midfielder-being-dropped-amid-transfer-talk) - **Sky Sports**
+1. [3 more players the Suns might draft in the Second Round](https://www.brightsideofthesun.com/suns-draft-rumors-news/101824/suns-2026-nba-draft-scouting-reports-aday-mara-flory-bidunga-ebuka-okorie-pick-47-simulations) - **Bright Side of the Sun**
+2. [Report: Southampton 2-1 Arsenal](http://www.arsenal.com/fixture/arsenal/2026-Apr-04/southampton-arsenal-match-report) - **Arsenal.com**
+3. [Arsenal crash out of FA Cup to sensational Southampton](https://www.skysports.com/football/news/11670/13527295/southampton-2-1-arsenal-premier-league-leaders-crash-out-of-fa-cup-to-sensational-saints) - **Sky Sports**
+4. [Southampton 2-1 Arsenal: Saints stun Gunners, who exit another competition without trophy](https://www.nbcsports.com/soccer/news/southampton-vs-arsenal-fa-cup-recap-upset-video-highlights-analysis-goals) - **NBCSports.com**
+5. [Southampton 2-1 Arsenal: Gunners’ treble hopes extinguished as Charles wins it late for Saints](https://www.101greatgoals.com/football/southampton-arsenal-report-goals-stats/) - **101 Great Goals**
+6. [Mikel Arteta reaction — How did Arsenal boss respond to shocking FA Cup exit at Southampton?](https://www.nbcsports.com/soccer/news/mikel-arteta-reaction-how-did-arsenal-boss-respond-to-shocking-fa-cup-exit-at-southampton) - **NBCSports.com**
+7. [Rangers’ Scottish Scouting Shift: A Smart Plan Or Too Late To The Party?](https://the4thofficial.net/2026/04/rangers-scottish-scouting-shift-a-smart-plan-or-too-late-to-the-party/) - **The4thofficial.net**
+8. [Arteta wants Arsenal players 'to look in the mirror' after cup exit](https://www.skysports.com/football/news/11095/13528083/mikel-arteta-refuses-to-criticise-arsenal-players-but-wants-them-to-look-in-the-mirror-after-fa-cup-exit) - **Sky Sports**
+9. [Arteta's causes for concern with City on the charge and Arsenal wobbling](https://www.skysports.com/football/news/11670/13528064/arsenal-mikel-arteta-has-injuries-errors-and-a-charging-man-city-to-worry-about-as-gunners-wobble-at-key-moment) - **Sky Sports**
+10. [Gabriel Magalhaes injury news: Arsenal defenders limps off FA Cup tie at Southampton](https://www.nbcsports.com/soccer/news/gabriel-magalhaes-injury-news-arsenal-defenders-limps-off-fa-cup-tie-at-southampton) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-04-06 05:37:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-06 06:03:03 (KST) / (하루 100회 제한 준수 중)*
