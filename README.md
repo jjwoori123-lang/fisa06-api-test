@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool transfers: £100m double Premier League raid could be on the cards](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8077885e-5ee9-4e3c-bdc6-7996649e0d4e) - **Yahoo Entertainment**
-2. [Manchester City break two FA Cup records in 4-0 Liverpool rout](https://cityxtra.co.uk/44159/manchester-city-break-two-fa-cup-records-in-4-0-liverpool-rout/) - **Cityxtra.co.uk**
-3. [Kevin De Bruyne fires Rasmus Hojlund warning to Man United](https://thepeoplesperson.com/2026/04/05/kevin-de-bruyne-fires-rasmus-hojlund-warning-to-man-united-308426/) - **The Peoples Person**
-4. [Liverpool flop could be key to securing €60 million midfield upgrade](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-flop-could-be-key-to-securing-eur60-million-midfield-upgrade-nicolo-barella-federico-chiesa/) - **Anfieldwatch.co.uk**
-5. [Leeds march on via penalties to FA Cup semi-finals after chaotic win at West Ham](https://www.skysports.com/football/news/34651/13527299/west-ham-2-2-leeds-united-2-4-on-pens-leeds-march-on-to-fa-cup-semi-finals-after-chaotic-penalty-shoot-out-win-at-west-ham) - **Sky Sports**
-6. [MLS commissioner: Fifa ‘smart’ to use dynamic pricing for World Cup tickets](https://sports.yahoo.com/articles/mls-commissioner-fifa-smart-dynamic-172458007.html) - **Yahoo Entertainment**
-7. [Barcelona playmaker refused a lucrative €40 million offer from Saudi Arabian club – report](https://barcauniversal.com/barcelona-playmaker-refused-a-lucrative-e40-million-offer-from-saudi-arabian-club-report/) - **Barcauniversal.com**
-8. [Is the way clear for Shedeur Sanders? Browns plan to draft Myles Garrett's successor amid rumors of his departure](https://www.marca.com/en/nfl/cleveland-browns/2026/04/05/69d26fc2268e3e850d8b45a4.html) - **Marca**
-9. [Are things actually getting worse at Liverpool under Arne Slot?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_83c3777b-61f5-4220-a1e8-2d4c629efc46) - **Yahoo Entertainment**
-10. [(VIDEO) Chelsea Thrash Port Vale 7-0 to Reach FA Cup Semi-Finals](https://www.ibtimes.com.au/video-chelsea-thrash-port-vale-7-0-reach-fa-cup-semi-finals-1865492) - **Ibtimes.com.au**
+1. [Manchester United Are In The Running To Land This Bundesliga Winger: One For The Future?](https://the4thofficial.net/2026/04/manchester-united-are-in-the-running-to-land-this-bundesliga-winger/) - **The4thofficial.net**
+2. [Kumar becomes second player to pass 200 IPL wickets](https://www.bbc.com/sport/cricket/articles/cly6q45vzx0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Did the Overlap fan debate go too far?](https://www.justarsenal.com/did-the-overlap-fan-debate-go-too-far/412975) - **Just Arsenal News**
+4. [ The draw for the FA Cup semi-finals has been made](https://onefootball.com/en/news/the-draw-for-the-fa-cup-semi-finals-has-been-made-42666328) - **Onefootball.com**
+5. [FA Cup semi final draw full results 2025/26 for Man City, Chelsea, Leeds and Southampton](https://www.101greatgoals.com/football/fa-cup-semi-final-draw/) - **101 Great Goals**
+6. [Manchester City discover FA Cup semi-final opponents following Liverpool win and completed draw](https://cityxtra.co.uk/44175/manchester-city-discover-fa-cup-semi-final-opponents-following-liverpool-win-and-completed-draw/) - **Cityxtra.co.uk**
+7. [Four heroes from the FA Cup quarter-final ties](https://thefootballfaithful.com/four-heroes-from-the-fa-cup-quarter-final-ties/) - **The Football Faithful**
+8. [West Ham 2-2 (2-4 PKs) Leeds: 39-year FA Cup semifinal drought ends most dramatically](https://www.nbcsports.com/soccer/news/west-ham-2-2-2-4-pks-leeds-video-highlights-analysis-recap) - **NBCSports.com**
+9. [Liverpool Identify This Serie A Midfielder As A Target: What Will He Bring To Anfield?](https://the4thofficial.net/2026/04/liverpool-identify-this-serie-a-midfielder-as-a-target/) - **The4thofficial.net**
+10. [West Ham vs. Leeds United score, result as Hammers fall short in remarkable FA Cup comeback](https://www.sportingnews.com/us/soccer/news/west-ham-vs-leeds-united-score-result-fa-cup-quarterfinal/cb470903daa40aa7bd1f2d1f) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-04-07 02:50:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-07 04:06:16 (KST) / (하루 100회 제한 준수 중)*
