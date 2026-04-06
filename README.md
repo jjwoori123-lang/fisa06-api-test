@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Southampton march on: unbeaten run continues after Arsenal shock](https://www.playmakerstats.com/news/southampton-march-on-unbeaten-run-continues-after-arsenal-shock/1088138) - **Playmakerstats.com**
-2. [Why Liverpool's throw-ins are a symptom of bigger issues under Slot](https://www.skysports.com/football/news/11669/13528144/liverpools-4-0-defeat-to-man-city-arne-slots-lack-of-attention-to-detail-on-throw-ins-is-a-symptom-of-their-bigger-problems) - **Sky Sports**
-3. [Leipzig starlet Yan Diomande to delay contract call as Man United, Liverpool and Bayern circle after breakout season](https://www.footballmuse.com/transfers/leipzig-starlet-yan-diomande-to-delay-contract-call-as-man-united-liverpool-and-bayern-circle-after-breakout-season) - **Footballmuse.com**
-4. [Athlone seek stability after turbulent period of success](https://www.rte.ie/sport/soccer/2026/0405/1566424-athlone-seek-stability-after-turbulent-period-of-success/) - **RTE**
-5. [Report: Liverpool make final decision on defender’s future ahead of summer window](https://anfieldindex.com/92885/report-liverpool-make-final-decision-on-defenders-future-ahead-of-summer-window.html) - **Anfieldindex.com**
-6. [Van Dijk stat highlights Liverpool’s defensive decline](https://thefootballfaithful.com/van-dijk-stat-highlights-liverpools-defensive-decline/) - **The Football Faithful**
-7. [Inter Milan set sights on signing €20m Tottenham Hotspur star](https://footballtoday.com/2026/04/05/inter-milan-set-sights-on-signing-e20m-tottenham-hotspur-star/) - **Footballtoday.com**
-8. [Chelsea Chelsea Man City Manchester City](https://www.mancity.com/news/mens/chelsea-v-city-match-preview-pl-12-april-63910894) - **Manchester City FC**
-9. [How can I watch Chelsea v City on TV?](https://www.mancity.com/news/mens/chelsea-v-city-tv-listings-pl-12-april-63910895) - **Manchester City FC**
-10. [Tom Atcheson: United take key step in pursuit of Blackburn prodigy](https://thepeoplesperson.com/2026/04/05/tom-atcheson-united-take-key-step-in-pursuit-of-blackburn-prodigy-308412/) - **The Peoples Person**
+1. ['Business to be done, and the boys feel it'](https://www.bbc.com/sport/football/articles/cly04m38d0xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Arne Slot confirms summer plans amid sack speculation](https://www.anfieldwatch.co.uk/liverpool-fc/news/arne-slot-confirms-summer-plans-amid-sack-speculation/) - **Anfieldwatch.co.uk**
+3. [Sky Sports reporter does not think Arsenal can win Champions League](https://www.justarsenal.com/sky-sports-reporter-does-not-think-arsenal-can-win-champions-league/412947) - **Just Arsenal News**
+4. [Report: Chelsea weigh up move for £60m rated Premier League goalkeeper](https://chelsea.news/2026/04/chelsea-sunderland-robin-roefs-interest/) - **Chelsea.news**
+5. [Report: Liverpool keen on €45m Serie A defender](https://anfieldindex.com/92887/report-liverpool-keen-on-e45m-serie-a-defender.html) - **Anfieldindex.com**
+6. [Rosenior: ‘No ceiling’ on potential of Chelsea teenager](https://thefootballfaithful.com/rosenior-says-theres-no-ceiling-for-chelsea-teenager-estevao-willian/) - **The Football Faithful**
+7. [West Ham vs Leeds United: TV coverage details for FA Cup quarter-final](https://thefootballfaithful.com/west-ham-vs-leeds-united-tv-coverage-details-for-fa-cup-quarter-final/) - **The Football Faithful**
+8. [Southampton march on: unbeaten run continues after Arsenal shock](https://www.playmakerstats.com/news/southampton-march-on-unbeaten-run-continues-after-arsenal-shock/1088138) - **Playmakerstats.com**
 
 
 ---
-*최근 업데이트: 2026-04-06 19:12:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-06 20:14:29 (KST) / (하루 100회 제한 준수 중)*
