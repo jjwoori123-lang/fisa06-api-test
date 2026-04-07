@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arteta calls for perspective as Arsenal look to avoid slump](https://www.bbc.com/sport/football/articles/c77md5mp475o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Arteta calls for perspective as Arsenal look to avoid slump](https://www.bbc.com/sport/football/articles/c77md5mp475o) - **BBC News**
-3. [Liverpool in aggressive fight with Chelsea for £300k per week Barcelona star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-jules-kounde-barcelona-chelsea-fight/) - **Anfieldwatch.co.uk**
-4. [Celtic eye free agent signing from Premiership opposition](https://thecelticstar.com/celtic-eye-free-agent-signing-from-premiership-opposition/) - **The Celtic Star**
-5. [Camavinga hesitant to leave Real Madrid despite Liverpool and Arsenal talks](https://footballtoday.com/2026/04/06/camavinga-hesitant-to-leave-real-madrid-despite-liverpool-and-arsenal-talks/) - **Footballtoday.com**
-6. [Bayern believe in own strengths ahead of first leg](https://fcbayern.com/en/news/matchpreviews/2026/04/preview-real-madrid-vs.-fc-bayern-champions-league) - **Fcbayern.com**
-7. [Arteta: Arsenal must embrace losses ahead of Champions League quarterfinal at Sporting](https://sports.yahoo.com/articles/arteta-arsenal-must-embrace-losses-202644537.html) - **Yahoo Entertainment**
-8. [‘Cut him some slack’ – Journalist hits out over Arne Slot ‘brickbats’ in defence of Liverpool boss](https://www.empireofthekop.com/2026/04/06/journalist-hits-out-over-arne-slot-brickbats-in-defence-of-liverpool-boss/) - **Empire of The Kop**
-9. [Crichton hails Wilkinson and Cruft after win over Celtic](https://www.bbc.com/sport/articles/c8ejx2kr1jro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [USMNT update: Weston McKennie scores for Juventus](https://sports.yahoo.com/soccer/article/usmnt-update-weston-mckennie-scores-for-juventus-213324349.html) - **Yahoo Entertainment**
+2. [Champions League quarterfinals: PSG-Liverpool and Real Madrid-Bayern Munich are the marquee matches](https://japantoday.com/category/sports/champions-league-quarterfinals-psg-liverpool-and-real-madrid-bayern-munich-are-the-marquee-matches) - **Japan Today**
+3. [Sputtering Arsenal faces test of character in Sporting clash](https://japantoday.com/category/sports/sputtering-arsenal-face-test-of-character-in-sporting-clash) - **Japan Today**
+4. [Passionate Matos compares Cullen to Bastoni](https://www.bbc.com/sport/football/articles/cwyjlkd05xwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Abdukodir Khusanov reflects on horror Chelsea debut and sensational Manchester City rise since](https://cityxtra.co.uk/44053/abdukodir-khusanov-reflects-on-horror-chelsea-debut-and-manchester-city-life-since/) - **Cityxtra.co.uk**
+6. [Liverpool target Camavinga - Tuesday's gossip](https://www.bbc.com/sport/football/articles/c5yxgjlkrjlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Liverpool target Camavinga - Tuesday's gossip](https://www.bbc.com/sport/football/articles/c5yxgjlkrjlo) - **BBC News**
+8. [Everton Get Ready For Getting Offers For This 25-Year-Old: Does Their New Era Actually Depend On Keeping Him?](https://the4thofficial.net/2026/04/everton-get-ready-for-getting-offers-for-this-25-year-old-does-their-new-era-actually-depend-on-keeping-him/) - **The4thofficial.net**
+9. [Real Madrid star considering summer exit](https://getfootballnewsspain.com/real-madrid-star-considering-summer-exit-2/) - **Getfootballnewsspain.com**
+10. [Chelsea Are Preparing To Move In For This Barcelona Defender: Good Option For Rosenior?](https://the4thofficial.net/2026/04/chelsea-are-preparing-to-move-in-for-this-barcelona-defender/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-04-08 05:52:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-08 06:45:38 (KST) / (하루 100회 제한 준수 중)*
