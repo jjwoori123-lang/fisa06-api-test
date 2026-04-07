@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bernardo Silva to leave Manchester City at end of season](https://www.rediff.com/sports/report/why-bernardo-silva-is-leaving-manchester-city-impact-and-legacy/20260406.htm) - **Rediff.com**
-2. [Premier League clubs alerted to Vinicius Junior availability amid Real Madrid contract stalemate](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5600282f-da77-486d-af27-e60d87789409) - **Yahoo Entertainment**
-3. [USMNT roundup: Mauricio Pochettino's World Cup selection process about to hit the home stretch](https://sports.yahoo.com/soccer/article/usmnt-roundup-mauricio-pochettinos-world-cup-selection-process-about-to-hit-the-home-stretch-023650201.html) - **Yahoo Entertainment**
-4. [Bernardo Silva exit from Man City confirmed with Messi’s MLS and Ronaldo’s SPL among reported options](https://worldsoccertalk.com/news/bernardo-silva-exit-from-man-city-confirmed-with-messis-mls-and-ronaldos-spl-among-reported-options/) - **Worldsoccertalk.com**
-5. [Platforms brace for gig worker crunch; Indian IT steady amid war clouds](https://economictimes.indiatimes.com/tech/newsletters/morning-dispatch/platforms-brace-for-gig-worker-crunch-indian-it-steady-amid-war-clouds/articleshow/130048730.cms) - **The Times of India**
-6. [Balogun catches the eye of Europe's top clubs with a stunning goal against Marseille](https://www.marca.com/en/football/ligue-1/2026/04/06/69d306cd268e3e12068b4595.html) - **Marca**
-7. [NPFL: Remo Stars beat 3SC to boost survival hopes](https://punchng.com/npfl-remo-stars-beat-3sc-to-boost-survival-hopes/) - **The Punch**
-8. [Onyeka’s Coventry face Hull test in EPL push](https://punchng.com/onyekas-coventry-face-hull-test-in-epl-push/) - **The Punch**
-9. [Platforms brace for impact as gig workforce returns home](https://economictimes.indiatimes.com/tech/startups/platforms-brace-for-impact-as-gig-workforce-returns-home/articleshow/130044277.cms) - **The Times of India**
+1. [Kevin De Bruyne says Man Utd have a player who has all the ‘qualities’ to become ‘a top player’](https://strettynews.com/2026/04/06/kevin-de-bruyne-praise-rasmus-hojlund-napoli-manchester-united/) - **Strettynews.com**
+2. [Ranking football's greatest one-club men](https://www.bbc.com/sport/football/articles/cqxl2w1r7rwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Ken Early: Chelsea’s model would work if it wasn’t reliant on human beings](https://www.irishtimes.com/sport/soccer/2026/04/06/ken-early-chelseas-model-would-work-if-it-wasnt-reliant-on-human-beings/) - **The Irish Times**
+4. [Editorial: What Story Will The Season’s Next Chapter Tell?](https://rokerreport.sbnation.com/opinion/133582/editorial-what-story-will-the-seasons-next-chapter-tell) - **SB Nation**
+5. [Prescott, Messi, Ohtani and more: How the world’s biggest sports stars get paid](https://sports.yahoo.com/articles/prescott-messi-ohtani-more-world-041605539.html) - **Yahoo Entertainment**
+6. [PSG Linked With Struggling Real Madrid Star; Should They Make a Move?](https://psgtalk.com/2026/04/psg-linked-with-struggling-real-madrid-star-should-they-make-a-move/) - **Psgtalk.com**
+7. [Independents’ Day: Syd Jerome – a Chicago Staple for More Than 65 Years](http://wwd.com/menswear-news/mens-retail-business/syd-jerome-chicago-scott-shapiro-1238692683/) - **WWD**
+8. [U18s preview: Chelsea v Arsenal](http://www.arsenal.com/news/u18s-preview-chelsea-v-arsenal-0) - **Arsenal.com**
+9. [Jack Wilshere suggests 16-year-old Max Dowman for England’s World Cup squad: who is the youngest ever to play?](https://worldsoccertalk.com/news/jack-wilshere-suggests-16-year-old-max-dowman-for-englands-world-cup-squad-who-is-the-youngest-ever-to-play/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-04-07 12:32:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-07 14:28:35 (KST) / (하루 100회 제한 준수 중)*
