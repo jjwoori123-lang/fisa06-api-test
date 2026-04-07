@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Today's news and jokes](https://www.superpunch.net/2026/04/todays-news-and-jokes_01098051570.html) - **Superpunch.net**
-2. [Juni Kang steals the show in DTLA, Chloe Covell stands tall at SLS Takeover](https://www.thesportingtribune.com/2026/04/06/juni-kang-steals-the-show-at-sls-dtla-takeover) - **Thesportingtribune.com**
-3. [The FA Cup still has an important place. This weekend was proof](https://sports.yahoo.com/articles/fa-cup-still-important-place-154523265.html) - **Yahoo Entertainment**
-4. [Sporting CP vs. Arsenal prediction, odds, best bets for Tuesday's Champions League quarterfinal first leg](https://www.cbssports.com/betting/news/sporting-cp-vs-arsenal-prediction-odds-best-bets-for-tuesdays-champions-league-quarterfinal-first-leg/) - **CBS Sports**
-5. [ESPN+ to stream inaugural season of Rock League, curling’s first professional league](https://www.globenewswire.com/news-release/2026/04/06/3268545/0/en/ESPN-to-stream-inaugural-season-of-Rock-League-curling-s-first-professional-league.html) - **GlobeNewswire**
-6. [League of Ireland: Quick-fire brace gives Shamrock Rovers edge over Shels; Pat’s struggling at Dundalk](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-quick-fire-brace-gives-shamrock-rovers-edge-over-shels-pats-struggling-at-dundalk/a690595282.html) - **Independent.ie**
-7. [League of Ireland: Shamrock Rovers take control of Dublin derby; Pat’s struggling at Dundalk](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-shamrock-rovers-take-control-of-dublin-derby-pats-struggling-at-dundalk/a690595282.html) - **Independent.ie**
-8. [League of Ireland: Shamrock Rovers hold on to beat Shels; Pat’s fall to defeat in Dundalk](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-shamrock-rovers-hold-on-to-beat-shels-pats-fall-to-defeat-in-dundalk/a690595282.html) - **Independent.ie**
-9. [League of Ireland: The last two champions face off in an Easter showdown as Shels travel to Shamrock Rovers](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-the-last-two-champions-face-off-in-an-easter-showdown-as-shels-travel-to-shamrock-rovers/a690595282.html) - **Independent.ie**
-10. [League of Ireland: All your Easter Monday results and match reports](https://www.independent.ie/sport/soccer/league-of-ireland/league-of-ireland-all-your-easter-monday-results-and-match-reports/a690595282.html) - **Independent.ie**
+1. [Journalist: Arne Slot staying at Liverpool is ‘near impossible’](https://anfieldindex.com/92925/journalist-arne-slot-staying-at-liverpool-is-near-impossible.html) - **Anfieldindex.com**
+2. [Adam Lawrence buzzing as Man United prepare for Real Madrid showdown](https://thepeoplesperson.com/2026/04/06/adam-lawrence-buzzing-as-man-united-prepare-for-real-madrid-showdown-308449/) - **The Peoples Person**
+3. [2026 NFL Draft: Predictions and Projections for Miami Hurricanes Prospects](https://www.stateoftheu.com/football-news/85974/2026-nfl-draft-predictions-and-projections-for-miami-hurricanes-prospects) - **Stateoftheu.com**
+4. [“Now is not the time” Norgaard urges his teammates to look “forward”](https://www.justarsenal.com/now-is-not-the-time-norgaard-urges-his-teammates-to-look-forward/413031) - **Just Arsenal News**
+5. [Championship round-up:](https://www.101greatgoals.com/football/championship-round-up/) - **101 Great Goals**
+6. [UCL: Arsenal’s Rice, Gabriel return to training, Saka absent](https://punchng.com/ucl-arsenals-rice-gabriel-return-to-training-saka-absent/) - **The Punch**
+7. [Liverpool reach ‘massive beakthrough’ in talks over deal for defender](https://anfieldindex.com/92931/liverpool-reach-massive-beakthrough-in-talks-over-deal-for-defender.html) - **Anfieldindex.com**
+8. [All Pro DT Dexter Lawrence requests trade from Giants](https://sny.tv/articles/all-pro-dt-dexter-lawrence-requests-trade-from-giants) - **SNY.tv**
+9. [10 Fun Facts About Bhuvneshwar Kumar: Kumar Hits IPL Milestone as First Fast Bowler to 200 Wickets](https://www.ibtimes.com.au/10-fun-facts-about-bhuvneshwar-kumar-kumar-hits-ipl-milestone-first-fast-bowler-200-wickets-1865582) - **Ibtimes.com.au**
 
 
 ---
-*최근 업데이트: 2026-04-08 01:11:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-08 02:29:00 (KST) / (하루 100회 제한 준수 중)*
