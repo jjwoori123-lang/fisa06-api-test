@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [10 Funniest Soccer Player Names of All Time: Drinkwater Tops the List in 2026](https://www.ibtimes.com.au/10-funniest-soccer-player-names-all-time-drinkwater-tops-list-2026-1865561) - **Ibtimes.com.au**
-2. [IPL 2026 Live: KKR seek 1st win; PBKS eye top spot amid rain threat at Eden Gardens](https://timesofindia.indiatimes.com/sports/cricket/kkr-vs-pbks-ipl-cricket-match-2026-live-score-kolkata-knight-riders-vs-punjab-kings-match-scorecard-live-streaming-playing-11-ipl-news-rinku-singh-shreyas-iyer-arshdeep-singh-eden-gardens/liveblog/130059463.cms) - **The Times of India**
-3. [Eduardo Camavinga’s future at Real Madrid is unveiled as Man United lurk](https://thepeoplesperson.com/2026/04/06/eduardo-camavingas-future-at-real-madrid-is-unveiled-as-man-united-lurk-308436/) - **The Peoples Person**
-4. [How to watch and follow United v Leeds](https://www.manutd.com/en/news/detail/how-to-watch-and-follow-man-utd-v-leeds-in-the-premier-league) - **Manchester United**
-5. [City’s 2025/26 Premier League run-in](https://www.mancity.com/news/mens/premier-league-season-run-in-63910823) - **Manchester City FC**
-6. [Sporting v Arsenal – recent games, where the clubs stand and what the stadium is like](https://untold-arsenal.com/archives/120300) - **Untold-arsenal.com**
-7. ['They have to not let the season run away from them' - Walcott](https://www.bbc.com/sport/football/articles/c75kq1g19wgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Lawrence in no rush to learn his Man Utd future](https://www.bbc.com/sport/football/articles/cr71470reglo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [FSG inform Arne Slot how he can keep his job as Liverpool head coach](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-fsg-inform-arne-slot-how-he-can-keep-his-job/) - **Anfieldwatch.co.uk**
-10. [urban-gro, Inc. Outlines Strategy Targeting Global T20 Cricket Market and Near-Term Execution Milestones](https://www.globenewswire.com/news-release/2026/04/06/3268349/0/en/urban-gro-Inc-Outlines-Strategy-Targeting-Global-T20-Cricket-Market-and-Near-Term-Execution-Milestones.html) - **GlobeNewswire**
+1. [Micah Richards makes plea to Liverpool over Slot’s future as Shearer issues ominous prediction](https://www.empireofthekop.com/2026/04/06/micah-richards-makes-plea-to-liverpool-over-slot-future/) - **Empire of The Kop**
+2. [Juventus require Champions League qualification to sign Man United midfielder](https://football-italia.net/juventus-need-ucl-to-sign-man-utd-midfielder/) - **Football Italia**
+3. [Ep 3519: City Burn Liverpool, Chelsea Hammer Enzo - 06/04/26](https://shows.acast.com/the-second-captains-podcast-1/episodes/ep-3519-city-burn-liverpool-chelsea-hammer-enzo-060426) - **Acast.com**
+4. [Coach confirms Manchester City star to leave at end of the season](https://eplindex.com/144940/coach-confirms-manchester-city-star-to-leave-at-end-of-the-season.html) - **English Premier League Index - Opta Stats**
+5. [Sporting v Arsenal: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/champions-league-odds/sporting-v-arsenal-line-ups-stats-preview/) - **101 Great Goals**
+6. [Chelsea set sights on Sunderland shot-stopper for summer deal](https://thefootballfaithful.com/chelsea-set-sights-on-sunderland-shot-stopper-for-summer-deal/) - **The Football Faithful**
+7. [Everything you need to know about Sporting CP](http://www.arsenal.com/news/everything-you-need-know-about-sporting-cp) - **Arsenal.com**
+8. [Jurgen Klopp tipped to make sensational Liverpool return](https://www.anfieldwatch.co.uk/liverpool-fc/news/jurgen-klopp-tipped-to-make-sensational-liverpool-return/) - **Anfieldwatch.co.uk**
+9. ['I believe we can stay up' - Traore takes positives from FA Cup exit](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f460c51e-f9a5-4559-bb13-27ad53a315ea) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-04-07 20:55:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-07 22:26:59 (KST) / (하루 100회 제한 준수 중)*
