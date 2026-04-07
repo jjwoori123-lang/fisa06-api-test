@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Micah Richards makes plea to Liverpool over Slot’s future as Shearer issues ominous prediction](https://www.empireofthekop.com/2026/04/06/micah-richards-makes-plea-to-liverpool-over-slot-future/) - **Empire of The Kop**
-2. [Juventus require Champions League qualification to sign Man United midfielder](https://football-italia.net/juventus-need-ucl-to-sign-man-utd-midfielder/) - **Football Italia**
-3. [Ep 3519: City Burn Liverpool, Chelsea Hammer Enzo - 06/04/26](https://shows.acast.com/the-second-captains-podcast-1/episodes/ep-3519-city-burn-liverpool-chelsea-hammer-enzo-060426) - **Acast.com**
-4. [Coach confirms Manchester City star to leave at end of the season](https://eplindex.com/144940/coach-confirms-manchester-city-star-to-leave-at-end-of-the-season.html) - **English Premier League Index - Opta Stats**
-5. [Sporting v Arsenal: Line-ups, stats and preview](https://www.101greatgoals.com/betting-tips/champions-league-odds/sporting-v-arsenal-line-ups-stats-preview/) - **101 Great Goals**
-6. [Chelsea set sights on Sunderland shot-stopper for summer deal](https://thefootballfaithful.com/chelsea-set-sights-on-sunderland-shot-stopper-for-summer-deal/) - **The Football Faithful**
-7. [Everything you need to know about Sporting CP](http://www.arsenal.com/news/everything-you-need-know-about-sporting-cp) - **Arsenal.com**
-8. [Jurgen Klopp tipped to make sensational Liverpool return](https://www.anfieldwatch.co.uk/liverpool-fc/news/jurgen-klopp-tipped-to-make-sensational-liverpool-return/) - **Anfieldwatch.co.uk**
-9. ['I believe we can stay up' - Traore takes positives from FA Cup exit](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f460c51e-f9a5-4559-bb13-27ad53a315ea) - **Yahoo Entertainment**
+1. [‘You don’t buy bad players’ – James sends clear message on Slot](https://www.empireofthekop.com/2026/04/06/you-dont-buy-bad-players-james-sends-clear-message-on-slot/) - **Empire of The Kop**
+2. [Casemiro identifies the Man Utd player who’s going to be ‘so important’ after he departs – it’s not Mainoo](https://strettynews.com/2026/04/06/casemiro-matheus-cunha-so-important-manchester-united/) - **Strettynews.com**
+3. [Arsenal looking to end Sporting's best winning run at home](https://www.playmakerstats.com/news/arsenal-looking-to-end-sporting-s-best-winning-run-at-home/1088799) - **Playmakerstats.com**
+4. [ 'Not season-defining' if Leeds fail to win FA Cup semi-final](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_282c1529-9604-4636-b01e-593da3d2c4da) - **Yahoo Entertainment**
+5. [5 Best Crypto Casinos in 2026 – List of Top Bitcoin Casinos](https://punchng.com/5-best-crypto-casinos-in-2026-list-of-top-bitcoin-casinos/) - **The Punch**
+6. [Report: Liverpool join Juventus in the race for out-of-contract defender](https://www.juvefc.com/liverpool-juventus-race-bournemouth-marcos-senesi/) - **JuveFC**
+7. [Arteta seems sure Arsenal man has suffered serious injury](https://www.justarsenal.com/arteta-seems-sure-arsenal-man-has-suffered-serious-injury/413021) - **Just Arsenal News**
+8. [Reece James to return to action for Chelsea this month or at the beginning of May](https://sportsview.co.uk/2026/04/reece-james-to-return-to-action-for-chelsea-this-month-or-at-the-beginning-of-may?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=reece-james-to-return-to-action-for-chelsea-this-month-or-at-the-beginning-of-may) - **Sportsview.co.uk**
+9. [Paul Joyce reveals FSG’s stance over Arne Slot’s future at Liverpool](https://anfieldindex.com/92912/paul-joyce-reveals-fsgs-stance-over-arne-slots-future-at-liverpool.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-04-07 22:26:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-07 23:54:41 (KST) / (하루 100회 제한 준수 중)*
