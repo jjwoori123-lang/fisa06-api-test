@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The day's 5⃣ stories:  A painful sale in Madrid and fear in Seville](https://onefootball.com/en/news/the-days-5-stories-a-painful-sale-in-madrid-and-fear-in-seville-42668150) - **Onefootball.com**
-2. [The reason why two Manchester City defenders missed City’s Liverpool rout has been revealed](https://esteemedkompany.com/2026/04/06/the-reason-why-two-manchester-city-defenders-missed-citys-liverpool-rout-has-been-revealed/) - **Esteemedkompany.com**
-3. [Man City captain Silva to leave Premier League club at season’s end](https://www.aljazeera.com/sports/2026/4/6/man-city-captain-silva-to-leave-premier-league-club-at-seasons-end) - **Al Jazeera English**
-4. [Sputtering Arsenal face test of character in Sporting clash](https://punchng.com/sputtering-arsenal-face-test-of-character-in-sporting-clash/) - **The Punch**
-5. [Bengaluru's six-hitting machine David hits the roof](https://www.channelnewsasia.com/sport/bengalurus-six-hitting-machine-david-hits-roof-6038546) - **CNA**
-6. [Premier League emerges as the most viable destination for struggling Real Madrid midfielder](https://madriduniversal.com/premier-league-emerges-as-the-most-viable-destination-for-struggling-real-madrid-midfielder/) - **Madriduniversal.com**
-7. [Chelsea target is open to leaving his club this summer with movement expected](https://chelsea.news/2026/04/chelsea-target-is-open-to-leaving-his-club-this-summer-with-movement-expected/) - **Chelsea.news**
-8. [Papers: Romero's father reveals Spurs release clause details](https://www.skysports.com/football/transfer-paper-talk/12709/13528351/liverpool-players-hold-emergency-meeting-after-man-city-thrashing-ramps-up-pressure-on-arne-slot-paper-talk-and-football-transfer-gossip) - **Sky Sports**
-9. [Liverpool tipped to agree deal for shock Arne Slot replacement](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-tipped-to-agree-deal-for-shock-arne-slot-replacement-andoni-iraola/) - **Anfieldwatch.co.uk**
-10. [Pep Lijnders confirms Bernardo Silva will leave Manchester City this summer](https://footballtoday.com/2026/04/06/pep-lijnders-confirms-bernardo-silva-will-leave-manchester-city-this-summer/) - **Footballtoday.com**
+1. [Antonio Valencia: Man United legend completes unexpected return](https://thepeoplesperson.com/2026/04/06/antonio-valencia-man-united-legend-completes-unexpected-return-308433/) - **The Peoples Person**
+2. [“I didn’t see that” – Pep Lijnders discusses Rayan Cherki shirt exchange incident in Liverpool FA Cup win](https://cityxtra.co.uk/44189/i-didnt-see-that-pep-lijnders-discusses-rayan-cherki-shirt-exchange-incident-in-liverpool-fa-cup-win/) - **Cityxtra.co.uk**
+3. [Premier League Team of the Week: The Best GW32 Picks Based on Gameweek 31](https://www.nevermanagealone.com/playerpicks/15766/premier-league-team-of-the-week-gw32-picks-based-on-gameweek-31) - **Nevermanagealone.com**
+4. [Another Italian giant wants to add Calafiori to their squad this summer](https://www.justarsenal.com/another-italian-giant-wants-to-add-calafiori-to-their-squad-this-summer/413000) - **Just Arsenal News**
+5. [Sporting Clube Portugal v Arsenal: how the clubs have been doing](https://untold-arsenal.com/archives/120297) - **Untold-arsenal.com**
+6. [FA Cup draw: Leeds to face Chelsea in first semi-final for 39 years](https://thefootballfaithful.com/fa-cup-draw-leeds-to-face-chelsea-in-first-semi-final-for-39-years/) - **The Football Faithful**
+7. [Jurgen Klopp will be coming back to Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/klopp-coming-back/) - **Anfieldwatch.co.uk**
+8. [JioHotstar launches ‘Tadka’, eyes IPL traffic and ad-led growth](https://www.medianama.com/2026/04/223-jiohotstar-launches-tadka-eyes-ipl-traffic-ad-led-growth/) - **MediaNama.com**
+9. [West Ham analysis: Opportunity missed after dramatic fightback](https://www.bbc.com/sport/football/articles/cr41qql6nlpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Leeds analysis: Wembley beckons after rollercoaster ride](https://www.bbc.com/sport/football/articles/c1w4ggngq1qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-07 15:57:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-07 17:17:30 (KST) / (하루 100회 제한 준수 중)*
