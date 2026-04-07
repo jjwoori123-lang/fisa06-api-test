@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool delegation jets out to see forward who can replace Mo Salah](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-mo-salah-successor-maghnes-akliouche-monaco/) - **Anfieldwatch.co.uk**
-2. [Championship: Sykes on song for Hodgson's Bristol City](https://www.rte.ie/sport/soccer/2026/0406/1566937-championship-sykes-on-song-for-hodgsons-bristol-city/) - **RTE**
-3. [Reece James' Return Date For Chelsea; England Handed World Cup Lift](https://www.foxsports.com/stories/soccer/reece-james-return-date-for-chelsea-set-as-england-handed-world-cup-lift) - **Fox Sports**
-4. [Liverpool encouraged to move for Premier League midfielder this summer](https://anfieldindex.com/92930/liverpool-encouraged-to-move-for-premier-league-midfielder-this-summer.html) - **Anfieldindex.com**
-5. [Update On Manchester City And Their Pursuit Of This Liverpool Defender: What Should Pep Do?](https://the4thofficial.net/2026/04/update-on-manchester-city-and-their-pursuit-of-this-liverpool-defender/) - **The4thofficial.net**
-6. [PSG-Liverpool and Real Madrid-Bayern Munich headline the Champions League quarterfinals](https://economictimes.indiatimes.com/news/sports/psg-liverpool-and-real-madrid-bayern-munich-headline-the-champions-league-quarterfinals/articleshow/130070275.cms) - **The Times of India**
-7. [Is Arne Slot’s Time Up? Winners, Losers After Man City's FA Cup Rout of Liverpool](https://www.foxsports.com/stories/soccer/arne-slot-man-city-fa-cup-liverpool) - **Fox Sports**
-8. [Jack Moorhouse: Pre-season plans in place with first team chance beckoning](https://thepeoplesperson.com/2026/04/06/jack-moorhouse-pre-season-plans-in-place-with-first-team-chance-beckoning-308440/) - **The Peoples Person**
-9. [Liverpool in talks over bombshell £500k per week Vinicius Junior deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-bombshell-ps500k-per-week-vinicius-junior-deal/) - **Anfieldwatch.co.uk**
+1. [Arteta calls for perspective as Arsenal look to avoid slump](https://www.bbc.com/sport/football/articles/c77md5mp475o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Arteta calls for perspective as Arsenal look to avoid slump](https://www.bbc.com/sport/football/articles/c77md5mp475o) - **BBC News**
+3. [Liverpool in aggressive fight with Chelsea for £300k per week Barcelona star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-jules-kounde-barcelona-chelsea-fight/) - **Anfieldwatch.co.uk**
+4. [Celtic eye free agent signing from Premiership opposition](https://thecelticstar.com/celtic-eye-free-agent-signing-from-premiership-opposition/) - **The Celtic Star**
+5. [Camavinga hesitant to leave Real Madrid despite Liverpool and Arsenal talks](https://footballtoday.com/2026/04/06/camavinga-hesitant-to-leave-real-madrid-despite-liverpool-and-arsenal-talks/) - **Footballtoday.com**
+6. [Bayern believe in own strengths ahead of first leg](https://fcbayern.com/en/news/matchpreviews/2026/04/preview-real-madrid-vs.-fc-bayern-champions-league) - **Fcbayern.com**
+7. [Arteta: Arsenal must embrace losses ahead of Champions League quarterfinal at Sporting](https://sports.yahoo.com/articles/arteta-arsenal-must-embrace-losses-202644537.html) - **Yahoo Entertainment**
+8. [‘Cut him some slack’ – Journalist hits out over Arne Slot ‘brickbats’ in defence of Liverpool boss](https://www.empireofthekop.com/2026/04/06/journalist-hits-out-over-arne-slot-brickbats-in-defence-of-liverpool-boss/) - **Empire of The Kop**
+9. [Crichton hails Wilkinson and Cruft after win over Celtic](https://www.bbc.com/sport/articles/c8ejx2kr1jro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-08 04:41:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-08 05:52:21 (KST) / (하루 100회 제한 준수 중)*
