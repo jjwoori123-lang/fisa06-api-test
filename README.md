@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Traffic curbs likely in central Delhi for IPL match on April 8, says Delhi Police](https://economictimes.indiatimes.com/news/india/traffic-curbs-likely-in-central-delhi-for-ipl-match-on-april-8-says-delhi-police/articleshow/130058083.cms) - **The Times of India**
-2. [Valencia joins star-studded Wythenshawe vets team](https://www.bbc.com/sport/football/articles/cddqmmjemdyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Valencia joins star-studded Wythenshawe vets team](https://www.bbc.com/sport/football/articles/cddqmmjemdyo) - **BBC News**
-4. [Can the PWHL succeed in New York after years of struggles on and off the ice?](https://sports.yahoo.com/articles/pwhl-succeed-york-years-struggles-101606686.html) - **Yahoo Entertainment**
-5. [African players in Europe: Semenyo scores as City rout Liverpool](https://sports.yahoo.com/articles/african-players-europe-semenyo-scores-095238655.html) - **Yahoo Entertainment**
-6. [Meet the former firefighter now coaching England's best youngsters](https://www.skysports.com/football/news/11684/13526402/chris-lock-interview-former-firefighter-turned-charlton-coach-is-now-working-with-englands-best-young-talents) - **Sky Sports**
-7. [“It’s just pure desire” – Pep Lijnders targeting domestic treble as Arsenal crumble under pressure](https://cityxtra.co.uk/44194/its-just-pure-desire-pep-lijnders-targeting-domestic-treble-as-arsenal-crumble-under-pressure/) - **Cityxtra.co.uk**
-8. [Has Arteta been 'found out' or has fighting on four fronts affected Arsenal?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1f1d196c-4d5d-4745-979a-c485bbf30590) - **Yahoo Entertainment**
-9. [Champions League quarterfinals: PSG-Liverpool and Real Madrid-Bayern Munich are the marquee matches](https://sports.yahoo.com/articles/champions-league-quarterfinals-psg-liverpool-091526099.html) - **Yahoo Entertainment**
-10. ['Farke is one of the managers of the season'](https://www.bbc.com/sport/football/articles/c79jvlywjq5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [10 Funniest Soccer Player Names of All Time: Drinkwater Tops the List in 2026](https://www.ibtimes.com.au/10-funniest-soccer-player-names-all-time-drinkwater-tops-list-2026-1865561) - **Ibtimes.com.au**
+2. [IPL 2026 Live: KKR seek 1st win; PBKS eye top spot amid rain threat at Eden Gardens](https://timesofindia.indiatimes.com/sports/cricket/kkr-vs-pbks-ipl-cricket-match-2026-live-score-kolkata-knight-riders-vs-punjab-kings-match-scorecard-live-streaming-playing-11-ipl-news-rinku-singh-shreyas-iyer-arshdeep-singh-eden-gardens/liveblog/130059463.cms) - **The Times of India**
+3. [Eduardo Camavinga’s future at Real Madrid is unveiled as Man United lurk](https://thepeoplesperson.com/2026/04/06/eduardo-camavingas-future-at-real-madrid-is-unveiled-as-man-united-lurk-308436/) - **The Peoples Person**
+4. [How to watch and follow United v Leeds](https://www.manutd.com/en/news/detail/how-to-watch-and-follow-man-utd-v-leeds-in-the-premier-league) - **Manchester United**
+5. [City’s 2025/26 Premier League run-in](https://www.mancity.com/news/mens/premier-league-season-run-in-63910823) - **Manchester City FC**
+6. [Sporting v Arsenal – recent games, where the clubs stand and what the stadium is like](https://untold-arsenal.com/archives/120300) - **Untold-arsenal.com**
+7. ['They have to not let the season run away from them' - Walcott](https://www.bbc.com/sport/football/articles/c75kq1g19wgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Lawrence in no rush to learn his Man Utd future](https://www.bbc.com/sport/football/articles/cr71470reglo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [FSG inform Arne Slot how he can keep his job as Liverpool head coach](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-fsg-inform-arne-slot-how-he-can-keep-his-job/) - **Anfieldwatch.co.uk**
+10. [urban-gro, Inc. Outlines Strategy Targeting Global T20 Cricket Market and Near-Term Execution Milestones](https://www.globenewswire.com/news-release/2026/04/06/3268349/0/en/urban-gro-Inc-Outlines-Strategy-Targeting-Global-T20-Cricket-Market-and-Near-Term-Execution-Milestones.html) - **GlobeNewswire**
 
 
 ---
-*최근 업데이트: 2026-04-07 19:40:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-07 20:55:41 (KST) / (하루 100회 제한 준수 중)*
