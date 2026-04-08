@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Schalke keen on Leeds midfielder amid interest from Bundesliga sides](https://bulinews.com/schalke-keen-leeds-midfielder-amid-interest-bundesliga-sides) - **Bulinews.com**
-2. [Gyokeres comes home for Champions League clash as we rate Primeira Liga top scorers’ success after blockbuster transfers](https://www.footballmuse.com/features/gyokeres-comes-home-for-champions-league-clash-as-we-rate-primeira-liga-top-scorers-success-after-blockbuster-transfers) - **Footballmuse.com**
-3. [Bangladesh appoints Tamim Iqbal as country’s youngest cricket chief](https://www.aljazeera.com/sports/2026/4/7/bangladesh-appoint-tamim-iqbal-as-countrys-youngest-cricket-chief) - **Al Jazeera English**
-4. [How much will Chelsea miss Fernandez against Man City?](https://www.bbc.com/sport/football/articles/c75k1wr5k7do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [The run-in: Who has who?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1e429839-2d7e-438c-b261-414266fc5bb4) - **Yahoo Entertainment**
-6. [The run-in: Who has who?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2a949ed0-0801-4760-874c-7d079eede3dd) - **Yahoo Entertainment**
-7. [The run-in: Who has who?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e5ee4e0e-4c39-4155-abfc-b83571fb14ed) - **Yahoo Entertainment**
-8. [The run-in: Who has who?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_14ad1403-0eaa-404d-b988-0626f1d4fce7) - **Yahoo Entertainment**
-9. [Will England duo continue fine form to propel Everton into Europe?](https://www.bbc.com/sport/football/articles/c8dlrqygy8do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Galway and Dundalk earn plaudits after rousing Easter](https://www.rte.ie/sport/soccer/2026/0407/1567051-galway-and-dundalk-earn-plaudits-after-rousing-easter/) - **RTE**
+1. [Manchester City believe they have got their man as their midfield rebuild kicks off](https://esteemedkompany.com/2026/04/07/manchester-city-believe-they-have-got-their-man-as-their-midfield-rebuild-kicks-off/) - **Esteemedkompany.com**
+2. [Champions League Soccer: Stream Real Madrid vs. Bayern Munich Live](https://www.cnet.com/tech/services-and-software/champions-league-soccer-stream-real-madrid-vs-bayern-munich-live/) - **CNET**
+3. [Where to watch Sporting CP vs. Arsenal live stream, TV channel, start time for Champions League first leg match](https://www.sportingnews.com/us/soccer/news/watch-sporting-cp-arsenal-live-stream-tv-channel-time-champions-league/8ef5ace178339abb4c0571e3) - **Sporting News**
+4. [Should Arteta stay if Arsenal bottles all the trophies?](https://www.justarsenal.com/should-arteta-stay-if-arsenal-bottles-all-the-trophies/413099) - **Just Arsenal News**
+5. [Sky Germany: Liverpool unlikely to trigger £69m clause after latest transfer decision](https://anfieldindex.com/92949/sky-germany-liverpool-unlikely-to-trigger-69m-clause-after-latest-transfer-decision.html) - **Anfieldindex.com**
+6. [Barcelona and Juventus remain keen on soon-to-be-free Premier League captain](https://barcauniversal.com/barcelona-and-juventus-remain-keen-on-soon-to-be-free-premier-league-captain/) - **Barcauniversal.com**
+7. [Vladimir Smicer says Liverpool have a ‘complete’ player who reminds him of past Ballon D’Or winner](https://www.empireofthekop.com/2026/04/07/smicer-says-liverpool-have-a-complete-player-who-reminds-him-of-ballon-dor-winner/) - **Empire of The Kop**
+8. [A morning with Manchester United and their giddy fans as the squad train at Carton House](https://www.thejournal.ie/manchester-united-carton-house-2-7005712-Apr2026/) - **TheJournal.ie**
+9. [How to watch PSG vs Liverpool live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-psg-vs-liverpool-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-04-08 23:46:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-09 01:17:06 (KST) / (하루 100회 제한 준수 중)*
