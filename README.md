@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['This is arguably the biggest two months in West Ham's modern history'](https://www.bbc.com/sport/football/articles/c4g67z90451o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Liverpool set sights on €50 million-rated Real Madrid midfielder – report](https://madriduniversal.com/liverpool-set-sights-on-e50-million-rated-real-madrid-midfielder-report/) - **Madriduniversal.com**
-3. [Sporting v Arsenal. The team selection leaves the pundits baffled](https://untold-arsenal.com/archives/120317) - **Untold-arsenal.com**
-4. [ Aaron Ramsey announces his retirement!](https://onefootball.com/en/news/aaron-ramsey-announces-his-retirement-42673523) - **Onefootball.com**
-5. [New date for Burnley clash in the Premier League](https://www.mancity.com/news/mens/burnley-premier-league-fixture-update-63911095) - **Manchester City FC**
-6. [Maguire signs one-year Man Utd contract extension](https://sports.yahoo.com/articles/maguire-signs-one-man-utd-100440722.html) - **Yahoo Entertainment**
-7. [Champions League: Wounded Arsenal faces Sporting Lisbon after back-to-back defeats](https://sports.yahoo.com/articles/champions-league-wounded-arsenal-faces-100015738.html) - **Yahoo Entertainment**
-8. [Liverpool injury latest: Alexander Isak, Alisson Becker and more](https://anfieldindex.com/92940/liverpool-injury-latest-alexander-isak-alisson-becker-and-more.html) - **Anfieldindex.com**
-9. [Christopher Beesley, Liverpool Echo: Everton targeting European qualification for the first time since 2017](https://www.brentfordfc.com/en/news/article/analysis-brentford-v-everton-premier-league-david-moyes-liverpool-echo) - **Brentfordfc.com**
-10. [McLeary replaces McAneny in Scotland squad](https://www.bbc.com/sport/football/articles/cj947jmnr1mo) - **BBC News**
+1. [A New Era of Sports Broadcasting: Galaxy S26 Ultra Unlocks New Perspectives, Bringing Cameras Inside the Action](https://news.samsung.com/in/a-new-era-of-sports-broadcasting-galaxy-s26-ultra-unlocks-new-perspectives-bringing-cameras-inside-the-action) - **Samsung.com**
+2. [Arsenal u21s seal play-off place](https://dailycannon.com/2026/04/arsenal-u21s-seal-play-off-place/) - **Dailycannon.com**
+3. [The Road To Montevideo: 2026 Copa Libertadores Group Stage Preview](https://worldfootballindex.com/2026/04/the-road-to-montevideo-2026-copa-libertadores-group-stage-preview/) - **World Football Index**
+4. [Arsenal 'can't put Dowman into high-pressure situations too frequently'](https://www.bbc.com/sport/football/articles/cqxl3j0pv9zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Sutton has 'sympathy' for Arteta after FA Cup blow](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_06be9ef5-04d9-4ed6-8a70-2efc2dec5328) - **Yahoo Entertainment**
+6. [IPL Live: All eyes on Sooryavanshi vs Bumrah as RR face MI](https://timesofindia.indiatimes.com/sports/cricket/rr-vs-mi-ipl-cricket-match-2026-live-score-where-to-watch-rajasthan-royals-vs-mumbai-indians-match-scorecard-live-streaming-playing-11-ipl-news-vaibhav-suryavanshi-hardik-pandya-rohit-sharma-sanju-samson/liveblog/130085261.cms) - **The Times of India**
+7. [Manchester United scouting Southampton midfielder Shea Charles ahead of possible summer swoop](https://sportsview.co.uk/2026/04/manchester-united-scouting-southampton-midfielder-shea-charles-ahead-of-possible-summer-swoop?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-scouting-southampton-midfielder-shea-charles-ahead-of-possible-summer-swoop) - **Sportsview.co.uk**
+8. [Sporting Club v Arsenal match preview and prediction](https://www.justarsenal.com/sporting-club-v-arsenal-match-preview-and-prediction/413089) - **Just Arsenal News**
+9. [How La Masia is powering Barcelona's Champions League push](https://www.skysports.com/football/news/11095/13524984/lamine-yamal-pau-cubarsi-among-academy-graduates-powering-barcelonas-champions-league-push-as-xavi-garcia-pimienta-explains-la-masias-success) - **Sky Sports**
+10. [Fabrizio Romano breaks big morning update that’ll have Liverpool fans on red alert a day before PSG](https://www.empireofthekop.com/2026/04/07/fabrizio-romano-breaks-big-morning-update-thatll-have-liverpool-fans-on-red-alert-a-day-before-psg/) - **Empire of The Kop**
 
 
 ---
-*최근 업데이트: 2026-04-08 19:32:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-08 20:36:42 (KST) / (하루 100회 제한 준수 중)*
