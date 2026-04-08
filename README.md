@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Academy Match Report: Manchester United U21s 2-4 Real Madrid Castilla](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_80ac9d88-5699-47ac-b0b0-8d61cf6b0e29) - **Yahoo Entertainment**
-2. [Liverpool aims to stop slide against PSG in Champions League quarterfinals](https://japantoday.com/category/sports/liverpool-must-stop-slide-against-psg-in-champions-league-quarterfinals) - **Japan Today**
-3. [Kai: “That goal is 80 per cent Gabi’s”](http://www.arsenal.com/news/kai-goal-80-cent-gabis) - **Arsenal.com**
-4. [Kai Havertz’s last-minute breakthrough gives Arsenal some room to breathe against Sporting](https://www.independent.ie/sport/soccer/champions-league/kai-havertzs-last-minute-breakthrough-gives-arsenal-some-room-to-breathe-against-sporting/a2064390332.html) - **Independent.ie**
-5. [2026 NFL mock draft 8.0: Ty Simpson goes late first round, while 4 Buckeyes are gone by pick No. 10](https://sports.yahoo.com/nfl/article/2026-nfl-mock-draft-80-ty-simpson-goes-late-first-round-while-4-buckeyes-are-gone-by-pick-no-10-212231524.html) - **Yahoo Entertainment**
-6. [Kai Havertz snatches late victory for Arsenal to take control against Sporting](https://www.irishtimes.com/sport/soccer/2026/04/07/kai-havertz-snatches-late-victory-for-arsenal-to-take-control-against-sporting/) - **The Irish Times**
-7. [Premier League secures fifth Champions League spot](https://www.skysports.com/football/news/11661/13529094/premier-league-secures-fifth-champions-league-spot-for-a-second-season-running) - **Sky Sports**
-8. [Premier League secures fifth Champions League spot](https://www.skysports.com/football/news/11661/13529094/premier-league-secures-fifth-champions-league-spot-for-a-second-season-running) - **Sky Sports**
+1. [Papers: Man City believe they have won race to sign Man Utd target Anderson](https://www.skysports.com/football/transfer-paper-talk/12709/13529120/elliot-anderson-man-city-believe-they-have-won-race-to-sign-england-midfielder-paper-talk-and-football-transfer-gossip) - **Sky Sports**
+2. [Papers: Man City believe they have won race to sign Man Utd target Anderson](https://www.skysports.com/football/transfer-paper-talk/12709/13529120/elliot-anderson-man-city-believe-they-have-won-race-to-sign-england-midfielder-paper-talk-and-football-transfer-gossip) - **Sky Sports**
+3. [Alejandro Garnacho: Surprise club working on signing ex-United star from Chelsea](https://thepeoplesperson.com/2026/04/07/alejandro-garnacho-surprise-club-working-on-signing-ex-united-star-from-chelsea-308505/) - **The Peoples Person**
+4. [New England Patriots’ Mike Vrabel and top NY Times NFL reporter Dianna Russini hold hands and hug at luxury hotel](https://pagesix.com/2026/04/07/celebrity-news/new-england-patriots-mike-vrabel-and-top-ny-times-nfl-reporter-dianna-russini-hold-hands-and-hug-at-luxury-hotel/) - **Page Six**
+5. [Arsenal's Raya hailed as 'world's best keeper' after denying Sporting](https://sports.yahoo.com/articles/arsenals-raya-hailed-worlds-best-221646760.html) - **Yahoo Entertainment**
+6. [Arsenal beat Sporting with late Havertz goal in Champions League quarters](https://www.aljazeera.com/sports/2026/4/7/arsenal-beat-sporting-with-late-havertz-goal-in-champions-league-quarters) - **Al Jazeera English**
+7. [Spurs want Trafford as Vicario replacement - Wednesday's gossip](https://www.bbc.com/sport/football/articles/c4gv3zre8m5o) - **BBC News**
+8. [Havertz nabs late winner as Arsenal take quarter-final lead against Sporting CP](https://www.the42.ie/arsenal-sporting-cp-match-report-7006065-Apr2026/) - **The42**
+9. [Bayern closer to Champions League semis after crucial win at Madrid](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260407-99-58853/) - **Dpa-international.com**
 
 
 ---
-*최근 업데이트: 2026-04-09 06:51:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-09 07:42:50 (KST) / (하루 100회 제한 준수 중)*
