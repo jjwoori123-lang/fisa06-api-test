@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [These free agents are exactly who Caitlin Clark and Fever need to win WNBA championship](https://www.sportingnews.com/us/wnba/indiana-fever/news/free-agents-caitlin-clark-fever-need-wnba-championship/31719e65bf520ed95fedf91c) - **Sporting News**
-2. [Compelling new reasons why United have to unleash Radek Vitek next term](https://thepeoplesperson.com/2026/04/07/compelling-new-reasons-why-united-have-to-unleash-radek-vitek-next-term-308495/) - **The Peoples Person**
-3. [What a move! Brazil sensation lined-up to replace Mo Salah](https://www.anfieldwatch.co.uk/liverpool-fc/news/what-a-move-brazil-sensation-lined-up-to-replace-mo-salah/) - **Anfieldwatch.co.uk**
-4. [Elliot Anderson has made his choice between United and City](https://thepeoplesperson.com/2026/04/07/elliot-anderson-has-made-his-choice-between-united-and-city-308491/) - **The Peoples Person**
-5. [Syracuse star forward Donnie Freeman enters NCAA Transfer Portal](https://www.on3.com/transfer-portal/news/syracuse-star-forward-donnie-freeman-enters-ncaa-transfer-portal/) - **On3.com**
-6. [Confirmed XIs: Arsenal make the first move in Lisbon](https://onefootball.com/en/news/confirmed-xis-arsenal-make-the-first-move-in-lisbon-42675625) - **Onefootball.com**
-7. [Sean Dyche was not approached for the Spurs job, and wouldn’t have taken it](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/69898/tottenham-hotspur-news-sean-dyche-not-approached-spurs-manager-job) - **SB Nation**
-8. [USMNT striker Patrick Agyemang out for World Cup after brutal Achilles injury](https://nypost.com/2026/04/07/sports/usmnt-striker-patrick-agyemang-out-for-world-cup-after-brutal-injury/) - **New York Post**
+1. [Jaiswal's half-century earns Rajasthan a 27-run win over Mumbai in rain-shortened IPL game](https://sports.yahoo.com/articles/jaiswals-half-century-earns-rajasthan-195857052.html) - **Yahoo Entertainment**
+2. [Report: Liverpool to battle Chelsea in the race to sign £70m star](https://anfieldindex.com/92958/report-liverpool-to-battle-chelsea-in-the-race-to-sign-70m-star.html) - **Anfieldindex.com**
+3. [Report: Brighton have joined the race to sign 22-goal striker](https://eplindex.com/144996/report-brighton-have-joined-the-race-to-sign-22-goal-striker.html) - **English Premier League Index - Opta Stats**
+4. [Slot: If Liverpool don't lift it we'll get PSG pummelling](https://www.rte.ie/sport/soccer/2026/0407/1567107-slot-if-liverpool-dont-lift-it-well-get-psg-pummelling/) - **RTE**
+5. [No favourites against Liverpool, insists Luis Enrique](https://www.rediff.com/sports/report/champions-league-psg-vs-liverpool-luis-enrique-dismisses-favourites-tag/20260408.htm) - **Rediff.com**
+6. [Isak travels with Liverpool to PSG but will not start, says Slot](https://www.channelnewsasia.com/sport/isak-travels-liverpool-psg-will-not-start-says-slot-6041981) - **CNA**
+7. ['We've become quite experienced in negativity' - under-pressure Slot denies Liverpool 'gave up'](https://www.bbc.com/sport/football/articles/c8jkrlgr1w2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Jurgen Klopp to make extraordinary Liverpool return in surprise role](https://www.anfieldwatch.co.uk/liverpool-fc/news/jurgen-klopp-to-make-extraordinary-liverpool-return-in-surprise-role/) - **Anfieldwatch.co.uk**
+9. [PREVIEW | FC Porto vs Nottingham Forest - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-fc-porto-vs-nottingham-forest-team-news-lineups-predictions/1089755) - **Playmakerstats.com**
 
 
 ---
-*최근 업데이트: 2026-04-09 03:49:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-09 04:59:19 (KST) / (하루 100회 제한 준수 중)*
