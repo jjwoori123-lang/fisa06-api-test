@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Premier League secures fifth Champions League spot](https://www.bbc.com/sport/football/articles/c9vl1y7g1mjo) - **BBC News**
-2. [Ontario Soccer Announces Launch of the New Canadian Guide to Soccer in Ontario, Strengthening Support for Newcomers Across the Province](https://financialpost.com/globe-newswire/ontario-soccer-announces-launch-of-the-new-canadian-guide-to-soccer-in-ontario-strengthening-support-for-newcomers-across-the-province) - **Financial Post**
-3. [Ontario Soccer Announces Launch of the New Canadian Guide to Soccer in Ontario, Strengthening Support for Newcomers Across the Province](https://www.globenewswire.com/news-release/2026/04/07/3269685/0/en/Ontario-Soccer-Announces-Launch-of-the-New-Canadian-Guide-to-Soccer-in-Ontario-Strengthening-Support-for-Newcomers-Across-the-Province.html) - **GlobeNewswire**
-4. [Elliot Anderson: Man United preparing bold new push this week to land star](https://thepeoplesperson.com/2026/04/07/elliot-anderson-man-united-preparing-bold-new-push-this-week-to-land-star-308497/) - **The Peoples Person**
-5. [Arne Slot warns Liverpool cannot afford to switch off in Champions League test at PSG](https://www.irishtimes.com/sport/soccer/2026/04/07/arne-slot-warns-liverpool-cannot-afford-to-switch-off-in-champions-league-test-at-psg/) - **The Irish Times**
-6. [Enzo Fernandez saga adds new chapter as Chelsea reportedly consider restoring Argentina star’s top role](https://worldsoccertalk.com/news/enzo-fernandez-saga-adds-new-chapter-as-chelsea-reportedly-consider-restoring-argentina-stars-top-role/) - **Worldsoccertalk.com**
-7. [Bruno Fernandes opens up as he closes in on historic Premier League feat](https://thepeoplesperson.com/2026/04/07/bruno-fernandes-opens-up-as-he-closes-in-on-historic-premier-league-feat-308477/) - **The Peoples Person**
-8. [Ecuador, Guatemala soccer to play friendly at ScottsMiracle-Gro field](https://www.dispatch.com/story/sports/mls/columbus-crew/2026/04/07/ecuador-guatemala-soccer-world-cup-match-columbus/89504098007/) - **Fci Academy**
-9. [‘Have no chance’ – Florian Wirtz sends stern warning to teammates ahead of PSG clash](https://www.empireofthekop.com/2026/04/07/florian-wirtz-liverpool-psg-teammates-warning/) - **Empire of The Kop**
-10. [Jaiswal's half-century earns Rajasthan a 27-run win over Mumbai in rain-shortened IPL game](https://sports.yahoo.com/articles/jaiswals-half-century-earns-rajasthan-195857052.html) - **Yahoo Entertainment**
+1. [Academy Match Report: Manchester United U21s 2-4 Real Madrid Castilla](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_80ac9d88-5699-47ac-b0b0-8d61cf6b0e29) - **Yahoo Entertainment**
+2. [Liverpool aims to stop slide against PSG in Champions League quarterfinals](https://japantoday.com/category/sports/liverpool-must-stop-slide-against-psg-in-champions-league-quarterfinals) - **Japan Today**
+3. [Kai: “That goal is 80 per cent Gabi’s”](http://www.arsenal.com/news/kai-goal-80-cent-gabis) - **Arsenal.com**
+4. [Kai Havertz’s last-minute breakthrough gives Arsenal some room to breathe against Sporting](https://www.independent.ie/sport/soccer/champions-league/kai-havertzs-last-minute-breakthrough-gives-arsenal-some-room-to-breathe-against-sporting/a2064390332.html) - **Independent.ie**
+5. [2026 NFL mock draft 8.0: Ty Simpson goes late first round, while 4 Buckeyes are gone by pick No. 10](https://sports.yahoo.com/nfl/article/2026-nfl-mock-draft-80-ty-simpson-goes-late-first-round-while-4-buckeyes-are-gone-by-pick-no-10-212231524.html) - **Yahoo Entertainment**
+6. [Kai Havertz snatches late victory for Arsenal to take control against Sporting](https://www.irishtimes.com/sport/soccer/2026/04/07/kai-havertz-snatches-late-victory-for-arsenal-to-take-control-against-sporting/) - **The Irish Times**
+7. [Premier League secures fifth Champions League spot](https://www.skysports.com/football/news/11661/13529094/premier-league-secures-fifth-champions-league-spot-for-a-second-season-running) - **Sky Sports**
+8. [Premier League secures fifth Champions League spot](https://www.skysports.com/football/news/11661/13529094/premier-league-secures-fifth-champions-league-spot-for-a-second-season-running) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-04-09 05:56:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-09 06:51:55 (KST) / (하루 100회 제한 준수 중)*
