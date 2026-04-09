@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['Will stay up' or 'extremely concerned'? Fan views on Leeds' run-in](https://www.bbc.com/sport/football/articles/cpwjvy28qego?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Supercomputer gives Liverpool just 24.3% chance vs PSG](https://www.empireofthekop.com/2026/04/08/supercomputer-gives-liverpool-just-24-3-chance-vs-psg/) - **Empire of The Kop**
-3. [Inside Ruturaj Gaikwad's ₹8 crore Pune residence that defines modern luxury](https://timesofindia.indiatimes.com/real-estate/news/inside-ruturaj-gaikwads-8-crore-pune-residence-that-defines-modern-luxury/photostory/130108594.cms) - **The Times of India**
-4. [Barcelona star open to summer exit after diminished role under Hansi Flick](https://footballtoday.com/2026/04/08/barcelona-star-open-to-summer-exit-after-diminished-role-under-hansi-flick/) - **Footballtoday.com**
-5. [Manchester City hold major internal belief over Elliot Anderson signing amid Manchester United competition](https://cityxtra.co.uk/44264/manchester-city-hold-major-internal-belief-over-elliot-anderson-signing-amid-man-united-competition/) - **Cityxtra.co.uk**
-6. [“He’s phenomenal” – Chelsea urged to sign “ideal” player this summer by ex-Premier League star](https://chelsea.news/2026/04/chelsea-real-madrid-antonio-rudiger-return/) - **Chelsea.news**
-7. [Neil, Lampard, Jakirovic & Hellberg up for manager award](https://www.bbc.com/sport/football/articles/cn430g52z9jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Neil, Lampard, Jakirovic & Hellberg up for manager award](https://www.bbc.com/sport/football/articles/cn430g52z9jo) - **BBC News**
-9. ['I honestly believe West Ham will stay up' - fan views on run-in](https://www.bbc.com/sport/football/articles/c74v01jpkzno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Dropping Fernandez - a sign of Rosenior's authority or a big risk?](https://www.bbc.com/sport/football/articles/cwywk1yx772o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Dropping Fernandez - a sign of Rosenior's authority or a big risk?](https://www.bbc.com/sport/football/articles/cwywk1yx772o) - **BBC News**
+3. [Tottenham confirm coaching structure after De Zerbi appointment](https://www.101greatgoals.com/football/premier-league/tottenham-de-zerbi-backroom-team/) - **101 Great Goals**
+4. [Arsenal is challenging Tottenham for Serie A star](https://www.justarsenal.com/arsenal-is-challenging-tottenham-for-serie-a-star/413149) - **Just Arsenal News**
+5. [Report: Liverpool are in the race to sign £39m defender](https://anfieldindex.com/92978/report-liverpool-are-in-the-race-to-sign-39m-defender-2.html) - **Anfieldindex.com**
+6. [DC vs GT Delhi Weather Updates: Will rain affect the IPL match, what's the pitch condition](https://economictimes.indiatimes.com/news/sports/dc-vs-gt-pitch-report-of-arun-jaitley-stadium-weather-update-of-delhi-today-match-latest-update/articleshow/130110838.cms) - **The Times of India**
+7. [Fabrizio Romano: Premier League clubs among suitors for Newcastle United star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3099552a-8376-44d6-823f-724b242af4f8) - **Yahoo Entertainment**
+8. [Denzel Dumfries to Man United: what is being reported in Italy](https://thepeoplesperson.com/2026/04/08/denzel-dumfries-to-man-united-what-is-being-reported-in-italy-308527/) - **The Peoples Person**
+9. [Arteta offers Odegaard injury update after ‘limp’ reports](https://dailycannon.com/2026/04/arteta-odegaard-injury-update-sporting/) - **Dailycannon.com**
+10. [Ben Jacobs provides update on Reece James hamstring injury and possible return date](https://chelsea.news/2026/04/ben-jacobs-reece-james-hamstring-injury/) - **Chelsea.news**
 
 
 ---
-*최근 업데이트: 2026-04-09 18:42:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-09 20:02:08 (KST) / (하루 100회 제한 준수 중)*
