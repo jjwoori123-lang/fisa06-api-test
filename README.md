@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Gujarat Titans record their first win of IPL 2026 with thrilling one-run victory over Delhi Capitals](https://indianexpress.com/article/sports/cricket/gujarat-titans-record-first-ipl-2026-win-with-thrilling-one-run-win-over-delhi-capitals-10626439/) - **The Indian Express**
-2. [Roberts back at West Brom as non-executive director](https://www.bbc.com/sport/football/articles/c4gv3r73mm7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Top Bundesliga source confirms Chelsea interest in winger – but there’s a major problem for Blues](https://chelsea.news/2026/04/top-bundesliga-source-chelsea-interest-in-winger/) - **Chelsea.news**
-4. [Arteta shares what he learned from Arsenal cup eliminations](https://dailycannon.com/2026/04/arteta-arsenal-cup-exits/) - **Dailycannon.com**
-5. [PSG vs Liverpool LIVE Updates: Minute-by-Minute Coverage of the 2025-26 Champions League Quarterfinals First Leg](https://worldsoccertalk.com/news/psg-vs-liverpool-live-updates-minute-by-minute-coverage-of-the-2025-26-champions-league-quarterfinals-first-leg/) - **Worldsoccertalk.com**
-6. [How are the Scottish Premiership post-split fixtures decided?](https://www.bbc.com/sport/football/articles/cd0r4mvgglno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Do Leicester have the will to stay up?](https://www.bbc.com/sport/football/articles/cr71mkpz1dko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [PSG v Liverpool – Teams confirmed with Isak on bench](https://www.101greatgoals.com/football/champions-league/psg-v-liverpool-teams-confirmed-with-isak-on-bench/) - **101 Great Goals**
-9. [Four-Star James Halter Commits to 2027 Navy All-American Bowl](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/four-star-james-halter-commits-to-2027-navy-all-american-bowl) - **NBCSports.com**
-10. [Bruno Fernandes: Man United talisman is the Premier League’s best player](https://thepeoplesperson.com/2026/04/08/bruno-fernandes-man-united-talisman-is-the-premier-leagues-best-player-308542/) - **The Peoples Person**
+1. [IPL 2026: Top 5 devices to elevate your cricket viewing experience](https://me.mashable.com/tech/69518/ipl-2026-top-5-devices-to-elevate-your-cricket-viewing-experience) - **Mashable**
+2. [Angelo Stiller: Stuttgart set new price as Man United eye summer raid](https://thepeoplesperson.com/2026/04/08/angelo-stiller-stuttgart-set-new-price-as-man-united-eye-summer-raid-308548/) - **The Peoples Person**
+3. [Chelsea set to hand Brighton more money if summer midfielder deal comes off](https://chelsea.news/2026/04/chelsea-hand-brighton-money-summer-deal-comes-off/) - **Chelsea.news**
+4. [How Peter Schrager’s mock 2026 NFL draft impacts Las Vegas Raiders 2nd round options](https://www.silverandblackpride.com/nfl-draft/126887/las-vegas-raiders-nfl-draft-schrager-mock-takeaways) - **Silver And Black Pride**
+5. [Leicester loses appeal against points deduction and remains at risk of relegation to 3rd tier](https://sports.yahoo.com/articles/leicester-loses-appeal-against-points-192746020.html) - **Yahoo Entertainment**
+6. [Dodgers great Davey Lopes, an infield fixture and record-setting base stealer, dies at 80](https://sports.yahoo.com/articles/dodgers-great-davey-lopes-infield-192352595.html) - **Yahoo Entertainment**
+7. [Gujarat survives David Miller’s late blitz for a 1-run win over Delhi in Indian Premier League](https://sports.yahoo.com/articles/gujarat-survives-david-miller-blitz-192310984.html) - **Yahoo Entertainment**
+8. [Davey Lopes, Dodgers legend and World Series winner, dies at 80](https://abc7.com/post/davey-lopes-dodgers-legend-world-series-winner-dies-80/18857319/) - **KABC-TV**
+9. [Dominguez, Netz And Ndoye To Start | 4-2-3-1 Nottingham Forest Predicted Lineup Vs Porto](https://the4thofficial.net/2026/04/dominguez-netz-and-ndoye-to-start-4-2-3-1-nottingham-forest-predicted-lineup-vs-porto/) - **The4thofficial.net**
+10. [Betis earn draw in Europa League quarter-final at Braga](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1843e7c0-64b0-401c-a235-2b28f3b5f339) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-04-10 03:13:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-10 04:41:47 (KST) / (하루 100회 제한 준수 중)*
