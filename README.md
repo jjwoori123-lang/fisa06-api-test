@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Hypothetical 49ers trade sends Brandon Aiyuk for 3x Pro Bowl DT](https://ninerswire.usatoday.com/story/sports/nfl/niners/2026/04/08/nfl-trade-rumors-49ers-giants-brandon-aiyuk-dexter-lawrence/89513889007/) - **USA Today**
-2. [Leeds United Doing Everything To Retain This €20M Player: Is He Too Important Regardless Of Division?](https://the4thofficial.net/2026/04/leeds-united-doing-everything-to-retain-this-e20m-player-is-he-too-important-regardless-of-division/) - **The4thofficial.net**
-3. [Juventus’ Michele Di Gregorio set for summer exit](https://www.getfootballnewsitaly.com/2026/juventus-michele-di-gregorio-set-for-summer-exit/) - **Getfootballnewsitaly.com**
-4. [Former Manchester United Scout Provides Update On This Everton Star: Are They Actually Better Off Keeping Him For Another Season?](https://the4thofficial.net/2026/04/former-manchester-united-scout-provides-update-on-this-everton-star-are-they-actually-better-off-keeping-him-for-another-season/) - **The4thofficial.net**
-5. [Dortmund weigh up third Sancho move - Thursday's gossip](https://www.bbc.com/sport/football/articles/c20qeyevzd1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Dortmund weigh up third Sancho move - Thursday's gossip](https://www.bbc.com/sport/football/articles/c20qeyevzd1o) - **BBC News**
-7. [Mateus Fernandes: West Ham respond to Man United’s transfer interest](https://thepeoplesperson.com/2026/04/08/mateus-fernandes-west-ham-respond-to-man-uniteds-transfer-interest-308539/) - **The Peoples Person**
-8. [Rangers Eye This Liverpool Starlet As Tavernier Era Nears Its End: Good Option?](https://the4thofficial.net/2026/04/rangers-eye-this-liverpool-starlet-as-tavernier-era-nears-its-end-good-option/) - **The4thofficial.net**
-9. [Jesus eyes World Cup spot with Brazil](https://www.bbc.com/sport/football/articles/c75k1p1qwqvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [WATCH: Doue gives PSG early lead against Liverpool](https://www.101greatgoals.com/football/champions-league/watch-doue-gives-psg-early-lead-against-liverpool/) - **101 Great Goals**
+1. [Liverpool suffer third defeat in succession as PSG outclass Reds in Champions League quarter-final first leg](https://www.independent.ie/sport/soccer/champions-league/liverpool-suffer-third-defeat-in-succession-as-psg-outclass-reds-in-champions-league-quarter-final-first-leg/a293851703.html) - **Independent.ie**
+2. [Barcelona 0-2 Atletico Madrid: 10-man Barca need Champions League miracle](https://www.nbcsports.com/soccer/news/barcelona-vs-atletic-madrid-champions-league-live-updates-score-highlights-stats-watch) - **NBCSports.com**
+3. [Tottenham Hotspur Are Keeping Tabs On The Situation Of This Man City Keeper: Good Fit For Spurs?](https://the4thofficial.net/2026/04/tottenham-hotspur-are-keeping-tabs-on-the-situation-of-this-man-city-keeper/) - **The4thofficial.net**
+4. [Dodgers great Davey Lopes, an infield fixture and record-setting base stealer, dies at 80](https://www.nbcsports.com/mlb/news/dodgers-great-davey-lopes-an-infield-fixture-and-record-setting-base-stealer-dies-at-80) - **NBCSports.com**
+5. [PSG 2-0 Liverpool: Salah sits as Reds played off park in Paris](https://www.nbcsports.com/soccer/news/psg-vs-liverpool-champions-league-live-updates-score-highlights-stats-watch) - **NBCSports.com**
+6. ['Like A Horror Movie': Martin Odegaard Injury Sparks Serious Concern For Arsenal](https://www.foxsports.com/stories/soccer/like-horror-movie-martin-odegaard-injury-sparks-serious-concern-arsenal) - **Fox Sports**
+7. [Dominant PSG leave Liverpool right up against it in Champions League tie](https://sports.yahoo.com/articles/dominant-psg-leave-liverpool-against-210108316.html) - **Yahoo Entertainment**
+8. [Juventus and Arsenal not alone in race for German star](https://www.juvefc.com/juventus-and-arsenal-not-alone-in-race-for-german-star/) - **JuveFC**
 
 
 ---
-*최근 업데이트: 2026-04-10 05:55:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-10 06:49:12 (KST) / (하루 100회 제한 준수 중)*
