@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mohammed Kudus faces fresh injury nightmare with Tottenham star at risk of missing World Cup](https://www.101greatgoals.com/football/premier-league/mohammed-kudus-fresh-injury-nightmare-tottenham-risk-missing-world-cup/) - **101 Great Goals**
-2. [Super subs: Our "finishers" setting new benchmarks](http://www.arsenal.com/news/super-subs-our-finishers-setting-new-benchmarks) - **Arsenal.com**
-3. [FA Cup semi-finals: Can Southampton or Leeds shock Man City & Chelsea?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9ac464f9-c3a8-42af-ab73-2510d307134d) - **Yahoo Entertainment**
-4. [Manuel Ugarte: Bold claim surfaces over Napoli and United man](https://thepeoplesperson.com/2026/04/09/manuel-ugarte-bold-claim-surfaces-over-napoli-and-united-man-308569/) - **The Peoples Person**
-5. [Wrexham's James to battle through pain barrier](https://www.bbc.com/sport/football/articles/ckgwdx7vx9no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Saints to wear commemorative shirt for Wembley semi](https://www.bbc.com/sport/football/articles/c4gxp8p77r4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Mexico Legend Javier Hernández Joins FOX Sports For 2026 FIFA World Cup](https://www.foxsports.com/stories/soccer/mexico-chicharito-javier-hernandez-fox-sports-2026-fifa-world-cup) - **Fox Sports**
-8. [Brentford v Everton matchday guide](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9019400d-814a-4123-8b43-f75eab8c48dc) - **Yahoo Entertainment**
-9. ['Derby day travel plan like a military operation'](https://www.bbc.com/news/articles/clyxk19llj7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Enzo Fernandez’s Chelsea controversy settled after latest meeting: ‘We made peace’](https://worldsoccertalk.com/news/enzo-fernandezs-chelsea-controversy-settled-after-latest-meeting-we-made-peace/) - **Worldsoccertalk.com**
+2. [Nike in exclusive talks to replace Adidas as Champions League ball supplier](https://footballtoday.com/2026/04/09/nike-in-exclusive-talks-to-replace-adidas-as-champions-league-ball-supplier/) - **Footballtoday.com**
+3. [Luis Enrique: Real Madrid take major decision on Man United target](https://thepeoplesperson.com/2026/04/09/luis-enrique-real-madrid-take-major-decision-on-man-united-target-308574/) - **The Peoples Person**
+4. [Report – Bournemouth Set To Lodge €25M Bid For Out-Of-Favor Inter Milan Wingback](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d860bd9d-eb9b-4248-a934-bce88ac518b9) - **Yahoo Entertainment**
+5. [Bedford on 'full circle' moment in England career](https://www.bbc.com/sport/football/articles/c8x7dgvwww1o) - **BBC News**
+6. [Europa League quarterfinal scores: Results, highlights from UEL, Conference League first legs](https://www.sportingnews.com/us/soccer/news/europa-league-quarterfinal-scores-results-highlights-conference/5ed12430af09bd3bc9616aec) - **Sporting News**
+7. [PL Predictions: Fulham to deliver another blow to Liverpool](https://www.skysports.com/football/news/11661/13529817/premier-league-predictions-and-best-bets-fulham-to-deliver-another-blow-to-liverpool) - **Sky Sports**
+8. [Bowen: West Ham relegation battle hurts me more than anyone](https://www.skysports.com/football/news/11095/13529252/jarrod-bowen-west-ham-relegation-battle-hurts-me-more-than-anyone-and-wolves-is-a-must-win-on-friday-night-football) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-04-11 00:32:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-11 01:33:18 (KST) / (하루 100회 제한 준수 중)*
