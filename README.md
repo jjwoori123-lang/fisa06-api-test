@@ -1,13 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Aston Villa beat Bologna 3-1 to boost Europa League semi-final bid](https://punchng.com/aston-villa-beat-bologna-3-1-to-boost-europa-league-semi-final-bid/) - **The Punch**
-2. [Front-footed Dundalk creating more than a stir](https://www.rte.ie/sport/soccer/2026/0409/1567484-front-footed-dundalk-creating-more-than-a-stir/) - **RTE**
-3. [Clayton wins in Brighton to go top of Premier League](https://www.bbc.com/sport/darts/articles/cm25vyg61vpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Clayton wins in Brighton to go top of Premier League](https://www.bbc.com/sport/darts/articles/cm25vyg61vpo) - **BBC News**
-5. [fplkit 1.2.0](https://pypi.org/project/fplkit/1.2.0/) - **Pypi.org**
-6. [No. 4 Northern clips No. 1 Allegany, 5-4, on walk-off walk in 10-inning thriller](https://www.times-news.com/sports/local_sports/no-4-northern-clips-no-1-allegany-5-4-on-walk-off-walk-in-10/article_d644c439-52d8-4d0a-b8e8-9a250fee9732.html) - **Cumberland Times-News**
-7. [Liverpool confirm Robertson will leave the club as Salah pays tribute to defender](https://hayters.com/liverpool-confirm-robertson-will-leave-the-club-as-salah-pays-tribute-to-defender/) - **Hayters.com**
+1. [Lookman hails teammates, braces for Barca return leg](https://punchng.com/lookman-hails-teammates-braces-for-barca-return-leg/) - **The Punch**
+2. [Pereira explains why he took Wood, Gibbs-White and Murillo off and praises players after Porto draw](https://hayters.com/pereira-explains-why-he-took-wood-and-gibbs-white-off-and-praises-players-after-porto-draw/) - **Hayters.com**
+3. [Newcastle United working on summer deal for Real Madrid forward](https://www.football-espana.net/2026/04/09/newcastle-summer-deal-real-madrid) - **Football Espana**
+4. [Barcelona and Atletico Madrid lead race to sign Premier League defender](https://www.football-espana.net/2026/04/09/barcelona-atletico-madrid-premier-league-defender) - **Football Espana**
+5. [Joshua Zirkzee: How Michael Carrick can unleash Man United star](https://thepeoplesperson.com/2026/04/10/joshua-zirkzee-how-michael-carrick-can-unleash-man-united-star-308471/) - **The Peoples Person**
+6. [Tyler Adams “ready to go” for final stretch of Bournemouth’s season](https://sbisoccer.com/2026/04/tyler-adams-ready-to-go-for-final-stretch-of-bournemouths-season) - **Sbisoccer.com**
+7. ['Hungry' Watkins is man on mission but will Tuchel take notice?](https://www.bbc.com/sport/football/articles/cx2rdd3pv7eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. ['Hungry' Watkins is man on mission but will Tuchel take notice?](https://www.bbc.com/sport/football/articles/cx2rdd3pv7eo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-11 07:40:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-11 08:38:56 (KST) / (하루 100회 제한 준수 중)*
