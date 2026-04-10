@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Enzo Fernandez apology calms Chelsea storm after Real Madrid comments](https://www.marca.com/en/football/chelsea/2026/04/09/69d80a1fca4741535e8b45b8.html) - **Marca**
-2. [Pirates' Konnor Griffin Labeled 'Can't Miss' Player, Compared To MLB Superstar](https://sportsnetpittsburgh.com/pittsburgh-pirates/news/pirates-konnor-griffin-labeled-cant-miss-player-compared-mlb-superstar/555173dd05da9dfeaff03fbd) - **Sportsnetpittsburgh.com**
-3. [ Power Rankings: PSG on the march, Arsenal on the slide?](https://thefootballfaithful.com/power-rankings-psg-arsenal-bayern-barcelona-real-madrid/) - **The Football Faithful**
-4. [Jolly Fury takes aim at heavyweight rivals & even Spurs](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_df6e96cf-6215-4a5d-a3a2-035b22073333) - **Yahoo Entertainment**
-5. [2026 NBA Awards Ballot: Shai Gilgeous-Alexander for MVP, Kon Knueppel for Rookie of the Year](https://sports.yahoo.com/nba/article/2026-nba-awards-ballot-shai-gilgeous-alexander-for-mvp-kon-knueppel-for-rookie-of-the-year-202010368.html) - **Yahoo Entertainment**
-6. [Rogers centre of transfer tug of war - Friday's gossip](https://www.bbc.com/sport/football/articles/clyxkqpxpl9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Rogers centre of transfer tug of war - Friday's gossip](https://www.bbc.com/sport/football/articles/clyxkqpxpl9o) - **BBC News**
-8. [Man United gain edge after Daniel Farke confirms triple Leeds absence](https://thepeoplesperson.com/2026/04/09/man-united-gain-edge-after-daniel-farke-confirms-triple-leeds-absence-308583/) - **The Peoples Person**
-9. [Andy Robertson to leave Liverpool at the end of 2025/26 season](https://www.empireofthekop.com/2026/04/09/andy-robertson-to-leave-liverpool-at-the-end-of-2025-26-season/) - **Empire of The Kop**
+1. [PSG battle Premier League giants to sign Aston Villa’s Morgan Rogers](https://www.getfootballnewsfrance.com/2026/psg-battle-premier-league-giants-to-sign-aston-villas-morgan-rogers/) - **Get French Football News**
+2. [Vanoli: ‘Fiorentina goal would’ve changed everything’ with Crystal Palace](https://football-italia.net/vanoli-fiorentina-goal-would-change-everything/) - **Football Italia**
+3. [Americans Abroad Midweek Rewind: Richards, Pukstas, and more](https://sbisoccer.com/2026/04/americans-abroad-midweek-rewind-richards-pukstas-and-more) - **Sbisoccer.com**
+4. [Ortega Gets 7.5, Bakwa With 7 | Nottingham Forest Players Rated In Hard-Fought Draw Vs Porto](https://the4thofficial.net/2026/04/ortega-gets-7-5-bakwa-with-7-nottingham-forest-players-rated-in-hard-fought-draw-vs-porto/) - **The4thofficial.net**
+5. [Intriguing update emerges on Xabi Alonso to United amid Carrick uncertainty](https://thepeoplesperson.com/2026/04/09/intriguing-update-emerges-on-xabi-alonso-to-united-amid-carrick-uncertainty-308594/) - **The Peoples Person**
+6. [Aston Villa on verge of Europa League semis after beating Bologna](https://japantoday.com/category/sports/aston-villa-on-verge-of-europa-league-semis-after-beating-bologna) - **Japan Today**
+7. [From Premier League champion to survival mode, Liverpool's season is on the brink](https://japantoday.com/category/sports/from-premier-league-champion-to-survival-mode-liverpool%27s-season-is-on-the-brink) - **Japan Today**
+8. [Man City will pay £100m to destroy Liverpool in another transfer deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-man-city-100m-yan-diomande-rb-leipzig/) - **Anfieldwatch.co.uk**
+9. [Papers: Arsenal hold contract talks with Arteta](https://www.skysports.com/football/transfer-paper-talk/12709/13529855/mikel-arteta-contract-arsenal-hold-talks-with-manager-over-extending-deal-paper-talk-and-football-transfer-gossip) - **Sky Sports**
+10. [Crystal Palace beat Fiorentina 3-0 to take control of Conference League quarter-final tie](https://footballtoday.com/2026/04/09/crystal-palace-beat-fiorentina-3-0-to-take-control-of-conference-league-quarter-final-tie/) - **Footballtoday.com**
 
 
 ---
-*최근 업데이트: 2026-04-11 05:58:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-11 06:50:07 (KST) / (하루 100회 제한 준수 중)*
