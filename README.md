@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Enzo Fernandez’s Chelsea controversy settled after latest meeting: ‘We made peace’](https://worldsoccertalk.com/news/enzo-fernandezs-chelsea-controversy-settled-after-latest-meeting-we-made-peace/) - **Worldsoccertalk.com**
-2. [Nike in exclusive talks to replace Adidas as Champions League ball supplier](https://footballtoday.com/2026/04/09/nike-in-exclusive-talks-to-replace-adidas-as-champions-league-ball-supplier/) - **Footballtoday.com**
-3. [Luis Enrique: Real Madrid take major decision on Man United target](https://thepeoplesperson.com/2026/04/09/luis-enrique-real-madrid-take-major-decision-on-man-united-target-308574/) - **The Peoples Person**
-4. [Report – Bournemouth Set To Lodge €25M Bid For Out-Of-Favor Inter Milan Wingback](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d860bd9d-eb9b-4248-a934-bce88ac518b9) - **Yahoo Entertainment**
-5. [Bedford on 'full circle' moment in England career](https://www.bbc.com/sport/football/articles/c8x7dgvwww1o) - **BBC News**
-6. [Europa League quarterfinal scores: Results, highlights from UEL, Conference League first legs](https://www.sportingnews.com/us/soccer/news/europa-league-quarterfinal-scores-results-highlights-conference/5ed12430af09bd3bc9616aec) - **Sporting News**
-7. [PL Predictions: Fulham to deliver another blow to Liverpool](https://www.skysports.com/football/news/11661/13529817/premier-league-predictions-and-best-bets-fulham-to-deliver-another-blow-to-liverpool) - **Sky Sports**
-8. [Bowen: West Ham relegation battle hurts me more than anyone](https://www.skysports.com/football/news/11095/13529252/jarrod-bowen-west-ham-relegation-battle-hurts-me-more-than-anyone-and-wolves-is-a-must-win-on-friday-night-football) - **Sky Sports**
+1. [Predicted Starting Line-Up: Chelsea vs Manchester City (Premier League)](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_44268281-3453-4d53-bf0e-b12d9bf3a5fc) - **Yahoo Entertainment**
+2. [2026 Premier League Darts Night 10 Brighton live results, scores and schedule](https://www.sportingnews.com/us/darts/news/premier-league-darts-night-10-brighton-live-results-scores-schedule/0e6fc00074e35ef79125c53e) - **Sporting News**
+3. [Nike plots to take over UEFA Champions League match ball from Adidas](https://www.usatoday.com/story/sports/soccer/ucl/2026/04/09/uefa-champions-league-ball-nije-adidas/89536274007/) - **USA Today**
+4. [How to watch Chelsea vs Manchester City live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-chelsea-vs-manchester-city-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
+5. [Ana Huang’s ‘Gods of the Game’ English Premier League Soccer Romance Book Series Sets Three-Film Adaptation at Amazon (EXCLUSIVE)](https://variety.com/2026/film/news/gods-of-the-game-movies-amazon-ana-huang-1236712501/) - **Variety**
+6. [Juan Angulo: Ecuadorian wonderkid’s future is clear as Man United circle](https://thepeoplesperson.com/2026/04/09/juan-angulo-ecuadorian-wonderkids-future-unveiled-as-man-united-circle-308577/) - **The Peoples Person**
+7. [Top FPL Captain Picks for GW-32](https://www.nevermanagealone.com/playerpicks/15816/top-fpl-captain-picks-for-gw-32) - **Nevermanagealone.com**
+8. [Juventus risk missing out on EPL defender as Spurs & Aston Villa make more lucrative offers](https://www.juvefc.com/spurs-aston-villa-juventus-marcos-senesi/) - **JuveFC**
+9. [Maguire claims he is still ‘one of the best defenders in the world’ in bid to make England’s World Cup squad](https://www.101greatgoals.com/football/premier-league/maguire-claims-best-defenders-world-england-world-cup-squad/) - **101 Great Goals**
+10. [NBC SPORTS PARTNERS WITH OVERTIME AND INNOVATIVE OT7 NEXT GENERATION FOOTBALL LEAGUE](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/nbc-sports-partners-with-overtime-and-innovative-ot7-next-generation-football-league) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-04-11 01:33:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-11 02:32:04 (KST) / (하루 100회 제한 준수 중)*
