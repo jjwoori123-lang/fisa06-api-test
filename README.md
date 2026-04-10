@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Emery: ‘I will pay for dinner with Italiano’ and wants respect for Bologna](https://football-italia.net/emery-will-pay-dinner-with-italiano-bologna/) - **Football Italia**
-2. [Who is Mukul Choudhary - the IPL's latest match-winner?](https://www.bbc.com/sport/cricket/articles/c78l34l30jno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Will Arteta Make Any Changes? | 4-3-3 Arsenal Predicted Lineup Vs Bournemouth](https://the4thofficial.net/2026/04/will-arteta-make-any-changes-4-3-3-arsenal-predicted-lineup-vs-bournemouth/) - **The4thofficial.net**
-4. [Liverpool announce Andy Robertson will leave club at end of the season](https://www.irishtimes.com/sport/soccer/2026/04/09/liverpool-announce-andy-robertson-will-leave-club-at-end-of-the-season/) - **The Irish Times**
-5. [Vanoli: ‘Fiorentina can create problems for Crystal Palace’ with midfielders](https://football-italia.net/vanoli-fiorentina-problems-crystal-palace/) - **Football Italia**
-6. [Choudhary's seven sixes snatch final-ball win for LSG](https://www.bbc.com/sport/cricket/articles/crl19550nj8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Robertson to leave Liverpool at end of season](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5e0b0a0d-71ac-49c4-b1ca-c11b60b0f86c) - **Yahoo Entertainment**
-8. [Robertson to leave Liverpool at end of season](https://www.channelnewsasia.com/sport/robertson-leave-liverpool-end-season-6047376) - **CNA**
-9. [Silva given one-match touchline ban for post-match comments](https://www.bbc.com/sport/football/articles/cpwjk1xrdnjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Premier League Darts: Build-up to night 10 in Brighton](https://www.bbc.com/sport/darts/live/cy8pvgvd4xkt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Liverpool told to replace Arne Slot with former Chelsea manager](https://anfieldindex.com/93035/liverpool-told-to-replace-arne-slot-with-former-chelsea-manager.html) - **Anfieldindex.com**
+2. [Andy Robertson to leave Liverpool at end of season after 9 years at club](https://sports.yahoo.com/articles/andy-robertson-leave-liverpool-end-192210702.html) - **Yahoo Entertainment**
+3. [Choudhary powers Lucknow to thrilling win over Kolkata in Indian Premier League](https://sports.yahoo.com/articles/choudhary-powers-lucknow-thrilling-win-191928996.html) - **Yahoo Entertainment**
+4. [Slot admits Liverpool in 'survival mode' in PSG defeat](https://economictimes.indiatimes.com/news/sports/slot-admits-liverpool-in-survival-mode-in-psg-defeat/articleshow/130152858.cms) - **The Times of India**
+5. [He's the next Mo Salah! Coach shows who will replace Liverpool star](https://www.anfieldwatch.co.uk/liverpool-fc/news/hes-the-next-mo-salah-coach-confirms-who-will-replace-liverpool-star/) - **Anfieldwatch.co.uk**
+6. [What makes Mukul Choudhary a thrilling watch: a nonchalant attitude, cool in crisis and maximums on speed-dial](https://indianexpress.com/article/sports/cricket/mukul-choudhary-kkr-vs-lsg-eden-gardens-ipl-2026-10628494/) - **The Indian Express**
+7. [Rayan Cherki and Manchester City’s recent history of loveable rogues](https://cityxtra.co.uk/44278/rayan-cherki-and-manchester-citys-recent-history-of-loveable-rogues/) - **Cityxtra.co.uk**
+8. [Calafiori is taking positives from Arsenal after national team heartbreak](https://www.justarsenal.com/calafiori-is-taking-positives-from-arsenal-after-national-team-heartbreak/413244) - **Just Arsenal News**
+9. [ Crystal Palace-Fiorentina, Vanoli: Play with courage and personality](https://onefootball.com/en/news/crystal-palace-fiorentina-vanoli-play-with-courage-and-personality-42686084) - **Onefootball.com**
+10. [Robertson to leave Liverpool at end of season](https://www.vanguardngr.com/2026/04/robertson-to-leave-liverpool-at-end-of-season/) - **Vanguard**
 
 
 ---
-*최근 업데이트: 2026-04-11 03:31:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-11 04:30:26 (KST) / (하루 100회 제한 준수 중)*
