@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sandro Tonali chase complicated by asking price and wage demands](https://thepeoplesperson.com/2026/04/09/sandro-tonali-chase-complicated-by-asking-price-and-wage-demands-308556/) - **The Peoples Person**
-2. [Arsenal still control their destiny despite FA Cup setback](https://www.justarsenal.com/arsenal-still-control-their-destiny-despite-fa-cup-setback/413174) - **Just Arsenal News**
-3. [Crystal Palace vs Fiorentina – Match preview and team news](https://thefootballfaithful.com/crystal-palace-vs-fiorentina-match-preview-and-team-news/) - **The Football Faithful**
-4. [Buttler gets his IPL mojo back with a fifty in Gujarat's first win](https://www.channelnewsasia.com/sport/buttler-gets-his-ipl-mojo-back-fifty-in-gujarats-first-win-6045916) - **CNA**
-5. [IPL 2026, KKR vs LSG Playing 11 Today Match LIVE: Will Varun Chakarvarthy and Sunil Narine return to side](https://indianexpress.com/article/sports/cricket/ipl-2026-kkr-vs-lsg-playing-11-today-match-live-will-varun-chakarvarthy-and-sunil-narine-return-to-side-10626495/) - **The Indian Express**
-6. [Nottingham Forest handed big injury boost ahead of Europa League quarter-final](https://footballtoday.com/2026/04/09/nottingham-forest-handed-big-injury-boost-ahead-of-europa-league-quarter-final/) - **Footballtoday.com**
-7. [Premier League club ‘actively encouraging’ summer bidding war between Man Utd and arch-rivals for their coveted star](https://strettynews.com/2026/04/09/nottingham-forest-bidding-war-elliot-anderson-manchester-united-city/) - **Strettynews.com**
-8. [Howe's future & likely sales - why Newcastle face key summer](https://www.bbc.com/sport/football/articles/c248l3rezlno) - **BBC News**
-9. [Kennet Eichhorn: Man City rival United for Hertha wonderkid – Fabrizio Romano](https://thepeoplesperson.com/2026/04/09/kennet-eichhorn-man-city-rival-united-for-hertha-wonderkid-fabrizio-romano-308551/) - **The Peoples Person**
-10. [“May I Have Your Attendance, Please?”](https://rokerreport.sbnation.com/opinion/133762/may-i-have-your-attendance-please) - **SB Nation**
+1. [Back Haaland and Semenyo to shine at Chelsea - FPL team of the week](https://www.bbc.com/sport/football/articles/ce35yk45v12o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Advantage Liverpool? Reds battle Bayern in race for £35m attacker](https://cfbayerninsider.com/2026/04/bazoumana-toure-liverpool-battle-bayern-munich-for-hoffenheim-attacker/) - **Cfbayerninsider.com**
+3. ['I'm very happy with everything Farke has done for me so far'](https://www.bbc.com/sport/football/articles/cvgkq8x791ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Today’s Papers: Spalletti has signed, Premier League clashes in Europe](https://football-italia.net/todays-papers-spalletti-has-signed-juventus/) - **Football Italia**
+5. [Liverpool’s Ibrahima Konaté calls on the Premier League to emulate Ligue 1 in postponing games for Champions League-playing clubs](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d51b9f56-7038-4a40-be64-cc93ba9c1f67) - **Yahoo Entertainment**
+6. [‘We’re analysing’: Club director confirms interest in 83-app Man Utd man who has ‘multiple offers’ – Sky](https://strettynews.com/2026/04/09/borussia-dortmund-jadon-sancho-manchester-united-lars-ricken/) - **Strettynews.com**
+7. [Old Trafford: Man United announce exciting upgrades to fan experience](https://thepeoplesperson.com/2026/04/09/old-trafford-man-united-announce-exciting-upgrades-to-fan-experience-308562/) - **The Peoples Person**
+8. [Will improving Wolves beat their lowest Premier League points tally?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_65a3c625-2c28-4e63-a53a-7993fcc7e0bd) - **Yahoo Entertainment**
+9. [A top German midfield prospect has caught the eye of Manchester City](https://esteemedkompany.com/2026/04/09/a-top-german-midfield-prospect-has-caught-the-eye-of-manchester-city/) - **Esteemedkompany.com**
 
 
 ---
-*최근 업데이트: 2026-04-10 15:12:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-10 17:02:21 (KST) / (하루 100회 제한 준수 중)*
