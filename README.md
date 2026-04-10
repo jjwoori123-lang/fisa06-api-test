@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Wrexham and PSG among Man Utd's pre-season fixtures](https://www.playmakerstats.com/news/wrexham-and-psg-among-man-utd-s-pre-season-fixtures/1090866) - **Playmakerstats.com**
-2. [Pick of the stats: Coventry City v Sheffield Wednesday](https://www.bbc.com/sport/football/articles/c30rjmpy357o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Cologne deny they have received offer for young talent El Mala](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260409-99-74704/) - **Dpa-international.com**
-4. [Report – Tottenham Hotspur Goalkeeper Remains Top Target For Inter Milan: No Interest In Real Madrid & Roma Stars](https://sempreinter.com/2026/04/09/inter-milan-interested-tottenham-star-vicario/) - **SempreInter**
-5. [From Premier League champion to survival mode, Liverpool's season is on the brink](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a397c332-3857-4b44-9d00-7ddc1509641d) - **Yahoo Entertainment**
-6. [Rory McIlroy the headline act as prepares for Masters defence](https://www.irishtimes.com/sport/2026/04/09/rory-mcilroy-the-headline-act-as-prepares-for-masters-defence/) - **The Irish Times**
-7. [2026 NFL Draft rankings: Who's ahead of Fernando Mendoza in top 100?](https://www.usatoday.com/story/sports/nfl/draft/2026/04/09/nfl-draft-rankings-big-board-top-players-2026/89512738007/) - **USA Today**
-8. [Antonio Conte is never one to sit still. He's hinting at a Napoli exit and a return to the Italy job](https://sports.yahoo.com/articles/antonio-conte-never-one-sit-090320270.html) - **Yahoo Entertainment**
-9. [Buoyed by European win, Arsenal return to Premier League title push](https://www.channelnewsasia.com/sport/buoyed-european-win-arsenal-return-premier-league-title-push-6046296) - **CNA**
-10. [What to expect from De Zerbi at Spurs and how he could line up in first game](https://www.skysports.com/football/news/11675/13529425/roberto-de-zerbi-how-new-tottenham-boss-could-line-up-in-first-game-in-charge-against-sunderland) - **Sky Sports**
+1. [Kolkata weather update today KKR vs LSG: Yellow alert raises washout fears; read pitch report](https://economictimes.indiatimes.com/news/sports/kkr-vs-lsg-pitch-report-of-eden-gardens-stadium-weather-update-of-kolkata-today-kolkata-knight-riders-vs-lucknow-super-giants-match-latest-update/articleshow/130140142.cms) - **The Times of India**
+2. [Virgil van Dijk reacts to Liverpool’s ‘tough’ defeat to PSG](https://anfieldindex.com/93015/virgil-van-dijk-reacts-to-liverpools-tough-defeat-to-psg.html) - **Anfieldindex.com**
+3. [Liam Rosenior’s job at Chelsea at risk?](https://www.getfootballnewsfrance.com/2026/liam-roseniors-job-at-chelsea-at-risk/) - **Get French Football News**
+4. [How Milan plan to beat Juventus to Bayern Munich’s Goretzka](https://football-italia.net/how-milan-plan-to-beat-juve-bayerns-goretzka/) - **Football Italia**
+5. [Strasbourg resigned to losing Valentín Barco amid Chelsea talks](https://www.getfootballnewsfrance.com/2026/strasbourg-resigned-to-losing-valentin-barco-amid-chelsea-talks/) - **Get French Football News**
+6. [Arne Slot: Liverpool ‘lucky’ PSG defeat wasn’t even worse](https://thefootballfaithful.com/arne-slot-liverpool-lucky-psg-champions-league/) - **The Football Faithful**
+7. ['Amazing to see everything that's come true for me' - Wilson](https://www.bbc.com/sport/football/articles/clyd063qj8qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Man Utd chop ‘outstanding’ EPL duo off summer shortlist: “Too similar to Mainoo”](https://strettynews.com/2026/04/09/kobbie-mainoo-man-utd-sandro-tonali-adam-wharton/) - **Strettynews.com**
+9. [Barcelona hosts Espanyol looking to take another step toward retaining La Liga title](https://sports.yahoo.com/articles/barcelona-hosts-espanyol-looking-another-102123787.html) - **Yahoo Entertainment**
+10. [Aston Villa visits Bologna in the first leg of the Europa League quarterfinals](https://sports.yahoo.com/articles/aston-villa-visits-bologna-first-101416257.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-04-10 18:40:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-10 19:58:53 (KST) / (하루 100회 제한 준수 중)*
