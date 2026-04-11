@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Teenager Suryavanshi smashes 15-ball fifty in IPL](https://www.bbc.com/sport/cricket/articles/cdxk46dzewxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Teenager Suryavanshi smashes 15-ball fifty in IPL](https://www.bbc.com/sport/cricket/articles/cdxk46dzewxo) - **BBC News**
-3. [Barkley To Start, Buendia On The Bench | 4-2-3-1 Aston Villa Predicted Lineup Vs Nottingham Forest](https://the4thofficial.net/2026/04/barkley-to-start-buendia-on-the-bench-4-2-3-1-aston-villa-predicted-lineup-vs-nottingham-forest/) - **The4thofficial.net**
-4. [Arsenal vs AFC Bournemouth: Match preview, predicted line-ups, team news and prediction](https://footballtoday.com/2026/04/10/arsenal-vs-afc-bournemouth-match-preview-predicted-line-ups-team-news-and-prediction/) - **Footballtoday.com**
-5. [Liverpool eye £39m deal to end right-back crisis](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-marco-palestra-cagliari-atalanta-1/) - **Anfieldwatch.co.uk**
-6. [Rangers Tipped As Frontrunners To Sign This Leeds United Player: A No Brainer For Rohl?](https://the4thofficial.net/2026/04/rangers-tipped-as-frontrunners-to-sign-this-leeds-united-player-a-no-brainer-for-rohl/) - **The4thofficial.net**
-7. [Three LOI fixtures fall by the wayside due to heavy rain](https://www.rte.ie/sport/soccer/2026/0410/1567571-three-loi-fixtures-fall-by-the-wayside-due-to-heavy-rain/) - **RTE**
-8. [Arsenal wary of in-form Man City hunt, De Zerbi begins Spurs salvage mission](https://economictimes.indiatimes.com/news/sports/arsenal-wary-of-in-form-man-city-hunt-de-zerbi-begins-spurs-salvage-mission/articleshow/130178049.cms) - **The Times of India**
-9. [Bruno Fernandes details classy act from David Beckham after landmark feat](https://thepeoplesperson.com/2026/04/10/bruno-fernandes-details-classy-act-from-david-beckham-after-landmark-feat-308625/) - **The Peoples Person**
-10. [Liverpool v Fulham: Key stats and talking points](https://www.bbc.com/sport/football/articles/cpvxdrlv4p0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [PDC Darts players in danger of dropping down the rankings in 2026](https://www.sportingnews.com/us/darts/news/pdc-darts-players-danger-dropping-down-rankings-2026/ce8d4948042638ca68e964f0) - **Sporting News**
+2. [Suryavanshi and Jurel blitz Bengaluru to keep Rajasthan unbeaten in IPL](https://sports.yahoo.com/articles/suryavanshi-jurel-blitz-bengaluru-keep-193249318.html) - **Yahoo Entertainment**
+3. [Everton at Brentford: Predicted Line-Up | Close to a full squad for Moyes](https://royalbluemersey.sbnation.com/everton-2025-26-season-premier-league-fixtures-hill-dickinson-moyes/79250/everton-at-brentford-predicted-line-up-close-to-a-full-squad-for-moyes) - **SB Nation**
+4. [Naderi Out, Chermiti In As Rohl Sets The Team Up | Predicted 4-2-3-1 Rangers Lineup Vs Falkirk](https://the4thofficial.net/2026/04/naderi-out-chermiti-in-as-rohl-sets-the-team-up-predicted-4-2-3-1-rangers-lineup-vs-falkirk/) - **The4thofficial.net**
+5. [Havertz to get Arsenal over the line? And what is going on with Enzo Fernandez at Chelsea? Hayters TV’s Pint-Sized Pressers](https://hayters.com/havertz-to-get-arsenal-over-the-line-and-what-is-going-on-with-enzo-fernandez-at-chelsea/) - **Hayters.com**
+6. [Angelo Stiller: Man United face fierce Premier League competition for Bundesliga standout](https://thepeoplesperson.com/2026/04/10/angelo-stiller-man-united-face-fierce-premier-league-competition-for-bundesliga-standout-308631/) - **The Peoples Person**
+7. [Everton at Brentford: Match Preview | A final push for Europe](https://royalbluemersey.sbnation.com/everton-2025-26-season-premier-league-fixtures-hill-dickinson-moyes/79231/everton-at-brentford-match-preview-a-final-push-for-europe) - **SB Nation**
+8. [Three League of Ireland fixtures postponed due to unplayable pitches](https://www.irishtimes.com/sport/soccer/2026/04/10/three-league-of-ireland-fixtures-postponed-due-to-unplayable-pitches/) - **The Irish Times**
+9. [It could actually happen, £80m transfer still on the cards for Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/it-could-actually-happen-ps80m-transfer-still-on-the-cards-for-liverpool/) - **Anfieldwatch.co.uk**
+10. [Cucurella And Caicedo To Start | 4-2-3-1 Chelsea Predicted Lineup Vs Manchester City](https://the4thofficial.net/2026/04/cucurella-and-caicedo-to-start-4-2-3-1-chelsea-predicted-lineup-vs-manchester-city/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-04-12 03:51:20 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-12 04:37:07 (KST) / (하루 100회 제한 준수 중)*
