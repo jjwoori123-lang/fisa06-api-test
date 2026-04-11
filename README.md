@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [‘Welcome to Wrexham’ Renewed for Three More Seasons at FX, Hulu](https://variety.com/2026/tv/news/welcome-to-wrexham-renewed-three-seasons-fx-hulu-1236713205/) - **Variety**
-2. [‘Welcome to Wrexham’ Renewed Through 2029 at FX, Sets Season 5 Premiere Date](https://www.thewrap.com/creative-content/tv-shows/welcome-to-wrexham-renewed-through-2029-fx-hulu/) - **TheWrap**
-3. [Rob Mac & Ryan Reynolds’ ‘Welcome To Wrexham’ Renewed For 3 More Seasons By FX](http://deadline.com/2026/04/welcome-to-wrexham-renewed-3-seasons-fx-1236786277/) - **Deadline**
-4. [Man City coach Pep Guardiola would 'love' Bernardo Silva to stay but has no clue if he will](https://sports.yahoo.com/articles/man-city-coach-pep-guardiola-135701390.html) - **Yahoo Entertainment**
-5. [Bruno reveals private message from Beckham](https://www.manutd.com/en/news/detail/bruno-fernandes-reveals-message-from-david-beckham-in-assists-hunt) - **Manchester United**
-6. [Non-league chief removed from role amid investigation](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6e9a4d00-b9ed-482b-9824-4decd94691d2) - **Yahoo Entertainment**
-7. [Every word from Arteta's pre-Bournemouth presser](http://www.arsenal.com/news/every-word-artetas-pre-bournemouth-presser-0) - **Arsenal.com**
-8. [Arsenal vs Bournemouth: Match Preview, Latest Team News and How to Watch](https://eplindex.com/145103/arsenal-vs-bournemouth-match-preview-latest-team-news-and-how-to-watch.html) - **English Premier League Index - Opta Stats**
+1. [EPL: De Zerbi vows to keep Tottenham in Premier League](https://punchng.com/epl-de-zerbi-vows-to-keep-tottenham-in-premier-league/) - **The Punch**
+2. [Report: Manchester United make first move to sign Bayern Munich star](https://eplindex.com/145106/report-manchester-united-make-first-move-to-sign-bayern-munich-star.html) - **English Premier League Index - Opta Stats**
+3. [Arteta: “Bring your lunch, bring your dinner!”](http://www.arsenal.com/news/arteta-bring-your-lunch-bring-your-dinner) - **Arsenal.com**
+4. [LeBron James speaks on not facing Warriors' Stephen Curry this season](https://warriorswire.usatoday.com/story/sports/nba/warriors/2026/04/10/lebron-james-speaks-on-not-facing-warriors-stephen-curry-this-season/89550898007/) - **USA Today**
+5. [De Gea: Carrick’s doing an amazing job](https://www.manutd.com/en/news/detail/david-de-gea-praises-michael-carrick-job-at-united-april-2026) - **Manchester United**
+6. [Le Bris on team news, Europe and facing Tottenham](https://www.bbc.com/sport/football/articles/cp3l4vk7lpyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Rob Mac & Ryan Reynolds' 'Welcome to Wrexham' Renewed for Three More Seasons](https://www.justjared.com/2026/04/10/rob-mac-ryan-reynolds-welcome-to-wrexham-renewed-for-three-more-seasons/) - **Just Jared**
+8. [There's a sneaky way to watch IPL 2026 for FREE](https://www.techradar.com/how-to-watch/cricket/sneaky-way-watch-ipl-2026-free) - **TechRadar**
+9. [Arteta plays down talks regarding new Arsenal contract](https://www.channelnewsasia.com/sport/arteta-plays-down-talks-regarding-new-arsenal-contract-6049426) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-04-11 23:03:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-11 23:56:50 (KST) / (하루 100회 제한 준수 중)*
