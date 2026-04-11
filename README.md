@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [It makes English football unique - why the Football League is important too](https://www.bbc.com/sport/football/articles/cg73nxnz7mko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [It makes English football unique - why the Football League is important too](https://www.bbc.com/sport/football/articles/cg73nxnz7mko) - **BBC News**
-3. [Quiz: Name top 20 wicket-takers in IPL history](https://www.bbc.com/sport/cricket/articles/ce84zd1n5vko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Quiz: Name top 20 wicket-takers in IPL history](https://www.bbc.com/sport/cricket/articles/ce84zd1n5vko) - **BBC News**
-5. [Golf, clay pigeon shooting and head tennis - Man Utd's Irish trip](https://www.bbc.com/sport/football/articles/ce8lq3de6pzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Report: European club make Nicolas Jackson primary summer target, transfer possible](https://chelsea.news/2026/04/nicolas-jackson-chelsea-ac-milan-latest/) - **Chelsea.news**
-7. [The Bayern Insider: Gerrard is right about Michael Olise as Vinicius Jr transfer hope crushed](https://cfbayerninsider.com/2026/04/the-bayern-insider-gerrard-is-right-about-michael-olise-as-vinicius-jr-transfer-hope-crushed/) - **Cfbayerninsider.com**
-8. [FX's "Welcome to Wrexham" Renewed for Three More Seasons - Reveals Season Five Premiere Date](http://www.thefutoncritic.com/news/2026/04/10/fxs-welcome-to-wrexham-renewed-for-three-more-seasons-reveals-season-five-premiere-date-111514/20260410fx01/) - **Thefutoncritic.com**
-9. [BBC: Boost for Man Utd as EPL rivals open to selling ‘unbelievable’ full-back wanted by INEOS](https://strettynews.com/2026/04/10/arsenal-man-utd-myles-lewis-skelly/) - **Strettynews.com**
-10. [Flint put aside league anxiety for Welsh Cup final](https://www.bbc.com/sport/football/articles/c0705v11rryo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Report: Aston Villa star wanted by three Premier League giants](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a07e3343-0da9-492a-959b-b47c1baab487) - **Yahoo Entertainment**
+2. [What to know about Vermont Clover FC, the state's newly launched UPSL club](https://www.burlingtonfreepress.com/story/sports/2026/04/10/vermont-clover-fc-schedule-what-to-know-for-2026-upsl-debut-season/89504796007/) - **Burlington Free Press**
+3. [Fulham star Wilson returns to Liverpool at pivotal moment in career](https://www.skysports.com/football/news/11096/13525198/harry-wilson-fulham-winger-returns-to-former-club-liverpool-in-full-circle-moment-and-pivotal-time-in-career) - **Sky Sports**
+4. [Chelsea battling Arsenal for highly rated Brazilian youngster](https://www.justarsenal.com/chelsea-battling-arsenal-for-highly-rated-brazilian-youngster/413255) - **Just Arsenal News**
+5. [Florentino Perez surprises over Michael Olise approach as Bayern anticipate long transfer game](https://cfbayerninsider.com/2026/04/florentino-perez-surprises-over-michael-olise-approach-as-bayern-anticipate-long-transfer-game/) - **Cfbayerninsider.com**
+6. [Slot news conference with Premier League to return after three-week break](https://www.bbc.com/sport/football/live/cy41pmdnwwlt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. ['Let's not underestimate the achievement' - Dallas on Leeds' season](https://www.bbc.com/sport/football/articles/cly6xd53jp3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. ['We want to keep fighting for Howe'](https://www.bbc.com/sport/football/articles/c1l9rvlny89o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Luke Littler booed in Brighton after defeat to Stphen Bunting knocks him off Premier League summit](https://www.independent.ie/sport/other-sports/luke-littler-booed-in-brighton-after-defeat-to-stphen-bunting-knocks-him-off-premier-league-summit/a1100850941.html) - **Independent.ie**
+10. [It makes English football unique - why the Football League is important too](https://www.bbc.com/sport/football/articles/cg73nxnz7mko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-11 16:31:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-11 17:07:20 (KST) / (하루 100회 제한 준수 중)*
