@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Upbeat or uneasy? How fans are feeling as Premier League enters final stages...](https://www.bbc.com/sport/football/articles/cz78np0yjego?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [All your FPL stats and Premier League team news in one place](https://www.bbc.com/sport/articles/cvg0175999go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [All your FPL stats and Premier League team news in one place](https://www.bbc.com/sport/articles/cvg0175999go) - **BBC News**
-4. [Arsenal v Bournemouth: Line-ups, stats and preview](https://www.101greatgoals.com/match-previews/premier-league-matches/arsenal-v-bournemouth-line-ups-stats-preview/) - **101 Great Goals**
-5. [‘I feel a lot of support’ – Arne Slot still believes he has backing of Liverpool board and fans despite poor run](https://www.independent.ie/sport/soccer/premier-league/i-feel-a-lot-of-support-arne-slot-still-believes-he-has-backing-of-liverpool-board-and-fans-despite-poor-run/a1852961729.html) - **Independent.ie**
-6. [United resume Champions League push after Irish recharge](https://www.rte.ie/sport/soccer/2026/0410/1567546-united-resume-champions-league-push-after-irish-recharge/) - **RTE**
-7. [Inter Milan Forward Increasingly Likely To Stay Despite Interest From The Premier League](https://sempreinter.com/2026/04/10/thuram-stay-inter-premier-league-links/) - **SempreInter**
-8. [Liverpool star ruled out against Fulham but Isak return is ‘vital’](https://thefootballfaithful.com/liverpool-injury-fulham-alisson-isak/) - **The Football Faithful**
-9. [Italian soccer crisis worsens with Bologna and Fiorentina losses in Europe](https://sports.yahoo.com/articles/italian-soccer-crisis-worsens-bologna-100815833.html) - **Yahoo Entertainment**
+1. [Hurzeler on Webster recovery, cup final 'attitude' and Leverkusen links](https://www.bbc.com/sport/football/articles/c4g89jedpdpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Arsenal v Bournemouth – the Arsenal Injuries and extremely confusing qualification routes](https://untold-arsenal.com/archives/120363) - **Untold-arsenal.com**
+3. [Alejandro Garnacho drops surprise United confession amid Chelsea woes](https://thepeoplesperson.com/2026/04/10/alejandro-garnacho-drops-surprise-united-confession-amid-chelsea-woes-308613/) - **The Peoples Person**
+4. ['I feel complete support' - Slot](https://www.rte.ie/sport/soccer/2026/0410/1567557-i-feel-complete-support-slot/) - **RTE**
+5. [Former Lazio & Italy Striker Urges Inter Milan To Sign Newcastle United Midfielder He Considers ‘A True Regista’](https://sempreinter.com/2026/04/10/di-canio-tonali-newcastle-inter/) - **SempreInter**
+6. [Crystal Palace vs Newcastle United quiz: Test your knowledge ahead of Premier League clash](https://www.newcastleunited.com/en/news/crystal-palace-vs-newcastle-united-quiz-test-your-knowledge-ahead-of-premier) - **Newcastleunited.com**
+7. [Sunderland vs. Tottenham Hotspur Premier League Preview](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-previews/69929/tottenham-hotspur-sunderland-premier-league-preview) - **SB Nation**
+8. [Premier League rivals could complicate Arsenal’s move for Bundesliga star](https://www.justarsenal.com/premier-league-rivals-could-complicate-arsenals-move-for-bundesliga-star/413258) - **Just Arsenal News**
+9. [Report: Liverpool fan-favourite could leave this summer with European giants interested](https://anfieldindex.com/93051/report-liverpool-fan-favourite-could-leave-this-summer-with-european-giants-interested.html) - **Anfieldindex.com**
+10. [Howe '100% committed' to Newcastle but 'I just need support'](https://www.bbc.com/sport/football/articles/ckgwdjjggy9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-11 19:49:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-11 20:33:24 (KST) / (하루 100회 제한 준수 중)*
