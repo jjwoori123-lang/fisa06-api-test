@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Dolan ready for Barcelona as he opens up on life at Espanyol](https://www.skysports.com/football/news/11095/13526397/tyrhys-dolan-interview-espanyol-winger-loving-laliga-after-blackburn-move-and-now-ready-for-barcelona-at-camp-nou) - **Sky Sports**
-2. [Pierce Charles on Manchester City’s radar as James Trafford nears summer exit](https://cityxtra.co.uk/44382/pierce-charles-on-manchester-citys-radar-as-james-trafford-nears-summer-exit/) - **Cityxtra.co.uk**
-3. [Arsenal's big summer: Will Arteta 'put pen to paper'?](https://www.bbc.com/sport/football/articles/cx26e5d4ewdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Slot on Robertson's exit, Isak's fitness and feeling 'complete support'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c020cdc7-5ce0-42f1-9a70-b99abe6086d7) - **Yahoo Entertainment**
-5. [Bayern Munich to play pre-season games in South Korea and Hong Kong](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260410-99-84482/) - **Dpa-international.com**
-6. [Arne Slot reacts to Andy Robertson’s decision to leave Liverpool](https://anfieldindex.com/93062/arne-slot-reacts-to-andy-robertsons-decision-to-leave-liverpool.html) - **Anfieldindex.com**
-7. [Liverpool boss Slot dismisses sack rumours, insisting : ‘I feel a lot of support from the owners and the fans’](https://www.101greatgoals.com/football/premier-league/liverpool-boss-arne-slot-dismisses-sack-rumours-support-from-owners-fans/) - **101 Great Goals**
-8. [Every Man United player to also play for Leeds United](https://thepeoplesperson.com/2026/04/10/every-man-united-player-to-also-play-for-leeds-united-308608/) - **The Peoples Person**
-9. ['I'll stick to Baller League' - KSI won't manage Daggers](https://www.bbc.com/sport/football/articles/cm25vll1pmvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [KSI targets Premier League for Dagenham & Redbridge - but not as manager](https://www.bbc.com/sport/football/articles/cm25vll1pmvo) - **BBC News**
+1. [Slot feels ‘complete support’ from Liverpool chiefs despite slump](https://www.vanguardngr.com/2026/04/slot-feels-complete-support-from-liverpool-chiefs-despite-slump/) - **Vanguard**
+2. [“It means the world to me” – Andy Robertson speaks on his decision to leave Liverpool](https://anfieldindex.com/93050/it-means-the-world-to-me-andy-robertson-speaks-on-his-decision-to-leave-liverpool.html) - **Anfieldindex.com**
+3. [Report: Arsenal face major battle to sign Bundesliga forward](https://eplindex.com/145091/report-arsenal-face-major-battle-to-sign-bundesliga-forward.html) - **English Premier League Index - Opta Stats**
+4. [Man Utd heed Ferdinand’s advice by chasing £43m Dutchman compared to De Jong & De Bruyne](https://strettynews.com/2026/04/10/man-utd-kees-smit-rio-ferdinand-alkmaar/) - **Strettynews.com**
+5. [‘Very special’: Early morning update on Bayern’s reported interest in Vinicius Jr amid contract red alert](https://cfbayerninsider.com/2026/04/very-special-early-morning-update-on-bayerns-reported-interest-in-vinicius-jr-amid-contract-red-alert/) - **Cfbayerninsider.com**
+6. [Bundesliga Preview | Borussia Dortmund vs Bayer Leverkusen: Last chance Leverkusen?](https://www.getfootballnewsgermany.com/2026/bundesliga-preview-borussia-dortmund-vs-bayer-leverkusen-last-chance-leverkusen/) - **Getfootballnewsgermany.com**
+7. [Howe on Guimaraes injury, summer transfers and expectations](https://www.bbc.com/sport/football/articles/c239e50g73ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Newcastle boss Howe: ‘There have been no fallings out and I remain 100% committed to the club’](https://www.101greatgoals.com/football/premier-league/newcastle-boss-eddie-howe-no-fallings-out-remain-100-committed-to-the-club/) - **101 Great Goals**
+9. [Lowry and McIlroy get off to a flyer in Augusta](https://www.irishtimes.com/sport/2026/04/10/lowry-and-mcilroy-get-off-to-a-flyer-in-augusta/) - **The Irish Times**
+10. [Arne Slot confident he has Liverpool backing and hails Andy Robertson's 'intensity'](https://sports.yahoo.com/articles/arne-slot-confident-liverpool-backing-093148566.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-04-11 18:04:08 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-11 18:59:21 (KST) / (하루 100회 제한 준수 중)*
