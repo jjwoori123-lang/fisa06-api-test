@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [5 Things We Learned From Gameweek 31 — Premier League takeaways ahead of GW32](https://www.nevermanagealone.com/playerpicks/15820/5-things-we-learned-from-gameweek-31-premier-league-takeaways-ahead-of-gw32) - **Nevermanagealone.com**
-2. [Carrick insists he can handle Man Utd pressure as big decision looms](https://www.skysports.com/football/news/11095/13529647/man-utd-michael-carrick-confident-he-can-deal-with-old-trafford-pressure-as-head-coach-decision-looms) - **Sky Sports**
-3. [West Ham vs Wolves Live Streams: How to watch Premier League 2025/26 from anywhere in the world](https://www.techradar.com/how-to-watch/football/west-ham-vs-wolves-live-streams-premier-league-2025-26) - **TechRadar**
-4. [Rate My FPL GW32 Fantasy Team](https://www.nevermanagealone.com/playerpicks/15835/rate-my-fpl-gw32-fantasy-team) - **Nevermanagealone.com**
-5. [Arteta urges Arsenal to pile pressure on Man City in title race](https://www.vanguardngr.com/2026/04/arteta-urges-arsenal-to-pile-pressure-on-man-city-in-title-race/) - **Vanguard**
-6. [How to watch Crystal Palace vs Newcastle live: Stream link, TV channel, updates, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-crystal-palace-vs-newcastle-live-stream-link-tv-channel-updates-team-news-prediction) - **NBCSports.com**
-7. [Arsenal v Bournemouth; the recent history of the clubs](https://untold-arsenal.com/archives/120373) - **Untold-arsenal.com**
-8. [IPL 2026: Ad volume witness marginal dip in first 13 matches](https://www.thehindubusinessline.com/news/variety/ipl-2026-ad-volume-witness-marginal-dip-in-first-13-matches/article70848163.ece) - **BusinessLine**
-9. [Bernardo Silva at risk of Premier League ban for Manchester City against Arsenal](https://cityxtra.co.uk/44437/bernardo-silva-at-risk-of-premier-league-ban-for-manchester-city-against-arsenal/) - **Cityxtra.co.uk**
-10. [Report: Liverpool have joined the race to sign 19-year-old forward](https://anfieldindex.com/93052/report-liverpool-have-joined-the-race-to-sign-19-year-old-forward.html) - **Anfieldindex.com**
+1. [How to buy Premier League tickets for Chelsea vs. Manchester City](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_723a66a5-90cc-4220-ab57-3330fa1996ec) - **Yahoo Entertainment**
+2. [Report: Liverpool considering move for 21-year-old Premier League forward](https://anfieldindex.com/93057/report-liverpool-considering-move-for-21-year-old-premier-league-forward.html) - **Anfieldindex.com**
+3. [How to buy Premier League tickets for Chelsea vs. Manchester City](https://football-italia.net/buy-premier-league-tickets-chelsea-man-city/) - **Football Italia**
+4. [EPL: I’m not better than Frank or Tudor, De Zerbi tells Spurs fans](https://punchng.com/epl-im-not-better-than-frank-or-tudor-de-zerbi-tells-spurs-fans/) - **The Punch**
+5. [Arteta calls on Arsenal fans to ‘get up early’ for ‘big day’ against Bournemouth](https://www.101greatgoals.com/football/premier-league/arteta-arsenal-fans-get-up-bournemouth/) - **101 Great Goals**
+6. [Kenny Moore II, Colts agree to seek trade: Top landing spots for CB](https://www.usatoday.com/story/sports/nfl/2026/04/10/kenny-moore-trade-landing-spots-colts/89550608007/) - **USA Today**
+7. [De Zerbi wants Tottenham to 'play with courage' for Premier League survival](https://sports.yahoo.com/articles/zerbi-wants-tottenham-play-courage-163837259.html) - **Yahoo Entertainment**
+8. [Footy Fix: USWNT return to action this weekend as tripleheader against Japan kicks off](https://www.cbssports.com/soccer/news/footy-fix-uswnt-return-to-action-this-weekend-as-tripleheader-against-japan-kicks-off/) - **CBS Sports**
+9. [Calafiori and Tonali among Spalletti’s top targets after Juventus contract extension](https://football-italia.net/calafiori-tonali-top-target-juventus-spalletti/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-04-12 01:03:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-12 01:57:33 (KST) / (하루 100회 제한 준수 중)*
