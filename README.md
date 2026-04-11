@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Richard Hughes has finally found his £70m Van Dijk replacement](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-alessandro-bastoni-inter-richard-hughes-has-finally-found-his-ps70m-van-dijk-replacement/) - **Anfieldwatch.co.uk**
-2. [Real Madrid vs Girona live: Confirmed line-ups and full teams in La Liga](https://www.101greatgoals.com/football/la-liga/real-madrid-vs-girona-live-line-ups-teams/) - **101 Great Goals**
-3. [Preview: Arsenal v Bournemouth](http://www.arsenal.com/news/preview-arsenal-v-bournemouth-2) - **Arsenal.com**
-4. [Other Barks & Bites for Friday, April 10: DISH Wins Copyright Appeal Over Arabic TV Retransmissions; Fifth Circuit Awards Google Transfer on Mandamus; and Third Circuit Says Online Publication of Copyrighted Building Codes is Transformative](https://ipwatchdog.com/2026/04/10/bites-barks-fifth-circuit-awards-google-transfer-on-mandamus-and-third-circuit-says-online-publication-of-copy/) - **IPWatchdog.com**
-5. [Injured star hands Arsenal a major boost ahead of weekend game](https://www.justarsenal.com/injured-star-hands-arsenal-a-major-boost-ahead-of-weekend-game/413316) - **Just Arsenal News**
-6. [Cowboys can make a smooth transition by drafting this cornerback](https://www.bloggingtheboys.com/dallas-cowboys-draft/201551/malik-muhammad-cornerback-scouting-report-prospect) - **Blogging The Boys**
-7. [Di Canio: De Zerbi ‘should have swum across the English Channel’ for Tottenham](https://football-italia.net/di-canio-de-zerbi-swum-english-channel-spurs/) - **Football Italia**
-8. [How to buy Premier League tickets for Chelsea vs. Manchester City](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_723a66a5-90cc-4220-ab57-3330fa1996ec) - **Yahoo Entertainment**
-9. [Report: Liverpool considering move for 21-year-old Premier League forward](https://anfieldindex.com/93057/report-liverpool-considering-move-for-21-year-old-premier-league-forward.html) - **Anfieldindex.com**
-10. [How to buy Premier League tickets for Chelsea vs. Manchester City](https://football-italia.net/buy-premier-league-tickets-chelsea-man-city/) - **Football Italia**
+1. [Teenager Suryavanshi smashes 15-ball fifty in IPL](https://www.bbc.com/sport/cricket/articles/cdxk46dzewxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Teenager Suryavanshi smashes 15-ball fifty in IPL](https://www.bbc.com/sport/cricket/articles/cdxk46dzewxo) - **BBC News**
+3. [Barkley To Start, Buendia On The Bench | 4-2-3-1 Aston Villa Predicted Lineup Vs Nottingham Forest](https://the4thofficial.net/2026/04/barkley-to-start-buendia-on-the-bench-4-2-3-1-aston-villa-predicted-lineup-vs-nottingham-forest/) - **The4thofficial.net**
+4. [Arsenal vs AFC Bournemouth: Match preview, predicted line-ups, team news and prediction](https://footballtoday.com/2026/04/10/arsenal-vs-afc-bournemouth-match-preview-predicted-line-ups-team-news-and-prediction/) - **Footballtoday.com**
+5. [Liverpool eye £39m deal to end right-back crisis](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-marco-palestra-cagliari-atalanta-1/) - **Anfieldwatch.co.uk**
+6. [Rangers Tipped As Frontrunners To Sign This Leeds United Player: A No Brainer For Rohl?](https://the4thofficial.net/2026/04/rangers-tipped-as-frontrunners-to-sign-this-leeds-united-player-a-no-brainer-for-rohl/) - **The4thofficial.net**
+7. [Three LOI fixtures fall by the wayside due to heavy rain](https://www.rte.ie/sport/soccer/2026/0410/1567571-three-loi-fixtures-fall-by-the-wayside-due-to-heavy-rain/) - **RTE**
+8. [Arsenal wary of in-form Man City hunt, De Zerbi begins Spurs salvage mission](https://economictimes.indiatimes.com/news/sports/arsenal-wary-of-in-form-man-city-hunt-de-zerbi-begins-spurs-salvage-mission/articleshow/130178049.cms) - **The Times of India**
+9. [Bruno Fernandes details classy act from David Beckham after landmark feat](https://thepeoplesperson.com/2026/04/10/bruno-fernandes-details-classy-act-from-david-beckham-after-landmark-feat-308625/) - **The Peoples Person**
+10. [Liverpool v Fulham: Key stats and talking points](https://www.bbc.com/sport/football/articles/cpvxdrlv4p0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-12 02:40:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-12 03:51:20 (KST) / (하루 100회 제한 준수 중)*
