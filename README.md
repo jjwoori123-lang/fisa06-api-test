@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Academy Match Report: Leeds United U18s 0-2 Manchester United U18s](https://thepeoplesperson.com/2026/04/11/academy-match-report-leeds-united-u18s-0-2-manchester-united-u18s-308667/) - **The Peoples Person**
-2. [Spurs ‘agree’ shock transfer with Liverpool star on one condition](https://thefootballfaithful.com/spurs-agree-transfer-liverpool-robertson/) - **The Football Faithful**
-3. [Arsenal Slip in 1-2 Defeat to Bournemouth in Premier League Clash](https://eplindex.com/145144/arsenal-slip-in-1-2-defeat-to-bournemouth-in-premier-league-clash.html) - **English Premier League Index - Opta Stats**
-4. [Alex Scott fires Bournemouth past Arsenal to dent title ambitions](https://footballtoday.com/2026/04/11/alex-scott-fires-bournemouth-past-arsenal-to-dent-title-ambitions/) - **Footballtoday.com**
-5. [Alex Scott and Bournemouth deal blow to nervy Arsenal’s title hopes](https://www.irishtimes.com/sport/soccer/2026/04/11/alex-scott-and-bournemouth-deal-blow-to-nervy-arsenals-title-hopes/) - **The Irish Times**
-6. [How to watch Liverpool vs Fulham Premier League match today – TV and live streaming details](https://anfieldindex.com/93092/how-to-watch-liverpool-vs-fulham-premier-league-match-today-tv-and-live-streaming-details.html) - **Anfieldindex.com**
-7. [White, Saliba And Rice Get 7 | Arsenal Players Rated In Tough Loss Vs Bournemouth](https://the4thofficial.net/2026/04/white-saliba-and-rice-get-7-arsenal-players-rated-in-tough-loss-vs-bournemouth/) - **The4thofficial.net**
-8. [Report: Roberto De Zerbi has identified his first Tottenham Hotspur signing](https://eplindex.com/145133/report-roberto-de-zerbi-has-identified-his-first-tottenham-hotspur-signing.html) - **English Premier League Index - Opta Stats**
-9. [Carrick buoyed up by Mount's return as Champions League push resumes against Leeds](https://www.channelnewsasia.com/sport/carrick-buoyed-up-mounts-return-champions-league-push-resumes-against-leeds-6050811) - **CNA**
-10. [Bournemouth stun Arsenal to blow title race open](https://www.rte.ie/sport/soccer/2026/0411/1567699-bournemouth-stun-arsenal-to-blow-title-race-open/) - **RTE**
+1. [Mumbai Indians not concerned with lack of wickets for Jasprit Bumrah, says Kieron Pollard](https://economictimes.indiatimes.com/news/sports/mumbai-indians-not-concerned-with-lack-of-wickets-for-jasprit-bumrah-says-kieron-pollard/articleshow/130193962.cms) - **The Times of India**
+2. [ Eyeing the cup, Igor Thiago sets a Premier League goals record!](https://onefootball.com/en/news/eyeing-the-cup-igor-thiago-sets-a-premier-league-goals-record-42694825) - **Onefootball.com**
+3. [Arsenal 1 – Bournemouth 2 match report: running out of runway](https://theshortfuse.sbnation.com/premier-league/36767/arsenal-1-bournemouth-2-match-report-running-out-of-runway) - **SB Nation**
+4. [Arteta urges Arsenal to stand up after 'punch in the face'](https://sports.yahoo.com/articles/arteta-urges-arsenal-stand-punch-145549748.html) - **Yahoo Entertainment**
+5. [Arteta: Bournemouth defeat 'a big punch in the face'](https://www.skysports.com/football/news/11670/13530522/arteta-reaction-xxx) - **Sky Sports**
+6. [Every word from Arteta's post-Bournemouth presser](http://www.arsenal.com/news/every-word-artetas-post-bournemouth-presser-4) - **Arsenal.com**
+7. [(VIDEO) CSK vs DC IPL 2026: How to Watch Live Stream & Telecast of Chennai vs Delhi Clash Today](https://www.ibtimes.com.au/video-csk-vs-dc-ipl-2026-how-watch-live-stream-telecast-chennai-vs-delhi-clash-today-1866188) - **Ibtimes.com.au**
+8. [EPL: Arsenal’s title lead cut after 2-1 home loss to Bournemouth](https://punchng.com/epl-arsenals-title-lead-cut-after-2-1-home-loss-to-bournemouth/) - **The Punch**
+9. [Gyokeres assesses Bournemouth defeat](http://www.arsenal.com/news/gyokeres-assesses-bournemouth-defeat) - **Arsenal.com**
+10. [West Ham midfielder emerges as summer 2026 transfer target for Manchester City](https://cityxtra.co.uk/44463/west-ham-midfielder-emerges-as-summer-2026-transfer-target-for-manchester-city/) - **Cityxtra.co.uk**
 
 
 ---
-*최근 업데이트: 2026-04-12 23:05:38 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-12 23:59:39 (KST) / (하루 100회 제한 준수 중)*
