@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mumbai Indians not concerned with lack of wickets for Jasprit Bumrah, says Kieron Pollard](https://economictimes.indiatimes.com/news/sports/mumbai-indians-not-concerned-with-lack-of-wickets-for-jasprit-bumrah-says-kieron-pollard/articleshow/130193962.cms) - **The Times of India**
-2. [ Eyeing the cup, Igor Thiago sets a Premier League goals record!](https://onefootball.com/en/news/eyeing-the-cup-igor-thiago-sets-a-premier-league-goals-record-42694825) - **Onefootball.com**
-3. [Arsenal 1 – Bournemouth 2 match report: running out of runway](https://theshortfuse.sbnation.com/premier-league/36767/arsenal-1-bournemouth-2-match-report-running-out-of-runway) - **SB Nation**
-4. [Arteta urges Arsenal to stand up after 'punch in the face'](https://sports.yahoo.com/articles/arteta-urges-arsenal-stand-punch-145549748.html) - **Yahoo Entertainment**
-5. [Arteta: Bournemouth defeat 'a big punch in the face'](https://www.skysports.com/football/news/11670/13530522/arteta-reaction-xxx) - **Sky Sports**
-6. [Every word from Arteta's post-Bournemouth presser](http://www.arsenal.com/news/every-word-artetas-post-bournemouth-presser-4) - **Arsenal.com**
-7. [(VIDEO) CSK vs DC IPL 2026: How to Watch Live Stream & Telecast of Chennai vs Delhi Clash Today](https://www.ibtimes.com.au/video-csk-vs-dc-ipl-2026-how-watch-live-stream-telecast-chennai-vs-delhi-clash-today-1866188) - **Ibtimes.com.au**
-8. [EPL: Arsenal’s title lead cut after 2-1 home loss to Bournemouth](https://punchng.com/epl-arsenals-title-lead-cut-after-2-1-home-loss-to-bournemouth/) - **The Punch**
-9. [Gyokeres assesses Bournemouth defeat](http://www.arsenal.com/news/gyokeres-assesses-bournemouth-defeat) - **Arsenal.com**
-10. [West Ham midfielder emerges as summer 2026 transfer target for Manchester City](https://cityxtra.co.uk/44463/west-ham-midfielder-emerges-as-summer-2026-transfer-target-for-manchester-city/) - **Cityxtra.co.uk**
+1. [Bournemouth stun Arsenal to open title race](https://www.rediff.com/sports/report/arsenal-stunned-by-bournemouth-what-it-means-for-english-premier-league-title-race/20260411.htm) - **Rediff.com**
+2. [Highlights: Arsenal 1-2 Bournemouth](http://www.arsenal.com/news/highlights-arsenal-1-2-bournemouth-0) - **Arsenal.com**
+3. [Sanju Samson slams first century as a Chennai Super Kings player, his 4th overall in IPL](https://indianexpress.com/article/sports/cricket/sanju-samson-first-century-csk-player-4th-ton-ipl-dc-10631565/) - **The Indian Express**
+4. [Liverpool Confirmed XI vs Fulham](https://anfieldindex.com/93097/liverpool-confirmed-xi-vs-fulham-2.html) - **Anfieldindex.com**
+5. [Three players Juventus can lose in case of Champions League failure](https://www.getfootballnewsitaly.com/2026/three-players-juventus-can-lose-in-case-of-champions-league-failure/) - **Getfootballnewsitaly.com**
+6. [“Opportunity missed” Aaron Ramsey nails it with Arsenal loss reaction](https://www.justarsenal.com/opportunity-missed-aaron-ramsey-nails-it-with-arsenal-loss-reaction/413376) - **Just Arsenal News**
+7. [ BREAKING: Liverpool and Fulham name XIs for PL clash](https://onefootball.com/en/news/breaking-liverpool-and-fulham-name-xis-for-pl-clash-42694944) - **Onefootball.com**
+8. [Liverpool v Fulham: Confirmed line-ups for Premier League clash](https://www.101greatgoals.com/football/premier-league/liverpool-fulham-confirmed-line-ups/) - **101 Great Goals**
+9. [Barcelona vs Espanyol: Line-ups confirmed for La Liga clash](https://www.101greatgoals.com/football/la-liga/barcelona-vs-espanyol-line-ups-confirmed/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-04-12 23:59:39 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-13 00:48:09 (KST) / (하루 100회 제한 준수 중)*
