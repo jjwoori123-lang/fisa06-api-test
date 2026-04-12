@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [ Arsenal v Bournemouth XIs: Arteta names three changes!](https://onefootball.com/en/news/arsenal-v-bournemouth-xis-arteta-names-three-changes-42693739) - **Onefootball.com**
-2. [Nuno Espirito Santo insists West Ham’s crucial win ‘doesn’t change anything’](https://www.independent.ie/sport/soccer/premier-league/nuno-espirito-santo-insists-west-hams-crucial-win-doesnt-change-anything/a548993925.html) - **Independent.ie**
-3. [ BREAKING: Arsenal and Bournemouth confirm XIs for PL clash](https://onefootball.com/en/news/breaking-arsenal-and-bournemouth-confirm-xis-for-pl-clash-42693716) - **Onefootball.com**
-4. [Team news: Havertz starts against Bournemouth](http://www.arsenal.com/news/team-news-havertz-starts-against-bournemouth) - **Arsenal.com**
-5. [Arsenal vs. Bournemouth match thread: the home stretch](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_551c108c-d2e8-41f7-ae0e-0a1dbb35fd97) - **Yahoo Entertainment**
-6. [Sat morning update: PL club concede an early-summer sale of £100m Man Utd target will ‘have to be considered’](https://strettynews.com/2026/04/11/newcastle-sale-sandro-tonali-manchester-united-transfer/) - **Strettynews.com**
-7. [Where to watch Paris-Roubaix 2026: Time, TV channel, live stream for men's, women's cycling classics](https://www.sportingnews.com/us/tsn/news/watch-paris-roubaix-time-channel-stream-2026-men-women-cycling/963b65420809774d913ac2ab) - **Sporting News**
-8. [Everton Starting XI vs Brentford: Confirmed Team News and Predicted Lineup](https://eplindex.com/145123/everton-starting-xi-vs-brentford-confirmed-team-news-and-predicted-lineup.html) - **English Premier League Index - Opta Stats**
-9. [Report: Liverpool face major competition to sign Premier League forward](https://anfieldindex.com/93086/report-liverpool-face-major-competition-to-sign-premier-league-forward.html) - **Anfieldindex.com**
-10. [Arsenal vs. Bournemouth: Mikel Arteta focuses on the here and now in Premier League tititle chase](https://www.cbssports.com/soccer/news/arsenal-vs-bournemouth-mikel-arteta-premier-league-tititle-chase/) - **CBS Sports**
+1. [(VIDEO) Arsenal vs Bournemouth Livestream: How to Watch Premier League Clash as Gunners Chase Title Glory](https://www.ibtimes.com.au/video-arsenal-vs-bournemouth-livestream-how-watch-premier-league-clash-gunners-chase-title-1866163) - **Ibtimes.com.au**
+2. [Garnacho reveals regret over Man Utd exit: I did some bad things](https://www.skysports.com/football/news/11667/13530397/alejandro-garnacho-opens-up-on-manchester-united-exit-saying-he-regrets-the-way-he-left-club) - **Sky Sports**
+3. [Sky Sports: Manchester United are in the race to sign Premier League forward](https://eplindex.com/145127/sky-sports-manchester-united-are-in-the-race-to-sign-premier-league-forward.html) - **English Premier League Index - Opta Stats**
+4. [LIVE – Arsenal v Bournemouth: Commentary, updates, goals and stats](https://www.101greatgoals.com/football/premier-league/arsenal-v-bournemouth-commentary-live-updates-goals-stream-stats/) - **101 Great Goals**
+5. [“I’ll miss him” – Liverpool star sends heartfelt message to Andy Robertson](https://anfieldindex.com/93087/ill-miss-him-liverpool-star-sends-heartfelt-message-to-andy-robertson.html) - **Anfieldindex.com**
+6. [Premier League interest in Monaco’s Maghnes Akliouche grows](https://www.getfootballnewsfrance.com/2026/premier-league-interest-in-monacos-maghnes-akliouche-grows/) - **Get French Football News**
+7. [Confirmed Arsenal team v Bournemouth – Havertz and Martinelli start](https://www.justarsenal.com/confirmed-arsenal-team-v-bournemouth-havertz-and-martinelli-start/413348) - **Just Arsenal News**
+8. [Arsenal vs Bournemouth: Line-ups confirmed for crucial Premier League clash](https://www.101greatgoals.com/football/premier-league/arsenal-bournemouth-line-ups-confirmed-premier-league/) - **101 Great Goals**
+9. [Wilshere eyes first trophy in battle of Hatters](https://www.bbc.com/sport/football/articles/cew7jd0jk95o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Welcome To Wrexham streaming series renewed for three more seasons](https://www.bbc.com/news/articles/c62lw098gj5o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-12 19:23:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-12 20:19:38 (KST) / (하루 100회 제한 준수 중)*
