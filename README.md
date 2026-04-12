@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Journalist names player whose agents are in “close contact with Chelsea,” summer move possible](https://chelsea.news/2026/04/bournemouth-chelsea-marcos-senesi-transfer/) - **Chelsea.news**
-2. [Benjamin Pavard: Why United have an edge in the race to sign French defender](https://thepeoplesperson.com/2026/04/11/benjamin-pavard-why-united-have-an-edge-in-the-race-to-sign-french-defender-308674/) - **The Peoples Person**
-3. [Journos all saying the same thing about Rio Ngumoha after sensational Liverpool goal](https://www.empireofthekop.com/2026/04/11/journos-all-saying-the-same-thing-about-rio-ngumoha-after-sensational-liverpool-goal/) - **Empire of The Kop**
-4. [Brentford 2-2 Everton: What Andrews said](https://www.bbc.com/sport/football/articles/cd9vee92nx2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Liverpool teen hits first Anfield goal before Salah strikes vs. Fulham ](https://onefootball.com/en/news/liverpool-teen-hits-first-anfield-goal-before-salah-strikes-vs-fulham-42695621) - **Onefootball.com**
-6. [Championship wrap: Coventry promotion party delayed](https://www.rte.ie/sport/soccer/2026/0411/1567698-championship-wrap-coventry-promotion-party-delayed/) - **RTE**
-7. [3 Major Brands You Might Not Realize Are Owned By Comcast](https://www.bgr.com/2141086/major-brands-owned-by-comcast/) - **BGR**
-8. [(Photo) What Liverpool fans did in 15th minute drew tumuluouse applause around Anfield](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4e0d8437-02de-46da-876b-86272bc4b72b) - **Yahoo Entertainment**
-9. [Why Hugo Ekitike was benched for Liverpool clash with Fulham](https://thefootballfaithful.com/hugo-ekitike-benched-liverpool-fulham/) - **The Football Faithful**
-10. [Chelsea vs. Manchester City, Premier League: Preview, team news, how to watch](https://weaintgotnohistory.sbnation.com/premier-league/167764/chelsea-vs-manchester-city-premier-league-preview-team-news-how-to-watch) - **SB Nation**
+1. [From Premier League champions to League One: The story of Leicester City’s decline](https://footballtoday.com/2026/04/11/from-premier-league-champions-to-league-one-the-story-of-leicester-citys-decline/) - **Footballtoday.com**
+2. [Arsenal defeat blows Premier League title race wide open](https://economictimes.indiatimes.com/news/sports/arsenal-defeat-blows-premier-league-title-race-wide-open/articleshow/130197499.cms) - **The Times of India**
+3. [Too much, never enough: Why the IPL feels exhausting and irresistible at the same time](https://economictimes.indiatimes.com/news/sports/too-much-never-enough-why-the-ipl-feels-exhausting-and-irresistible-at-the-same-time/articleshow/130197347.cms) - **The Times of India**
+4. [Ineos to adopt daring strategy for Man United’s summer rebuild](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b9d0de3b-a731-4979-bd0a-00bc19651dec) - **Yahoo Entertainment**
+5. [Livramento, Thiaw And Tonali To Start | 4-3-3 Newcastle United Predicted Lineup Vs Crystal Palace](https://the4thofficial.net/2026/04/livramento-thiaw-and-tonali-to-start-4-3-3-newcastle-united-predicted-lineup-vs-crystal-palace/) - **The4thofficial.net**
+6. [Stuttering Arsenal given title jolt, Liverpool end losing run](https://www.channelnewsasia.com/sport/stuttering-arsenal-given-title-jolt-liverpool-end-losing-run-6051011) - **CNA**
+7. [Stuttering Arsenal suffer title jolt, Brentford denied win in top-five chase](https://www.channelnewsasia.com/sport/stuttering-arsenal-suffer-title-jolt-brentford-denied-win-in-top-five-chase-6051011) - **CNA**
+8. [“Bad performance, no energy” Arsenal shocks Paul Merson with their performance](https://www.justarsenal.com/bad-performance-no-energy-arsenal-shocks-paul-merson-with-their-performance/413395) - **Just Arsenal News**
+9. [Liam Rosenior praises “magnificent” player who’s going to play “huge part” for rest of the season](https://chelsea.news/2026/04/liam-rosenior-chelsea-man-city-estevao/) - **Chelsea.news**
+10. [Thiago on Cloud Nine after goals for Brentford and Brazil](https://www.channelnewsasia.com/sport/thiago-cloud-nine-after-goals-brentford-and-brazil-6051006) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-04-13 02:38:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-13 03:23:53 (KST) / (하루 100회 제한 준수 중)*
