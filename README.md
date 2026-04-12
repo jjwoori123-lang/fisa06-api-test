@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Besiktas keen on Arokodare move](https://punchng.com/besiktas-keen-on-arokodare-move/) - **The Punch**
-2. [Everton at Brentford: Opposition Analysis | All To Fight for in the Race for Europe](https://royalbluemersey.sbnation.com/everton-2025-26-season-premier-league-fixtures-hill-dickinson-moyes/79257/everton-at-brentford-opposition-analysis-all-to-fight-for-in-the-race-for-europe) - **SB Nation**
-3. [Barcelona vs Espanyol, La Liga: Preview](https://www.barcablaugranes.com/barcelona-la-liga/117329/barcelona-espanyol-la-liga-team-news-match-preview-lineups-score-prediction) - **Barca Blaugranes**
-4. [Chelsea, City clash headlines EPL actions](https://punchng.com/chelsea-city-clash-headlines-epl-actions/) - **The Punch**
-5. [Fulham keen on €24m permanent Chukwueze deal](https://punchng.com/fulham-keen-on-e24m-permanent-chukwueze-deal/) - **The Punch**
-6. [West Ham turn on second half style to beat Wolves and send Tottenham into drop zone](https://japantoday.com/category/sports/west-ham-turn-on-second-half-style-to-beat-wolves-and-send-tottenham-into-drop-zone) - **Japan Today**
-7. [Bassey returns for Liverpool clash](https://punchng.com/bassey-returns-for-liverpool-clash/) - **The Punch**
-8. [Where to watch Arsenal vs. Bournemouth live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-arsenal-vs-bournemouth-live-stream-channel-time-premier-league/26eaa1ed0704ea114b59a73c) - **Sporting News**
-9. [West Ham have fresh hope - but Spurs now in uncharted territory](https://www.bbc.com/sport/football/articles/cr71jvrpp5ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Celtic vs St. Mirren – Match preview and team news](https://thefootballfaithful.com/celtic-vs-st-mirren-match-preview-and-team-news/) - **The Football Faithful**
+2. [Arsenal vs Bournemouth – Match preview and team news](https://thefootballfaithful.com/arsenal-vs-bournemouth-match-preview-and-team-news/) - **The Football Faithful**
+3. [Bournemouth XI vs Arsenal – Predicted lineup and team news](https://thefootballfaithful.com/bournemouth-xi-vs-arsenal-predicted-lineup-and-team-news/) - **The Football Faithful**
+4. [Barcelona vs Espanyol – Match preview and team news](https://thefootballfaithful.com/barcelona-vs-espanyol-match-preview-and-team-news/) - **The Football Faithful**
+5. [Man City move ahead of Manchester United for €50m star](https://footballtoday.com/2026/04/11/man-city-move-ahead-of-manchester-united-for-e50m-star/) - **Footballtoday.com**
+6. [Joshua Zirkzee: Borussia Dortmund eye a second Man United attacker](https://thepeoplesperson.com/2026/04/11/joshua-zirkzee-borussia-dortmund-eye-a-second-man-united-attacker-308647/) - **The Peoples Person**
+7. [IPL 2026 sees 3% dip in TV ad volumes in first two weeks](https://economictimes.indiatimes.com/industry/services/advertising/ipl-2026-sees-3-dip-in-tv-ad-volumes-in-first-two-weeks/articleshow/130184785.cms) - **The Times of India**
+8. [A tough season, playing angry, and messaging Michael Owen](https://www.bbc.com/sport/football/articles/c87w429w3j5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [A tough season, playing angry, and messaging Michael Owen](https://www.bbc.com/sport/football/articles/c87w429w3j5o) - **BBC News**
+10. [Vikings Rumor Mill Chatter: J.J. McCarthy and the Rams, Jonathan Greenard, Christian Darrisaw](https://vikingsterritory.com/2026/news/top_news/vikings-rumors-mccarthy-greenard-darrisaw) - **Vikings Territory**
 
 
 ---
-*최근 업데이트: 2026-04-12 12:48:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-12 14:55:45 (KST) / (하루 100회 제한 준수 중)*
