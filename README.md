@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea vs. Manchester City: Can Pep Guardiola's side win out and claim Premier League title?](https://www.cbssports.com/soccer/news/chelsea-vs-manchester-city-premier-league-preview-2026/) - **CBS Sports**
-2. [Everything he does is impressive - Shearer lauds Igor Thiago](https://www.bbc.com/sport/football/videos/ceqwzpdnqljo) - **BBC News**
-3. [Le Bris’ Surprising Admission Ahead Of The Tottenham Game: Is Cautious Style Costing Sunderland A European Spot?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8f4b3a37-968c-4c71-b459-31eee7f036da) - **Yahoo Entertainment**
-4. [Watch: Match of the Day](https://www.bbc.co.uk/iplayer/episode/m002v3p1/match-of-the-day-202526-11042026?at_medium=RSS&at_campaign=rss) - **BBC News**
-5. [Experienced Arsenal target now prefers a move to Italy](https://www.justarsenal.com/experienced-arsenal-target-now-prefers-a-move-to-italy/413353) - **Just Arsenal News**
-6. [City need Pep in step at Chelsea before Arsenal showdown](https://www.rte.ie/sport/soccer/2026/0411/1567758-city-need-pep-in-step-at-chelsea-before-arsenal-showdown/) - **RTE**
-7. [We always want Cherki in the final third, says Pep](https://www.mancity.com/news/mens/pep-guardiola-rayan-cherki-chelsea-embargo-written-63911496) - **Manchester City FC**
-8. [‘Welcome to our season’ – Arne Slot laments latest Liverpool injury setback](https://thefootballfaithful.com/liverpool-arne-slot-curtis-jones-injury/) - **The Football Faithful**
+1. [João Neves Snubbs Portugal Teammate Cristiano Ronaldo in Interview](https://psgtalk.com/2026/04/joao-neves-snubbs-portugal-teammate-cristiano-ronaldo-in-interview/) - **Psgtalk.com**
+2. [PREVIEW | Manchester United vs Leeds United - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-manchester-united-vs-leeds-united-team-news-lineups-predictions/1092362) - **Playmakerstats.com**
+3. [Nike Hoop Summit live updates, highlights from USA vs. The World in Portland](https://www.sportingnews.com/us/ncaa-basketball/news/nike-hoop-summit-live-updates-highlights-usa-vs-world-portland/01b36f1725dd0296304b551d) - **Sporting News**
+4. [Ballon d'Or Favorite? England, Bayern Munich Star Harry Kane Tabbed As Frontrunner](https://www.foxsports.com/stories/soccer/the-most-lethal-man-in-the-world-harry-kane-labelled-as-ballon-dor-favourite-amid-bayern-munich-goalscoring-exploits) - **Fox Sports**
+5. ['Big Punch to the Face'- Arsenal's Arteta Apologizes to Fans For Lackluster Loss](https://www.foxsports.com/stories/soccer/a-big-punch-in-the-face-mikel-arteta-issues-apology-to-arsenal-fans-as-bournemouth-deal-huge-blow-to-premier-league-title-hopes) - **Fox Sports**
+6. [Arsenal Ratings vs. Bournemouth: Gabriel Martinelli, Kai Havertz Drop Stinkers](https://www.foxsports.com/stories/soccer/arsenal-player-ratings-vs-bournemouth-gabriel-martinelli-kai-havertz-and-noni-madueke-drop-stinkers-to-let-man-city-back-in-to-the-title-race) - **Fox Sports**
+7. [Mairiga eyes NPFL Golden Boot Award](https://punchng.com/mairiga-eyes-npfl-golden-boot-award/) - **The Punch**
+8. [Kwara continue survival chase with 3SC clash](https://punchng.com/kwara-continue-survival-chase-with-3sc-clash/) - **The Punch**
+9. [Wisconsin Badgers fall to Denver in NCAA men's hockey championship](https://www.fox6now.com/sports/wisconsin-badgers-hockey-score-denver-041126) - **fox6now.com**
+10. [Dele-Bashiru doubtful for Fiorentina clash](https://punchng.com/dele-bashiru-doubtful-for-fiorentina-clash/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-04-13 08:55:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-13 12:26:59 (KST) / (하루 100회 제한 준수 중)*
