@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Villa are 'motivated and excited' by Champions League prospect - Emery](https://www.bbc.com/sport/football/videos/cn897gpe4p4o) - **BBC News**
-2. [Luka Doncic Season-Ending Injury 2026: 5 Greatest NBA 'What If' Careers Without Injuries](https://www.ibtimes.com.au/luka-doncic-season-ending-injury-2026-5-greatest-nba-what-if-careers-without-injuries-1866280) - **Ibtimes.com.au**
-3. [Chelsea vs Man City live: Cucurella goal ruled out as Neville claims visitors ‘smell blood’ in Premier League](https://www.101greatgoals.com/football/premier-league/chelsea-vs-man-city-live-cucurella-goal/) - **101 Great Goals**
-4. [Early blitz sees Caernarfon beat Flint to win first Welsh Cup](https://www.bbc.com/sport/football/live/cly09d9d88yt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Chelsea v Manchester City: Premier League – live - The Guardian](https://slashdot.org/firehose.pl?op=view&amp;id=181644050) - **Slashdot.org**
-6. [Palace 'kept believing' in Newcastle win - Glasner](https://www.bbc.com/sport/football/videos/cwy3kgk9gxno) - **BBC News**
-7. [Roberto De Zerbi admits fear of being relegated is impacting his Spurs players – and gives update on Romero](https://hayters.com/roberto-de-zerbi-admits-fear-of-being-relegated-is-impacting-his-tottenham-players/) - **Hayters.com**
-8. [Porro Gets 7.5, Bergvall With 5.5 | Tottenham Hotspur Players Rated In Tough Loss Vs Sunderland](https://the4thofficial.net/2026/04/porro-gets-7-5-bergvall-with-5-5-tottenham-hotspur-players-rated-in-tough-loss-vs-sunderland/) - **The4thofficial.net**
+1. [Richard Hughes is about to sell Liverpool's most important player](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4d0dd8cc-ad93-4a48-a6ab-6b6a34544b72) - **Yahoo Entertainment**
+2. [Player Ratings: Nico O’Reilly shines as Manchester City smash Chelsea](https://eplindex.com/145184/player-ratings-nico-oreilly-shines-as-manchester-city-smash-chelsea.html) - **English Premier League Index - Opta Stats**
+3. [Early 2026 World Cup of Darts country/pairs predictions](https://www.sportingnews.com/us/darts/news/early-2026-world-cup-darts-country-pairs-predictions/9520c59cc1e9ccf70cadb06e) - **Sporting News**
+4. [Manchester City close gap on leaders Arsenal after easing to victory at Chelsea](https://www.independent.ie/sport/soccer/premier-league/manchester-city-close-gap-on-leaders-arsenal-after-easing-to-victory-at-chelsea/a1745522582.html) - **Independent.ie**
+5. [Manchester City thump Chelsea 3-0 to move closer to Arsenal](https://www.channelnewsasia.com/sport/manchester-city-thump-chelsea-3-0-move-closer-arsenal-6052001) - **CNA**
+6. [Manchester City blow Chelsea away 3-0 to move closer to Arsenal](https://www.channelnewsasia.com/sport/manchester-city-blow-chelsea-away-3-0-move-closer-arsenal-6052001) - **CNA**
+7. [‘They are suffering maybe too much’ – Roberto De Zerbi admits threat of relegation is affecting Tottenham squad](https://www.independent.ie/sport/soccer/premier-league/they-are-suffering-maybe-too-much-roberto-de-zerbi-admits-threat-of-relegation-is-affecting-tottenham-squad/a121086293.html) - **Independent.ie**
+8. [Will Romero's tears become the enduring image of Tottenham's season?](https://www.bbc.com/sport/football/articles/ce8lnjd7n4po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Gallery: Cherki stars at Stamford Bridge!](https://www.mancity.com/news/mens/chelsea-v-city-match-gallery-pl-12-april-63911592) - **Manchester City FC**
 
 
 ---
-*최근 업데이트: 2026-04-14 01:39:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-14 02:42:19 (KST) / (하루 100회 제한 준수 중)*
