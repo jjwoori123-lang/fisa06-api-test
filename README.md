@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [João Neves Snubbs Portugal Teammate Cristiano Ronaldo in Interview](https://psgtalk.com/2026/04/joao-neves-snubbs-portugal-teammate-cristiano-ronaldo-in-interview/) - **Psgtalk.com**
-2. [PREVIEW | Manchester United vs Leeds United - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-manchester-united-vs-leeds-united-team-news-lineups-predictions/1092362) - **Playmakerstats.com**
-3. [Nike Hoop Summit live updates, highlights from USA vs. The World in Portland](https://www.sportingnews.com/us/ncaa-basketball/news/nike-hoop-summit-live-updates-highlights-usa-vs-world-portland/01b36f1725dd0296304b551d) - **Sporting News**
-4. [Ballon d'Or Favorite? England, Bayern Munich Star Harry Kane Tabbed As Frontrunner](https://www.foxsports.com/stories/soccer/the-most-lethal-man-in-the-world-harry-kane-labelled-as-ballon-dor-favourite-amid-bayern-munich-goalscoring-exploits) - **Fox Sports**
-5. ['Big Punch to the Face'- Arsenal's Arteta Apologizes to Fans For Lackluster Loss](https://www.foxsports.com/stories/soccer/a-big-punch-in-the-face-mikel-arteta-issues-apology-to-arsenal-fans-as-bournemouth-deal-huge-blow-to-premier-league-title-hopes) - **Fox Sports**
-6. [Arsenal Ratings vs. Bournemouth: Gabriel Martinelli, Kai Havertz Drop Stinkers](https://www.foxsports.com/stories/soccer/arsenal-player-ratings-vs-bournemouth-gabriel-martinelli-kai-havertz-and-noni-madueke-drop-stinkers-to-let-man-city-back-in-to-the-title-race) - **Fox Sports**
-7. [Mairiga eyes NPFL Golden Boot Award](https://punchng.com/mairiga-eyes-npfl-golden-boot-award/) - **The Punch**
-8. [Kwara continue survival chase with 3SC clash](https://punchng.com/kwara-continue-survival-chase-with-3sc-clash/) - **The Punch**
-9. [Wisconsin Badgers fall to Denver in NCAA men's hockey championship](https://www.fox6now.com/sports/wisconsin-badgers-hockey-score-denver-041126) - **fox6now.com**
-10. [Dele-Bashiru doubtful for Fiorentina clash](https://punchng.com/dele-bashiru-doubtful-for-fiorentina-clash/) - **The Punch**
+1. [Tottenham will go down - Sutton](https://www.bbc.com/sport/football/videos/crk1r774yxgo) - **BBC News**
+2. [Tottenham relegation tracker: Spurs schedule, results in battle against Premier League drop](https://www.sportingnews.com/us/soccer/tottenham-hotspur/news/tottenham-relegation-tracker-spurs-schedule-results-premier-league/eef170de44473edce7d43e03) - **Sporting News**
+3. [Nottingham Forest vs Aston Villa – Predicted lineup and team news](https://thefootballfaithful.com/nottingham-forest-vs-aston-villa-predicted-lineup-and-team-news/) - **The Football Faithful**
+4. [Nottingham Forest vs Aston Villa – Match preview and team news](https://thefootballfaithful.com/nottingham-forest-vs-aston-villa-match-preview-and-team-news/) - **The Football Faithful**
+5. [Crystal Palace vs Newcastle United – Match preview and team news](https://thefootballfaithful.com/crystal-palace-vs-newcastle-united-match-preview-and-team-news/) - **The Football Faithful**
+6. [Manager speaks out on future of Premier League defender Chelsea are targeting](https://chelsea.news/2026/04/manager-speaks-out-on-future-of-premier-league-defender-chelsea-are-targeting/) - **Chelsea.news**
+7. [How to watch Chelsea vs Man City](https://www.skysports.com/football/news/11668/13530184/watch-chelsea-vs-man-city-tv-channel-live-stream-now-tv-team-news-and-score-prediction) - **Sky Sports**
+8. [Aston Villa XI vs Nottingham Forest – Predicted lineup and team news](https://thefootballfaithful.com/aston-villa-xi-vs-nottingham-forest-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+9. [IPL 2026: Fielding let us down, says DC skipper Axar Patel after 23-run loss to CSK](https://economictimes.indiatimes.com/news/sports/ipl-2026fielding-let-us-down-says-delhi-capitals-skipper-axar-patel-after-23-run-loss-to-chennai-super-kings/articleshow/130202738.cms) - **The Times of India**
+10. [What is going on with Garnacho?](https://www.bbc.com/sport/football/articles/c8x71741kkdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-13 12:26:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-13 15:02:27 (KST) / (하루 100회 제한 준수 중)*
