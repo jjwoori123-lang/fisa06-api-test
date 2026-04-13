@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [A massive opportunity is staring Manchester City in the face today at Stamford Bridge](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_dbd1b913-2124-43c0-b036-3b284a46a867) - **Yahoo Entertainment**
-2. [Bruno Fernandes: Carrick makes bold claim about United skipper](https://thepeoplesperson.com/2026/04/12/bruno-fernandes-carrick-makes-bold-claim-about-united-skipper-308683/) - **The Peoples Person**
-3. [Chelsea XI vs Manchester City – Predicted lineup and team news](https://thefootballfaithful.com/chelsea-xi-vs-manchester-city-predicted-lineup-and-team-news-3/) - **The Football Faithful**
-4. [Chelsea vs Manchester City – Match preview and team news](https://thefootballfaithful.com/chelsea-vs-manchester-city-match-preview-and-team-news/) - **The Football Faithful**
-5. [How Newcastle could line up vs Crystal Palace as Eddie Howe’s side eye European spot](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f54bff78-efc0-4319-9f44-78cfaed8599b) - **Yahoo Entertainment**
-6. [Carrick wants reunion with former player, has asked Wilcox to sign £100m-rated star](https://strettynews.com/2026/04/12/michael-carrick-morgan-rogers-man-united-transfer/) - **Strettynews.com**
-7. [Jimmy Floyd Hasselbaink thinks Arsenal is underperforming their squad quality](https://www.justarsenal.com/jimmy-floyd-hasselbaink-thinks-arsenal-is-underperforming-their-squad-quality/413407) - **Just Arsenal News**
-8. [Why Barcelona must keep hold of Jules Koundé](https://www.barcablaugranes.com/cant-del-blog-barcelona-opinion/117262/why-barcelona-must-keep-hold-of-jules-kounde) - **Barca Blaugranes**
-9. [Report: Tottenham Hotspur lead the race for Premier League defender](https://eplindex.com/145158/report-tottenham-hotspur-lead-the-race-for-premier-league-defender.html) - **English Premier League Index - Opta Stats**
-10. [Union Berlin make history by appointing Marie-Louise Eta as Bundesliga’s first female head coach](https://sports.yahoo.com/articles/union-berlin-history-appointing-marie-074604965.html) - **Yahoo Entertainment**
+1. [Shea Lacey: Bruno Fernandes explains why Man United teammate is truly special](https://thepeoplesperson.com/2026/04/12/shea-lacey-bruno-fernandes-explains-why-man-united-teammate-is-truly-special-308689/) - **The Peoples Person**
+2. [MI vs RCB LIVE Score, IPL 2026: Mumbai Indians eye return to winning ways vs Royal Challengers Bengaluru at Wankhede](https://indianexpress.com/article/sports/cricket/ipl-2026-mi-vs-rcb-live-cricket-score-mumbai-bengaluru-wankhede-stadium-updates-10632177/) - **The Indian Express**
+3. [Match of the Day pundit blasts ‘no energy’ Arsenal](https://dailycannon.com/2026/04/shearer-arsenal-bournemouth/) - **Dailycannon.com**
+4. [Sunderland vs Tottenham Live Streams: How to watch Premier League 2025/26 from anywhere in the world](https://www.techradar.com/how-to-watch/football/sunderland-vs-tottenham-live-streams-premier-league-2025-26) - **TechRadar**
+5. [Atalanta’s Palladino: “It will be a battle against Roma.”](https://romapress.net/atalantas-palladino-it-will-be-a-battle-against-roma/) - **RomaPress**
+6. [Report: Fulham set to move for £30m Bundesliga attacker](https://eplindex.com/145160/report-fulham-set-to-move-for-30m-bundesliga-attacker.html) - **English Premier League Index - Opta Stats**
+7. [Cup run can help Leeds in relegation fight - Farke](https://www.bbc.com/sport/football/articles/c93e13ed7wlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Farke says FA Cup buzz can lift Leeds for relegation fight](https://www.bbc.com/sport/football/articles/c93e13ed7wlo) - **BBC News**
+9. [Pep Guardiola wants to stop talking about Arsenal](https://dailycannon.com/2026/04/guardiola-arsenal-title-race-city/) - **Dailycannon.com**
 
 
 ---
-*최근 업데이트: 2026-04-13 17:24:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-13 19:20:44 (KST) / (하루 100회 제한 준수 중)*
