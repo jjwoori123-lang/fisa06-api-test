@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Shea Lacey: Bruno Fernandes explains why Man United teammate is truly special](https://thepeoplesperson.com/2026/04/12/shea-lacey-bruno-fernandes-explains-why-man-united-teammate-is-truly-special-308689/) - **The Peoples Person**
-2. [MI vs RCB LIVE Score, IPL 2026: Mumbai Indians eye return to winning ways vs Royal Challengers Bengaluru at Wankhede](https://indianexpress.com/article/sports/cricket/ipl-2026-mi-vs-rcb-live-cricket-score-mumbai-bengaluru-wankhede-stadium-updates-10632177/) - **The Indian Express**
-3. [Match of the Day pundit blasts ‘no energy’ Arsenal](https://dailycannon.com/2026/04/shearer-arsenal-bournemouth/) - **Dailycannon.com**
-4. [Sunderland vs Tottenham Live Streams: How to watch Premier League 2025/26 from anywhere in the world](https://www.techradar.com/how-to-watch/football/sunderland-vs-tottenham-live-streams-premier-league-2025-26) - **TechRadar**
-5. [Atalanta’s Palladino: “It will be a battle against Roma.”](https://romapress.net/atalantas-palladino-it-will-be-a-battle-against-roma/) - **RomaPress**
-6. [Report: Fulham set to move for £30m Bundesliga attacker](https://eplindex.com/145160/report-fulham-set-to-move-for-30m-bundesliga-attacker.html) - **English Premier League Index - Opta Stats**
-7. [Cup run can help Leeds in relegation fight - Farke](https://www.bbc.com/sport/football/articles/c93e13ed7wlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Farke says FA Cup buzz can lift Leeds for relegation fight](https://www.bbc.com/sport/football/articles/c93e13ed7wlo) - **BBC News**
-9. [Pep Guardiola wants to stop talking about Arsenal](https://dailycannon.com/2026/04/guardiola-arsenal-title-race-city/) - **Dailycannon.com**
+1. [Sunderland vs Tottenham live: Confirmed teams and full lineups in Premier League, TV channel, live streams](https://www.101greatgoals.com/football/premier-league/sunderland-vs-tottenham-live-teams-lineups/) - **101 Great Goals**
+2. [Nottingham Forest vs Aston Villa live: Confirmed teams and full lineups in Premier League](https://www.101greatgoals.com/football/premier-league/nottingham-forest-vs-aston-villa-live-teams-lineups/) - **101 Great Goals**
+3. [Report: Arsenal, Newcastle and Man United set to be beat to Brazilian midfielder](https://eplindex.com/145163/report-arsenal-newcastle-and-man-united-set-to-be-beat-to-brazilian-midfielder.html) - **English Premier League Index - Opta Stats**
+4. [Confirmed line-up: Six changes for Palace clash](https://www.newcastleunited.com/en/news/confirmed-line-up-six-changes-for-palace-clash) - **Newcastleunited.com**
+5. [Liverpool in £35m fight with Bayern Munich for breakout star forward](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-bazoumana-toure-hoffenheim-fight-with-bayern-munich-for-breakout-star-forward/) - **Anfieldwatch.co.uk**
+6. [Tottenham in relatively unchartered relegation territory](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e85bdf1c-487a-4b9c-aae2-53b488c5bd48) - **Yahoo Entertainment**
+7. [Man Utd v Leeds United: Key stats and talking points](https://www.bbc.com/sport/football/articles/c8958eel04ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [(Video) Many fans may have missed subtle yet pivotal moment in lead-up to Rio Ngumoha goal](https://www.empireofthekop.com/2026/04/12/many-fans-may-have-missed-key-moment-in-lead-up-to-ngumoha-goal/) - **Empire of The Kop**
+9. [“Express ourselves” – Liam Rosenior promises attacking tactics for Man City clash](https://chelsea.news/2026/04/liam-rosenior-attacking-tactics-express-ourselves/) - **Chelsea.news**
 
 
 ---
-*최근 업데이트: 2026-04-13 19:20:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-13 20:53:55 (KST) / (하루 100회 제한 준수 중)*
