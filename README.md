@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Carra: Leeds will 'send shiver down spine' of relegation rivals](https://www.skysports.com/football/news/11095/13531514/leeds-display-at-manchester-united-will-send-shiver-down-spine-or-relegation-rivals-says-jamie-carragher) - **Sky Sports**
-2. [Okafor Gets 8.5, Darlow With 8 | Leeds United Players Rated In Memorable Win Vs Manchester United](https://the4thofficial.net/2026/04/okafor-gets-8-5-darlow-with-8-leeds-united-players-rated-in-memorable-win-vs-manchester-united/) - **The4thofficial.net**
-3. [Liverpool seek 'special' Anfield night to salvage troubled season](https://japantoday.com/category/sports/liverpool-seek-%27special%27-anfield-night-to-salvage-troubled-season) - **Japan Today**
-4. [Okafor decisive double helps Leeds win thrilling encounter at Old Trafford](https://japantoday.com/category/sports/okafor-decisive-double-helps-leeds-win-thrilling-encounter-at-old-trafford) - **Japan Today**
-5. [Okafor fires Leeds to first league win at Old Trafford since 1981](https://www.bbc.com/sport/football/videos/c62j0yqzn8vo) - **BBC News**
-6. [The best and worst managerial appointments of 2026](https://footballtoday.com/2026/04/13/the-best-and-worst-managerial-appointments-of-2026/) - **Footballtoday.com**
-7. [Noah Okafor at the double as Leeds edge Manchester United](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1606f2d0-3428-4b4f-94c6-3319fa1b2b49) - **Yahoo Entertainment**
-8. [Okafor decisive double helps Leeds win thrilling encounter at Old Trafford](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7bb24308-4937-4a30-9c31-c323c0fd30b8) - **Yahoo Entertainment**
+1. [A monumental night for Leeds - what does it mean in survival scrap?](https://www.bbc.com/sport/football/articles/c4gxj4dkdpro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Carrick slams Martinez red card as ‘worst decision’](https://punchng.com/carrick-slams-martinez-red-card-as-worst-decision/) - **The Punch**
+3. [Carrick labels Martinez red card as ‘worst decision’ ever](https://www.vanguardngr.com/2026/04/carrick-labels-martinez-red-card-as-worst-decision-ever/) - **Vanguard**
+4. [A monumental night for Leeds - what does it mean in survival scrap?](https://www.bbc.com/sport/football/articles/c4gxj4dkdpro) - **BBC News**
+5. [Farke says his side are destroying the ‘old narrative of Leeds are falling apart again’](https://hayters.com/farke-says-his-side-are-destroying-the-old-narrative-of-leeds-are-falling-apart-again/) - **Hayters.com**
+6. [Casemiro And Yoro Get 7.5 | Manchester United Players Rated In Tough Loss Vs Leeds United](https://the4thofficial.net/2026/04/casemiro-and-yoro-get-7-5-manchester-united-players-rated-in-tough-loss-vs-leeds-united/) - **The4thofficial.net**
+7. [Farke hails Leeds' historic win at Man Utd](https://sports.yahoo.com/articles/farke-hails-leeds-historic-win-220319752.html) - **Yahoo Entertainment**
+8. [Carrick fumes at ‘one of the worst decisions’ during Manchester United’s loss to Leeds](https://www.101greatgoals.com/football/premier-league/carrick-fumes-manchester-united-loss-leeds/) - **101 Great Goals**
+9. [Papers: Man Utd monitoring Bournemouth duo](https://www.skysports.com/football/news/11095/13531892/man-utd-michael-carricks-side-monitoring-bournemouth-dup-eli-junior-kroupi-and-marcos-senesi-paper-talk-and-football-transfer-gossip) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-04-15 06:59:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-15 07:56:08 (KST) / (하루 100회 제한 준수 중)*
