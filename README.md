@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Who will finish 18th in the Premier League this season?](https://www.bbc.com/sport/football/videos/c5ywg2xg245o) - **BBC News**
-2. [De Zerbi has a lot of work to do with Spurs - Nevin](https://www.bbc.com/sport/football/videos/cz78g0plyd1o) - **BBC News**
-3. [A blistering display from a French international helped Manchester City see off Chelsea at Stamford Bridge](https://esteemedkompany.com/2026/04/12/a-blistering-display-from-a-french-international-helped-manchester-city-see-off-chelsea-at-stamford-bridge/) - **Esteemedkompany.com**
-4. [Pundit says Arsenal target will walk into their team in every game](https://www.justarsenal.com/pundit-says-arsenal-target-will-walk-into-their-team-in-every-game/413362) - **Just Arsenal News**
-5. [Rosenior reveals Chelsea transfer talks ahead of summer window](https://thefootballfaithful.com/rosenior-chelsea-trnasfer-talks-summer-window/) - **The Football Faithful**
-6. [Every word of Michael Carrick’s embargoed Leeds United press conference](https://thepeoplesperson.com/2026/04/12/every-word-of-michael-carricks-embargoed-leeds-united-press-conference-308707/) - **The Peoples Person**
-7. [Gruev And Aaronson To Start | 3-5-1-1 Leeds United Predicted Lineup Vs Manchester United](https://the4thofficial.net/2026/04/gruev-and-aaronson-to-start-3-5-1-1-leeds-united-predicted-lineup-vs-manchester-united/) - **The4thofficial.net**
-8. [Samir Nasri ‘wouldn’t want’ Tottenham to be relegated, as Eden Hazard describes them as a ‘middling’ club](https://www.getfootballnewsfrance.com/2026/samir-nasri-wouldnt-want-tottenham-to-be-relegated-as-eden-hazard-describes-them-as-a-middling-club/) - **Get French Football News**
-9. [New Mainoo deal closer, says Man Utd boss Carrick](https://www.bbc.com/sport/football/articles/ckg0155g2k9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Bruno Fernandes leans away from Cristiano Ronaldo’s SPL move, stating intentions to ‘compete’ at Manchester United](https://worldsoccertalk.com/news/bruno-fernandes-leans-away-from-cristiano-ronaldos-spl-move-stating-intentions-to-compete-at-manchester-united/) - **Worldsoccertalk.com**
+2. [Manchester City will be sweating on the fitness of a young player who continues to step up](https://esteemedkompany.com/2026/04/13/manchester-city-will-be-sweating-on-the-fitness-of-a-young-player-who-continues-to-step-up/) - **Esteemedkompany.com**
+3. [Who won yesterday's IPL 2026 Royal Challengers Bangalore vs Mumbai Indians clash? A look at the IPL Points Table after Match 20](https://economictimes.indiatimes.com/news/new-updates/who-won-yesterdays-ipl-2026-royal-challengers-bangalore-vs-mumbai-indians-clash-a-look-at-the-ipl-points-table-after-match-20/articleshow/130222809.cms) - **The Times of India**
+4. [Liverpool seek 'special' Anfield night to salvage troubled season](https://sports.yahoo.com/articles/liverpool-seek-special-anfield-night-013849862.html) - **Yahoo Entertainment**
+5. [Fear grips Arsenal fans as City close EPL gap](https://punchng.com/fear-grips-arsenal-fans-as-city-close-epl-gap/) - **The Punch**
+6. [New Nigeria keeper Okonkwo adores Van der Sar](https://punchng.com/new-nigeria-keeper-okonkwo-adores-van-der-sar/) - **The Punch**
+7. [Fernandez nears Scottish title as Okonkwo suffers promotion setback](https://punchng.com/fernandez-nears-scottish-title-as-okonkwo-suffers-promotion-setback/) - **The Punch**
+8. [NPFL: Rivers regain top spot as Ikorodu wallop Pillars](https://punchng.com/npfl-rivers-regain-top-spot-as-ikorodu-wallop-pillars/) - **The Punch**
+9. [Who will finish 18th in the Premier League this season?](https://www.bbc.com/sport/football/videos/c5ywg2xg245o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-14 09:02:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-14 12:44:57 (KST) / (하루 100회 제한 준수 중)*
