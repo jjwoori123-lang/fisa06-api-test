@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [David Raum: United make key decision over pursuit of RB Leipzig ace](https://thepeoplesperson.com/2026/04/13/david-raum-united-make-key-decision-over-pursuit-of-rb-leipzig-ace-308726/) - **The Peoples Person**
-2. [Champions League predictions: Arsenal bounce back but it’s misery for Spain’s big two and Liverpool](https://www.101greatgoals.com/football/champions-league/champions-league-predictions-arsenal-liverpool-real-madrid-barcelona-sporting-cp-bayern-munich-atletico-madrid-psg/) - **101 Great Goals**
-3. [How to watch Liverpool vs PSG live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-liverpool-vs-psg-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
-4. [Former assistant claims Slot not getting Liverpool credit he deserves](https://anfieldindex.com/93147/former-assistant-claims-slot-not-getting-liverpool-credit-he-deserves.html) - **Anfieldindex.com**
-5. [Report: Manchester United ready to push to sign Premier League defender](https://eplindex.com/145203/report-manchester-united-ready-to-push-to-sign-premier-league-defender.html) - **English Premier League Index - Opta Stats**
-6. [fitz-sage added to PyPI](https://pypi.org/project/fitz-sage/) - **Pypi.org**
-7. [Marc Guehi snubs Premier League Player of the Match award in favour of Man City teammate](https://cityxtra.co.uk/44568/marc-guehi-snubs-premier-league-player-of-the-match-award-in-favour-of-man-city-teammate/) - **Cityxtra.co.uk**
-8. [Crystal Palace 2-1 Newcastle - the fans' verdict](https://www.bbc.com/sport/football/articles/cgmelyyk1vro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Under-15s win Premier League Next Gen Beijing Cup](http://www.arsenal.com/news/under-15s-win-premier-league-next-gen-beijing-cup-0) - **Arsenal.com**
+1. ['I don't think they've got it in them to fight'](https://www.bbc.com/sport/football/articles/cy91gg2ev72o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [FULL LIST: Top 10 Premier League title slip-ups](https://punchng.com/full-list-top-10-premier-league-title-slip-ups/) - **The Punch**
+3. [Tottenham in advanced talks to sign Robertson](https://www.bbc.com/sport/football/articles/cevk7kpj4l4o) - **BBC News**
+4. [PREVIEW: Liverpool hoping for special display to overturn PSG](https://wp.fromthespot.co.uk/28054/preview-liverpool-hoping-for-special-display-to-overturn-psg/) - **Fromthespot.co.uk**
+5. [Romero likely to miss Spurs final run-in due to injury](https://www.playmakerstats.com/news/romero-likely-to-miss-spurs-final-run-in-due-to-injury/1093526) - **Playmakerstats.com**
+6. [Sky pundit predicts Liverpool’s Champions League pursuit](https://anfieldindex.com/93149/sky-pundit-predicts-liverpool-finish-in-champions-league-pursuit.html) - **Anfieldindex.com**
+7. [Report: Liverpool set to battle Manchester United for Bundesliga defender](https://eplindex.com/145220/report-liverpool-set-to-battle-manchester-united-for-bundesliga-defender.html) - **English Premier League Index - Opta Stats**
+8. [Watford need to 'buck the trend' - Still](https://www.bbc.com/sport/football/articles/c4g686r87z0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Soccer player Partey pleads not guilty to additional rape charges in UK](https://www.channelnewsasia.com/sport/soccer-player-partey-pleads-not-guilty-additional-rape-charges-in-uk-6053751) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-04-14 21:10:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-14 23:15:23 (KST) / (하루 100회 제한 준수 중)*
