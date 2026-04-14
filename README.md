@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [urban-gro, Inc. (Nasdaq: UGRO) Announces Lanka Premier League Season 6 — Potential Record 600-Player Pool, World-Class Marquee Talent, and Expected Appointment of Chris Gayle as Global Brand Ambassador](https://www.globenewswire.com/news-release/2026/04/13/3272371/0/en/urban-gro-Inc-Nasdaq-UGRO-Announces-Lanka-Premier-League-Season-6-Potential-Record-600-Player-Pool-World-Class-Marquee-Talent-and-Expected-Appointment-of-Chris-Gayle-as-Global-Bran.html) - **GlobeNewswire**
-2. [Newcastle United starter suspended for Arsenal clash](https://dailycannon.com/2026/04/joelinton-arsenal-newcastle-suspended/) - **Dailycannon.com**
-3. [Liverpool's new £87m Ryan Gravenberch problem is a true nightmare scenario](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpools-new-ps87m-ryan-gravenberch-problem-is-a-true-nightmare-scenario/) - **Anfieldwatch.co.uk**
-4. [Where to watch Man United vs. Leeds live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-man-united-leeds-live-stream-tv-channel-time-premier-league/69c08faa9e8ddeb397db604f) - **Sporting News**
-5. [Arsenal set to be rewarded with over £100million from Champions League run](https://www.justarsenal.com/arsenal-set-to-be-rewarded-with-over-100million-from-champions-league-run/413420) - **Just Arsenal News**
-6. [Is Ngumoha's X factor key to Liverpool comeback against PSG?](https://www.skysports.com/football/news/11095/13530756/rio-ngumoha-can-the-teenagers-x-factor-inspire-a-liverpool-comeback-vs-psg-in-the-champions-league) - **Sky Sports**
-7. [Tributes Flood In For Bollywood Music Icon Asha Bhosle: “Her Voice Was A Pillar Of Indian Cinema”](http://deadline.com/2026/04/tributes-asha-bhosle-bollywood-icon-dead-at-92-1236858834/) - **Deadline**
-8. [Sunderland condemn racist abuse of Brobbey](https://www.bbc.com/sport/football/articles/c4gx5rdne35o) - **BBC News**
-9. [Next up: Liverpool at the Hill Dickinson Stadium](http://www.toffeeweb.com/season/25-26/news/47462.html) - **Toffeeweb**
+1. [David Raum: United make key decision over pursuit of RB Leipzig ace](https://thepeoplesperson.com/2026/04/13/david-raum-united-make-key-decision-over-pursuit-of-rb-leipzig-ace-308726/) - **The Peoples Person**
+2. [Champions League predictions: Arsenal bounce back but it’s misery for Spain’s big two and Liverpool](https://www.101greatgoals.com/football/champions-league/champions-league-predictions-arsenal-liverpool-real-madrid-barcelona-sporting-cp-bayern-munich-atletico-madrid-psg/) - **101 Great Goals**
+3. [How to watch Liverpool vs PSG live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-liverpool-vs-psg-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
+4. [Former assistant claims Slot not getting Liverpool credit he deserves](https://anfieldindex.com/93147/former-assistant-claims-slot-not-getting-liverpool-credit-he-deserves.html) - **Anfieldindex.com**
+5. [Report: Manchester United ready to push to sign Premier League defender](https://eplindex.com/145203/report-manchester-united-ready-to-push-to-sign-premier-league-defender.html) - **English Premier League Index - Opta Stats**
+6. [fitz-sage added to PyPI](https://pypi.org/project/fitz-sage/) - **Pypi.org**
+7. [Marc Guehi snubs Premier League Player of the Match award in favour of Man City teammate](https://cityxtra.co.uk/44568/marc-guehi-snubs-premier-league-player-of-the-match-award-in-favour-of-man-city-teammate/) - **Cityxtra.co.uk**
+8. [Crystal Palace 2-1 Newcastle - the fans' verdict](https://www.bbc.com/sport/football/articles/cgmelyyk1vro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Under-15s win Premier League Next Gen Beijing Cup](http://www.arsenal.com/news/under-15s-win-premier-league-next-gen-beijing-cup-0) - **Arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-04-14 20:06:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-14 21:10:05 (KST) / (하루 100회 제한 준수 중)*
