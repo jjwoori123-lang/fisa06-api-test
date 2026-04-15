@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [TV News: Smith, Wrexham, Euphoria, Prairie](https://www.darkhorizons.com/tv-news-smith-wrexham-euphoria-prairie/) - **Dark Horizons**
-2. [Bavarian Loan Works: Asp, Kusi-Asare score goals](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/188841/bayern-munich-loan-watch-transfer-news-rumors-goals-asp-kusi-asare-conference-league-championship-prmotion-relegation) - **Bavarian Football Works**
-3. [Gala, Fenerbahce join Arokodare chase](https://punchng.com/gala-fenerbahce-join-arokodare-chase/) - **The Punch**
-4. [NFL draft steals that reshaped teams](https://www.thebiglead.com/nfl-draft-steals-that-reshaped-teams-v/) - **The Big Lead**
-5. [Flames Face Defining Draft Lottery Moment Amid Rebuild](https://thehockeynews.com/nhl/calgary-flames/latest-news/flames-face-defining-draft-lottery-moment-amid-rebuild) - **The Hockey News**
-6. [Bruno Fernandes recreates iconic Mourinho moment as he blasts referee](https://thepeoplesperson.com/2026/04/14/bruno-fernandes-recreates-iconic-mourinho-moment-as-he-blasts-referee-308775/) - **The Peoples Person**
-7. [Ghana appoint Queiroz for 2026 World Cup](https://punchng.com/ghana-appoint-queiroz-for-2026-world-cup/) - **The Punch**
-8. [The stars came out in Nashville for SuperMotocross Round 13: Theo Von, Brantley Gilbert, included guests](https://www.nbcsports.com/motor-sports/news/the-stars-came-out-in-nashville-for-supermotocross-round-13-theo-von-brantley-gilbert-tennessee-titans) - **NBCSports.com**
-9. [Manuel Ugarte continues to be a liability for United](https://thepeoplesperson.com/2026/04/14/manuel-ugarte-continues-to-be-a-liability-for-united-308771/) - **The Peoples Person**
-10. [Carrick blasts 'shocking' call to send off Martinez](https://www.rte.ie/sport/soccer/2026/0414/1568072-carrick-blasts-shocking-call-to-send-off-martinez/) - **RTE**
+1. [Celtic to play behind closed doors friendly as injury list decreases](https://thecelticstar.com/celtic-to-play-behind-closed-doors-friendly-as-injury-list-decreases/) - **The Celtic Star**
+2. [Fan Letters: “The Sky’s The Limit!”](https://rokerreport.sbnation.com/fan-letters/134310/fan-letters-the-skys-the-limit) - **SB Nation**
+3. [Manchester City seemingly have a major advantage over Arsenal ahead of Sunday’s massive match](https://esteemedkompany.com/2026/04/14/manchester-city-seemingly-have-a-major-advantage-over-arsenal-ahead-of-sundays-massive-match/) - **Esteemedkompany.com**
+4. [Two Great Sunderland Sides…But Which Is Best?](https://rokerreport.sbnation.com/opinion/134316/two-great-sunderland-sidesbut-which-is-best) - **SB Nation**
+5. [If Carlsberg Did International Fans’ Day Weekends…](https://rokerreport.sbnation.com/features/134282/if-carlsberg-did-international-fans-day-weekends) - **SB Nation**
+6. [Chelsea 0-3 Manchester City, Premier League: Not much credit to go around](https://weaintgotnohistory.sbnation.com/premier-league/167805/chelsea-0-3-manchester-city-premier-league-not-much-credit-to-go-around) - **SB Nation**
+7. [WNBA Draft Recap: Azzi Fudd Goes No. 1, 5 UCLA Players Selected in 1st Round](https://www.foxsports.com/stories/womens-college-basketball/wnba-draft-recap-azzi-fudd-goes-no-1-5-ucla-players-selected-1st-round) - **Fox Sports**
+8. ['A dream come true for team': SRH pace bowling coach Varun Aaron on Praful Hinge, Sakib Hussain's performance vs RR](https://economictimes.indiatimes.com/news/sports/a-dream-come-true-for-team-srh-pace-bowling-coach-varun-aaron-on-praful-hinge-sakib-hussains-performance-vs-rr/articleshow/130250792.cms) - **The Times of India**
+9. [Ticket info: Crystal Palace v Arsenal](http://www.arsenal.com/tickets/arsenal/2026-May-24/crystal-palace) - **Arsenal.com**
+10. [Bayern Munich News: Manchester United won’t get Harry Kane; AC Milan’s Rafael Leão back on FC Bayern’s radar?; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/187619/bayern-munich-manchester-united-kane-ac-milan-leao-real-madrid-psg-bvb-arsenal-chelsea-fc-barcelona) - **Bavarian Football Works**
 
 
 ---
-*최근 업데이트: 2026-04-15 11:49:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-15 14:27:17 (KST) / (하루 100회 제한 준수 중)*
