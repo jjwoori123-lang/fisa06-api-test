@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Football is being spoiled by time-wasting – what can be done ahead of the World Cup?](https://theconversation.com/football-is-being-spoiled-by-time-wasting-what-can-be-done-ahead-of-the-world-cup-280501) - **The Conversation Africa**
-2. [Who makes Carra's top TEN PL central midfielders?! 'He was a cheat code!'](https://www.skysports.com/football/video/33727/13531618/jamie-carragher-top-10-central-midfielders-in-premier-league-history) - **Sky Sports**
-3. [One moment in time: Haaland lets his hair down!](https://www.mancity.com/news/mens/manchester-city-arsenal-erling-haaland-one-moment-in-time-63911755) - **Manchester City FC**
-4. [Vidic laments ‘soft’ Premier League after Martinez red card](https://thefootballfaithful.com/vidic-laments-soft-premier-league-after-martinez-red-card/) - **The Football Faithful**
-5. [Slot admits Liverpool must be ‘very, very special’ to beat PSG](https://thefootballfaithful.com/slot-admits-liverpool-must-be-very-very-special-to-beat-psg/) - **The Football Faithful**
-6. [Early Liverpool team news vs PSG with Jones passed fit](https://thefootballfaithful.com/early-liverpool-team-news-vs-psg-with-jones-passed-fit/) - **The Football Faithful**
-7. [NFL mock draft roundup: Experts predict first round before draft](https://www.usatoday.com/story/sports/nfl/draft/2026/04/14/2026-nfl-mock-draft-roundup/89596944007/) - **USA Today**
-8. [Champions League Broadcast Producer Sunset+Vine Taps Duncan East as New CEO (EXCLUSIVE)](https://variety.com/2026/tv/global/sunset-vine-duncan-east-new-ceo-1236720205/) - **Variety**
-9. [Erling Haaland revels in Manchester United misery with Snapchat post after Leeds defeat](https://cityxtra.co.uk/44594/erling-haaland-revels-in-manchester-united-misery-with-snapchat-post-after-leeds-defeat/) - **Cityxtra.co.uk**
-10. [A Manchester City winger made his mark against Chelsea and now has Arsenal in his sights](https://esteemedkompany.com/2026/04/14/a-manchester-city-winger-made-his-mark-against-chelsea-and-now-has-arsenal-in-his-sights/) - **Esteemedkompany.com**
+1. [The numbers behind Tottenham’s astounding recent injury record as relegation fears continue to grow](https://hayters.com/the-numbers-behind-tottenhams-astounding-recent-injury-record-as-relegation-fears-continue-to-grow/) - **Hayters.com**
+2. [Real Madrid-linked defender yet to reach renewal agreement with Premier League giants](https://madriduniversal.com/real-madrid-linked-defender-yet-to-reach-renewal-agreement-with-premier-league-giants/) - **Madriduniversal.com**
+3. [Liverpool vs. PSG live stream: How to watch Champions League, odds, start time, channel](https://www.cbssports.com/soccer/news/liverpool-vs-psg-preview-live-stream-how-to-watch-champions-league-odds/) - **CBS Sports**
+4. [Napoli Favor Former Chelsea Boss as Conte’s Successor](https://cultofcalcio.com/napoli-favor-former-chelsea-boss-maresca-as-contes-successor/) - **Cultofcalcio.com**
+5. [Resilience](http://www.toffeeweb.com/season/25-26/news/47464.html) - **Toffeeweb**
+6. [Match Officials: Anthony Taylor to referee Manchester City vs Arsenal](https://cityxtra.co.uk/44617/match-officials-anthony-taylor-to-referee-manchester-city-vs-arsenal/) - **Cityxtra.co.uk**
+7. ['80 teams would be happy to swap theirs with ours' - fans on past 25 years](https://www.bbc.com/sport/football/articles/c1wzwqjq8w4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Ghanaian Premier League player killed in suspected armed robbery attack on team bus](https://nypost.com/2026/04/14/sports/ghanaian-premier-league-player-dominic-frimpong-killed-in-suspected-armed-robbery-attack-on-team-bus/) - **New York Post**
+9. ['Hope' and a 'real shot' at survival](https://www.bbc.com/sport/football/articles/c75ke9qe3dpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-15 19:23:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-15 20:37:55 (KST) / (하루 100회 제한 준수 중)*
