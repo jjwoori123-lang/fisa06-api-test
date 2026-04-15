@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Dembele sends PSG past wounded Liverpool into Champions League semis](https://sports.yahoo.com/articles/dembele-sends-psg-past-wounded-210629334.html) - **Yahoo Entertainment**
-2. [Latest Update On The Injury Of 33-Year-Old Aston Villa Star: Do They Need To Fix After Forest Draw?](https://the4thofficial.net/2026/04/latest-update-on-the-injury-of-33-year-old-aston-villa-star-do-they-need-to-fix-after-forest-draw/) - **The4thofficial.net**
-3. [Cameron Green suffers IPL nightmare with bat and ball](https://www.abc.net.au/news/2026-04-15/green-suffers-ipl-nightmare-with-bat-and-ball/106565678) - **ABC News (AU)**
-4. [Man Utd watch Cherries pair - Wednesday's gossip](https://www.bbc.com/sport/football/articles/cx2660eyeedo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Man Utd watch Cherries pair - Wednesday's gossip](https://www.bbc.com/sport/football/articles/cx2660eyeedo) - **BBC News**
-6. [Fiorentina vs Crystal Palace: Preview](https://www.violanation.com/conference-league/21756/fiorentina-vs-crystal-palace-preview-conference-league-lineup-score-prediction-h2h-dead-rubber) - **Violanation.com**
-7. [Slot bemoans VAR overturning penalty: 'So many decisions go against us'](https://www.skysports.com/football/news/11945/13531865/arne-slot-liverpool-boss-bemoans-var-decision-to-overturn-penalty-in-champions-league-exit-to-psg) - **Sky Sports**
-8. [Ipswich suffer blow to promotion hopes with defeat at Portsmouth](https://www.skysports.com/football/news/11095/13488548/portsmouth-2-0-ipswich-town-pompey-boost-survival-hopes-and-damage-tractor-boys-promotion-aims) - **Sky Sports**
-9. [Everton Interested In €35M French Player Who Is Earning Comparisons With Zidane: Can The Toffees Pull This Off?](https://the4thofficial.net/2026/04/everton-interested-in-e35m-french-player-who-is-earning-comparisons-with-zidane-can-the-toffees-pull-this-off/) - **The4thofficial.net**
-10. [Andoni Iraola’s links to Man United explained – Fabrizio Romano](https://thepeoplesperson.com/2026/04/14/andoni-iraolas-links-to-man-united-explained-fabrizio-romano-308830/) - **The Peoples Person**
+1. [Paul Scholes doubts Arsenal can overcome hurdle to be champions](https://www.justarsenal.com/paul-scholes-doubts-arsenal-can-overcome-hurdle-to-be-champions/413572) - **Just Arsenal News**
+2. [PSG Eliminate Liverpool as Slot’s Future Hangs in Balance](https://anfieldindex.com/93217/psg-eliminate-liverpool-as-slots-future-hangs-in-balance.html) - **Anfieldindex.com**
+3. [‘I think it’s body language’ – Wayne Rooney and Robbie Fowler question Liverpool’s attitude after Champions League defeat](https://www.independent.ie/sport/soccer/champions-league/i-think-its-body-language-wayne-rooney-and-robbie-fowler-question-liverpools-attitude-after-champions-league-defeat/a1594406162.html) - **Independent.ie**
+4. [Konate fumes over Liverpool's rejected penalty in PSG defeat](https://sports.yahoo.com/articles/konate-fumes-over-liverpools-rejected-214609978.html) - **Yahoo Entertainment**
+5. [2026 NFL Mock Draft: Miami Dolphins scouting 6.0](https://www.thephinsider.com/miami-dolphins-draft/117633/2026-miami-dolphins-draft-needs-scouting-mock-draft-6) - **The Phinsider**
+6. [Liverpool's lost season as good as over, UCL elimination vs. PSG underlines questions that remain unanswered](https://www.cbssports.com/soccer/news/liverpools-lost-season-psg-champions-league-mohamed-salah-arne-slot-virgil-van-dijk/) - **CBS Sports**
+7. [Arteta urges Arsenal to play with 'pure fire' after damaging defeats](https://japantoday.com/category/sports/arteta-urges-arsenal-to-play-with-%27pure-fire%27-after-damaging-defeats) - **Japan Today**
+8. [Dembele sends PSG past Liverpool into Champions League semis](https://japantoday.com/category/sports/dembele-sends-psg-past-wounded-liverpool-into-champions-league-semis) - **Japan Today**
+9. [Rio Ferdinand: Why Van de Ven and Djed Spence are the only Spurs players Man United should consider](https://thepeoplesperson.com/2026/04/14/rio-ferdinand-why-van-de-ven-and-djed-spence-are-the-only-spurs-players-man-united-should-consider-308826/) - **The Peoples Person**
+10. [PSG beats Liverpool at Anfield to reach the Champions League semifinals](https://www.marca.com/en/football/champions-league/2026/04/14/69deb14946163f55488b45db.html) - **Marca**
 
 
 ---
-*최근 업데이트: 2026-04-16 06:09:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-16 07:06:27 (KST) / (하루 100회 제한 준수 중)*
