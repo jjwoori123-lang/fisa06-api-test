@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Celtic’s 2023 managerial contender leaves Bournemouth but ship has sailed](https://thecelticstar.com/celtics-2023-managerial-contender-leaves-bournemouth-but-ship-has-sailed/) - **The Celtic Star**
-2. [Spinners earn Chennai a 32-run victory and leave Kolkata still searching for first IPL win](https://sports.yahoo.com/articles/spinners-earn-chennai-32-run-183021583.html) - **Yahoo Entertainment**
-3. [Terry attends Colchester game amid takeover reports](https://www.bbc.com/sport/football/articles/cx2rr31drwxo) - **BBC News**
-4. [Celtic Sent Scouts To Monitor This Decorated Scottish Centre-back: Should They Pursue A Summer Transfer?](https://the4thofficial.net/2026/04/celtic-sent-scouts-to-monitor-this-decorated-scottish-centre-back-should-they-pursue-a-summer-transfer/) - **The4thofficial.net**
-5. [IPL 2026: CSK crush KKR by 32 runs](https://economictimes.indiatimes.com/news/sports/ipl-2026-csk-crush-kkr-by-32-runs/articleshow/130266497.cms) - **The Times of India**
-6. [Fermanagh man Kieran McKenna linked to Bournemouth hot seat after Andoni Iraola confirms summer exit](https://www.independent.ie/sport/soccer/premier-league/fermanagh-man-kieran-mckenna-linked-to-bournemouth-hot-seat-after-andoni-iraola-confirms-summer-exit/a1714132072.html) - **Independent.ie**
-7. [Leeds United Backed To Retain This Essential Star In The Squad: Will It Build For The Long Run?](https://the4thofficial.net/2026/04/leeds-united-backed-to-retain-this-essential-star-in-the-squad-will-it-build-for-the-long-run/) - **The4thofficial.net**
-8. [Christ Inao Oulai: Chelsea make key decision on pursuit of United target](https://thepeoplesperson.com/2026/04/14/christ-inao-oulai-chelsea-make-key-decision-on-pursuit-of-united-target-308806/) - **The Peoples Person**
-9. [Ben Stokes says talk of Brendon McCullum rift ‘massive overstatement’](https://www.nzherald.co.nz/sport/cricket/ben-stokes-says-talk-of-brendon-mccullum-rift-massive-overstatement/2SE5XG36B5FXNCPN7QLALC4WGQ/) - **New Zealand Herald**
+1. [Amazon Prime Video bundles Apple TV and Peacock for $19.99/mo. for a limited time](https://macdailynews.com/2026/04/14/amazon-prime-video-bundles-apple-tv-and-peacock-for-19-99-mo-for-a-limited-time/) - **Macdailynews.com**
+2. [Sunderland Receive Positive Boost In 24-Year-Old Striker’s Signing: Would He Imrpove The Attack?](https://the4thofficial.net/2026/04/sunderland-receive-positive-boost-in-24-year-old-strikers-signing-would-he-imrpove-the-attack/) - **The4thofficial.net**
+3. [IPL 2026: Noor Ahmad stars as CSK keeps KKR winless in cricket tournament](https://economictimes.indiatimes.com/news/sports/ipl-2026-noor-ahmad-stars-as-csk-keeps-kkr-winless-in-cricket-tournament/articleshow/130268067.cms) - **The Times of India**
+4. [Aston Villa ready to keep Jadon Sancho but he is keen on another dream club](https://thepeoplesperson.com/2026/04/14/aston-villa-ready-to-keep-jadon-sancho-but-he-is-keen-on-another-dream-club-308825/) - **The Peoples Person**
+5. [Eze, Norgaard And Hincapie To Start | 4-2-3-1 Arsenal Predicted Lineup Vs Sporting CP](https://the4thofficial.net/2026/04/eze-norgaard-and-hincapie-to-start-4-2-3-1-arsenal-predicted-lineup-vs-sporting-cp/) - **The4thofficial.net**
+6. [PREVIEW | Fiorentina vs Crystal Palace - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-fiorentina-vs-crystal-palace-team-news-lineups-predictions/1094734) - **Playmakerstats.com**
+7. [PREVIEW | Aston Villa vs Bologna - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-aston-villa-vs-bologna-team-news-lineups-predictions/1094729) - **Playmakerstats.com**
+8. [PSG Starting Lineup Against Liverpool Revealed](https://psgtalk.com/2026/04/psg-starting-lineup-against-liverpool-revealed/) - **Psgtalk.com**
+9. [PREVIEW | Nottingham Forest vs FC Porto - team news, lineups, predictions](https://www.playmakerstats.com/news/preview-nottingham-forest-vs-fc-porto-team-news-lineups-predictions/1094723) - **Playmakerstats.com**
+10. [Juve-linked Marcos Senesi likely to stay in the Premier League](https://www.getfootballnewsitaly.com/2026/juve-linked-marcos-senesi-likely-to-stay-in-the-premier-league/) - **Getfootballnewsitaly.com**
 
 
 ---
-*최근 업데이트: 2026-04-16 03:45:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-16 05:04:31 (KST) / (하루 100회 제한 준수 중)*
