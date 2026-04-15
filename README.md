@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The numbers behind Tottenham’s astounding recent injury record as relegation fears continue to grow](https://hayters.com/the-numbers-behind-tottenhams-astounding-recent-injury-record-as-relegation-fears-continue-to-grow/) - **Hayters.com**
-2. [Real Madrid-linked defender yet to reach renewal agreement with Premier League giants](https://madriduniversal.com/real-madrid-linked-defender-yet-to-reach-renewal-agreement-with-premier-league-giants/) - **Madriduniversal.com**
-3. [Liverpool vs. PSG live stream: How to watch Champions League, odds, start time, channel](https://www.cbssports.com/soccer/news/liverpool-vs-psg-preview-live-stream-how-to-watch-champions-league-odds/) - **CBS Sports**
-4. [Napoli Favor Former Chelsea Boss as Conte’s Successor](https://cultofcalcio.com/napoli-favor-former-chelsea-boss-maresca-as-contes-successor/) - **Cultofcalcio.com**
-5. [Resilience](http://www.toffeeweb.com/season/25-26/news/47464.html) - **Toffeeweb**
-6. [Match Officials: Anthony Taylor to referee Manchester City vs Arsenal](https://cityxtra.co.uk/44617/match-officials-anthony-taylor-to-referee-manchester-city-vs-arsenal/) - **Cityxtra.co.uk**
-7. ['80 teams would be happy to swap theirs with ours' - fans on past 25 years](https://www.bbc.com/sport/football/articles/c1wzwqjq8w4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Ghanaian Premier League player killed in suspected armed robbery attack on team bus](https://nypost.com/2026/04/14/sports/ghanaian-premier-league-player-dominic-frimpong-killed-in-suspected-armed-robbery-attack-on-team-bus/) - **New York Post**
-9. ['Hope' and a 'real shot' at survival](https://www.bbc.com/sport/football/articles/c75ke9qe3dpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [It's time for Arne Slot to roll the dice on Rio Ngumoha as Liverpool bid for a famous Anfield night against PSG](https://www.footballmuse.com/features/its-time-for-arne-slot-to-roll-the-dice-on-rio-ngumoha-as-liverpool-bid-for-a-famous-anfield-night-against-psg) - **Footballmuse.com**
+2. [Arsenal injury latest includes surprise training absentee](https://dailycannon.com/2026/04/arsenal-sporting-rice-injury/) - **Dailycannon.com**
+3. [India cricket slammed for ‘Orwellian’ control of global game by Wisden](https://www.aljazeera.com/sports/2026/4/14/india-cricket-slammed-for-orwellian-control-of-global-game-by-wisden) - **Al Jazeera English**
+4. [Liverpool and Manchester United scouting RB Leipzig captain David Raum](https://bulinews.com/liverpool-and-manchester-united-scouting-leipzig-captain-david-raum) - **Bulinews.com**
+5. [Chennai Super Kings vs Kolkata Knight Riders Live Score Updates, IPL 2026: Head-to-Head](https://economictimes.indiatimes.com/news/sports/csk-vs-kkr-ipl-live-score-updates-chennai-super-kings-vs-kolkata-knight-riders-live-match-score-today-14-april-2026/liveblog/130259512.cms) - **The Times of India**
+6. [Ferdinand calls for explanation from PGMOL after Martinez red card against Leeds](https://thepeoplesperson.com/2026/04/14/ferdinand-calls-for-explanation-from-pgmol-after-martinez-red-card-against-leeds-308794/) - **The Peoples Person**
+7. [When will Red Sox closer Aroldis Chapman hit the wall?](https://www.overthemonster.com/red-sox-analysis/98545/when-will-red-sox-closer-aroldis-chapman-hit-the-wall) - **Over The Monster**
+8. [Gary Neville blasts ‘biased’ Jamie Carragher’s all-time Premier League midfielder list, as he weighs in on Tottenham](https://www.independent.ie/sport/soccer/premier-league/gary-neville-blasts-biased-jamie-carraghers-all-time-premier-league-midfielder-list-as-he-weighs-in-on-tottenham/a2132750212.html) - **Independent.ie**
+9. [Is this Leicester's last chance to avoid relegation?](https://www.bbc.com/sport/football/articles/cz677j79g6yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Neuer not set for Premier League transfer despite reports](https://thefootballfaithful.com/neuer-not-set-for-premier-league-transfer-despite-reports/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-04-15 20:37:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-15 21:44:29 (KST) / (하루 100회 제한 준수 중)*
