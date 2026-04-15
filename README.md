@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Aston Villa confirmed as potential summer suitor for Manchester City goalkeeper](https://cityxtra.co.uk/44644/aston-villa-confirmed-as-potential-summer-suitor-for-manchester-city-goalkeeper/) - **Cityxtra.co.uk**
-2. [Important offseason dates coming up for Colts](https://www.stampedeblue.com/indianapolis-colts-news/123351/important-offseason-dates-coming-up-for-colts) - **Stampede Blue**
-3. [‘There is no fear. Pure fire. That’s it’ – Mikel Arteta says Arsenal have no concerns about collapse](https://www.independent.ie/sport/soccer/premier-league/there-is-no-fear-pure-fire-thats-it-mikel-arteta-says-arsenal-have-no-concerns-about-collapse/a294808640.html) - **Independent.ie**
-4. [Roy Keane judges Man United’s European chances after Leeds loss](https://thepeoplesperson.com/2026/04/14/roy-keane-judges-man-uniteds-european-chances-after-leeds-loss-308800/) - **The Peoples Person**
-5. [Bayern Munich will compete with Arsenal for Premier League star](https://www.justarsenal.com/bayern-munich-will-compete-with-arsenal-for-premier-league-star/413562) - **Just Arsenal News**
-6. [US Soccer sporting director abandons program two months before World Cup](https://nypost.com/2026/04/14/sports/u-s-soccer-head-matt-crocker-abandons-program-before-world-cup/) - **New York Post**
-7. [Bayern Munich identify Anthony Gordon as leading target for summer](https://footballtoday.com/2026/04/14/bayern-munich-identify-anthony-gordon-as-leading-target-for-summer/) - **Footballtoday.com**
-8. [How to watch Arsenal vs Sporting Lisbon live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-arsenal-vs-sporting-lisbon-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
-9. ['Legend' Robertson still best left-back at Liverpool - Adam](https://www.bbc.com/sport/articles/c1krr4ld0emo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Man City's Semenyo highlights further racial abuse](https://www.bbc.com/sport/football/articles/c5yww2pl869o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Celtic’s 2023 managerial contender leaves Bournemouth but ship has sailed](https://thecelticstar.com/celtics-2023-managerial-contender-leaves-bournemouth-but-ship-has-sailed/) - **The Celtic Star**
+2. [Spinners earn Chennai a 32-run victory and leave Kolkata still searching for first IPL win](https://sports.yahoo.com/articles/spinners-earn-chennai-32-run-183021583.html) - **Yahoo Entertainment**
+3. [Terry attends Colchester game amid takeover reports](https://www.bbc.com/sport/football/articles/cx2rr31drwxo) - **BBC News**
+4. [Celtic Sent Scouts To Monitor This Decorated Scottish Centre-back: Should They Pursue A Summer Transfer?](https://the4thofficial.net/2026/04/celtic-sent-scouts-to-monitor-this-decorated-scottish-centre-back-should-they-pursue-a-summer-transfer/) - **The4thofficial.net**
+5. [IPL 2026: CSK crush KKR by 32 runs](https://economictimes.indiatimes.com/news/sports/ipl-2026-csk-crush-kkr-by-32-runs/articleshow/130266497.cms) - **The Times of India**
+6. [Fermanagh man Kieran McKenna linked to Bournemouth hot seat after Andoni Iraola confirms summer exit](https://www.independent.ie/sport/soccer/premier-league/fermanagh-man-kieran-mckenna-linked-to-bournemouth-hot-seat-after-andoni-iraola-confirms-summer-exit/a1714132072.html) - **Independent.ie**
+7. [Leeds United Backed To Retain This Essential Star In The Squad: Will It Build For The Long Run?](https://the4thofficial.net/2026/04/leeds-united-backed-to-retain-this-essential-star-in-the-squad-will-it-build-for-the-long-run/) - **The4thofficial.net**
+8. [Christ Inao Oulai: Chelsea make key decision on pursuit of United target](https://thepeoplesperson.com/2026/04/14/christ-inao-oulai-chelsea-make-key-decision-on-pursuit-of-united-target-308806/) - **The Peoples Person**
+9. [Ben Stokes says talk of Brendon McCullum rift ‘massive overstatement’](https://www.nzherald.co.nz/sport/cricket/ben-stokes-says-talk-of-brendon-mccullum-rift-massive-overstatement/2SE5XG36B5FXNCPN7QLALC4WGQ/) - **New Zealand Herald**
 
 
 ---
-*최근 업데이트: 2026-04-16 02:34:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-16 03:45:40 (KST) / (하루 100회 제한 준수 중)*
