@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How to buy Premier League tickets to Chelsea vs. Man United](https://football-italia.net/buy-premier-league-tickets-chelsea-man-united/) - **Football Italia**
-2. [Manchester United defence dealt further blow after FA’s Maguire ruling](https://www.101greatgoals.com/football/premier-league/manchester-united-maguire-suspension/) - **101 Great Goals**
-3. [Maguire gets extra ban and will miss Chelsea trip](https://www.bbc.com/sport/football/articles/cjr99vpwd2go) - **BBC News**
-4. [Eze insists Arsenal understands the opportunity before them this season](https://www.justarsenal.com/eze-insists-arsenal-understands-the-opportunity-before-them-this-season/413618) - **Just Arsenal News**
-5. [PlayStation Plus Game Catalog and Classics Catalog lineup for April 2026 announced](https://www.gematsu.com/2026/04/playstation-plus-game-catalog-and-classics-catalog-lineup-for-april-2026-announced) - **Gematsu**
-6. ['He's earned chance to take us onwards and upwards' - fan views on Farke](https://www.bbc.com/sport/football/articles/c62kkjld2k7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Sparks star Cameron Brink shows off toned abs at Coachella ahead of highly anticipated WNBA season](https://www.foxnews.com/sports/sparks-star-cameron-brink-shows-toned-abs-coachella-ahead-highly-anticipated-wnba-season) - **Fox News**
-8. [PlayStation Plus Game Catalog for April: The Crew Motorfest, Horizon Zero Dawn Remastered, Football Manager 26 Console, Warriors: Abyss and more](https://blog.playstation.com/2026/04/15/playstation-plus-game-catalog-for-april-the-crew-motorfest-horizon-zero-dawn-remastered-football-manager-26-console-warriors-abyss-and-more/) - **Playstation.com**
-9. [Who are Fabio and Rafael's favourite current Reds?](https://www.manutd.com/en/news/detail/fabio-and-rafael-da-silva-reveal-favourite-man-utd-players) - **Manchester United**
+1. [Bayern Munich express interest in Newcastle United star Antony Gordon](https://bulinews.com/bayern-munich-express-interest-newcastle-united-star-antony-gordon) - **Bulinews.com**
+2. [Hugo Ekitike’s season-ending injury reportedly accelerates Liverpool plans, adding a striker reinforcement](https://worldsoccertalk.com/news/hugo-ekitikes-season-ending-injury-reportedly-accelerates-liverpool-plans-adding-a-striker-reinforcement/) - **Worldsoccertalk.com**
+3. [Crystal Palace make ‘millionaire offer’ to Andoni Iraola to succeed Oliver Glasner](https://footballtoday.com/2026/04/15/crystal-palace-make-millionaire-offer-to-andoni-iraola-to-succeed-oliver-glasner/) - **Footballtoday.com**
+4. [Resilience](http://www.toffeeweb.com/season/25-26/comment/editorial/47464.html) - **Toffeeweb**
+5. [How to buy Premier League tickets for Manchester City vs. Arsenal](https://football-italia.net/buy-tickets-manchester-city-v-arsenal-title/) - **Football Italia**
+6. [All You Need is Kill Now on Digital, Arriving on Blu-Ray July 7th, 2026](https://www.animenewsnetwork.com/press-release/2026-04-15/all-you-need-is-kill-now-on-digital-arriving-on-blu-ray-july-7th-2026/.236415) - **Anime News Network**
+7. [Manchester United Outcast Offered to Top Serie A Clubs](https://cultofcalcio.com/manchester-united-ugarte-outcast-offered-to-top-serie-a-clubs/) - **Cultofcalcio.com**
+8. [Man City supporting Semenyo after further racist abuse](https://www.skysports.com/football/news/11095/13532227/antoine-semenyo-manchester-city-supporting-forward-after-further-racist-abuse) - **Sky Sports**
+9. [Preview: Palace look toward Conference League semi-finals as they take big lead to Florence](https://wp.fromthespot.co.uk/28135/preview-palace-look-toward-conference-league-semi-finals-as-they-take-big-lead-to-florence-2/) - **Fromthespot.co.uk**
 
 
 ---
-*최근 업데이트: 2026-04-17 00:59:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-17 02:25:15 (KST) / (하루 100회 제한 준수 중)*
