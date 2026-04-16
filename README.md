@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal out of ideas, says Mikel](https://punchng.com/arsenal-out-of-ideas-says-mikel/) - **The Punch**
-2. [Chelle to scout NPFL, foreign players for Unity Cup](https://punchng.com/chelle-to-scout-npfl-foreign-players-for-unity-cup/) - **The Punch**
-3. [Sanusi rejects EPL move](https://punchng.com/sanusi-rejects-epl-move/) - **The Punch**
-4. [Dembele double fires PSG past Liverpool to Champions League semis](https://www.rediff.com/sports/report/psg-vs-liverpool-dembeles-goals-secure-champions-league-semi-final-spot/20260415.htm) - **Rediff.com**
-5. [Dianna Russini resigns from The Athletic. Here's how we got here](https://www.usatoday.com/story/sports/nfl/2026/04/14/why-did-dianna-russini-resign-mike-vrabel-timeline/89611739007/) - **USA Today**
-6. [Matt Crocker Leaves U.S. Soccer: Is This A Big Deal? Does It Affect Pochettino?](https://www.foxsports.com/stories/soccer/matt-crocker-us-soccer-pochettino-usmnt-world-cup) - **Fox Sports**
-7. [Alexi Lalas Criticizes Matt Crocker's U.S. Soccer Exit: 'Unnecessary Own Goal'](https://www.foxsports.com/stories/soccer/ussoccer-matt-crocker-exit-alexi-lalas-world-cup) - **Fox Sports**
-8. [The Athletic editor says 'new questions were raised' amid Dianna Russini investigation](https://www.usatoday.com/story/sports/nfl/2026/04/14/dianna-russini-the-athletic-resignation-vrabel-investigation-response/89614497007/) - **USA Today**
-9. [FPL Podcast from BBC Sport](https://www.bbc.co.uk/sounds/play/p0ndd899?at_campaign=rss) - **BBC News**
-10. [Digging Deeper Into Liverpool’s 0-2 (0-4 agg.) Defeat to PSG](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/79863/liverpool-0-psg-2-champions-league-2025-26-tactics-narrative-mohamed-salah-hugo-ekitike) - **SB Nation**
+1. [Champions League teams: where do they stand](https://untold-arsenal.com/archives/120426) - **Untold-arsenal.com**
+2. [Should Arsenal sack Mikel Arteta if they don't win a trophy? Gunners manager's future may hang in the balance](https://www.sportingnews.com/us/soccer/arsenal/news/should-arsenal-sack-mikel-arteta-trophy-manager-gunners/a33d9906d1a73e48e4f7715c) - **Sporting News**
+3. [Wednesday’s Everton News: Arsenal defender and Genk striker linked, Grealish latest](https://royalbluemersey.sbnation.com/everton-news/79382/arsenal-defender-mosquera-genk-striker-mirisola-linked-grealish-latest) - **SB Nation**
+4. [Preview: Arsenal v Sporting CP](http://www.arsenal.com/news/preview-arsenal-v-sporting-cp-0) - **Arsenal.com**
+5. [Liverpool's worst fears come true with Ekitike heart-break](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpools-worst-fears-come-true-as-attacker-forced-off/) - **Anfieldwatch.co.uk**
+6. [IPL 2026, RCB vs LSG Playing 11 Today Match: Will Royal Challengers Bengaluru stick to same side against Lucknow Super Giants?](https://indianexpress.com/article/sports/cricket/ipl-2026-rcb-vs-lsg-playing-11-today-match-josh-hazlewood-rajat-patidar-rishabh-pant-10636887/) - **The Indian Express**
+7. [ Thanks for nothing! CL VAR shows ref the wrong penalty area!](https://onefootball.com/en/news/thanks-for-nothing-cl-var-shows-ref-the-wrong-penalty-area-42712941) - **Onefootball.com**
+8. [Does it matter if Wrexham don't get promoted this season?](https://www.bbc.com/sport/football/articles/cedeeyed2ppo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Does it matter if Wrexham don't get promoted this season?](https://www.bbc.com/sport/football/articles/cedeeyed2ppo) - **BBC News**
+10. [Seán Moran: Despite renewed signs of life, are the provincial championships on borrowed time?](https://www.irishtimes.com/sport/gaelic-games/2026/04/15/sean-moran-despite-renewed-signs-of-life-are-the-provincial-championships-on-borrowed-time/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-04-16 12:49:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-16 15:03:36 (KST) / (하루 100회 제한 준수 중)*
