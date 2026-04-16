@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [David Moyes Is Not Ready To Let 23-Year-Old Leave: Should Everton Gamble On Him Staying Fit?](https://the4thofficial.net/2026/04/david-moyes-is-not-ready-to-let-23-year-old-leave-should-everton-gamble-on-him-staying-fit/) - **The4thofficial.net**
-2. [Morten Hjulmand: Why Man United are leading race to sign Sporting midfielder](https://thepeoplesperson.com/2026/04/15/morten-hjulmand-why-man-united-are-leading-race-to-sign-sporting-midfielder-308870/) - **The Peoples Person**
-3. [Bayern Munich 4-3 Real Madrid (6-4 agg): Late Diaz and Olise goals send hosts to semi-finals after Champions League classic](https://www.101greatgoals.com/football/champions-league/bayern-munich-real-madrid-report-result-goals-champions-league/) - **101 Great Goals**
-4. [No fire, some fear but Arsenal edge Sporting to reach CL semi-finals](https://www.skysports.com/football/news/11095/13531432/arsenal-0-0-sporting-agg-1-0-gunners-earn-champions-league-semi-final-spot-after-nervous-draw-at-the-emirates) - **Sky Sports**
-5. [Papers: Mourinho to replace Howe as Newcastle boss?](https://www.skysports.com/football/news/11095/13532331/jose-mourinho-to-replace-eddie-howe-as-newcastle-boss-paper-talk-and-football-transfer-gossip) - **Sky Sports**
-6. [Report: Arsenal 0-0 Sporting CP (agg 1-0)](http://www.arsenal.com/fixture/arsenal/2026-Apr-15/arsenal-0-0-sporting-cp-match-report) - **Arsenal.com**
-7. [Bournemouth Interested In Former Leipzig Manager](https://eplindex.com/145322/bournemouth-interested-in-former-leipzig-manager.html) - **English Premier League Index - Opta Stats**
-8. [Manchester United Are Facing Stiff Competition For This Talented Defender: Is He Worth The Fight?](https://the4thofficial.net/2026/04/manchester-united-are-facing-stiff-competition-for-this-talented-defender/) - **The4thofficial.net**
-9. [Dianna Russini out of job 5 months after 'pissing off' Steve Sarkisian](https://longhornswire.usatoday.com/story/sports/college/longhorns/football/2026/04/15/dianna-russini-out-at-athletic-months-after-angering-texas-sarkisian/89630455007/) - **USA Today**
+1. [Arteta hails 'huge boost' as Arsenal reach CL semis - but problems remain](https://www.skysports.com/football/news/11095/13532338/arsenals-attacking-issues-remain-a-big-problem-despite-mikel-artetas-side-reaching-champions-league-semi-finals-again) - **Sky Sports**
+2. [Arsenal scrap through to semis, Munich win thriller over Real Madrid](https://www.abc.net.au/news/2026-04-16/uefa-champions-league-arsenal-sporting-bayern-munich-real-madrid/106570008) - **ABC News (AU)**
+3. [Arsenal survives tense Sporting stalemate to reach Champions League semis](https://japantoday.com/category/sports/arsenal-survive-tense-sporting-stalemate-to-reach-champions-league-semis) - **Japan Today**
+4. [Bayern topple Real Madrid in classic as Arsenal also make semis](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260415-99-137935/) - **Dpa-international.com**
+5. [Da Silva twins name favourite Man United stars, back one for impressive feat](https://thepeoplesperson.com/2026/04/15/da-silva-twins-name-favourite-man-united-stars-back-one-for-impressive-feat-308869/) - **The Peoples Person**
+6. [Arsenal advances to Champions League semifinals for the second year in a row](https://www.marca.com/en/football/champions-league/2026/04/15/69e002f5e2704eaf598b45b2.html) - **Marca**
+7. [27-Year-Old Leeds United Player’s Agent Backed To Push For A Coventry City Move: Long-Term Deal Needed?](https://the4thofficial.net/2026/04/27-year-old-leeds-united-players-agent-backed-to-push-for-a-coventry-city-move-long-term-deal-needed/) - **The4thofficial.net**
+8. [Edgy Arsenal squeeze past Sporting Lisbon to set up Atlético semi-final](https://www.irishtimes.com/sport/soccer/2026/04/15/edgy-arsenal-squeeze-past-sporting-lisbon-to-set-up-atletico-semi-final/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-04-17 06:05:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-17 07:01:25 (KST) / (하루 100회 제한 준수 중)*
