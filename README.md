@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Rafael and Fabio Da Silva weigh in on Carrick’s chances of permanent role](https://thepeoplesperson.com/2026/04/16/rafael-and-fabio-da-silva-weigh-in-on-carricks-chances-of-permanent-role-308896/) - **The Peoples Person**
-2. [Richard Hughes wants deal for incredible Premier League rookie of the year](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-bournemouth-richard-hughes-eli-junior-kroupi/) - **Anfieldwatch.co.uk**
-3. [Manchester City midfielder Bernardo Silva confirms summer departure](https://www.upi.com/Sports_News/Soccer/2026/04/16/england-Manchester-City-Bernardo-Silva-summer-exit/7241776353924/) - **UPI.com**
-4. [FPL: Dump this quintet – including Mbeumo and Rice – before double gameweek 33](https://www.101greatgoals.com/football/fantasy/fpl-dump-this-quintet-including-mbeumo-and-rice-before-double-gameweek-33/) - **101 Great Goals**
-5. [Report: Chelsea have joined the race to sign Premier League defender](https://eplindex.com/145363/report-chelsea-have-joined-the-race-to-sign-premier-league-defender.html) - **English Premier League Index - Opta Stats**
-6. [Chelsea boss Rosenior insists Fernandez saga has not divided players](https://www.101greatgoals.com/football/premier-league/chelsea-rosenior-hails-fernandez-return/) - **101 Great Goals**
-7. [Saudis now want sports to make money, clouding LIV Golf’s future](https://financialpost.com/news/economy/saudis-want-sports-make-money-liv-golf) - **Financial Post**
-8. [Former Arsenal goalkeeper Alex Manninger killed in road accident, aged 48](https://www.the42.ie/alex-manninger-death-7014823-Apr2026/) - **The42**
-9. [Pickford sets sights on a ‘European tour’ for the Toffees](http://www.toffeeweb.com/season/25-26/news/47471.html) - **Toffeeweb**
+1. [Jose Mourinho Has Entered the Newcastle Conversation](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c1019abe-8487-4c15-afe5-ddaccdbd0550) - **Yahoo Entertainment**
+2. [Report: Liverpool could trigger €80m clause to sign midfielder](https://anfieldindex.com/93238/report-liverpool-could-trigger-e80m-clause-to-sign-midfielder.html) - **Anfieldindex.com**
+3. [Remembering the Last Two Times Italy Didn’t Have a Single European Semifinalist](https://football-italia.net/remembering-last-2-times-italy-euro-semifinal/) - **Football Italia**
+4. [Report: Virgil van Dijk will not renew Liverpool contract, making the Reds push to sign Marcos Senesi](https://worldsoccertalk.com/news/report-virgil-van-dijk-will-not-renew-liverpool-contract-making-the-reds-push-to-sign-marcos-senesi/) - **Worldsoccertalk.com**
+5. [Report: Liverpool and Man United set to battle over international manager](https://eplindex.com/145365/report-liverpool-and-man-united-set-to-battle-over-international-manager.html) - **English Premier League Index - Opta Stats**
+6. [Manchester City confirm Bernardo Silva will leave at the end of the season](https://www.independent.ie/sport/soccer/premier-league/manchester-city-confirm-bernardo-silva-will-leave-at-the-end-of-the-season/a1523826627.html) - **Independent.ie**
+7. [2026 NFL Draft final big board: 4 defenders rank in top 5, and perhaps a surprise WR1](https://sports.yahoo.com/nfl/article/2026-nfl-draft-final-big-board-4-defenders-rank-in-top-5-and-perhaps-a-surprise-wr1-174645731.html) - **Yahoo Entertainment**
+8. [Sutton's predictions v boxer Molly McCann & the Boo Radleys](https://www.bbc.com/sport/football/articles/c78lxvzl3d4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Sutton's predictions v boxer Molly McCann & the Boo Radleys](https://www.bbc.com/sport/football/articles/c78lxvzl3d4o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-18 02:10:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-18 03:08:08 (KST) / (하루 100회 제한 준수 중)*
