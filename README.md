@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool favourites to land Marcos Senesi](https://www.playmakerstats.com/news/liverpool-favourites-to-land-marcos-senesi/1096361) - **Playmakerstats.com**
-2. [These 5 European giants doomed to a trophyless season](https://onefootball.com/en/news/these-5-european-giants-doomed-to-a-trophyless-season-42719516) - **Onefootball.com**
-3. [How this cheeky soccer maverick has shaken up the Premier League title race](https://sports.yahoo.com/articles/cheeky-soccer-maverick-shaken-premier-093853932.html) - **Yahoo Entertainment**
-4. [Video: West Ham legend Di Canio in pain after table headbutt during Italy rant on live TV](https://football-italia.net/di-canio-italy-pain-headbutt-live-tv-rant/) - **Football Italia**
-5. [Pundit questions referee choice for Man City v Arsenal](https://www.justarsenal.com/pundit-questions-referee-choice-for-man-city-v-arsenal/413627) - **Just Arsenal News**
-6. ['Rubbish': Critic launches astonishing attack on Virgil van Dijk](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-rubbish-critic-launches-astonishing-attack-on-virgil-van-dijk/) - **Anfieldwatch.co.uk**
-7. [Connolly's comments to be welcomed, but must be actioned](https://www.rte.ie/sport/hurling/2026/0416/1568525-connollys-comments-to-be-welcomed-but-must-be-actioned/) - **RTE**
-8. [Floyd ‘Money’ Mayweather and the blown billion dollar fortune](https://www.irishtimes.com/sport/2026/04/16/floyd-money-mayweather-and-the-blown-billion-dollar-fortune/) - **The Irish Times**
-9. [Perez? McKenna? Lampard? - 'I back the board to get the right man in'](https://www.bbc.com/sport/football/articles/cj37pj5ymxmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Report: Liverpool are leading the race to sign Premier League star this summer](https://anfieldindex.com/93231/report-liverpool-are-leading-the-race-to-sign-premier-league-star-this-summer.html) - **Anfieldindex.com**
+1. [4 reminders to keep yourself grounded during the NFL Draft](https://www.patspulpit.com/new-england-patriots-draft/124807/reminders-contracts-rosters-picks) - **Pats Pulpit**
+2. [Manchester United plot bid for Nottingham Forest defender](https://thefootballfaithful.com/manchester-united-plot-bid-for-nottingham-forest-defender/) - **The Football Faithful**
+3. [Anthony Gordon keen to explore Newcastle exit this summer](https://thefootballfaithful.com/anthony-gordon-keen-to-explore-newcastle-exit-this-summer/) - **The Football Faithful**
+4. [Angelo Stiller believes Stuttgart deserve Champions League football](https://bulinews.com/angelo-stiller-believes-stuttgart-deserve-champions-league-football) - **Bulinews.com**
+5. [Richard Rios: Manchester United enter race to sign Benfica midfielder](https://thepeoplesperson.com/2026/04/16/richard-rios-manchester-united-enter-race-to-sign-benfica-midfielder-308884/) - **The Peoples Person**
+6. [Report: Jose Mourinho could be set to replace Eddie Howe at Newcastle United](https://eplindex.com/145346/report-jose-mourinho-could-be-set-to-replace-eddie-howe-at-newcastle-united.html) - **English Premier League Index - Opta Stats**
+7. [Neville puts laughable £60m price tag on Szoboszlai](https://www.empireofthekop.com/2026/04/16/neville-puts-laughable-60m-price-tag-on-szoboszlai/) - **Empire of The Kop**
+8. [Barcelona among clubs closely tracking 15-year-old Man United wonderkid](https://barcauniversal.com/barcelona-among-clubs-closely-tracking-15-year-old-man-united-wonderkid/) - **Barcauniversal.com**
+9. [Liverpool confirm Ekitike out for season, will miss World Cup](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a2bf2798-f889-4da2-86a9-098be2b8a22c) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-04-17 18:50:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-17 20:00:21 (KST) / (하루 100회 제한 준수 중)*
