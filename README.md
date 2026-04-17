@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['Zero fear' - Millwall boss Neil urges Lions to embrace promotion challenge](https://www.skysports.com/football/news/11735/13532570/millwall-alex-neil-urges-lions-to-embrace-championship-promotion-battle-as-race-for-second-automatic-spot-and-play-off-places-heats-up) - **Sky Sports**
-2. [‘We have made too many errors’ – Declan Rice demands Arsenal improve ahead of ‘title-defining’ match at Man City](https://www.independent.ie/sport/soccer/premier-league/we-have-made-too-many-errors-declan-rice-demands-arsenal-improve-ahead-of-title-defining-match-at-man-city/a59267631.html) - **Independent.ie**
-3. [What does Manchester City vs Arsenal mean for this season... and beyond?](https://www.nbcsports.com/soccer/news/what-does-manchester-city-vs-arsenal-mean-for-this-season-and-beyond) - **NBCSports.com**
-4. [Arsenal ex-goalkeeper Manninger dies after car struck by train](https://sports.yahoo.com/articles/arsenal-ex-goalkeeper-manninger-dies-161235009.html) - **Yahoo Entertainment**
-5. [Time running out to make Champions League - Rosenior](https://www.bbc.com/sport/football/articles/cly0pd57eyno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [How Premier League title scenarios could swing from result of Manchester City vs Arsenal](https://www.nbcsports.com/soccer/news/how-premier-league-title-scenarios-could-swing-from-result-of-manchester-city-vs-arsenal) - **NBCSports.com**
-7. [FAW posts loss for 2025 despite record revenue](https://www.bbc.com/sport/football/articles/ckgrp407vpko) - **BBC News**
-8. [Arteta knows Arsenal has to improve as a team](https://www.justarsenal.com/arteta-knows-arsenal-has-to-improve-as-a-team/413683) - **Just Arsenal News**
-9. [Alex Manninger dead at 48: Tributes made after passing of ex-Arsenal, Liverpool goalkeeper](https://www.sportingnews.com/us/soccer/news/alex-manninger-dead-48-tributes-arsenal-liverpool/dff7e9a12e48831750ccfc8c) - **Sporting News**
+1. [Rafael and Fabio Da Silva weigh in on Carrick’s chances of permanent role](https://thepeoplesperson.com/2026/04/16/rafael-and-fabio-da-silva-weigh-in-on-carricks-chances-of-permanent-role-308896/) - **The Peoples Person**
+2. [Richard Hughes wants deal for incredible Premier League rookie of the year](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-bournemouth-richard-hughes-eli-junior-kroupi/) - **Anfieldwatch.co.uk**
+3. [Manchester City midfielder Bernardo Silva confirms summer departure](https://www.upi.com/Sports_News/Soccer/2026/04/16/england-Manchester-City-Bernardo-Silva-summer-exit/7241776353924/) - **UPI.com**
+4. [FPL: Dump this quintet – including Mbeumo and Rice – before double gameweek 33](https://www.101greatgoals.com/football/fantasy/fpl-dump-this-quintet-including-mbeumo-and-rice-before-double-gameweek-33/) - **101 Great Goals**
+5. [Report: Chelsea have joined the race to sign Premier League defender](https://eplindex.com/145363/report-chelsea-have-joined-the-race-to-sign-premier-league-defender.html) - **English Premier League Index - Opta Stats**
+6. [Chelsea boss Rosenior insists Fernandez saga has not divided players](https://www.101greatgoals.com/football/premier-league/chelsea-rosenior-hails-fernandez-return/) - **101 Great Goals**
+7. [Saudis now want sports to make money, clouding LIV Golf’s future](https://financialpost.com/news/economy/saudis-want-sports-make-money-liv-golf) - **Financial Post**
+8. [Former Arsenal goalkeeper Alex Manninger killed in road accident, aged 48](https://www.the42.ie/alex-manninger-death-7014823-Apr2026/) - **The42**
+9. [Pickford sets sights on a ‘European tour’ for the Toffees](http://www.toffeeweb.com/season/25-26/news/47471.html) - **Toffeeweb**
 
 
 ---
-*최근 업데이트: 2026-04-18 01:15:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-18 02:10:48 (KST) / (하루 100회 제한 준수 중)*
