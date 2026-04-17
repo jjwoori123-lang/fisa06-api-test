@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bernardo Silva to leave Manchester City at the end of the season](https://getfootball.eu/bernardo-silva-to-leave-manchester-city-at-the-end-of-the-season/) - **Getfootball.eu**
-2. [Six arrested in betting racket at Sangolda](https://timesofindia.indiatimes.com/city/goa/six-arrested-in-betting-racket-at-sangolda/articleshow/130317166.cms) - **The Times of India**
-3. [Calvert-Lewin To Lead The Charge | 3-4-3 Leeds United Predicted Lineup Vs Wolves](https://the4thofficial.net/2026/04/calvert-lewin-to-lead-the-charge-3-4-3-leeds-united-predicted-lineup-vs-wolves/) - **The4thofficial.net**
-4. [PREVIEW | Chelsea vs Manchester United: team news, lineups, predictions (Premier League 18/04)](https://www.playmakerstats.com/news/preview-chelsea-vs-manchester-united-team-news-lineups-predictions-premier-league-18-04-/1096724) - **Playmakerstats.com**
-5. [Why Silva will be remembered as a Man City legend](https://www.bbc.com/sport/football/articles/crl1p54p5wdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Why Silva will be remembered as a Man City legend](https://www.bbc.com/sport/football/articles/crl1p54p5wdo) - **BBC News**
-7. [Moises Caicedo signs new long-term contract with Chelsea](https://getfootball.eu/moises-caicedo-signs-new-long-term-contract-with-chelsea/) - **Getfootball.eu**
-8. [AC Milan cool interest in Real Madrid academy gem but Bundesliga club pushing](https://madriduniversal.com/ac-milan-cool-interest-in-real-madrid-academy-gem-but-bundesliga-club-pushing/) - **Madriduniversal.com**
-9. [Martin Odegaard has a new update on his fitness](https://www.justarsenal.com/martin-odegaard-has-a-new-update-on-his-fitness/413692) - **Just Arsenal News**
-10. [De Kock century goes in vain as table-topper Punjab hands Mumbai its fourth loss in IPL](https://sports.yahoo.com/articles/kock-century-goes-vain-table-185926483.html) - **Yahoo Entertainment**
+1. [Former PL Scout Provides Decisive Update On Daniel Farke: Does He Deserve To Lead Leeds United Next Season?](https://the4thofficial.net/2026/04/former-pl-scout-provides-decisive-update-on-daniel-farke-does-he-deserve-to-lead-leeds-united-next-season/) - **The4thofficial.net**
+2. [Olise's signature move - the final chord in Bavaria's quarter-final symphony](https://fcbayern.com/en/news/2026/04/olises-signature-move---the-final-chord-in-bavarias-quarter-final-symphony) - **Fcbayern.com**
+3. [LOI preview: Dublin derby offers Hoops chance of revenge](https://www.rte.ie/sport/soccer/2026/0416/1568668-loi-preview-dublin-derby-offers-hoops-chance-of-revenge/) - **RTE**
+4. [This 24-Year-Old Celtic Star Has Set His Sights On A PL Move: Should The Bhoys Sanction A Record Sale?](https://the4thofficial.net/2026/04/this-24-year-old-celtic-star-has-set-his-sights-on-a-pl-move-should-the-bhoys-sanction-a-record-sale/) - **The4thofficial.net**
+5. [Arsenal ready to steal £80m star from under Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/arsenal-ready-to-steal-ps80m-star-from-under-liverpool/) - **Anfieldwatch.co.uk**
+6. [10 Best Alan Moore Comics Characters](http://comicbook.com/comics/list/10-best-alan-moore-comics-characters/) - **ComicBook.com**
+7. [Journalist reveals FSG’s stance on Arne Slot’s future at Liverpool](https://anfieldindex.com/93260/journalist-reveals-fsgs-stance-on-arne-slots-future-at-liverpool.html) - **Anfieldindex.com**
+8. [Report: Liverpool to ‘push hard’ for Premier League star this summer](https://eplindex.com/145369/report-liverpool-to-push-hard-for-premier-league-star-this-summer.html) - **English Premier League Index - Opta Stats**
+9. [Pope, Burn And Elanga To Start | 4-2-3-1 Newcastle United Predicted Lineup Vs Bournemouth](https://the4thofficial.net/2026/04/pope-burn-and-elanga-to-start-4-2-3-1-newcastle-united-predicted-lineup-vs-bournemouth/) - **The4thofficial.net**
+10. [The Daily Bee: Fisnik Asllani Top of BVB’s Summer Shortlist](https://www.fearthewall.com/general/23991/the-daily-bee-fisnik-asllani-top-of-bvbs-summer-shortlist) - **Fear The Wall**
 
 
 ---
-*최근 업데이트: 2026-04-18 04:33:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-18 05:24:07 (KST) / (하루 100회 제한 준수 중)*
