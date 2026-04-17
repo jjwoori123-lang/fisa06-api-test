@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Jose Mourinho Has Entered the Newcastle Conversation](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c1019abe-8487-4c15-afe5-ddaccdbd0550) - **Yahoo Entertainment**
-2. [Report: Liverpool could trigger €80m clause to sign midfielder](https://anfieldindex.com/93238/report-liverpool-could-trigger-e80m-clause-to-sign-midfielder.html) - **Anfieldindex.com**
-3. [Remembering the Last Two Times Italy Didn’t Have a Single European Semifinalist](https://football-italia.net/remembering-last-2-times-italy-euro-semifinal/) - **Football Italia**
-4. [Report: Virgil van Dijk will not renew Liverpool contract, making the Reds push to sign Marcos Senesi](https://worldsoccertalk.com/news/report-virgil-van-dijk-will-not-renew-liverpool-contract-making-the-reds-push-to-sign-marcos-senesi/) - **Worldsoccertalk.com**
-5. [Report: Liverpool and Man United set to battle over international manager](https://eplindex.com/145365/report-liverpool-and-man-united-set-to-battle-over-international-manager.html) - **English Premier League Index - Opta Stats**
-6. [Manchester City confirm Bernardo Silva will leave at the end of the season](https://www.independent.ie/sport/soccer/premier-league/manchester-city-confirm-bernardo-silva-will-leave-at-the-end-of-the-season/a1523826627.html) - **Independent.ie**
-7. [2026 NFL Draft final big board: 4 defenders rank in top 5, and perhaps a surprise WR1](https://sports.yahoo.com/nfl/article/2026-nfl-draft-final-big-board-4-defenders-rank-in-top-5-and-perhaps-a-surprise-wr1-174645731.html) - **Yahoo Entertainment**
-8. [Sutton's predictions v boxer Molly McCann & the Boo Radleys](https://www.bbc.com/sport/football/articles/c78lxvzl3d4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Sutton's predictions v boxer Molly McCann & the Boo Radleys](https://www.bbc.com/sport/football/articles/c78lxvzl3d4o) - **BBC News**
+1. [Bernardo Silva to leave Manchester City at the end of the season](https://getfootball.eu/bernardo-silva-to-leave-manchester-city-at-the-end-of-the-season/) - **Getfootball.eu**
+2. [Six arrested in betting racket at Sangolda](https://timesofindia.indiatimes.com/city/goa/six-arrested-in-betting-racket-at-sangolda/articleshow/130317166.cms) - **The Times of India**
+3. [Calvert-Lewin To Lead The Charge | 3-4-3 Leeds United Predicted Lineup Vs Wolves](https://the4thofficial.net/2026/04/calvert-lewin-to-lead-the-charge-3-4-3-leeds-united-predicted-lineup-vs-wolves/) - **The4thofficial.net**
+4. [PREVIEW | Chelsea vs Manchester United: team news, lineups, predictions (Premier League 18/04)](https://www.playmakerstats.com/news/preview-chelsea-vs-manchester-united-team-news-lineups-predictions-premier-league-18-04-/1096724) - **Playmakerstats.com**
+5. [Why Silva will be remembered as a Man City legend](https://www.bbc.com/sport/football/articles/crl1p54p5wdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Why Silva will be remembered as a Man City legend](https://www.bbc.com/sport/football/articles/crl1p54p5wdo) - **BBC News**
+7. [Moises Caicedo signs new long-term contract with Chelsea](https://getfootball.eu/moises-caicedo-signs-new-long-term-contract-with-chelsea/) - **Getfootball.eu**
+8. [AC Milan cool interest in Real Madrid academy gem but Bundesliga club pushing](https://madriduniversal.com/ac-milan-cool-interest-in-real-madrid-academy-gem-but-bundesliga-club-pushing/) - **Madriduniversal.com**
+9. [Martin Odegaard has a new update on his fitness](https://www.justarsenal.com/martin-odegaard-has-a-new-update-on-his-fitness/413692) - **Just Arsenal News**
+10. [De Kock century goes in vain as table-topper Punjab hands Mumbai its fourth loss in IPL](https://sports.yahoo.com/articles/kock-century-goes-vain-table-185926483.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-04-18 03:08:08 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-18 04:33:57 (KST) / (하루 100회 제한 준수 중)*
