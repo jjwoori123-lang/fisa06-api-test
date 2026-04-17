@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ex-Juventus and Arsenal goalkeeper Manninger dies at 48 in tragic car accident](https://football-italia.net/manninger-dies-48-accident-juventus-arsenal/) - **Football Italia**
-2. [Expert reveals why Liverpool are interested in this Premier League forward](https://anfieldindex.com/93247/expert-reveals-why-liverpool-are-interested-in-this-premier-league-forward.html) - **Anfieldindex.com**
-3. [Report: Roberto De Zerbi wants Tottenham Hotspur to sign £50m star this summer](https://eplindex.com/145356/report-roberto-de-zerbi-wants-tottenham-hotspur-to-sign-50m-star-this-summer.html) - **English Premier League Index - Opta Stats**
-4. [Liverpool transfer chiefs Hughes and Edwards to remain in place for summer](https://www.skysports.com/football/news/11095/13532549/liverpool-transfer-chiefs-richard-hughes-and-michael-edwards-to-remain-in-place-for-summer) - **Sky Sports**
-5. [Arsenal suffer attacking injury ahead of Manchester City showdown](https://cityxtra.co.uk/44746/arsenal-suffer-attacking-injury-ahead-of-manchester-city-showdown/) - **Cityxtra.co.uk**
-6. [Bruno Fernandes: Galatasaray storm into race for Man United star](https://thepeoplesperson.com/2026/04/16/bruno-fernandes-galatasaray-storm-into-race-for-man-united-star-308894/) - **The Peoples Person**
-7. [PREVIEW: Nottingham Forest host Porto with first European semi final in over four decades in sight](https://wp.fromthespot.co.uk/28141/preview-nottingham-forest-host-porto-with-first-european-semi-final-in-over-four-decades-in-sight/) - **Fromthespot.co.uk**
-8. [Ex-keeper Manninger dies after car hit by train](https://www.bbc.com/sport/football/articles/c4g84l14e5eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Ex-keeper Manninger dies after car hit by train](https://www.bbc.com/sport/football/articles/c4g84l14e5eo) - **BBC News**
-10. [Former Arsenal goalkeeper Alex Manninger dies in car accident, aged 48](https://www.independent.ie/sport/soccer/premier-league/former-arsenal-goalkeeper-alex-manninger-dies-in-car-accident-aged-48/a502713810.html) - **Independent.ie**
+1. [Former Arsenal Goalkeeper Alex Manninger Dies at 48 After Car Struck by Train in Austria](https://www.ibtimes.com.au/former-arsenal-goalkeeper-alex-manninger-dies-48-after-car-struck-train-austria-1866770) - **Ibtimes.com.au**
+2. [Howe's future at a 'crossroads' as Newcastle's transfer priorities revealed](https://www.skysports.com/football/news/11095/13532593/newcastle-eddie-howes-future-at-a-crossroads-as-magpies-target-striker-and-goalkeeper-this-summer) - **Sky Sports**
+3. [Match Preview: Brentford v Fulham](https://www.brentfordfc.com/en/news/article/match-previews-brentford-v-fulham-premier-league-18-04-2026) - **Brentfordfc.com**
+4. [Lampard stays focused with promotion one point away](https://www.bbc.com/sport/football/articles/ce35pnkywz1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Manchester City v Arsenal: Who wins the Premier League title? We predict the run-in and give our verdict](https://www.101greatgoals.com/football/premier-league/manchester-city-v-arsenal-who-wins-the-premier-league-title-we-predict-the-run-in-and-give-our-verdict/) - **101 Great Goals**
+6. [Former IPL boss Lalit Modi owns 32 Ferraris, tells Michael Vaughan of global MMA league plans to rival UFC](https://economictimes.indiatimes.com/news/new-updates/former-ipl-boss-lalit-modi-owns-32-ferraris-tells-michael-vaughan-of-global-mma-league-plans-to-rival-ufc/articleshow/130310757.cms) - **The Times of India**
+7. [Fabrizio Romano confirms Aston Villa’s interest in a move for Man City star](https://eplindex.com/145359/fabrizio-romano-confirms-aston-villas-interest-in-a-move-for-man-city-star.html) - **English Premier League Index - Opta Stats**
+8. [Guehi stars in Arsenal matchday programme](https://www.mancity.com/news/mens/arsenal-premier-league-matchday-programme-promo-63911943) - **Manchester City FC**
+9. [Ex-Arsenal and Juventus goalkeeper Alex Manninger dies after his car was hit by a train](https://sports.yahoo.com/soccer/breaking-news/article/ex-arsenal-and-juventus-goalkeeper-alex-manninger-dies-after-his-car-was-hit-by-a-train-143726861.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-04-17 23:00:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-18 00:07:36 (KST) / (하루 100회 제한 준수 중)*
