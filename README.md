@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Alan Shearer: Anthony Gordon should quit Newcastle United if he doesn’t want to stay](https://sportsview.co.uk/2026/04/alan-shearer-anthony-gordon-should-quit-newcastle-united-if-he-doesnt-want-to-stay?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=alan-shearer-anthony-gordon-should-quit-newcastle-united-if-he-doesnt-want-to-stay) - **Sportsview.co.uk**
-2. [Parker on team news, offside goals and relegation battle](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_69425163-5994-409b-9919-092814394dbe) - **Yahoo Entertainment**
-3. [Caicedo extends Chelsea contract until 2033](https://www.channelnewsasia.com/sport/caicedo-extends-chelsea-contract-until-2033-6063956) - **CNA**
-4. [After testicular cancer surgery, Forge FC's Kyle Bekker wants men to 'listen to their body'](https://www.cbc.ca/sports/soccer/cpl/kyle-bekker-forge-fc-testicular-cancer-canadian-premier-league-9.7167313) - **CBC News**
-5. [Man City v Arsenal Match Preview and Prediction](https://www.justarsenal.com/man-city-v-arsenal-match-preview-and-prediction/413775) - **Just Arsenal News**
-6. [Every word of Arteta's pre-Manchester City presser](http://www.arsenal.com/news/every-word-artetas-pre-manchester-city-presser) - **Arsenal.com**
-7. [Moyes on Alcaraz return, catching Liverpool and European 'dream'](https://www.bbc.com/sport/football/articles/cgj0xvllzj7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Arteta on Madueke, facing Man City and using Dowman](https://www.bbc.com/sport/football/articles/cy4124dn7kyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [IPL 2026: Gujarat Titans sign Connor Esterhuizen as a replacement for Tom Banton](https://economictimes.indiatimes.com/news/sports/ipl-2026-gujarat-titans-sign-connor-esterhuizen-as-a-replacement-for-tom-banton/articleshow/130335192.cms) - **The Times of India**
-10. [United's Carrick shrugs off Martinez, Maguire bans before Chelsea clash](https://www.channelnewsasia.com/sport/uniteds-carrick-shrugs-martinez-maguire-bans-chelsea-clash-6063946) - **CNA**
+1. [Newcastle United vs Bournemouth quiz: Test your knowledge ahead of Premier League clash](https://www.newcastleunited.com/en/news/newcastle-united-vs-bournemouth-quiz-test-your-knowledge-ahead-of-premier-league-clash) - **Newcastleunited.com**
+2. [Cowboys talent tiers: Offensive line](https://www.bloggingtheboys.com/dallas-cowboys-draft/201863/roster-talent-tiers-offensive-line-draft-strategy) - **Blogging The Boys**
+3. [Will Bukayo Saka be fit to face Manchester City?](https://www.justarsenal.com/will-bukayo-saka-be-fit-to-face-manchester-city/413737) - **Just Arsenal News**
+4. [Football Daily](https://www.bbc.co.uk/sounds/play/m002vlxx?at_campaign=rss) - **BBC News**
+5. [Padres About to Become Most Valuable Team in Baseball](https://www.newser.com/story/387529/padres-about-to-become-most-valuable-team-in-baseball.html) - **Newser**
+6. [Caicedo pens new deal to remain at Chelsea until 2033](https://www.rte.ie/sport/soccer/2026/0417/1568821-caicedo-pens-new-deal-to-remain-at-chelsea-until-2033/) - **RTE**
+7. [As they close in on a Premier League return, a look back on when Coventry City used to be a major Irish story](https://www.independent.ie/sport/soccer/league-of-ireland/as-they-close-in-on-a-premier-league-return-a-look-back-on-when-coventry-city-used-to-be-a-major-irish-story/a1979292032.html) - **Independent.ie**
+8. [Moyes targets Merseyside Derby win to keep Champions League ‘dream alive’](http://www.toffeeweb.com/season/25-26/news/47474.html) - **Toffeeweb**
+9. [Everton hope to pile Merseyside Derby blues on Liverpool at new stadium](https://www.channelnewsasia.com/sport/everton-hope-pile-merseyside-derby-blues-liverpool-new-stadium-6064066) - **CNA**
+10. [Ex-Frankfurt coach Dino Toppmöller linked with Premier League club](https://bulinews.com/frankfurt-coach-dino-toppmoller-linked-premier-league-club) - **Bulinews.com**
 
 
 ---
-*최근 업데이트: 2026-04-18 23:07:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-19 00:00:56 (KST) / (하루 100회 제한 준수 중)*
