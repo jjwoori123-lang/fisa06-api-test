@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal receive major injury boost ahead of Manchester City clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_30e9b27c-f4bb-4d88-9967-355cef6dd951) - **Yahoo Entertainment**
-2. [Mickey Mansell shocks former World Champion in European Grand prix opening session](https://www.sportingnews.com/us/darts/news/mickey-mansell-shocks-former-world-champion-european-grand-prix-opening-session/0bed9c805fdb20df1bc815a1) - **Sporting News**
-3. [Ramsgate cite lack of spending in Martin dismissal](https://www.bbc.com/sport/football/articles/c239yl9kg4zo) - **BBC News**
-4. [PREVIEW | Manchester City vs Arsenal: team news, lineups, predictions (Premier League 19/04)](https://www.playmakerstats.com/news/preview-manchester-city-vs-arsenal-team-news-lineups-predictions-premier-league-19-04-/1097316) - **Playmakerstats.com**
-5. [Everton vs Liverpool: Match preview, predicted line-ups, team news and prediction](https://footballtoday.com/2026/04/17/everton-vs-liverpool-match-preview-predicted-line-ups-team-news-and-prediction/) - **Footballtoday.com**
-6. [Padres finalizing sale for MLB record $3.9 billion: José E. Feliciano to buy franchise, per report](https://www.cbssports.com/mlb/news/padres-sale-mlb-record-3-9-billion-jose-e-feliciano/) - **CBS Sports**
-7. [Chelsea fans will finally get their transfer wish this summer](https://thefootballfaithful.com/chelsea-fans-transfer-wish-summer-behdad-eghbali/) - **The Football Faithful**
-8. [5️⃣ spicy fixtures you must watch this weekend ](https://thefootballfaithful.com/5%ef%b8%8f%e2%83%a3-spicy-fixtures-you-must-watch-this-weekend-%f0%9f%8c%b6-52/) - **The Football Faithful**
-9. [Chelsea vs Manchester United: Four storylines to keep an eye on](https://thepeoplesperson.com/2026/04/17/chelsea-vs-manchester-united-three-storylines-to-keep-an-eye-on-308949/) - **The Peoples Person**
-10. [More than the Score](https://www.bbc.co.uk/sounds/play/p0nf1yfs?at_campaign=rss) - **BBC News**
+1. [Footy Fix: USWNT face Japan in rubber match; Manchester City vs. Arsenal highlights the weekend](https://www.cbssports.com/soccer/news/footy-fix-uswnt-japan-arsenal-man-city/) - **CBS Sports**
+2. [Iraola has 'no clue' as to next job after Bournemouth exit](https://www.channelnewsasia.com/sport/iraola-has-no-clue-next-job-after-bournemouth-exit-6064286) - **CNA**
+3. [Pep Guardiola gives Nico O'Reilly and Ruben Dias injury updates ahead of Arsenal visit](https://www.alloutsoccer.com/news/guardiola-oreilly-dias-city-arsenal-1795342) - **Alloutsoccer.com**
+4. [Final game of the season for Everton U21s](http://www.toffeeweb.com/season/25-26/news/47476.html) - **Toffeeweb**
+5. [Alphonso Davies: Major update on United’s pursuit of Bayern Munich star](https://thepeoplesperson.com/2026/04/17/alphonso-davies-major-update-on-uniteds-pursuit-of-bayern-munich-star-308945/) - **The Peoples Person**
+6. [Arteta lights training ground fire to inspire players](https://www.bbc.com/sport/football/articles/ckge7n0lgkzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Tottenham relegation odds: Premier League standings, full table with Spurs in drop zone](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f3f46668-8785-4464-a75a-aca678206cdc) - **Yahoo Entertainment**
+8. [54 Days Until 2026 World Cup D-Day: Spain Still Favorite in Historic North American Showdown](https://www.ibtimes.com.au/54-days-until-2026-world-cup-d-day-spain-still-favorite-historic-north-american-showdown-1866894) - **Ibtimes.com.au**
+9. [Arteta lights training ground fire to inspire players](https://www.bbc.com/sport/football/articles/ckge7n0lgkzo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-19 00:55:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-19 01:48:39 (KST) / (하루 100회 제한 준수 중)*
