@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [De Zerbi: Relationship with Spurs board will decide if I stay - not relegation](https://www.skysports.com/football/news/11675/13532998/tottenham-roberto-de-zerbi-says-relationship-with-spurs-board-will-decide-future-not-premier-league-relegation) - **Sky Sports**
-2. [Guardiola says he enjoys watching Arsenal play](https://www.bbc.com/sport/football/articles/cn08p0ep98do) - **BBC News**
-3. [Welsh darts star Clayton imperious on Premier League Night 11 in Rotterdam](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_381d9547-ad1f-446d-a2de-c274ee5a10d6) - **Yahoo Entertainment**
-4. [Edwards on Doherty's fitness, West Ham defeat, 'brilliant' Farke](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b985deda-6af8-4700-a653-5ce9512438ad) - **Yahoo Entertainment**
-5. [Man City need win over Arsenal or title hopes are over says Guardiola](https://www.channelnewsasia.com/sport/man-city-need-win-over-arsenal-or-title-hopes-are-over-says-guardiola-6063866) - **CNA**
-6. [The Joy and Pain of Being the Daughter of a Soul Superstar](http://www.rollingstone.com/politics/politics-features/keisha-lance-bottoms-daughter-major-lance-1235548231/) - **Rolling Stone**
-7. [Summer Transfer Window 2026 Predictions: The Deals That Could Shake Football](https://www.playmakerstats.com/news/summer-transfer-window-2026-predictions-the-deals-that-could-shake-football/1097133) - **Playmakerstats.com**
-8. [“There is that fire” Declan Rice has unfinished business against Man City](https://www.justarsenal.com/there-is-that-fire-declan-rice-has-unfinished-business-against-man-city/413735) - **Just Arsenal News**
-9. [Pep Guardiola: ''If we lose, the title race is over...''](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0cc08b8a-34bb-45fa-871e-9033ed7e8aae) - **Yahoo Entertainment**
-10. [Journalist: Liverpool ready to sell midfielder after a ‘disappointing year’](https://anfieldindex.com/93282/journalist-liverpool-ready-to-sell-midfielder-after-a-disappointing-year.html) - **Anfieldindex.com**
+1. [Alan Shearer: Anthony Gordon should quit Newcastle United if he doesn’t want to stay](https://sportsview.co.uk/2026/04/alan-shearer-anthony-gordon-should-quit-newcastle-united-if-he-doesnt-want-to-stay?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=alan-shearer-anthony-gordon-should-quit-newcastle-united-if-he-doesnt-want-to-stay) - **Sportsview.co.uk**
+2. [Parker on team news, offside goals and relegation battle](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_69425163-5994-409b-9919-092814394dbe) - **Yahoo Entertainment**
+3. [Caicedo extends Chelsea contract until 2033](https://www.channelnewsasia.com/sport/caicedo-extends-chelsea-contract-until-2033-6063956) - **CNA**
+4. [After testicular cancer surgery, Forge FC's Kyle Bekker wants men to 'listen to their body'](https://www.cbc.ca/sports/soccer/cpl/kyle-bekker-forge-fc-testicular-cancer-canadian-premier-league-9.7167313) - **CBC News**
+5. [Man City v Arsenal Match Preview and Prediction](https://www.justarsenal.com/man-city-v-arsenal-match-preview-and-prediction/413775) - **Just Arsenal News**
+6. [Every word of Arteta's pre-Manchester City presser](http://www.arsenal.com/news/every-word-artetas-pre-manchester-city-presser) - **Arsenal.com**
+7. [Moyes on Alcaraz return, catching Liverpool and European 'dream'](https://www.bbc.com/sport/football/articles/cgj0xvllzj7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Arteta on Madueke, facing Man City and using Dowman](https://www.bbc.com/sport/football/articles/cy4124dn7kyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [IPL 2026: Gujarat Titans sign Connor Esterhuizen as a replacement for Tom Banton](https://economictimes.indiatimes.com/news/sports/ipl-2026-gujarat-titans-sign-connor-esterhuizen-as-a-replacement-for-tom-banton/articleshow/130335192.cms) - **The Times of India**
+10. [United's Carrick shrugs off Martinez, Maguire bans before Chelsea clash](https://www.channelnewsasia.com/sport/uniteds-carrick-shrugs-martinez-maguire-bans-chelsea-clash-6063946) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-04-18 22:09:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-18 23:07:06 (KST) / (하루 100회 제한 준수 중)*
