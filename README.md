@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Footy Fix: USWNT face Japan in rubber match; Manchester City vs. Arsenal highlights the weekend](https://www.cbssports.com/soccer/news/footy-fix-uswnt-japan-arsenal-man-city/) - **CBS Sports**
-2. [Iraola has 'no clue' as to next job after Bournemouth exit](https://www.channelnewsasia.com/sport/iraola-has-no-clue-next-job-after-bournemouth-exit-6064286) - **CNA**
-3. [Pep Guardiola gives Nico O'Reilly and Ruben Dias injury updates ahead of Arsenal visit](https://www.alloutsoccer.com/news/guardiola-oreilly-dias-city-arsenal-1795342) - **Alloutsoccer.com**
-4. [Final game of the season for Everton U21s](http://www.toffeeweb.com/season/25-26/news/47476.html) - **Toffeeweb**
-5. [Alphonso Davies: Major update on United’s pursuit of Bayern Munich star](https://thepeoplesperson.com/2026/04/17/alphonso-davies-major-update-on-uniteds-pursuit-of-bayern-munich-star-308945/) - **The Peoples Person**
-6. [Arteta lights training ground fire to inspire players](https://www.bbc.com/sport/football/articles/ckge7n0lgkzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Tottenham relegation odds: Premier League standings, full table with Spurs in drop zone](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f3f46668-8785-4464-a75a-aca678206cdc) - **Yahoo Entertainment**
-8. [54 Days Until 2026 World Cup D-Day: Spain Still Favorite in Historic North American Showdown](https://www.ibtimes.com.au/54-days-until-2026-world-cup-d-day-spain-still-favorite-historic-north-american-showdown-1866894) - **Ibtimes.com.au**
-9. [Arteta lights training ground fire to inspire players](https://www.bbc.com/sport/football/articles/ckge7n0lgkzo) - **BBC News**
+1. [One of Arsenal's greatest unsung heroes - Keown's tribute to Manninger](https://www.bbc.com/sport/football/articles/ckgxpklxj5wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [One of Arsenal's greatest unsung heroes - Keown's tribute to Manninger](https://www.bbc.com/sport/football/articles/ckgxpklxj5wo) - **BBC News**
+3. [Report: Liverpool star has held talks over emotional return to former club](https://anfieldindex.com/93304/report-liverpool-star-has-held-talks-over-emotional-return-to-former-club.html) - **Anfieldindex.com**
+4. [MLB franchise closing in on record-breaking $3.9B sale to Chelsea co-owner](https://www.alloutsoccer.com/news/mlb-padres-sale-chelsea-owner-1795410) - **Alloutsoccer.com**
+5. ['City will smell blood against Arsenal'](https://www.bbc.com/sport/football/articles/c4gd0yppxk8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Tottenham in 'advanced' talks to deliver Liverpool transfer blow](https://www.anfieldwatch.co.uk/liverpool-fc/news/tottenham-in-advanced-talks-to-deliver-liverpool-transfer-blow/) - **Anfieldwatch.co.uk**
+7. [Trail Blazers vs. Spurs: Is Portland ready for Wemby? Series keys, schedule and prediction](https://sports.yahoo.com/nba/article/trail-blazers-vs-spurs-is-portland-ready-for-wemby-series-keys-schedule-and-prediction-170409391.html) - **Yahoo Entertainment**
+8. [Zubimendi responds to rumours that Real Madrid want him](https://www.justarsenal.com/zubimendi-responds-to-rumours-that-real-madrid-want-him/413741) - **Just Arsenal News**
+9. [From Guardiolas staff to Europa League semi-finals: Carlos Vicens is the latest coaching success story](https://www.playmakerstats.com/news/from-guardiola-s-staff-to-europa-league-semi-finals-carlos-vicens-is-the-latest-coaching-success-story/1097353) - **Playmakerstats.com**
+10. [Justin Rose's novel way to prepare for the British Open: Inside a Premier League stadium](https://sports.yahoo.com/articles/justin-roses-novel-way-prepare-165422160.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-04-19 01:48:39 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-19 02:38:58 (KST) / (하루 100회 제한 준수 중)*
