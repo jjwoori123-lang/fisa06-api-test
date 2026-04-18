@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Red-hot Bayern on cusp of Bundesliga title as perfect week rolls on](https://sports.yahoo.com/articles/red-hot-bayern-cusp-bundesliga-051036688.html) - **Yahoo Entertainment**
-2. [Chelsea vs Manchester United: Premier League – teams, lineups, start](https://www.aljazeera.com/sports/2026/4/17/chelsea-vs-manchester-united-premier-league-teams-lineups-start) - **Al Jazeera English**
-3. [Damien Duff on punditry as Bohs visit leaders Shamrock Rovers in Dublin derby](https://www.irishtimes.com/sport/soccer/2026/04/17/damien-duff-on-punditry-as-bohs-visit-leaders-shamrock-rovers-in-dublin-derby/) - **The Irish Times**
-4. [An Intriguing Summer Lies Ahead For Sunderland!](https://rokerreport.sbnation.com/opinion/134689/an-intriguing-summer-lies-ahead-for-sunderland) - **SB Nation**
-5. [Wrexham's Hollywood takeover fuels economic boom](https://sports.yahoo.com/articles/wrexhams-hollywood-takeover-fuels-economic-043201141.html) - **Yahoo Entertainment**
-6. [Puma’s AI head says the brand is still giving ‘the keys to the consumer’ as it invests in digital concierge](http://digiday.com/marketing/pumas-ai-head-says-the-brand-is-still-giving-the-keys-to-the-consumer-as-it-invests-in-digital-concierge/) - **Digiday**
-7. [Bayern Munich News: Newcastle United could want big money FC Bayern transfer target Anthony Gordon](https://www.bavarianfootballworks.com/transfer-rumors/189982/bayern-munich-newcastle-united-gordon-manchester-city-united-real-madrid-fc-barcelona-psg-bvb-arsenal-chelsea) - **Bavarian Football Works**
-8. [Judgement day for Man City and Arsenal in title showdown](https://sports.yahoo.com/articles/judgement-day-man-city-arsenal-025715520.html) - **Yahoo Entertainment**
-9. [Christian Pulisic’s new Milan contract renewal update emerges after agent’s double Italy trip, but there’s a twist](https://worldsoccertalk.com/news/christian-pulisics-new-milan-contract-renewal-update-emerges-after-agents-double-italy-trip-but-theres-a-twist/) - **Worldsoccertalk.com**
-10. [Arsenal's Martin Zubimendi Says Links To Real Madrid Are 'Not A Bad Thing'](https://www.foxsports.com/stories/soccer/arsenals-martin-zubimendi-says-links-real-madrid-not-bad-thing) - **Fox Sports**
+1. [Mumbai's IPL campaign fizzles amid Bumrah's barren run](https://www.channelnewsasia.com/sport/mumbais-ipl-campaign-fizzles-amid-bumrahs-barren-run-6063156) - **CNA**
+2. [Alejandro Garnacho: Chelsea take huge decision on player’s future](https://thepeoplesperson.com/2026/04/17/alejandro-garnacho-chelsea-take-huge-decision-on-players-future-308922/) - **The Peoples Person**
+3. [Fernandez back to face Man Utd but Chelsea's problems remain](https://www.bbc.com/sport/football/articles/c14557evv3ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [The Hoddle of Coffee: Tottenham Hotspur News and Links for Friday, April 17](https://cartilagefreecaptain.sbnation.com/hoddle-of-coffee/70016/the-hoddle-of-coffee-tottenham-hotspur-news-and-links-for-friday-april-17) - **SB Nation**
+5. ['I think we're behind Liam': Chelsea co-owner on Rosenior, Maresca and transfers](https://www.skysports.com/football/news/11095/13532811/behdad-eghbali-chelsea-co-owner-on-liam-rosenior-transfer-policy-and-enzo-maresca-departure-in-rare-interview) - **Sky Sports**
+6. [Under-fire Real Madrid midfielder’s entourage confirms he will not leave in the summer: ‘Same noise as always’](https://madriduniversal.com/under-fire-real-madrid-midfielders-entourage-confirms-he-will-not-leave-in-the-summer-same-noise-as-always/) - **Madriduniversal.com**
+7. [Weekend European Leagues Fixtures & Previews](https://thechronicle.com.gh/weekend-european-leagues-fixtures-previews-24/) - **Thechronicle.com.gh**
+8. [“Definitely expecting” – David Ornstein shares update on Chelsea’s summer transfer plans](https://chelsea.news/2026/04/david-ornstein-chelsea-summer-window-plans/) - **Chelsea.news**
+9. [Celtic icon Shunsuke Nakamura takes up World Cup role](https://thecelticstar.com/celtic-icon-shunsuke-nakamura-takes-up-world-cup-role/) - **The Celtic Star**
+10. [How should Chelsea line up against Manchester United to break out of this losing streak?](https://weaintgotnohistory.sbnation.com/premier-league/167865/how-should-chelsea-line-up-against-manchester-united-to-break-out-of-this-losing-streak) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-04-18 14:25:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-18 15:49:00 (KST) / (하루 100회 제한 준수 중)*
