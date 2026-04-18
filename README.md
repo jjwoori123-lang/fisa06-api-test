@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [3 conditions Luka Modrić wants met to extend Milan contract](https://www.getfootballnewsitaly.com/2026/3-conditions-luka-modric-wants-met-to-extend-milan-contract/) - **Getfootballnewsitaly.com**
-2. [Revealed: Manchester United wonderkid rejects transfer approach from Manchester City](https://cityxtra.co.uk/44822/revealed-manchester-united-wonderkid-rejects-transfer-approach-from-manchester-city/) - **Cityxtra.co.uk**
-3. [Report: Manchester United pushing for deal to sign £50m Premier League midfielder](https://eplindex.com/145425/report-manchester-united-pushing-for-deal-to-sign-50m-premier-league-midfielder.html) - **English Premier League Index - Opta Stats**
-4. [David Ornstein drops Anthony Gordon to Liverpool bombshell](https://www.anfieldwatch.co.uk/liverpool-fc/news/david-ornstein-drops-anthony-gordon-to-liverpool-bombshell/) - **Anfieldwatch.co.uk**
-5. [22-Year-Old Might Be Fit Enough For Aston Villa Game: Should Sunderland Rush Him?](https://the4thofficial.net/2026/04/22-year-old-might-be-fit-enough-for-aston-villa-game-should-sunderland-rush-him/) - **The4thofficial.net**
-6. [Liverpool set for another summer fire sale with nine players on the verge of exits](https://anfieldindex.com/93307/liverpool-set-for-another-summer-fire-sale-with-nine-players-on-the-verge-of-exits.html) - **Anfieldindex.com**
-7. [Simeone's reborn Atletico chase Copa crown with Champions League dream alive](https://www.channelnewsasia.com/sport/simeones-reborn-atletico-chase-copa-crown-champions-league-dream-alive-6064516) - **CNA**
-8. [Celtic Could Be Forced To Accept Offers For 20 G/A Player: Will It Help The Club?](https://the4thofficial.net/2026/04/celtic-could-be-forced-to-accept-offers-for-20-g-a-player-will-it-help-the-club/) - **The4thofficial.net**
-9. [Haaland To Spearhead Guardiola’s Attack | 4-2-3-1 Manchester City Predicted Lineup Vs Arsenal](https://the4thofficial.net/2026/04/haaland-to-spearhead-guardiolas-attack-4-2-3-1-manchester-city-predicted-lineup-vs-arsenal/) - **The4thofficial.net**
+1. [ Official: the first promoted side in Europe's top five leagues is known!](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e48049a0-0d89-4ee8-8a17-b3813cc97767) - **Yahoo Entertainment**
+2. [Match Preview: Liverpool ready for historic Merseyside Derby clash with Everton](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9e1f777d-445f-4e4b-8dde-ac89940e270c) - **Yahoo Entertainment**
+3. [European round-up: Inter move closer to another Scudetto](https://www.101greatgoals.com/football/european-round-up-inter-move-closer-to-another-scudetto/) - **101 Great Goals**
+4. [Absolute SCENES! Wild celebs as Coventry equalise to seal Premier League promotion!](https://www.skysports.com/football/video/12606/13533169/blackburn-vs-coventry-bobby-thomas-equalises-to-put-coventry-on-brink-of-premier-league-promotion) - **Sky Sports**
+5. [Judgement day for Man City and Arsenal in title showdown](https://japantoday.com/category/sports/judgement-day-for-man-city-and-arsenal-in-title-showdown) - **Japan Today**
+6. [Chelsea vs. Manchester United, Premier League: Preview, team news, how to watch](https://weaintgotnohistory.sbnation.com/premier-league/167883/chelsea-vs-manchester-united-premier-league-preview-team-news-how-to-watch) - **SB Nation**
+7. [Coventry City seal Premier League return after 25 years away](https://www.skysports.com/football/news/11710/13529987/blackburn-rovers-1-1-coventry-city-sky-blues-promoted-after-25-years-away-from-premier-league) - **Sky Sports**
+8. [The incredible multi-million-pound fortune the Premier League's most iconic referee, kept hidden until his death](https://www.marca.com/en/football/premier-league/2026/04/17/69e2878246163fd1358b45ab.html) - **Marca**
+9. [Will Moyes Make Any Changes? | 4-2-3-1 Everton Predicted Lineup Vs Liverpool](https://the4thofficial.net/2026/04/will-moyes-make-any-changes-4-2-3-1-everton-predicted-lineup-vs-liverpool/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-04-19 05:04:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-19 05:56:44 (KST) / (하루 100회 제한 준수 중)*
