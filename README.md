@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mumbai's IPL campaign fizzles amid Bumrah's barren run](https://www.channelnewsasia.com/sport/mumbais-ipl-campaign-fizzles-amid-bumrahs-barren-run-6063156) - **CNA**
-2. [Alejandro Garnacho: Chelsea take huge decision on player’s future](https://thepeoplesperson.com/2026/04/17/alejandro-garnacho-chelsea-take-huge-decision-on-players-future-308922/) - **The Peoples Person**
-3. [Fernandez back to face Man Utd but Chelsea's problems remain](https://www.bbc.com/sport/football/articles/c14557evv3ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [The Hoddle of Coffee: Tottenham Hotspur News and Links for Friday, April 17](https://cartilagefreecaptain.sbnation.com/hoddle-of-coffee/70016/the-hoddle-of-coffee-tottenham-hotspur-news-and-links-for-friday-april-17) - **SB Nation**
-5. ['I think we're behind Liam': Chelsea co-owner on Rosenior, Maresca and transfers](https://www.skysports.com/football/news/11095/13532811/behdad-eghbali-chelsea-co-owner-on-liam-rosenior-transfer-policy-and-enzo-maresca-departure-in-rare-interview) - **Sky Sports**
-6. [Under-fire Real Madrid midfielder’s entourage confirms he will not leave in the summer: ‘Same noise as always’](https://madriduniversal.com/under-fire-real-madrid-midfielders-entourage-confirms-he-will-not-leave-in-the-summer-same-noise-as-always/) - **Madriduniversal.com**
-7. [Weekend European Leagues Fixtures & Previews](https://thechronicle.com.gh/weekend-european-leagues-fixtures-previews-24/) - **Thechronicle.com.gh**
-8. [“Definitely expecting” – David Ornstein shares update on Chelsea’s summer transfer plans](https://chelsea.news/2026/04/david-ornstein-chelsea-summer-window-plans/) - **Chelsea.news**
-9. [Celtic icon Shunsuke Nakamura takes up World Cup role](https://thecelticstar.com/celtic-icon-shunsuke-nakamura-takes-up-world-cup-role/) - **The Celtic Star**
-10. [How should Chelsea line up against Manchester United to break out of this losing streak?](https://weaintgotnohistory.sbnation.com/premier-league/167865/how-should-chelsea-line-up-against-manchester-united-to-break-out-of-this-losing-streak) - **SB Nation**
+1. [Arteta's defining test - why Arsenal must win at Man City](https://www.skysports.com/football/news/11670/13532091/arsenal-vs-man-city-why-mikel-arteta-must-win-at-etihad-to-finally-prove-he-can-deliver-when-it-matters-most) - **Sky Sports**
+2. [Arteta's defining test - why Arsenal must win at Man City](https://www.skysports.com/football/news/11670/13532091/man-city-vs-arsenal-why-mikel-arteta-must-win-at-etihad-to-finally-prove-he-can-deliver-when-it-matters-most) - **Sky Sports**
+3. [Big Premier League clubs interested in former Chelsea defender Malang Sarr](https://www.getfootballnewsfrance.com/2026/big-premier-league-clubs-interested-in-former-chelsea-defender-malang-sarr/) - **Get French Football News**
+4. [Chelsea co-owner Eghbali admits transfer policy is flawed: ‘You learn from mistakes’](https://www.101greatgoals.com/football/premier-league/chelsea-co-owner-behdad-eghbali-transfer-policy-flawed-you-learn-from-mistakes/) - **101 Great Goals**
+5. [FPL talking point: How to navigate a double gameweek](https://www.bbc.com/sport/football/articles/c3ex27zkjp1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [FPL talking point: How to navigate a double gameweek](https://www.bbc.com/sport/football/articles/c3ex27zkjp1o) - **BBC News**
+7. [The Bayern Insider: Anthony Gordon on Bayern’s radar as Premier League given Pavlovic warning](https://cfbayerninsider.com/2026/04/the-bayern-insider-anthony-gordon-on-bayerns-radar-as-premier-league-given-pavlovic-warning/) - **Cfbayerninsider.com**
+8. [‘Oh!’ – Iwobi can’t hide reaction to Liverpool’s Ngumoha](https://www.empireofthekop.com/2026/04/17/oh-iwobi-cant-hide-reaction-to-liverpools-ngumoha/) - **Empire of The Kop**
+9. [Fuchs calls for Newport focus in survival battle](https://www.bbc.com/sport/football/articles/cddqpr5g9z4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Barcelona to send scouts to monitor 18-year-old Belgian winger – report](https://barcauniversal.com/barcelona-to-send-scouts-to-monitor-18-year-old-belgian-winger-report/) - **Barcauniversal.com**
 
 
 ---
-*최근 업데이트: 2026-04-18 15:49:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-18 17:00:32 (KST) / (하루 100회 제한 준수 중)*
