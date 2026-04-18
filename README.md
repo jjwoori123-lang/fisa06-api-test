@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [ Official: the first promoted side in Europe's top five leagues is known!](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e48049a0-0d89-4ee8-8a17-b3813cc97767) - **Yahoo Entertainment**
-2. [Match Preview: Liverpool ready for historic Merseyside Derby clash with Everton](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9e1f777d-445f-4e4b-8dde-ac89940e270c) - **Yahoo Entertainment**
-3. [European round-up: Inter move closer to another Scudetto](https://www.101greatgoals.com/football/european-round-up-inter-move-closer-to-another-scudetto/) - **101 Great Goals**
-4. [Absolute SCENES! Wild celebs as Coventry equalise to seal Premier League promotion!](https://www.skysports.com/football/video/12606/13533169/blackburn-vs-coventry-bobby-thomas-equalises-to-put-coventry-on-brink-of-premier-league-promotion) - **Sky Sports**
-5. [Judgement day for Man City and Arsenal in title showdown](https://japantoday.com/category/sports/judgement-day-for-man-city-and-arsenal-in-title-showdown) - **Japan Today**
-6. [Chelsea vs. Manchester United, Premier League: Preview, team news, how to watch](https://weaintgotnohistory.sbnation.com/premier-league/167883/chelsea-vs-manchester-united-premier-league-preview-team-news-how-to-watch) - **SB Nation**
-7. [Coventry City seal Premier League return after 25 years away](https://www.skysports.com/football/news/11710/13529987/blackburn-rovers-1-1-coventry-city-sky-blues-promoted-after-25-years-away-from-premier-league) - **Sky Sports**
-8. [The incredible multi-million-pound fortune the Premier League's most iconic referee, kept hidden until his death](https://www.marca.com/en/football/premier-league/2026/04/17/69e2878246163fd1358b45ab.html) - **Marca**
-9. [Will Moyes Make Any Changes? | 4-2-3-1 Everton Predicted Lineup Vs Liverpool](https://the4thofficial.net/2026/04/will-moyes-make-any-changes-4-2-3-1-everton-predicted-lineup-vs-liverpool/) - **The4thofficial.net**
+1. ['We are Premier League!' | Coventry owner covered in champagne in dressing room celebrations](https://www.skysports.com/football/video/30998/13533188/coventry-owner-doug-king-covered-in-champagne-in-dressing-room-celebrations-after-promotion) - **Sky Sports**
+2. [Frank Lampard hails ‘special’ Coventry after promotion to Premier League](https://www.101greatgoals.com/football/premier-league/frank-lampard-hails-special-coventry-after-promotion-to-premier-league/) - **101 Great Goals**
+3. [Saints sink Drogs to keep pace with league leaders](https://www.rte.ie/sport/soccer/2026/0417/1568736-saints-sink-drogs-to-keep-pace-with-league-leaders/) - **RTE**
+4. [Arsenal win and the title race is done? Hayters TV’s Pint-Sized Pressers](https://hayters.com/arsenal-win-and-the-title-race-is-done-hayters-tvs-pint-sized-pressers/) - **Hayters.com**
+5. [Carrick leaves door open for Rashford return](https://www.bbc.com/sport/football/articles/c070yn2vlezo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Carrick leaves door open for Rashford return](https://www.bbc.com/sport/football/articles/c070yn2vlezo) - **BBC News**
+7. [‘As simple as that’ – Arteta on what he has learned from previous Premier League title races](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_cc74300c-208d-4dae-9d51-12a771a4ccfa) - **Yahoo Entertainment**
+8. [Spurs boss De Zerbi on Vicario’s return, Xavi Simons’ role and wanting players to be ‘brothers’](https://hayters.com/spurs-boss-de-zerbi-on-vicarios-return-xavi-simons-role-and-wanting-players-to-be-brothers/) - **Hayters.com**
+9. [Haaland: Every game is a final from now on](https://www.mancity.com/news/mens/erling-haaland-pre-arsenal-focus-63912027) - **Manchester City FC**
 
 
 ---
-*최근 업데이트: 2026-04-19 05:56:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-19 06:43:42 (KST) / (하루 100회 제한 준수 중)*
