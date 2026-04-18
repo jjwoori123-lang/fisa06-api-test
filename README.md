@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea vs Manchester United: Match Preview, Latest Team News and How to Watch](https://eplindex.com/145401/chelsea-vs-manchester-united-match-preview-latest-team-news-and-how-to-watch.html) - **English Premier League Index - Opta Stats**
-2. [Manchester City starter ruled out vs Arsenal with injury](https://dailycannon.com/2026/04/ruben-dias-arsenal-injury/) - **Dailycannon.com**
-3. [Pep Guardiola press conference: Nico O’Reilly and Ruben Dias injury updates ahead of Arsenal clash](https://cityxtra.co.uk/44814/pep-guardiola-press-conference-nico-oreilly-and-ruben-dias-injury-updates-ahead-of-arsenal-clash/) - **Cityxtra.co.uk**
-4. [Top-10 Bengals Draft picks in team history](https://www.cincyjungle.com/cincinnati-bengals-nfl-draft/189569/top-10-draft-picks-team-history) - **Cincy Jungle**
-5. [Carrick needs Man Utd form reversal](https://www.bbc.com/sport/football/articles/cj0vp5r7glpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [All your FPL stats and Premier League team news in one place](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5cf579f0-f70d-4806-ba4b-6e648e4fde6b) - **Yahoo Entertainment**
-7. [Iraola decision to leave Bournemouth ‘not about any other club’](https://thefootballfaithful.com/andoni-iraola-to-leave-bournemouth-next-club/) - **The Football Faithful**
-8. [Report: Anthony Gordon’s versatility is key to Bayern Munich’s interest, though price could be an issue](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/190755/report-anthony-gordons-versatility-is-key-to-bayern-munichs-interest-though-price-could-be-an-issue) - **Bavarian Football Works**
-9. [All your FPL stats and Premier League team news in one place](https://www.bbc.com/sport/articles/cvg3zkzn0zdo) - **BBC News**
-10. [RFK Racing, Trimble and Liverpool FC Unite at Sonoma Raceway in Global Cross-Sport Collaboration](https://financialpost.com/globe-newswire/rfk-racing-trimble-and-liverpool-fc-unite-at-sonoma-raceway-in-global-cross-sport-collaboration) - **Financial Post**
+1. [De Zerbi: Relationship with Spurs board will decide if I stay - not relegation](https://www.skysports.com/football/news/11675/13532998/tottenham-roberto-de-zerbi-says-relationship-with-spurs-board-will-decide-future-not-premier-league-relegation) - **Sky Sports**
+2. [Guardiola says he enjoys watching Arsenal play](https://www.bbc.com/sport/football/articles/cn08p0ep98do) - **BBC News**
+3. [Welsh darts star Clayton imperious on Premier League Night 11 in Rotterdam](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_381d9547-ad1f-446d-a2de-c274ee5a10d6) - **Yahoo Entertainment**
+4. [Edwards on Doherty's fitness, West Ham defeat, 'brilliant' Farke](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b985deda-6af8-4700-a653-5ce9512438ad) - **Yahoo Entertainment**
+5. [Man City need win over Arsenal or title hopes are over says Guardiola](https://www.channelnewsasia.com/sport/man-city-need-win-over-arsenal-or-title-hopes-are-over-says-guardiola-6063866) - **CNA**
+6. [The Joy and Pain of Being the Daughter of a Soul Superstar](http://www.rollingstone.com/politics/politics-features/keisha-lance-bottoms-daughter-major-lance-1235548231/) - **Rolling Stone**
+7. [Summer Transfer Window 2026 Predictions: The Deals That Could Shake Football](https://www.playmakerstats.com/news/summer-transfer-window-2026-predictions-the-deals-that-could-shake-football/1097133) - **Playmakerstats.com**
+8. [“There is that fire” Declan Rice has unfinished business against Man City](https://www.justarsenal.com/there-is-that-fire-declan-rice-has-unfinished-business-against-man-city/413735) - **Just Arsenal News**
+9. [Pep Guardiola: ''If we lose, the title race is over...''](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0cc08b8a-34bb-45fa-871e-9033ed7e8aae) - **Yahoo Entertainment**
+10. [Journalist: Liverpool ready to sell midfielder after a ‘disappointing year’](https://anfieldindex.com/93282/journalist-liverpool-ready-to-sell-midfielder-after-a-disappointing-year.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-04-18 20:52:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-18 22:09:21 (KST) / (하루 100회 제한 준수 중)*
