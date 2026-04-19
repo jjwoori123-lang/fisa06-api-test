@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [ BREAKING: Chelsea and Man Utd name starting XIs](https://onefootball.com/en/news/breaking-chelsea-and-man-utd-name-starting-xis-42731468) - **Onefootball.com**
-2. [Chido Obi: Man United starlet can save INEOS a fortune this summer](https://thepeoplesperson.com/2026/04/18/chido-obi-man-united-starlet-can-save-ineos-a-fortune-this-summer-308993/) - **The Peoples Person**
-3. [EPL: Leno's Save Keeps Fulham's European Hopes Alive](https://www.rediff.com/sports/report/epl-pix-lenos-last-gasp-save-keeps-fulhams-european-hopes-alive/20260418.htm) - **Rediff.com**
-4. [Liverpool defender confirms future intentions after disappointing season](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-defender-confirms-future-intentions-after-disappointing-season/) - **Anfieldwatch.co.uk**
-5. [Arsenal title fears: How to handle slow-burn anxiety & failure](https://economictimes.indiatimes.com/opinion/et-commentary/arsenal-title-fears-how-to-handle-slow-burn-anxiety-failure/articleshow/130357769.cms) - **The Times of India**
-6. [“You never know” – Fernandinho addresses rumours of Manchester City return in coaching role](https://cityxtra.co.uk/44835/you-never-know-fernandinho-addresses-rumours-of-manchester-city-return-in-coaching-role/) - **Cityxtra.co.uk**
-7. ['What a goal!' - Mitoma's STUNNING volley brings Brighton level before the break!](https://www.skysports.com/football/video/12606/13533536/goal-k-mitoma-45-3-tottenham-hotspur-1-1-brighton) - **Sky Sports**
-8. [Osula, Tonali And Miley Get 7 | Newcastle United Players Rated In Tough Loss Vs Bournemouth](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a9c8da56-0406-41e1-8903-585641551c2e) - **Yahoo Entertainment**
-9. [Sky Germany: Aston Villa pushing to sign Bayern Munich star](https://eplindex.com/145457/sky-germany-aston-villa-pushing-to-sign-bayern-munich-star.html) - **English Premier League Index - Opta Stats**
+1. [Late DRAMA! Brighton's last-minute leveller keeps Spurs in drop zone!](https://www.skysports.com/premier-league-highlights/video/36504/13533572/spurs-2-2-brighton-premier-league-highlights) - **Sky Sports**
+2. [Relegation-haunted Spurs count cost of Brighton draw](https://sports.yahoo.com/articles/relegation-haunted-spurs-count-cost-185205349.html) - **Yahoo Entertainment**
+3. [Leny Yoro: Key update about Man United star’s injury emerges](https://thepeoplesperson.com/2026/04/18/leny-yoro-key-update-about-man-united-stars-injury-emerges-309013/) - **The Peoples Person**
+4. [Brighton's Rutter denies Tottenham crucial victory with last-gasp strike](https://www.channelnewsasia.com/sport/brightons-rutter-denies-tottenham-crucial-victory-last-gasp-strike-6065701) - **CNA**
+5. [Ex-Aston Villa CEO Tips Club To Accept PSG’s Offer For Their Star: Will It Hurt Their Project?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fa015a73-939c-487a-a046-a80c5ffc1a28) - **Yahoo Entertainment**
+6. [Tottenham 2-2 Brighton: Late leveller keeps hosts in the Premier League relegation zone](https://www.101greatgoals.com/football/premier-league/tottenham-brighton-result-report-goals-highlights/) - **101 Great Goals**
+7. [Tottenham Hotspur 2-2 Brighton: Rutter's late goal breaks Spurs' hearts](https://www.nbcsports.com/soccer/news/tottenham-hotspur-vs-brighton-recap-final-score-analysis-video-highlights) - **NBCSports.com**
+8. [Jorge Mendes can deliver £70m midfielder to Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-kees-smit-jorge-mendes-can-deliver-ps70m-midfielder/) - **Anfieldwatch.co.uk**
+9. [Heartbreak for Spurs! Rutter capitalises on Danso error with superb late leveller!](https://www.skysports.com/football/video/12606/13533558/goal-g-rutter-90-5-tottenham-hotspur-2-2-brighton) - **Sky Sports**
+10. [Martin Odegaard included in the Arsenal squad travelling to take on Manchester City](https://sportsview.co.uk/2026/04/martin-odegaard-included-in-the-arsenal-squad-travelling-to-take-on-manchester-city?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=martin-odegaard-included-in-the-arsenal-squad-travelling-to-take-on-manchester-city) - **Sportsview.co.uk**
 
 
 ---
-*최근 업데이트: 2026-04-20 02:48:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-20 03:56:24 (KST) / (하루 100회 제한 준수 중)*
