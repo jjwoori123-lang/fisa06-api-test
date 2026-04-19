@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal u21s to face Manchester City in PL2 play-off](https://dailycannon.com/2026/04/arsenal-manchester-city-u21s-pl2-play-off/) - **Dailycannon.com**
-2. [Sutton's predictions: Tottenham v Brighton](https://www.bbc.com/sport/football/articles/c0rx29y5gn2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Emmanuel Petit explains regret in choosing Chelsea over Man United](https://thepeoplesperson.com/2026/04/18/emmanuel-petit-explains-regret-in-choosing-chelsea-over-man-united-308988/) - **The Peoples Person**
-4. [Championship: Leicester visit Portsmouth in relegation six-pointer plus Millwall-QPR, Derby-Oxford](https://www.bbc.com/sport/football/live/c93wvylp23nt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Why is Harry Maguire not playing for Manchester United vs. Chelsea?](https://www.usatoday.com/story/sports/soccer/2026/04/18/harry-maguire-suspension-manchester-united-lineup/89659583007/) - **USA Today**
-6. [Where to watch Tottenham vs. Brighton live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/tottenham-brighton-live-stream-tv-channel-start-time-premier-league/9c11f52add18d26e4da24fe7) - **Sporting News**
-7. [bet365 bonus code: Bet $10, get $200 in bonus bets for the Premier League](https://nypost.com/2026/04/18/betting/bet365-bonus-code-bet-10-get-200-in-bonus-bets-for-the-premier-league/) - **New York Post**
-8. [Scholes and Neville give different Man City v Arsenal predictions](https://www.justarsenal.com/scholes-and-neville-give-different-man-city-v-arsenal-predictions/413755) - **Just Arsenal News**
-9. [Report: Newcastle United ready to cash in on £50m summer signing already](https://eplindex.com/145442/report-newcastle-united-ready-to-cash-in-on-50m-summer-signing-already.html) - **English Premier League Index - Opta Stats**
-10. [David Lynch rates Liverpool’s chances in ‘absolutely crazy’ Merseyside Derby](https://anfieldindex.com/93316/david-lynch-rates-liverpools-chances-in-absolutely-crazy-merseyside-derby.html) - **Anfieldindex.com**
+1. [Thomas Frank returns to Brentford after sacking #sports](https://alltoc.com/sports/thomas-frank-returns-to-brentford-after-sacking) - **Alltoc.com**
+2. [Everton v Liverpool: Key stats and talking points](https://www.bbc.com/sport/football/articles/cp8dpgl323ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Rohit Sharma to star in Netflix show? Mystery behind Hitman's post revealed](https://economictimes.indiatimes.com/news/sports/rohit-sharma-to-star-in-netflix-show-mystery-behind-hitman-post-revealed/articleshow/130353276.cms) - **The Times of India**
+4. [Where to watch Chelsea vs. Man United live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-chelsea-man-united-live-stream-tv-channel-time-premier-league/7390e4562b58724e09a894fc) - **Sporting News**
+5. [Tottenham Hotspur Starting XI vs Brighton: Confirmed Team News and Predicted Lineup](https://eplindex.com/145444/tottenham-hotspur-starting-xi-vs-brighton-confirmed-team-news-and-predicted-lineup.html) - **English Premier League Index - Opta Stats**
+6. [Coach Roberto De Zerbi offers unique luxury incentive to Tottenham Hotspur players if they beat Brighton amid battling relegation](https://timesofindia.indiatimes.com/sports/international-sports/coach-roberto-de-zerbi-offers-unique-luxury-incentive-to-tottenham-hotspur-players-if-they-beat-brighton-amid-battling-relegation/articleshow/130352994.cms) - **The Times of India**
+7. [Is Rose a good fit for the Cherries?](https://www.bbc.com/sport/football/articles/cq591qp8dgzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Manchester City’s Elliot Anderson progress played down in new ‘update’ on England star](https://cityxtra.co.uk/44825/manchester-citys-elliot-anderson-progress-played-down-in-new-update-on-england-star/) - **Cityxtra.co.uk**
+9. [Man United Starting XI vs Chelsea: Confirmed Team News and Predicted Lineup](https://eplindex.com/145451/man-united-starting-xi-vs-chelsea-confirmed-team-news-and-predicted-lineup-2.html) - **English Premier League Index - Opta Stats**
+10. [Dan Burn pays tribute to Trippier and previews Bournemouth in programme notes](https://www.newcastleunited.com/en/news/dan-burn-pays-tribute-to-trippier-and-previews-bournemouth-in-programme-notes) - **Newcastleunited.com**
 
 
 ---
-*최근 업데이트: 2026-04-19 20:21:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-19 21:02:00 (KST) / (하루 100회 제한 준수 중)*
