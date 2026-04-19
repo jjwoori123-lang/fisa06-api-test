@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Miller gets it right this time in final over as Delhi beats Bengaluru by 6 wickets in IPL](https://sports.yahoo.com/articles/miller-gets-time-final-over-152134716.html) - **Yahoo Entertainment**
-2. [Tottenham v Brighton: Confirmed line-ups as De Zerbi takes on former club](https://www.101greatgoals.com/football/premier-league/tottenham-v-brighton-confirmed-line-ups-as-de-zerbi-takes-on-former-club/) - **101 Great Goals**
-3. [Noah Sadiki: United have key advantage in pursuit of Congo star](https://thepeoplesperson.com/2026/04/18/noah-sadiki-united-have-key-advantage-in-pursuit-of-congo-star-309000/) - **The Peoples Person**
-4. [Liverpool ruled out of transfer race for Richard Hughes favourite](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-ruled-out-of-transfer-race-for-richard-hughes-favourite/) - **Anfieldwatch.co.uk**
-5. [Superb Bernd Leno save helps Fulham hit Brentford’s European hopes](https://www.irishtimes.com/sport/soccer/2026/04/18/superb-bernd-leno-save-helps-fulham-hit-brentfords-european-hopes/) - **The Irish Times**
-6. [Chelsea Starting XI vs Man United: Confirmed Team News and Predicted Lineup](https://eplindex.com/145453/chelsea-starting-xi-vs-man-united-confirmed-team-news-and-predicted-lineup-2.html) - **English Premier League Index - Opta Stats**
-7. [Arsenal has three injury doubts ahead of the Man City match](https://www.justarsenal.com/arsenal-has-three-injury-doubts-ahead-of-the-man-city-match/413796) - **Just Arsenal News**
-8. [‘Absolute nonsense’ – Carragher slams Liverpool ticket decision](https://www.empireofthekop.com/2026/04/18/absolute-nonsense-carragher-slams-liverpool-ticket-decision/) - **Empire of The Kop**
-9. [Marcus Rashford opens door to Manchester United return as Barcelona uncertainty continues](https://www.football-espana.net/2026/04/18/marcus-rashford-man-united-return-barcelona) - **Football Espana**
-10. [Brentford 0-0 Fulham: What Andrews said](https://www.bbc.com/sport/football/articles/cgqkjg88438o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Leeds 3-0 Wolves: Rampant Leeds almost safe from relegation](https://www.nbcsports.com/leeds-vs-wolves-video-highlights-recap-score) - **NBCSports.com**
+2. [Declan Rice demands better from Arsenal against Manchester City](https://dailycannon.com/2026/04/rice-manchester-city-arsenal/) - **Dailycannon.com**
+3. [Tottenham doomsday relegation scenario will giftwrap midfielder for Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-archie-gray-tottenham-doomsday-relegation-scenario-will-giftwrap-midfielder/) - **Anfieldwatch.co.uk**
+4. [Premier League: Wolves close to drop after Leeds loss as Newcastle lose again](https://www.101greatgoals.com/football/premier-league/premier-league-wolves-close-to-drop-after-leeds-loss-as-newcastle-lose-again/) - **101 Great Goals**
+5. [LIVE: Chelsea vs Manchester United – Premier League](https://www.aljazeera.com/sports/liveblog/2026/4/18/live-chelsea-vs-manchester-united-english-premier-league) - **Al Jazeera English**
+6. [Premier League Soccer: Stream Chelsea vs. Man United From Anywhere Live](https://www.cnet.com/tech/services-and-software/premier-league-soccer-stream-chelsea-vs-man-united-from-anywhere-live/) - **CNET**
+7. [Newcastle's European hopes take another hit with Bournemouth defeat](https://www.skysports.com/football/news/11095/13533071/newcastle-1-2-bournemouth-adrien-trufferts-late-strike-beats-magpies-as-european-hopes-take-another-hit) - **Sky Sports**
+8. [Leeds take huge step towards PL survival with win to leave Wolves on brink](https://www.skysports.com/football/news/11715/13533075/leeds-3-0-wolves-dominant-win-moves-daniel-farkes-side-closer-to-premier-league-survival-as-wolves-relegation-almost-confirmed) - **Sky Sports**
+9. [Bromley promoted to League One for first time in their history](https://www.skysports.com/football/news/11750/13530042/bromley-promoted-to-league-one-for-the-first-time-in-their-history) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-04-20 00:22:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-20 01:06:19 (KST) / (하루 100회 제한 준수 중)*
