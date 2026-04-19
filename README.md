@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Howe's biggest Newcastle challenge yet? Can he survive?](https://www.bbc.com/sport/football/articles/c203y3ykv6no) - **BBC News**
-2. [England midfielder is coming to Liverpool in club record deal](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c951a204-8712-4743-919c-9f209d86edf5) - **Yahoo Entertainment**
-3. [PREVIEW | Crystal Palace vs West Ham: team news, lineups, predictions (Premier League 20/04)](https://www.playmakerstats.com/news/preview-crystal-palace-vs-west-ham-team-news-lineups-predictions-premier-league-20-04-/1098266) - **Playmakerstats.com**
-4. [Spurs’ survival hopes hit after Rutter rescues dramatic late point for Brighton](https://www.irishtimes.com/sport/soccer/2026/04/18/spurs-survival-hopes-hit-after-rutter-rescues-dramatic-late-point-for-brighton/) - **The Irish Times**
-5. [Ancelotti on alert: Estêvão off after 12 minutes at Chelsea ⚠️](https://onefootball.com/en/news/ancelotti-on-alert-estevao-off-after-12-minutes-at-chelsea-42732008) - **Onefootball.com**
-6. [Estevao Willian injury news: Chelsea, Brazil starlet limps off match versus Manchester United](https://www.nbcsports.com/soccer/news/estevao-willian-injury-news-chelsea-brazil-starlet-limps-off-match-versus-manchester-united) - **NBCSports.com**
-7. [Liverpool In Race For £80m Premier League Midfielder](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7b3afc5b-29b5-4f85-a5cb-2698298de2b7) - **Yahoo Entertainment**
-8. [Arsenal Are Eyeing A Move For This Bundesliga Midfielder: One For The Future?](https://the4thofficial.net/2026/04/arsenal-are-eyeing-a-move-for-this-bundesliga-midfielder-one-for-the-future/) - **The4thofficial.net**
-9. [Tottenham Hotspur 2-2 Brighton & Hove Albion: Rutter strikes late to dent Spurs’ survival push](https://footballtoday.com/2026/04/18/tottenham-hotspur-2-2-brighton-hove-albion-rutter-strikes-late-to-dent-spurs-survival-push/) - **Footballtoday.com**
-10. [Cristiano Ronaldo left waiting as Alejandro Garnacho snubbed another chance to play alongside his idol before Chelsea move, reason revealed](https://worldsoccertalk.com/news/cristiano-ronaldo-left-waiting-as-alejandro-garnacho-snubbed-another-chance-to-play-alongside-his-idol-before-chelsea-move-reason-revealed/) - **Worldsoccertalk.com**
+1. [Everton v Liverpool: Match Preview | Up the tifo Toffees](https://royalbluemersey.sbnation.com/everton-2025-26-season-premier-league-fixtures-hill-dickinson-moyes/79442/everton-v-liverpool-match-preview-up-the-tifo-toffees) - **SB Nation**
+2. [£85m Yan Diomande to Liverpool deal gets extraordinary green light](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-yan-diomande-deal-gets-extraordinary-green-light/) - **Anfieldwatch.co.uk**
+3. [From Rutgers Roots to the NBA Playoffs — The Harper Legacy Grows](https://www.onthebanks.com/rutgers-basketball/52161/from-rutgers-roots-to-the-nba-playoffs-the-harper-legacy-grows) - **On The Banks**
+4. [What is the Premier League single-season assist record? Bruno Fernandes chasing history](https://www.nbcsports.com/soccer/news/what-is-the-premier-league-single-season-assist-record-bruno-fernandes-chasing-history) - **NBCSports.com**
+5. [Can Leeds feel safe from relegation after back-to-back wins?](https://www.bbc.com/sport/football/articles/cr4171dw46go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Report: Liverpool Midfielder Wanted By Premier League Rivals](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f1bd8825-36b9-448d-b38b-ab730c2333ab) - **Yahoo Entertainment**
+7. [Newcastle Targeting German Wonderkid For 2027 Move](https://eplindex.com/145460/newcastle-targeting-german-wonderkid-for-2027-move.html) - **English Premier League Index - Opta Stats**
+8. [Can Leeds feel safe from relegation after back-to-back wins?](https://www.bbc.com/sport/football/articles/cr4171dw46go) - **BBC News**
+9. [De Zerbi declares Tottenham can win all five of their remaining Premier League games](https://hayters.com/de-zerbi-declares-tottenham-can-win-all-five-of-their-remaining-premier-league-games/) - **Hayters.com**
+10. [Spurs ‘suffering too much’ as Brighton land brutal blow](https://thefootballfaithful.com/spurs-brighton-de-zerbi-premier-league/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-04-20 04:44:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-20 05:41:59 (KST) / (하루 100회 제한 준수 중)*
