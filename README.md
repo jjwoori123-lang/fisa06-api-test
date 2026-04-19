@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Thomas Frank returns to Brentford after sacking #sports](https://alltoc.com/sports/thomas-frank-returns-to-brentford-after-sacking) - **Alltoc.com**
-2. [Everton v Liverpool: Key stats and talking points](https://www.bbc.com/sport/football/articles/cp8dpgl323ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Rohit Sharma to star in Netflix show? Mystery behind Hitman's post revealed](https://economictimes.indiatimes.com/news/sports/rohit-sharma-to-star-in-netflix-show-mystery-behind-hitman-post-revealed/articleshow/130353276.cms) - **The Times of India**
-4. [Where to watch Chelsea vs. Man United live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-chelsea-man-united-live-stream-tv-channel-time-premier-league/7390e4562b58724e09a894fc) - **Sporting News**
-5. [Tottenham Hotspur Starting XI vs Brighton: Confirmed Team News and Predicted Lineup](https://eplindex.com/145444/tottenham-hotspur-starting-xi-vs-brighton-confirmed-team-news-and-predicted-lineup.html) - **English Premier League Index - Opta Stats**
-6. [Coach Roberto De Zerbi offers unique luxury incentive to Tottenham Hotspur players if they beat Brighton amid battling relegation](https://timesofindia.indiatimes.com/sports/international-sports/coach-roberto-de-zerbi-offers-unique-luxury-incentive-to-tottenham-hotspur-players-if-they-beat-brighton-amid-battling-relegation/articleshow/130352994.cms) - **The Times of India**
-7. [Is Rose a good fit for the Cherries?](https://www.bbc.com/sport/football/articles/cq591qp8dgzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Manchester City’s Elliot Anderson progress played down in new ‘update’ on England star](https://cityxtra.co.uk/44825/manchester-citys-elliot-anderson-progress-played-down-in-new-update-on-england-star/) - **Cityxtra.co.uk**
-9. [Man United Starting XI vs Chelsea: Confirmed Team News and Predicted Lineup](https://eplindex.com/145451/man-united-starting-xi-vs-chelsea-confirmed-team-news-and-predicted-lineup-2.html) - **English Premier League Index - Opta Stats**
-10. [Dan Burn pays tribute to Trippier and previews Bournemouth in programme notes](https://www.newcastleunited.com/en/news/dan-burn-pays-tribute-to-trippier-and-previews-bournemouth-in-programme-notes) - **Newcastleunited.com**
+1. [European hopefuls Brentford and Fulham play out 0-0 draw](https://www.channelnewsasia.com/sport/european-hopefuls-brentford-and-fulham-play-out-0-0-draw-6065426) - **CNA**
+2. [Leicester pushed closer to L1 after defeat at Pompey](https://www.skysports.com/football/news/11095/13532147/portsmouth-1-0-leicester-city-pompey-seal-controversial-narrow-win-to-push-foxes-further-into-relegation-danger) - **Sky Sports**
+3. [Millwall beat QPR to climb back into second in Championship](https://www.skysports.com/football/news/11095/13532146/millwall-2-0-queens-park-rangers-lions-back-up-to-second-after-victory) - **Sky Sports**
+4. [Tottenham Hotspur vs. Brighton & Hove Albion: game time, live blog, and how to watch online](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-match-threads/70033/tottenham-hotspur-vs-brighton-hove-albion-game-time-live-blog-and-how-to-watch-online) - **SB Nation**
+5. [Points shared between Brentford and Fulham](https://www.playmakerstats.com/news/points-shared-between-brentford-and-fulham/1098040) - **Playmakerstats.com**
+6. [Brentford held by Fulham for fifth consecutive draw](https://www.bbc.com/sport/football/live/cx2dg2neg2mt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Brentford 0-0 Fulham: Points shared in dismal lunchtime draw](https://www.101greatgoals.com/football/premier-league/brentford-0-0-fulham-points-shared-in-dismal-lunchtime-draw/) - **101 Great Goals**
+8. [Virat Kohli's attacking intent reaches new high in IPL 2026, highlights legend's adaptation abilities](https://economictimes.indiatimes.com/news/sports/virat-kohlis-attacking-intent-reaches-new-high-in-ipl-2026-highlights-legends-adaptation-abilities/articleshow/130354837.cms) - **The Times of India**
+9. [Tim David becomes 2nd fastest to score 1,000 runs in IPL](https://economictimes.indiatimes.com/news/sports/tim-david-becomes-2nd-fastest-to-score-1000-runs-in-ipl/articleshow/130354746.cms) - **The Times of India**
+10. [Marcos Rojo: Ex-Man United star faces backlash with Racing Club](https://thepeoplesperson.com/2026/04/18/marcos-rojo-ex-man-united-star-faces-backlash-with-racing-club-308996/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-04-19 21:02:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-19 22:36:03 (KST) / (하루 100회 제한 준수 중)*
