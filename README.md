@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Leeds 3-0 Wolves: Rampant Leeds almost safe from relegation](https://www.nbcsports.com/leeds-vs-wolves-video-highlights-recap-score) - **NBCSports.com**
-2. [Declan Rice demands better from Arsenal against Manchester City](https://dailycannon.com/2026/04/rice-manchester-city-arsenal/) - **Dailycannon.com**
-3. [Tottenham doomsday relegation scenario will giftwrap midfielder for Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-archie-gray-tottenham-doomsday-relegation-scenario-will-giftwrap-midfielder/) - **Anfieldwatch.co.uk**
-4. [Premier League: Wolves close to drop after Leeds loss as Newcastle lose again](https://www.101greatgoals.com/football/premier-league/premier-league-wolves-close-to-drop-after-leeds-loss-as-newcastle-lose-again/) - **101 Great Goals**
-5. [LIVE: Chelsea vs Manchester United – Premier League](https://www.aljazeera.com/sports/liveblog/2026/4/18/live-chelsea-vs-manchester-united-english-premier-league) - **Al Jazeera English**
-6. [Premier League Soccer: Stream Chelsea vs. Man United From Anywhere Live](https://www.cnet.com/tech/services-and-software/premier-league-soccer-stream-chelsea-vs-man-united-from-anywhere-live/) - **CNET**
-7. [Newcastle's European hopes take another hit with Bournemouth defeat](https://www.skysports.com/football/news/11095/13533071/newcastle-1-2-bournemouth-adrien-trufferts-late-strike-beats-magpies-as-european-hopes-take-another-hit) - **Sky Sports**
-8. [Leeds take huge step towards PL survival with win to leave Wolves on brink](https://www.skysports.com/football/news/11715/13533075/leeds-3-0-wolves-dominant-win-moves-daniel-farkes-side-closer-to-premier-league-survival-as-wolves-relegation-almost-confirmed) - **Sky Sports**
-9. [Bromley promoted to League One for first time in their history](https://www.skysports.com/football/news/11750/13530042/bromley-promoted-to-league-one-for-the-first-time-in-their-history) - **Sky Sports**
+1. [Leeds edge towards Premier League safety with thumping win over Wolves](https://www.independent.ie/sport/soccer/premier-league/leeds-edge-towards-premier-league-safety-with-thumping-win-over-wolves/a1485311968.html) - **Independent.ie**
+2. [Bold move: thousands of fans of PL newcomers get free season tickets](https://onefootball.com/en/news/bold-move-thousands-of-fans-of-pl-newcomers-get-free-season-tickets-42731212) - **Onefootball.com**
+3. [Bournemouth boost European chances with 2-1 win at Newcastle](https://www.channelnewsasia.com/sport/bournemouth-boost-european-chances-2-1-win-newcastle-6065596) - **CNA**
+4. [Preview: Everton vs. Liverpool](https://liverpooloffside.sbnation.com/liverpool-match-previews/79931/everton-vs-liverpool-epl-2026-preview-line-up) - **SB Nation**
+5. [Report: Arsenal set to battle Man United in the race to sign £52m midfielder](https://eplindex.com/145455/report-arsenal-set-to-battle-man-united-in-the-race-to-sign-52m-midfielder.html) - **English Premier League Index - Opta Stats**
+6. [Late Truffert goal extends Bournemouth's PL unbeaten run to 13 games!](https://www.skysports.com/football/video/12606/13533463/newcastle-1-2-bournemouth-premier-league-highlights) - **Sky Sports**
+7. [Justin scores superb overhead kick as Leeds earn HUGE three points vs Wolves](https://www.skysports.com/football/video/12606/13533462/leeds-3-0-wolves-premier-league-highlights) - **Sky Sports**
+8. ['That is BRILLIANT!' | Justin scores fantastic overhead kick!](https://www.skysports.com/football/video/12606/13533366/leeds-vs-wolves-james-justin-scores-fantastic-overhead-kick) - **Sky Sports**
+9. [Brentford held to fifth straight draw as Leno heroics earn Fulham derby point](https://www.skysports.com/football/video/12606/13533329/brentford-0-0-fulham-premier-league-highlights) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-04-20 01:06:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-20 01:59:56 (KST) / (하루 100회 제한 준수 중)*
