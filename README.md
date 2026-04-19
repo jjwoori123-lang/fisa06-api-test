@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal youngsters win international tournament](https://dailycannon.com/2026/04/arsenal-youth-next-gen-cup/) - **Dailycannon.com**
-2. [Premier League would be 'fantastic' for Wrexham - FAW chief Mooney](https://www.bbc.com/sport/football/articles/cvgez4yjmzpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [No thoughts of Hampden revenge, it’s all about reaching another final](https://thecelticstar.com/no-thoughts-of-hampden-revenge-its-all-about-reaching-another-final/) - **The Celtic Star**
-4. [Newcastle vs. Bournemouth — Team News & Match Preview](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/21375/newcastle-vs-bournemouth-team-news-match-preview) - **SB Nation**
-5. [How Lampard's own revival ended Coventry's 25-year wait](https://www.bbc.com/sport/football/articles/cm2kj1lv91xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Chelsea ⚔️ Man United: our combined XI for the showdown](https://onefootball.com/en/news/chelsea-man-united-our-combined-xi-for-the-showdown-42729223) - **Onefootball.com**
-7. [With Tottenham facing relegation, these 'big' teams met a similar fate](https://www.usatoday.com/story/sports/soccer/2026/04/18/will-tottenham-get-relegated-premier-league/89661857007/) - **USA Today**
-8. [How Lampard's own revival ended Coventry's 25-year wait](https://www.bbc.com/sport/football/articles/cm2kj1lv91xo) - **BBC News**
-9. [Real Madrid to trigger deal for star Liverpool midfielder](https://www.anfieldwatch.co.uk/liverpool-fc/news/real-madrid-to-trigger-deal-for-star-liverpool-midfielder/) - **Anfieldwatch.co.uk**
-10. [Manchester City make decision on John Stones future ahead of June contract expiry](https://cityxtra.co.uk/44846/manchester-city-make-decision-on-john-stones-future-ahead-of-june-contract-expiry/) - **Cityxtra.co.uk**
+1. [Brentford v Fulham: Teams confirmed for Premier League clash](https://www.101greatgoals.com/football/premier-league/brentford-v-fulham-teams-confirmed-for-premier-league-clash/) - **101 Great Goals**
+2. [Confirmed team news: Bees unchanged for Fulham clash](https://www.brentfordfc.com/en/news/article/first-team-brentford-v-fulham-premier-league-confirmed-team-news-aaron-hickey) - **Brentfordfc.com**
+3. [Rudoni aims to emulate Lampard](https://www.bbc.com/sport/football/articles/czre0z1vkz7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Inside the fallout of the Dianna Russini and Mike Vrabel photos](https://www.espn.com/nfl/story/_/id/48512053/dianna-russini-mike-vrabel-photos-athletic-patriots) - **ESPN**
+5. [2026 NFL Draft rankings: How do RBs stack up behind Jeremiyah Love?](https://www.usatoday.com/story/sports/nfl/draft/2026/04/18/nfl-draft-position-rankings-running-backs-best-available-2026/89582265007/) - **USA Today**
+6. [‘Maybe it’s a good thing we’re not in Europe’ – Arne Slot hopes Liverpool can pick up Premier League pace after cup exits](https://www.independent.ie/sport/soccer/premier-league/maybe-its-a-good-thing-were-not-in-europe-arne-slot-hopes-liverpool-can-pick-up-premier-league-pace-after-cup-exits/a622570724.html) - **Independent.ie**
+7. [Newcastle United Starting XI vs Bournemouth: Confirmed Team News and Predicted Lineup](https://eplindex.com/145438/newcastle-united-starting-xi-vs-bournemouth-confirmed-team-news-and-predicted-lineup.html) - **English Premier League Index - Opta Stats**
+8. [How West Ham battled relegation "fear" to find PL survival hope](https://www.skysports.com/football/news/11685/13532889/west-ham-mads-hermansen-on-relegation-fear-lessons-from-leicester-and-how-he-fought-his-way-back-into-hammers-no-1-jersey) - **Sky Sports**
+9. [Door is open for Liverpool to wrap up deal for £80m-rated forward](https://anfieldindex.com/93315/door-is-open-for-liverpool-to-wrap-up-deal-for-80m-rated-forward.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-04-19 18:28:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-19 19:22:31 (KST) / (하루 100회 제한 준수 중)*
