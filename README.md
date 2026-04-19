@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Lynch won't get 'carried away' ending winless run](https://www.bbc.com/sport/football/articles/cn9q439ewxyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Opposition Lowdown: Cardiff City On Verge Of Promotion](https://thetilehurstend.sbnation.com/opposition-lowdown-reading-fc-royals/54889/opposition-lowdown-cardiff-city-on-verge-of-promotion) - **SB Nation**
-3. ["Mission is to lift the IPL trophy, but more you stay in present, more you stay in control": PBKS captain Shreyas Iyer](https://economictimes.indiatimes.com/news/sports/mission-is-to-lift-the-ipl-trophy-but-more-you-stay-in-present-more-you-stay-in-control-pbks-captain-shreyas-iyer/articleshow/130348954.cms) - **The Times of India**
-4. [“The reason” – Ben Jacobs reveals why Chelsea have cooled their interest in Premier League ace](https://chelsea.news/2026/04/chelsea-bournemouth-marcos-senesi-transfer/) - **Chelsea.news**
-5. [Manchester City vs Arsenal: Match preview, predicted line-ups, team news and prediction](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6f9bcbea-6388-4f7f-b8bb-b2bc0b70ee1a) - **Yahoo Entertainment**
-6. [Keane dares ‘too nice’ Declan Rice to get ruthless and drag Arsenal to title in crunch Man City showdown](https://www.footballmuse.com/news/keane-dares-too-nice-declan-rice-to-get-ruthless-and-drag-arsenal-to-title-in-crunch-man-city-showdown) - **Footballmuse.com**
-7. [Manchester City’s 2026/27 pre-season tour plans due to be unveiled](https://cityxtra.co.uk/44832/manchester-citys-2026-27-pre-season-tour-plans-due-to-be-unveiled/) - **Cityxtra.co.uk**
-8. [Newcastle open to offers for Premier League star just months after £55m transfer](https://footballtoday.com/2026/04/18/newcastle-open-to-offers-for-premier-league-star-just-months-after-55m-transfer/) - **Footballtoday.com**
-9. [Report: Leeds United are in the race to sign Juventus star](https://eplindex.com/145428/report-leeds-united-are-in-the-race-to-sign-juventus-star.html) - **English Premier League Index - Opta Stats**
+1. [Manchester City make decision on John Stones future ahead of June contract expiry](https://cityxtra.co.uk/44846/manchester-city-make-decision-on-john-stones-future-ahead-of-june-contract-expiry/) - **Cityxtra.co.uk**
+2. [Man City vs Arsenal: All you need to know about title showdown](https://www.aljazeera.com/sports/2026/4/18/man-city-vs-arsenal-all-you-need-to-know-about-title-showdown) - **Al Jazeera English**
+3. [‘Not on the bench’ – Slot delivers honest injury update](https://www.empireofthekop.com/2026/04/18/not-on-the-bench-slot-delivers-honest-injury-update-danns/) - **Empire of The Kop**
+4. [Arsenal show ‘strong interest’ in Leicester City teenager](https://dailycannon.com/2026/04/arsenal-leicester-jeremy-monga/) - **Dailycannon.com**
+5. [Manchester City v Arsenal: Line-ups, stats and preview](https://www.101greatgoals.com/football/premier-league/manchester-city-arsenal-lineups-stats/) - **101 Great Goals**
+6. [Who is Arsenal’s worst player this season?](https://www.justarsenal.com/who-is-arsenals-worst-player-this-season/413753) - **Just Arsenal News**
+7. [Everton v Liverpool: Line-ups, stats and preview](https://www.101greatgoals.com/match-previews/premier-league-matches/everton-v-liverpool-line-ups-stats-and-preview/) - **101 Great Goals**
+8. [“Am told” – Journalist reveals how Levi Colwill’s return to action for Chelsea’s under-21s went](https://chelsea.news/2026/04/levi-colwill-chelsea-under-21s/) - **Chelsea.news**
 
 
 ---
-*최근 업데이트: 2026-04-19 16:24:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-19 17:34:28 (KST) / (하루 100회 제한 준수 중)*
