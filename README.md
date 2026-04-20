@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arteta tells Arsenal to 'go again' in pursuit of Premier League title](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_10de2ee3-d006-45e2-98cc-540403ab34bc) - **Yahoo Entertainment**
-2. [Man City star Rodri to undergo tests on groin injury sustained against Arsenal](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a00f25d2-ad72-4ed7-871b-06e56097a95f) - **Yahoo Entertainment**
-3. [Heaven and Mazraoui: Lammens delivers verdict on United duo](https://thepeoplesperson.com/2026/04/19/heaven-and-mazraoui-lammens-delivers-verdict-on-united-duo-309065/) - **The Peoples Person**
-4. [Cherki Gets 8, Khusanov With 7.5 | Manchester City Players Rated In Hard-Fought Win Vs Arsenal](https://the4thofficial.net/2026/04/cherki-gets-8-khusanov-with-7-5-manchester-city-players-rated-in-hard-fought-win-vs-arsenal/) - **The4thofficial.net**
-5. [Liverpool start talks to agree blockbuster £80m transfer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-start-talks-to-agree-blockbuster-ps80m-transfer/) - **Anfieldwatch.co.uk**
-6. [Bernardo buzzing as Man City beat Arsenal in high-stakes shootout](https://thefootballfaithful.com/bernardo-buzzing-as-man-city-beat-arsenal-in-high-stakes-shootout/) - **The Football Faithful**
-7. [Haaland calls for focus after vital victory over Arsenal](https://www.mancity.com/news/mens/haaland-post-arsenal-reaction-pl-19-april-63912219) - **Manchester City FC**
-8. [Guardiola hails Arsenal win as good advert for Premier League](https://thefootballfaithful.com/guardiola-hails-arsenal-win-as-good-advert-for-premier-league/) - **The Football Faithful**
-9. [Every word from Arteta's post-City presser](http://www.arsenal.com/news/every-word-artetas-post-city-presser-2) - **Arsenal.com**
-10. [The title-race verdict: Guardiola, Arteta, players and pundits have their say](https://www.skysports.com/football/news/11661/13533897/premier-league-title-race-verdict-pep-guardiola-mikel-arteta-players-and-sky-sports-pundits-have-their-say-after-man-city-beat-arsenal) - **Sky Sports**
+1. [PREVIEW | Brighton & Hove Albion vs Chelsea: team news, lineups, predictions (Premier League 21/04)](https://www.playmakerstats.com/news/preview-brighton-hove-albion-vs-chelsea-team-news-lineups-predictions-premier-league-21-04-/1098974) - **Playmakerstats.com**
+2. [Pep Guardiola reaction — What did Man City boss say after beating Arsenal in title six-pointer? - NBC Sports](https://slashdot.org/firehose.pl?op=view&amp;id=181760718) - **Slashdot.org**
+3. [EPL: Arteta urges Arsenal to push on in title race](https://punchng.com/epl-arteta-urges-arsenal-to-push-on-in-title-race/) - **The Punch**
+4. [Leeds United Face Setback In €100M Defensive Target’s Chase: What Does This Mean For Their Transfer Plans?](https://the4thofficial.net/2026/04/leeds-united-face-setback-in-e100m-defensive-targets-chase-what-does-this-mean-for-their-transfer-plans/) - **The4thofficial.net**
+5. [Are Man City now title favourites after win over Arsenal?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d64e50f6-69a3-4993-9f6a-aa726875910a) - **Yahoo Entertainment**
+6. [Title race starts now, says defiant Arsenal boss Arteta](https://www.channelnewsasia.com/sport/title-race-starts-now-says-defiant-arsenal-boss-arteta-6066766) - **CNA**
+7. [Are Man City now title favourites after win over Arsenal?](https://www.bbc.com/sport/football/articles/c1kr1jk0wnpo) - **BBC News**
+8. [Salah scores in Merseyside derby as Liverpool win to boost European hopes](https://www.aljazeera.com/sports/2026/4/19/salah-scores-in-merseyside-derby-as-liverpool-win-to-boost-european-hopes) - **Al Jazeera English**
+9. [Premier League Team of the Week – Silva, Gibbs-White, Cherki](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_dcb0f8dc-d093-4e0a-a8ff-98e429d98ada) - **Yahoo Entertainment**
+10. [Arteta insists Arsenal still have title belief despite Man City setback](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_368489f2-bcf1-4055-9609-a2ace31a7158) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-04-21 03:42:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-21 05:00:29 (KST) / (하루 100회 제한 준수 중)*
