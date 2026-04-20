@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Salah writes history again with Merseyside derby opener ](https://onefootball.com/en/news/salah-writes-history-again-with-merseyside-derby-opener-42735745) - **Onefootball.com**
-2. [Varun Chakaravarthy completes 200 T20 wickets during KKR vs RR IPL 2026 match](https://economictimes.indiatimes.com/news/sports/varun-chakaravarthy-completes-200-t20-wickets-during-kkr-vs-rr-ipl-2026-match/articleshow/130371477.cms) - **The Times of India**
-3. [ Man City v Arsenal: the combined XI for the Premier League clash ](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d0ca5969-50c9-426c-841c-f452afc1c9a5) - **Yahoo Entertainment**
-4. [Canadian league sees first goal under new offside rule, watch ](https://onefootball.com/en/news/canadian-league-sees-first-goal-under-new-offside-rule-watch-42735700) - **Onefootball.com**
-5. [You can't deny Ollie Watkins' all-timer status at Aston Villa ](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_77fe9e1b-9e73-4fcf-92c0-46056d1ea3cf) - **Yahoo Entertainment**
-6. [“Things were good…” – Caicedo points to positives in Chelsea defeat](https://chelsea.news/2026/04/caicedo-points-positives-chelsea-defeat/) - **Chelsea.news**
-7. [Rajasthan Royals vs Kolkata Knight Riders match: KKR skipper Ajinkya Rahane registers record 12th duck as opener in IPL](https://economictimes.indiatimes.com/news/sports/rajasthan-royals-vs-kolkata-knight-riders-match-kkr-skipper-ajinkya-rahane-registers-record-12th-duck-as-opener-in-ipl/articleshow/130371283.cms) - **The Times of India**
-8. [How to watch Manchester City vs Arsenal Premier League match today – TV and live stream details](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_33059f6b-85cd-4700-aba3-ebdb14377c8a) - **Yahoo Entertainment**
-9. [Tottenham Hotspur Aim For Premier League Safety As Inter Milan Target Misses De Zerbi’s First Games Through Injury](https://sempreinter.com/2026/04/19/inter-spurs-keeper-vicario-injury-concern/) - **SempreInter**
-10. [Aston Villa vs Sunderland LIVE updates, watch live, score, analysis, highlights](https://www.nbcsports.com/aston-villa-vs-sunderland-live-updates-score-highlights-stats-watch) - **NBCSports.com**
+1. [Aston Villa 4-3 Sunderland: All-time classic ends in Villa delight](https://www.nbcsports.com/aston-villa-vs-sunderland-video-highlights-recap-score) - **NBCSports.com**
+2. [Player Ratings: Everton 1-2 Liverpool – as Reds Win the Derby](https://anfieldindex.com/93344/player-ratings-everton-1-2-liverpool-as-reds-win-the-derby.html) - **Anfieldindex.com**
+3. [Everton 1-2 Liverpool: Report, result and goals as Van Dijk grabs late winner in Merseyside derby](https://www.101greatgoals.com/football/premier-league/everton-1-2-liverpool-report-result-goals/) - **101 Great Goals**
+4. [Van Dijk scores late winner to snatch 2-1 derby win over Everton](https://www.channelnewsasia.com/sport/liverpools-van-dijk-scores-late-winner-in-2-1-derby-win-over-everton-6066516) - **CNA**
+5. [Van Dijk scores late winner to snatch 2-1 derby win over Everton](https://www.channelnewsasia.com/sport/liverpools-van-dijk-scores-late-winner-in-2-1-derby-win-over-everton-6066516) - **CNA**
+6. [Gibbs-White's hat-trick boosts Forest's survival hopes with win over Burnley](https://www.skysports.com/football/news/11727/13533092/nottingham-forest-4-1-burnley-morgan-gibbs-white-hits-hat-trick-to-boost-forests-survival-hopes) - **Sky Sports**
+7. [Everton 1, Liverpool 2 – Match Recap: History At The Hill Dick](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/79934/everton-1-liverpool-2-epl-2026-result-recap-mohamed-salah-mamardashvili-virgil-van-dijk) - **SB Nation**
+8. [Nottingham Forest 4-1 Burnley: City Ground relishes Morgan Gibbs-White hat trick, relegation relief](https://www.nbcsports.com/soccer/news/nottingham-forest-vs-burnley-recap-final-score-video-highlights-analysis-morgan-gibbs-white-hat-trick-goals) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-04-20 22:49:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-21 00:17:45 (KST) / (하루 100회 제한 준수 중)*
