@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Juventus ready to launch renewal talks with defender wanted at Man Utd](https://www.juvefc.com/juventus-contract-talks-man-utd-pierre-kalulu/) - **JuveFC**
-2. [With a screamer and bizarre blunder: City and Arsenal in mad 'final'](https://onefootball.com/en/news/with-a-screamer-and-bizarre-blunder-city-and-arsenal-in-mad-final-42736457) - **Onefootball.com**
-3. [Hits & Misses: Old greats step up for Liverpool, Villa set up perfect season finish](https://www.skysports.com/football/news/11095/13533832/mo-salah-virgil-van-dijk-step-up-for-liverpool-in-merseyside-derby-aston-villa-set-up-perfect-run-in-premier-league-hits-and-misses) - **Sky Sports**
-4. [Virgil van Dijk snatches victory for Liverpool in first derby at Everton’s new home](https://www.irishtimes.com/sport/soccer/2026/04/19/virgil-van-dijk-snatches-victory-for-liverpool-in-first-derby-at-evertons-new-home/) - **The Irish Times**
-5. [Salah targets perfect Liverpool farewell after Everton win](https://thefootballfaithful.com/salah-targets-perfect-liverpool-farewell-after-everton-win/) - **The Football Faithful**
-6. [Everton 1-2 Liverpool: What Moyes said](https://www.bbc.com/sport/football/articles/cpvxw4x3m1xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Liverpool edge Everton with stoppage-time winner to boost European hopes](https://www.channelnewsasia.com/sport/liverpool-edge-everton-stoppage-time-winner-boost-european-hopes-6066571) - **CNA**
-8. [Man City's Haaland nets winner against Arsenal, Van Dijk clinches derby for Liverpool](https://www.channelnewsasia.com/sport/man-citys-haaland-nets-winner-against-arsenal-van-dijk-clinches-derby-liverpool-6066571) - **CNA**
-9. [David Moyes “worried about” Jarrad Branthwaite after Merseyside Derby](http://www.toffeeweb.com/season/25-26/news/47483.html) - **Toffeeweb**
+1. [Manchester City 2-1 Arsenal: Report, result and goals as Haaland dagger dents Gunners title hopes](https://www.101greatgoals.com/football/premier-league/manchester-city-2-1-arsenal-report-result-and-goals/) - **101 Great Goals**
+2. [Manchester City vs. Arsenal: How Gunners stumbled again as Erling Haaland goal tightens Premier League race](https://www.cbssports.com/soccer/news/manchester-city-vs-arsenal-erling-haaland-goal-premier-league-race/) - **CBS Sports**
+3. [City take control of title race with victory over Arsenal](https://www.rte.ie/sport/soccer/2026/0419/1569002-city-take-control-of-title-race-with-victory-over-arsenal/) - **RTE**
+4. [Bayern Munich clinch Bundesliga title](https://www.dw.com/en/bayern-munich-clinch-bundesliga-title/a-76849660) - **DW (English)**
+5. [Bayern Munich beat Stuttgart to clinch Bundesliga title](https://www.dw.com/en/bayern-munich-beat-stuttgart-to-clinch-bundesliga-title/a-76849660) - **DW (English)**
+6. [Manchester City overwhelm Arsenal as kings of the spring take control of the title race](https://www.nbcsports.com/soccer/news/manchester-city-overwhelm-arsenal-as-kings-of-the-spring-take-control-of-the-title-race) - **NBCSports.com**
+7. [Haaland fires City to crucial victory over Arsenal](https://www.mancity.com/news/mens/city-v-arsenal-premier-league-match-report-63912207) - **Manchester City FC**
+8. [Gallery: Cherki and Haaland sink Gunners!](https://www.mancity.com/news/mens/city-v-arsenal-match-gallery-pl-19-april-63912187) - **Manchester City FC**
+9. [It's not too late: Liverpool must reverse course and keep star player](https://www.anfieldwatch.co.uk/liverpool-fc/news/its-not-too-late-liverpool-must-reverse-course-and-keep-star-player/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-04-21 01:37:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-21 02:40:00 (KST) / (하루 100회 제한 준수 중)*
