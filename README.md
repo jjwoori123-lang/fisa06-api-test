@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The sport ‘anyone’ can do that improves heart health and helps people lose weight](https://www.the-independent.com/life-style/health-and-families/walking-football-benefits-league-age-uk-b2960573.html) - **The-independent.com**
-2. [Everton v Liverpool: Confirmed team news for massive Merseyside derby as Salah starts](https://www.101greatgoals.com/football/premier-league/everton-v-liverpool-confirmed-team-news-for-massive-merseyside-derby-as-salah-starts/) - **101 Great Goals**
-3. [Former Real Madrid captain backs the signing of Premier League star: ‘An extraordinary player’](https://madriduniversal.com/former-real-madrid-captain-backs-the-signing-of-premier-league-star-an-extraordinary-player/) - **Madriduniversal.com**
-4. [LIVE: Manchester City vs Arsenal – Premier League](https://www.aljazeera.com/sports/liveblog/2026/4/19/live-manchester-city-vs-arsenal-premier-league-2) - **Al Jazeera English**
-5. [Two key men for Manchester City will be vital against Arsenal](https://esteemedkompany.com/2026/04/19/two-key-men-for-manchester-city-will-be-vital-against-arsenal/) - **Esteemedkompany.com**
-6. [2026 NFL mock draft: What Dexter Lawrence trade might mean for Giants, first round](https://www.usatoday.com/story/sports/nfl/draft/2026/04/19/2026-nfl-mock-draft-dexter-lawrence-trade-giants-bengals/89688112007/) - **USA Today**
-7. [How to watch Everton vs Liverpool Merseyside Derby today – TV and live stream details](https://anfieldindex.com/93333/how-to-watch-everton-vs-liverpool-merseyside-derby-today-tv-and-live-stream-details.html) - **Anfieldindex.com**
-8. [Spurs condemn 'vile' racist abuse aimed at Danso](https://www.bbc.com/sport/football/articles/c62jv527x85o) - **BBC News**
-9. [Premier League: First Merseyside derby at Hill Dickinson among three games coming up](https://www.bbc.com/sport/football/live/cvg8gx4e22wt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [“If we don’t win, it’s over” – Pep Guardiola sends blunt Arsenal message to Manchester City squad](https://cityxtra.co.uk/44917/if-we-dont-win-its-over-pep-guardiola-sends-blunt-arsenal-message-to-manchester-city-squad/) - **Cityxtra.co.uk**
+1. [Salah writes history again with Merseyside derby opener ](https://onefootball.com/en/news/salah-writes-history-again-with-merseyside-derby-opener-42735745) - **Onefootball.com**
+2. [Varun Chakaravarthy completes 200 T20 wickets during KKR vs RR IPL 2026 match](https://economictimes.indiatimes.com/news/sports/varun-chakaravarthy-completes-200-t20-wickets-during-kkr-vs-rr-ipl-2026-match/articleshow/130371477.cms) - **The Times of India**
+3. [ Man City v Arsenal: the combined XI for the Premier League clash ](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d0ca5969-50c9-426c-841c-f452afc1c9a5) - **Yahoo Entertainment**
+4. [Canadian league sees first goal under new offside rule, watch ](https://onefootball.com/en/news/canadian-league-sees-first-goal-under-new-offside-rule-watch-42735700) - **Onefootball.com**
+5. [You can't deny Ollie Watkins' all-timer status at Aston Villa ](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_77fe9e1b-9e73-4fcf-92c0-46056d1ea3cf) - **Yahoo Entertainment**
+6. [“Things were good…” – Caicedo points to positives in Chelsea defeat](https://chelsea.news/2026/04/caicedo-points-positives-chelsea-defeat/) - **Chelsea.news**
+7. [Rajasthan Royals vs Kolkata Knight Riders match: KKR skipper Ajinkya Rahane registers record 12th duck as opener in IPL](https://economictimes.indiatimes.com/news/sports/rajasthan-royals-vs-kolkata-knight-riders-match-kkr-skipper-ajinkya-rahane-registers-record-12th-duck-as-opener-in-ipl/articleshow/130371283.cms) - **The Times of India**
+8. [How to watch Manchester City vs Arsenal Premier League match today – TV and live stream details](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_33059f6b-85cd-4700-aba3-ebdb14377c8a) - **Yahoo Entertainment**
+9. [Tottenham Hotspur Aim For Premier League Safety As Inter Milan Target Misses De Zerbi’s First Games Through Injury](https://sempreinter.com/2026/04/19/inter-spurs-keeper-vicario-injury-concern/) - **SempreInter**
+10. [Aston Villa vs Sunderland LIVE updates, watch live, score, analysis, highlights](https://www.nbcsports.com/aston-villa-vs-sunderland-live-updates-score-highlights-stats-watch) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-04-20 20:55:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-20 22:49:25 (KST) / (하루 100회 제한 준수 중)*
