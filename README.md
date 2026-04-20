@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester City defender returns to training after recovering from international break injury](https://cityxtra.co.uk/44907/manchester-city-defender-returns-to-training-after-recovering-from-international-break-injury/) - **Cityxtra.co.uk**
-2. [Manchester City look to have a weapon that Arsenal lack which could prove decisive today](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_45664a34-8709-4b8f-b2e2-43cf8f8c89a3) - **Yahoo Entertainment**
-3. [NYT Connections Sports Edition April 19 2026 Solved: AL East Teams and Dodgers Nicknames Crack Puzzle 573](https://www.ibtimes.com.au/nyt-connections-sports-edition-april-19-2026-solved-al-east-teams-dodgers-nicknames-crack-puzzle-1866985) - **Ibtimes.com.au**
-4. [Where to watch Everton vs. Liverpool live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-everton-liverpool-live-stream-tv-channel-time-premier-league/9d17f70b5486e24cd9758a4b) - **Sporting News**
-5. [Transfer insider names 5 Liverpool players who could follow Salah and Robertson out of Anfield](https://www.empireofthekop.com/2026/04/19/transfer-insider-names-5-liverpool-players-who-could-leave-this-summer/) - **Empire of The Kop**
-6. [Is a Champions League place more valuable than winning a trophy](https://www.justarsenal.com/is-a-champions-league-place-more-valuable-than-winning-a-trophy/413830) - **Just Arsenal News**
-7. [Everton vs. Liverpool: Premier League 2025-26 Live Coverage & How to Watch](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/79944/everton-liverpool-premier-league-2025-26-live-coverage-how-to-watch-streaming-tv) - **SB Nation**
-8. [Rangers to demand £20m for Fernandez - gossip](https://www.bbc.com/sport/football/articles/cy51d4dxkz4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Rangers to demand £20m for Fernandez - gossip](https://www.bbc.com/sport/football/articles/cy51d4dxkz4o) - **BBC News**
-10. [Manchester City vs Arsenal – Predicted lineup and team news](https://thefootballfaithful.com/manchester-city-vs-arsenal-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+1. [Brentford star set to make permanent move to newly promoted side](https://eplindex.com/145473/brentford-star-set-to-make-permanent-move-to-newly-promoted-side.html) - **English Premier League Index - Opta Stats**
+2. [Spurs report 'abhorrent racist abuse' of Danso to police](https://www.rte.ie/sport/soccer/2026/0419/1569031-spurs-report-abhorrent-racist-abuse-of-danso-to-police/) - **RTE**
+3. [Chelsea ace told he’s “not good enough to be a regular starter” after Man United loss](https://chelsea.news/2026/04/alejandro-garnacho-chelsea-man-united-performance/) - **Chelsea.news**
+4. ['Atmosphere inside Stamford Bridge growing quieter with each game'](https://www.bbc.com/sport/football/articles/c1j71r5dyedo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Tottenham condemn ‘vile’ racist abuse aimed at Danso](https://www.101greatgoals.com/football/premier-league/tottenham-condemn-vile-racist-abuse-aimed-at-danso/) - **101 Great Goals**
+6. ['De Zerbi's task now is to lift his players after emotional rollercoaster'](https://www.bbc.com/sport/football/articles/c624ql60r24o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Inter Milan Unlikely To Make Summer Move For Italy Starlet Unless Premier League Offer Arrives For Netherlands International](https://sempreinter.com/2026/04/19/inter-milan-unlikely-palestra-unless-dumfries-leaves/) - **SempreInter**
+8. [Why is Bukayo Saka not playing for Arsenal vs. Manchester City?](https://www.usatoday.com/story/sports/soccer/epl/2026/04/19/bukayo-saka-injury-update-arsenal-lineup-vs-man-city/89661186007/) - **USA Today**
+9. [2026 NFL Draft rankings: Jordyn Tyson leads best WR prospects](https://www.usatoday.com/story/sports/nfl/draft/2026/04/19/nfl-draft-position-rankings-wide-receivers-best-available-2026/89579235007/) - **USA Today**
 
 
 ---
-*최근 업데이트: 2026-04-20 17:23:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-20 19:21:25 (KST) / (하루 100회 제한 준수 중)*
