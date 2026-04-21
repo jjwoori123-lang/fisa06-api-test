@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sri Lanka's Shanaka given one-year PSL ban for unilateral withdrawal](https://www.channelnewsasia.com/sport/sri-lankas-shanaka-given-one-year-psl-ban-unilateral-withdrawal-6068616) - **CNA**
-2. [Man United legend urges Red Devils to give Michael Carrick manager's job full-time when Champions League qualification is confirmed](https://www.dailymail.com/sport/football/article-15749029/Man-United-legend-Red-Devils-Michael-Carrick.html) - **Dailymail.com**
-3. [Who will win the next 5 Super Bowls and how will the Rams perform?](https://www.turfshowtimes.com/general/138184/nfl-rams-predictions-next-5-super-bowl) - **Turf Show Times**
-4. [Pick of the stats: Sheffield United v Blackburn Rovers](https://www.bbc.com/sport/football/articles/cly9ll9j89eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Ibrahima Konate gets far from Real Madrid as the Frenchman nears an agreement with Liverpool: ‘I’m here next season’](https://worldsoccertalk.com/news/ibrahima-konate-gets-far-from-real-madrid-as-the-frenchman-nears-an-agreement-with-liverpool-im-here-next-season/) - **Worldsoccertalk.com**
-6. [‘Scapegoat’ Ex-Gunners reveals difference between playing for Arsenal and Fulham](https://www.justarsenal.com/scapegoat-ex-gunners-reveals-difference-between-playing-for-arsenal-and-fulham/413908) - **Just Arsenal News**
-7. [Brentford Academy awarded Category One status](https://www.brentfordfc.com/en/news/article/academy-brentford-awarded-category-one-status-premier-league-) - **Brentfordfc.com**
-8. [Erling Haaland explained why his girlfriend was upset after the match vs. Arsenal](https://www.marca.com/en/football/premier-league/2026/04/20/69e645feca4741b46d8b45a4.html) - **Marca**
-9. [Let's get ready to rumble: Erling Haaland insists he is up for the title fight... even if his girlfriend is not a fan of his battle scars!](https://www.dailymail.com/sport/football/article-15747767/Erling-Haaland-Premier-League-title-fight-Gabriel-battle.html) - **Dailymail.com**
-10. [Predictor picks: Find out who our expert is backing this gameweek... and play the game with £1,000 up for grabs](https://www.dailymail.com/sport/football/article-15747971/Predictor-picks-gameweek-34.html) - **Dailymail.com**
+1. [Inter Weigh Barcelona Talent as Part of Bastoni Package](https://cultofcalcio.com/inter-weigh-barcelona-talent-as-part-of-bastoni-package/) - **Cultofcalcio.com**
+2. [Promotion secured - can Bromley make more history?](https://www.bbc.com/sport/football/articles/c5yv3em8rdyo) - **BBC News**
+3. [The reason Emma Raducanu once gave for why she became a Tottenham Hotspur fan](https://www.hitc.com/the-reason-emma-raducanu-once-gave-for-why-she-became-a-tottenham-hotspur-fan/) - **HITC - Football, Gaming, Movies, TV, Music**
+4. [“Pretty seismic” Sami Mokbel says Arsenal must not bottle the title](https://www.justarsenal.com/pretty-seismic-sami-mokbel-says-arsenal-must-not-bottle-the-title/413917) - **Just Arsenal News**
+5. [Declan Rice is right - this title race isn't done yet. Here are five reasons why Arsenal CAN still win the Premier League - from the returning player who will 'unleash havoc', to the mentality shift on display against Man City](https://www.dailymail.com/sport/football/article-15748769/declan-rice-arsenal-premier-league-title.html) - **Dailymail.com**
+6. [Brighton vs Chelsea: Match Preview, Latest Team News and Score Prediction](https://eplindex.com/145547/brighton-vs-chelsea-match-preview-latest-team-news-and-score-prediction.html) - **English Premier League Index - Opta Stats**
+7. [Rose to take charge at Bournemouth after Iraola exit](https://sports.yahoo.com/articles/rose-charge-bournemouth-iraola-exit-164933545.html) - **Yahoo Entertainment**
+8. [Rosenior insists he has ‘100%’ Chelsea support after four straight defeats](https://www.101greatgoals.com/football/premier-league/rosenior-insists-chelsea-support/) - **101 Great Goals**
+9. [These exits already confirmed for this summer ](https://onefootball.com/en/news/these-exits-already-confirmed-for-this-summer-42741459) - **Onefootball.com**
+10. [Timo Werner's message to Son Heung-min before turning his game into a nightmare](https://www.marca.com/en/football/mls/2026/04/20/69e6579bca47418e528b459b.html) - **Marca**
 
 
 ---
-*최근 업데이트: 2026-04-22 00:46:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-22 02:07:20 (KST) / (하루 100회 제한 준수 중)*
