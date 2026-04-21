@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Why Wolves' relegation had been coming after slow decline](https://www.bbc.com/sport/football/articles/ckg3l2k81x5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Why Wolves' relegation had been coming after slow decline](https://www.bbc.com/sport/football/articles/ckg3l2k81x5o) - **BBC News**
-3. [Wolves officially relegated as West Ham draw with Palace](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_043b69d3-f788-4538-8c8c-a3df250a7d6d) - **Yahoo Entertainment**
-4. [Chelsea injury latest: Enzo Fernandez, Joao Pedro and more](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_90f611eb-996c-454e-93b1-3425821a3df3) - **Yahoo Entertainment**
-5. [Padres on verge of record $3.9 billion sale](https://www.kpbs.org/podcasts/kpbs-midday-edition/padres-on-verge-of-record-3-9-billion-sale) - **KPBS**
-6. [Everton are down... but not out](http://www.toffeeweb.com/season/25-26/news/47487.html) - **Toffeeweb**
-7. [Liverpool confirm intentions for €170m midfield star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-confirm-intentions-for-eur170m-midfield-star-ryan-gravenberch/) - **Anfieldwatch.co.uk**
-8. [How to watch NBA Playoffs 2026: live streams, schedule, TV channels](https://www.techradar.com/how-to-watch/basketball/how-to-watch-nba-playoffs-2026-live-streams-schedule-tv-channels) - **TechRadar**
-9. ['Trust' the key word underlying Shelbourne slide in form](https://www.rte.ie/sport/soccer/2026/0420/1569152-trust-the-key-word-underlying-shelbourne-slide-in-form/) - **RTE**
-10. [Leeds United Contact Failed Serie A Striker For Transfer: Will A Loan Suit The PL Side?](https://the4thofficial.net/2026/04/leeds-united-contact-failed-serie-a-striker-for-transfer-will-a-loan-suit-the-pl-side/) - **The4thofficial.net**
+1. [Ibrahima Konaté Set to Stay at Liverpool, Ending Real Madrid Links](https://www.managingmadrid.com/latest-news/106630/ibrahima-konate-set-to-stay-at-liverpool-ending-real-madrid-links) - **Managing Madrid**
+2. [$1 Billion Attack? France Boasts Scoring Depth Other World Cup Teams Only Dream Of](https://www.foxsports.com/stories/soccer/billiondollar-attack-france-boasts-a-rich-scoring-depth-other-world-cup-teams-only-dream-of) - **Fox Sports**
+3. ['It will go all the way' - Nuno on relegation battle after Palace draw](https://www.bbc.com/sport/football/videos/cwyxjq2dgxgo) - **BBC News**
+4. [Nicky Butt tears Alejandro Garnacho apart: Former Man United academy manager reveals how star 'got above his station' when he joined the club: 'His attitude was a DISGRACE'](https://www.dailymail.com/sport/football/article-15749779/nicky-butt-alejandro-garnacho-attitude.html) - **Dailymail.com**
+5. [Nicky Butt tears Alejandro Garnacho apart: Former Man United academy manager reveals how star 'got above his station' when he joined the club: 'His attitude was a DISGRACE'](
+	https://www.dailymail.com/sport/football/article-15749779/nicky-butt-alejandro-garnacho-attitude.html?ns_mchannel=rss&ito=1490&ns_campaign=1490
+      ) - **Dailymail.com**
+6. [West Ham's draw at Palace relegates Wolves, piles pressure on Spurs](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_af4cbe77-eab0-45d7-9a1e-da9a44a9c8ac) - **Yahoo Entertainment**
+7. [Test Match Special Podcast](https://www.bbc.co.uk/sounds/play/p0nfl9z8?at_campaign=rss) - **BBC News**
+8. [Manchester City's Rodri To Undergo Tests On Groin Injury Suffered Against Arsenal](https://www.foxsports.com/stories/other/manchester-city-rodri-undergo-tests-groin-injury-suffered-against-arsenal) - **Fox Sports**
 
 
 ---
-*최근 업데이트: 2026-04-22 05:56:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-22 06:53:00 (KST) / (하루 100회 제한 준수 중)*
