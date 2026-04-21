@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United co-owner Jim Ratcliffe could not stop smiling when news of Chelsea’s offer for Alejandro Garnacho reached him](https://sportsview.co.uk/2026/04/manchester-united-co-owner-jim-ratcliffe-could-not-stop-smiling-when-news-of-chelseas-offer-for-alejandro-garnacho-reached-him?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-co-owner-jim-ratcliffe-could-not-stop-smiling-when-news-of-chelseas-offer-for-alejandro-garnacho-reached-him) - **Sportsview.co.uk**
-2. [Roy Keane says Man City has momentum but Arsenal has to “go again”](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_41e19be2-366f-453e-aea2-395ecdcd179e) - **Yahoo Entertainment**
-3. [Brighton v Chelsea: Line-ups, stats and preview](https://www.101greatgoals.com/match-previews/premier-league-matches/brighton-chelsea-preview/) - **101 Great Goals**
-4. [The Questions I Want To Ask Sunny Mehta](https://www.allaboutthejersey.com/devils-issues-views-and-ge/68890/the-questions-i-want-to-ask-sunny-mehta) - **All About The Jersey**
-5. [Roy Keane says Man City has momentum but Arsenal has to “go again”](https://www.justarsenal.com/roy-keane-says-man-city-has-momentum-but-arsenal-has-to-go-again/413907) - **Just Arsenal News**
-6. [Trent Williams, 49ers work out new deal](https://www.nbcsports.com/nfl/profootballtalk/rumor-mill/news/trent-williams-49ers-work-out-new-deal) - **NBCSports.com**
-7. [He’d want to break into T20 side first: Zaheer on Shreyas Iyer as India captain](https://indianexpress.com/article/sports/cricket/shreyas-iyer-india-captain-t20-team-zaheer-khan-punjab-kings-10646692/) - **The Indian Express**
-8. [The 10 factors that will decide the Premier League title race](https://www.skysports.com/football/news/11670/13534097/premier-league-title-race-what-are-the-key-pinch-points-as-arsenal-and-man-city-aim-for-ultimate-glory) - **Sky Sports**
-9. [Strong Indian Contingent At Singapore Open](https://www.rediff.com/sports/report/indian-golfers-at-liv-backed-singapore-international-series/20260420.htm) - **Rediff.com**
+1. [Sri Lanka's Shanaka given one-year PSL ban for unilateral withdrawal](https://www.channelnewsasia.com/sport/sri-lankas-shanaka-given-one-year-psl-ban-unilateral-withdrawal-6068616) - **CNA**
+2. [Man United legend urges Red Devils to give Michael Carrick manager's job full-time when Champions League qualification is confirmed](https://www.dailymail.com/sport/football/article-15749029/Man-United-legend-Red-Devils-Michael-Carrick.html) - **Dailymail.com**
+3. [Who will win the next 5 Super Bowls and how will the Rams perform?](https://www.turfshowtimes.com/general/138184/nfl-rams-predictions-next-5-super-bowl) - **Turf Show Times**
+4. [Pick of the stats: Sheffield United v Blackburn Rovers](https://www.bbc.com/sport/football/articles/cly9ll9j89eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Ibrahima Konate gets far from Real Madrid as the Frenchman nears an agreement with Liverpool: ‘I’m here next season’](https://worldsoccertalk.com/news/ibrahima-konate-gets-far-from-real-madrid-as-the-frenchman-nears-an-agreement-with-liverpool-im-here-next-season/) - **Worldsoccertalk.com**
+6. [‘Scapegoat’ Ex-Gunners reveals difference between playing for Arsenal and Fulham](https://www.justarsenal.com/scapegoat-ex-gunners-reveals-difference-between-playing-for-arsenal-and-fulham/413908) - **Just Arsenal News**
+7. [Brentford Academy awarded Category One status](https://www.brentfordfc.com/en/news/article/academy-brentford-awarded-category-one-status-premier-league-) - **Brentfordfc.com**
+8. [Erling Haaland explained why his girlfriend was upset after the match vs. Arsenal](https://www.marca.com/en/football/premier-league/2026/04/20/69e645feca4741b46d8b45a4.html) - **Marca**
+9. [Let's get ready to rumble: Erling Haaland insists he is up for the title fight... even if his girlfriend is not a fan of his battle scars!](https://www.dailymail.com/sport/football/article-15747767/Erling-Haaland-Premier-League-title-fight-Gabriel-battle.html) - **Dailymail.com**
+10. [Predictor picks: Find out who our expert is backing this gameweek... and play the game with £1,000 up for grabs](https://www.dailymail.com/sport/football/article-15747971/Predictor-picks-gameweek-34.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-04-21 23:11:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-22 00:46:36 (KST) / (하루 100회 제한 준수 중)*
