@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool gain upper hand over Barcelona in deal for 21-year-old breakout star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-marco-palestra-atalanta-cagliari-barcelona/) - **Anfieldwatch.co.uk**
-2. [Gustavo Poyet exclusive: ‘Always playing offensive football, that started with me’ at Brighton](https://worldsoccertalk.com/news/gustavo-poyet-exclusive-always-playing-offensive-football-that-started-with-me-at-brighton/) - **Worldsoccertalk.com**
-3. [Report: Liverpool facing major battle to sign £75m forward](https://anfieldindex.com/93397/report-liverpool-facing-major-battle-to-sign-75m-forward.html) - **Anfieldindex.com**
-4. ['Neil Lennon had a major impact for me down the years, but I'm determined to beat him at Hampden,' says Celtic boss Martin O'Neill](https://www.dailymail.com/sport/football/article-15749331/Neil-Lennon-major-impact-years-Im-determined-beat-Hampden-says-Celtic-boss-Martin-ONeill.html) - **Dailymail.com**
-5. [PREVIEW | Burnley vs Manchester City: team news, lineups, predictions (Premier League 22/04)](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_19c5adc2-a851-4b19-ba46-c510d0ae5c5b) - **Yahoo Entertainment**
-6. [Man United’s full-backs are not fit for purpose, says Paul Parker](https://thepeoplesperson.com/2026/04/20/man-uniteds-full-backs-are-not-fit-for-purpose-says-paul-parker-309092/) - **The Peoples Person**
-7. [N.L. government declares dead ball on English soccer team sponsorship](https://www.cbc.ca/news/canada/newfoundland-labrador/soccer-sponsor-barrow-9.7170213) - **CBC News**
-8. [EPL: It’s a new league now, says Arsenal manager Mikel Arteta](https://economictimes.indiatimes.com/news/sports/epl-its-a-new-league-now-says-arsenal-manager-mikel-arteta/articleshow/130401749.cms) - **The Times of India**
-9. [PREVIEW | Bournemouth vs Leeds United: team news, lineups, predictions (Premier League 22/04)](https://www.playmakerstats.com/news/preview-bournemouth-vs-leeds-united-team-news-lineups-predictions-premier-league-22-04-/1099767) - **Playmakerstats.com**
-10. [Arne Slot handpicks £35m replacement for Salah and Ekitike](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-kolo-muani-psg-arne-slot-handpicks-ps35m-replacement-for-salah-and-ekitike/) - **Anfieldwatch.co.uk**
+1. [Why Wolves' relegation had been coming after slow decline](https://www.bbc.com/sport/football/articles/ckg3l2k81x5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Why Wolves' relegation had been coming after slow decline](https://www.bbc.com/sport/football/articles/ckg3l2k81x5o) - **BBC News**
+3. [Wolves officially relegated as West Ham draw with Palace](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_043b69d3-f788-4538-8c8c-a3df250a7d6d) - **Yahoo Entertainment**
+4. [Chelsea injury latest: Enzo Fernandez, Joao Pedro and more](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_90f611eb-996c-454e-93b1-3425821a3df3) - **Yahoo Entertainment**
+5. [Padres on verge of record $3.9 billion sale](https://www.kpbs.org/podcasts/kpbs-midday-edition/padres-on-verge-of-record-3-9-billion-sale) - **KPBS**
+6. [Everton are down... but not out](http://www.toffeeweb.com/season/25-26/news/47487.html) - **Toffeeweb**
+7. [Liverpool confirm intentions for €170m midfield star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-confirm-intentions-for-eur170m-midfield-star-ryan-gravenberch/) - **Anfieldwatch.co.uk**
+8. [How to watch NBA Playoffs 2026: live streams, schedule, TV channels](https://www.techradar.com/how-to-watch/basketball/how-to-watch-nba-playoffs-2026-live-streams-schedule-tv-channels) - **TechRadar**
+9. ['Trust' the key word underlying Shelbourne slide in form](https://www.rte.ie/sport/soccer/2026/0420/1569152-trust-the-key-word-underlying-shelbourne-slide-in-form/) - **RTE**
+10. [Leeds United Contact Failed Serie A Striker For Transfer: Will A Loan Suit The PL Side?](https://the4thofficial.net/2026/04/leeds-united-contact-failed-serie-a-striker-for-transfer-will-a-loan-suit-the-pl-side/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-04-22 04:40:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-22 05:56:45 (KST) / (하루 100회 제한 준수 중)*
