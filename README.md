@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [USMNT roundup: Red-hot Folarin Balogun chasing Ligue 1 history as Americans' World Cup form takes shape](https://sports.yahoo.com/soccer/article/usmnt-roundup-red-hot-folarin-balogun-chasing-ligue-1-history-as-americans-world-cup-form-takes-shape-034321439.html) - **Yahoo Entertainment**
-2. [Jacob Wheeler Wins Major League Fishing’s Bass Pro Shops REDCREST 2026 Presented by Mercury and Lowrance at Table Rock Lake](https://www.globenewswire.com/news-release/2026/04/20/3276688/0/en/Jacob-Wheeler-Wins-Major-League-Fishing-s-Bass-Pro-Shops-REDCREST-2026-Presented-by-Mercury-and-Lowrance-at-Table-Rock-Lake.html) - **GlobeNewswire**
-3. [Red-hot Ben Rice continues to impress in rare chance as Yankees’ leadoff hitter](https://nypost.com/2026/04/19/sports/ben-rice-continues-to-impress-in-rare-chance-as-yankees-leadoff-hitter/) - **New York Post**
-4. [How Man City stole a march on Arsenal in title showdown: Chairman's training ground visit, what Pep Guardiola told his players and the two stars proving crucial off the field, writes JACK GAUGHAN](https://www.dailymail.com/sport/football/article-15742239/How-Man-City-stole-march-Arsenal-title-showdown-Chairmans-training-ground-visit-Pep-Guardiola-told-players-two-stars-proving-crucial-field-writes-JACK-GAUGHAN.html) - **Dailymail.com**
-5. [Iheanacho powers Celtic into Scottish Cup final](https://punchng.com/iheanacho-powers-celtic-into-scottish-cup-final/) - **The Punch**
-6. [Copa del Rey: Simeone explains Lookman substitution](https://punchng.com/copa-del-rey-simeone-explains-lookman-substitution/) - **The Punch**
-7. [History haunts Arsenal as Man City take control of title race](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_46f7136b-9f96-4f83-aafa-a53f8e222c3c) - **Yahoo Entertainment**
-8. [Haji Wright named to EFL Championship’s Team of the Season](https://sbisoccer.com/2026/04/haji-wright-named-to-efl-championships-team-of-the-season) - **Sbisoccer.com**
-9. [Man City 2-1 Arsenal Stats: Erling Haaland Strikes Again as City Take Control of Premier League Title Race - Opta Analyst](https://slashdot.org/firehose.pl?op=view&amp;id=181764572) - **Slashdot.org**
-10. [Rooney and Murphy predict Premier League title outcome](https://www.bbc.com/sport/football/videos/c98mvj79d6zo) - **BBC News**
+1. [What channel is Knicks vs. Hawks on today? Time, TV schedule, live stream to watch Game 2 of NBA Playoffs series](https://www.sportingnews.com/us/nba/news/knicks-hawks-channel-time-schedule-watch-game-2-nba-playoffs/37adefa96ec90317e05844a2) - **Sporting News**
+2. [The BBC puts Chelsea in Europa League fight now as they go 6 points off 14th place](https://chelsea.news/2026/04/the-bbc-puts-chelsea-in-europa-league-fight-now-as-they-go-6-points-off-14th-place/) - **Chelsea.news**
+3. [Argentine superstar prioritises move to Barcelona despite interest from Arsenal, PSG](https://barcauniversal.com/argentine-superstar-prioritises-move-to-barcelona-despite-interest-from-arsenal-psg/) - **Barcauniversal.com**
+4. [Kane scores as Bayern Munich claim Bundesliga title with Stuttgart victory](https://www.aljazeera.com/sports/2026/4/20/kane-scores-as-bayern-munich-claim-bundesliga-title-with-stuttgart-victory) - **Al Jazeera English**
+5. [Harlow Town FC comes out of administration](https://www.bbc.com/news/articles/cx2evdewzqko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Tour Confidential: Unpacking LIV Golf's wild week and uncertain future](https://golf.com/news/liv-golf-future-tour-confidential/) - **Golf.com**
+7. [Toby Collyer: Hull City make transfer decision on Man United loanee](https://thepeoplesperson.com/2026/04/20/toby-collyer-hull-city-make-transfer-decision-on-man-united-loanee-309072/) - **The Peoples Person**
+8. [Haaland's Winner Sets Up Title-Deciding Week for Man City](https://www.rediff.com/sports/report/man-city-eye-summit-as-haaland-urges-focus-ahead-of-burnley-showdown/20260420.htm) - **Rediff.com**
+9. [Chelsea readying ‘creative offers’ to sign £50m Premier League player this summer](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_097fe643-914c-4e2d-adc3-3ed187777aeb) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-04-21 12:47:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-21 15:04:09 (KST) / (하루 100회 제한 준수 중)*
