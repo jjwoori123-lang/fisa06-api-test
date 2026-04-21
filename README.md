@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Franculino Dju: United told what they must do to sign Midtjylland goal machine](https://thepeoplesperson.com/2026/04/20/franculino-dju-united-told-what-they-must-do-to-sign-midtjylland-goal-machine-309104/) - **The Peoples Person**
-2. [Man United enter the race for the hottest prospect in world football: Red Devils prepare £34m bid in attempt to beat Man City and Barcelona to Brazilian wonderkid Eduardo Conceiçao](https://www.dailymail.com/sport/football/article-15750141/man-united-bid-eduardo-conceicao.html) - **Dailymail.com**
-3. [Victor Wembanyama named NBA Defensive Player of the Year as first ever unanimous winner](https://sports.yahoo.com/nba/breaking-news/article/victor-wembanyama-named-nba-defensive-player-of-the-year-as-first-ever-unanimous-winner-221739476.html) - **Yahoo Entertainment**
-4. [‘Have to win no matter what!’ | Carra gives his relegation predictions](https://www.skysports.com/football/video/30998/13534353/premier-league-jamie-carragher-gives-his-relegation-predictions) - **Sky Sports**
-5. [USMNT star opens up on ‘tension building’ as home FIFA World Cup approaches](https://www.alloutsoccer.com/news/usmnt-world-cup-haji-wright-1799693) - **Alloutsoccer.com**
-6. [Wolves RELEGATED from the Premier League: Rob Edwards' strugglers' eight-year stay in the top flight officially over after torrid campaign](https://www.dailymail.com/sport/football/article-15750013/Wolves-RELEGATED-Premier-League.html) - **Dailymail.com**
-7. [West Ham earn crucial point at Palace to confirm Wolves’ relegation](https://footballtoday.com/2026/04/20/west-ham-earn-crucial-point-at-palace-to-confirm-wolves-relegation/) - **Footballtoday.com**
-8. [Wolves Relegated After Crystal Palace And West Ham Ends Scoreless](https://www.foxsports.com/stories/soccer/wolves-are-relegated-after-crystal-palace-and-west-ham-draw) - **Fox Sports**
-9. [Nuno admits ‘It’s going to be a fight until the end’ as West Ham earn point at Crystal Palace](https://www.101greatgoals.com/football/premier-league/nuno-admits-fight-until-end-west-ham/) - **101 Great Goals**
-10. [Palace not clinical enough in West Ham draw - Glasner](https://www.bbc.com/sport/football/videos/c1l9132d6r0o) - **BBC News**
+1. [West Ham's draw at Palace relegates Wolves, piles pressure on Spurs](https://japantoday.com/category/sports/west-ham%27s-draw-at-palace-relegates-wolves-piles-pressure-on-spurs) - **Japan Today**
+2. [Former Chelsea star labeled ‘special’ after scoring first MLS goal against ex-Spurs teammate](https://www.alloutsoccer.com/news/chelsea-spurs-mls-timo-werner-1799730) - **Alloutsoccer.com**
+3. [No pick, no problem: New Falcons GM prepping for first round anyway | Opinion](https://www.usatoday.com/story/sports/nfl/columnist/bell/2026/04/20/falcons-2026-nfl-draft-first-round-pick-trade/89707567007/) - **USA Today**
+4. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/cq5965dgw5no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/cq5965dgw5no) - **BBC News**
+6. [A key battle was definitively won by a Manchester City striker, which proved to be decisive against Arsenal](https://esteemedkompany.com/2026/04/20/a-key-battle-was-definitively-won-by-a-manchester-city-striker-which-proved-to-be-decisive-against-arsenal/) - **Esteemedkompany.com**
+7. [Spurs lifeline or good step for West Ham - who's favourite for drop?](https://www.bbc.com/sport/football/articles/cx2vkw0n3kdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Alan Shearer predicts Eddie Howe WON'T be Newcastle's manager next season - and accuses 'terrible' Toon players of 'chucking him under the bus'](https://www.dailymail.com/sport/football/article-15749947/Alan-Shearer-Eddie-Howe-Newcastle-manager.html) - **Dailymail.com**
+9. [Franculino Dju: United told what they must do to sign Midtjylland goal machine](https://thepeoplesperson.com/2026/04/20/franculino-dju-united-told-what-they-must-do-to-sign-midtjylland-goal-machine-309104/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-04-22 07:40:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-22 08:37:49 (KST) / (하루 100회 제한 준수 중)*
