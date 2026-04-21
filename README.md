@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United look to Champions League rivals in manager search](https://eplindex.com/145519/manchester-united-look-to-champions-league-rivals-in-manager-search.html) - **English Premier League Index - Opta Stats**
-2. [Haaland reminds Arsenal: 'You've come up short before'](https://www.rte.ie/sport/soccer/2026/0420/1569157-haaland-reminds-arsenal-youve-come-up-short-before/) - **RTE**
-3. [Report – Inter Milan Defensive Mainstay Makes Up His Mind On His Future Amid Barcelona Links](https://sempreinter.com/2026/04/20/inter-milan-ace-alessandro-bastoni-makes-decision-future/) - **SempreInter**
-4. [The healing continues for Cork after victory over Tipperary](https://www.irishtimes.com/sport/2026/04/20/the-healing-continues-for-cork-after-victory-over-tipperary/) - **The Irish Times**
-5. [Smart appointment? Why Rose is ideal replacement for Iraola](https://www.skysports.com/football/news/11095/13534056/marco-rose-to-bournemouth-why-andoni-iraola-is-a-fan-of-his-replacement-who-plays-a-similar-style-of-football) - **Sky Sports**
-6. [Steven Gerrard spotted going wild after Van Dijk winner in Crosby](https://www.empireofthekop.com/2026/04/20/steven-gerrard-spotted-going-wild-after-van-dijk-winner-in-crosby/) - **Empire of The Kop**
-7. [‘Two weeks ago this didn’t look very likely’ – Bernardo Silva](https://hayters.com/two-weeks-ago-this-didnt-look-very-likely-bernardo-silva/) - **Hayters.com**
-8. [Liverpool star delivers brutal dig at Everton after his side's last-gasp Merseyside derby win as he reveals row with fans](https://www.dailymail.com/sport/football/article-15746983/Liverpool-star-Everton-Merseyside-Derby.html) - **Dailymail.com**
+1. [Returning injured Arsenal star gives latest on his fitness](https://dailycannon.com/2026/04/odegaard-fitness-update-arsenal/) - **Dailycannon.com**
+2. [Konate says he is close to signing new Liverpool deal](https://www.bbc.com/sport/football/articles/cdj70nngwp2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Supercomputer reveals Arsenal have a 73 PER CENT chance of winning title despite losing to Man City - while it's bad news for Tottenham fans!](https://www.dailymail.com/sport/football/article-15748135/arsenal-opta-supercomputer-premier-league-victory-predictions.html) - **Dailymail.com**
+4. [Konate says he is close to signing new Liverpool deal](https://www.bbc.com/sport/football/articles/cdj70nngwp2o) - **BBC News**
+5. [Camera catches Declan Rice’s message to Odegaard after Arsenal loses](https://www.justarsenal.com/camera-catches-declan-rices-message-to-odegaard-after-arsenal-loses/413892) - **Just Arsenal News**
+6. [Skipper labels Liverpool teammate as “outstanding”](https://anfieldindex.com/93364/skipper-labels-liverpool-team-mate-as-outstanding.html) - **Anfieldindex.com**
+7. [Former Arsenal and Man City player believes one won’t drop anymore points](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d1ba5ff3-a4a6-4d3c-9c05-0182a66848f5) - **Yahoo Entertainment**
+8. [Cristian Romero: Major update emerges on United target’s future](https://thepeoplesperson.com/2026/04/20/cristian-romero-major-update-emerges-on-united-targets-future-309076/) - **The Peoples Person**
+9. [Manchester City and Arsenal could play for the Premier League title with one goal](https://www.marca.com/en/football/premier-league/2026/04/20/69e6018422601dce258b457f.html) - **Marca**
 
 
 ---
-*최근 업데이트: 2026-04-21 18:54:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-21 20:11:26 (KST) / (하루 100회 제한 준수 중)*
