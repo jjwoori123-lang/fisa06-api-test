@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Returning injured Arsenal star gives latest on his fitness](https://dailycannon.com/2026/04/odegaard-fitness-update-arsenal/) - **Dailycannon.com**
-2. [Konate says he is close to signing new Liverpool deal](https://www.bbc.com/sport/football/articles/cdj70nngwp2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Supercomputer reveals Arsenal have a 73 PER CENT chance of winning title despite losing to Man City - while it's bad news for Tottenham fans!](https://www.dailymail.com/sport/football/article-15748135/arsenal-opta-supercomputer-premier-league-victory-predictions.html) - **Dailymail.com**
-4. [Konate says he is close to signing new Liverpool deal](https://www.bbc.com/sport/football/articles/cdj70nngwp2o) - **BBC News**
-5. [Camera catches Declan Rice’s message to Odegaard after Arsenal loses](https://www.justarsenal.com/camera-catches-declan-rices-message-to-odegaard-after-arsenal-loses/413892) - **Just Arsenal News**
-6. [Skipper labels Liverpool teammate as “outstanding”](https://anfieldindex.com/93364/skipper-labels-liverpool-team-mate-as-outstanding.html) - **Anfieldindex.com**
-7. [Former Arsenal and Man City player believes one won’t drop anymore points](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d1ba5ff3-a4a6-4d3c-9c05-0182a66848f5) - **Yahoo Entertainment**
-8. [Cristian Romero: Major update emerges on United target’s future](https://thepeoplesperson.com/2026/04/20/cristian-romero-major-update-emerges-on-united-targets-future-309076/) - **The Peoples Person**
-9. [Manchester City and Arsenal could play for the Premier League title with one goal](https://www.marca.com/en/football/premier-league/2026/04/20/69e6018422601dce258b457f.html) - **Marca**
+1. [“Storm clouds gathering” – Former CEO predicts Chelsea to become mid-table club](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b7175354-c84d-4827-9f8a-dd8d006ca22b) - **Yahoo Entertainment**
+2. [Should Gabriel have been sent off for Haaland clash?](https://www.bbc.com/sport/football/articles/clyrxr66388o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Should Gabriel have been sent off for Haaland clash?](https://www.bbc.com/sport/football/articles/clyrxr66388o) - **BBC News**
+4. [Liverpool’s Konaté nears new contract agreement](https://punchng.com/liverpools-konate-nears-new-contract-agreement/) - **The Punch**
+5. [When do FC 26 Premier League TOTS arrive? #gaming](https://alltoc.com/gaming/when-do-fc-26-premier-league-tots-arrive) - **Alltoc.com**
+6. [What did a supercomputer predict after City win? #sports](https://alltoc.com/sports/what-did-a-supercomputer-predict-after-city-win) - **Alltoc.com**
+7. [Why did Arsenal fear another title collapse? #sports](https://alltoc.com/sports/why-did-arsenal-fear-another-title-collapse) - **Alltoc.com**
+8. [How does goal difference decide Arsenal-City? #sports](https://alltoc.com/sports/how-does-goal-difference-decide-arsenal-city) - **Alltoc.com**
+9. [‘The last seasons they’ve come up short’ – Erling Haaland taunts Arsenal and highlights Man City’s experience for run-in](https://www.independent.ie/sport/soccer/premier-league/the-last-seasons-theyve-come-up-short-erling-haaland-taunts-arsenal-and-highlights-man-citys-experience-for-run-in/a1613983106.html) - **Independent.ie**
+10. [Liverpool's Konate says he is close to agreeing new contract](https://www.channelnewsasia.com/sport/liverpools-konate-says-he-close-agreeing-new-contract-6068186) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-04-21 20:11:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-21 21:10:30 (KST) / (하루 100회 제한 준수 중)*
