@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Where to watch Brighton vs. Chelsea live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-brighton-vs-chelsea-live-stream-tv-channel-time-premier-league/dacdf768b747a4dbd8ca7847) - **Sporting News**
-2. [Jamie Carragher believes Atletico Madrid games could impact Arsenal](https://www.justarsenal.com/jamie-carragher-believes-atletico-madrid-games-could-impact-arsenal/413948) - **Just Arsenal News**
-3. [Aston Villa to upgrade stadium during likely Champions League season ahead of Euro 2028 hosting](https://sports.yahoo.com/articles/aston-villa-upgrade-stadium-during-115937224.html) - **Yahoo Entertainment**
-4. [Liverpool must pay £75m to sign Premier League star this summer](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_26ae4ebf-3b6c-405e-afc8-bf20671c3365) - **Yahoo Entertainment**
-5. [Rodri ruled out of Burnley clash as Pep provides Ruben Dias and John Stones update](https://cityxtra.co.uk/45046/rodri-ruled-out-of-burnley-clash-as-pep-provides-ruben-dias-and-john-stones-update/) - **Cityxtra.co.uk**
-6. [Dutch midfield prodigy tipped for Real Madrid move – ‘Will undoubtedly end up there’](https://madriduniversal.com/dutch-midfield-prodigy-tipped-for-real-madrid-move-will-undoubtedly-end-up-there/) - **Madriduniversal.com**
-7. [Report: Chelsea have made contact over move for Bundesliga forward](https://eplindex.com/145572/report-chelsea-have-made-contact-over-move-for-bundesliga-forward.html) - **English Premier League Index - Opta Stats**
-8. ['Dont' lose the focus' | Guardiola warns Man City players to stay on track in race for the title](https://www.skysports.com/football/video/11679/13534512/pep-guardiola-warns-man-city-players-to-stay-focused-as-they-look-to-overtake-a-consistent-arsenal-team) - **Sky Sports**
-9. [Door now open wide for Man Utd to swoop in and sign player who won MOTM against them after Monday night’s developments](https://strettynews.com/2026/04/21/manchester-united-joao-gomes-wolves-relegation-confirmed/) - **Strettynews.com**
+1. [Swansea post record £21.6m loss for 2024-25 season](https://www.bbc.com/sport/football/articles/cwyvzq3ney0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Joe Cole: Arsenal would already be champions if they signed one Liverpool player last summer](https://www.empireofthekop.com/2026/04/21/joe-cole-arsenal-would-be-champions-if-they-signed-one-liverpool-player/) - **Empire of The Kop**
+3. [Sky Sports: Arne Slot set to remain Liverpool manager for the 2026/27 season](https://www.empireofthekop.com/2026/04/21/sky-sports-arne-slot-set-to-remain-liverpool-manager-for-the-2026-27-season/) - **Empire of The Kop**
+4. [Arne Slot to stay at Anfield next season](https://www.playmakerstats.com/news/arne-slot-to-stay-at-anfield-next-season/1100481) - **Playmakerstats.com**
+5. [Liverpool Goalkeeper Reacts to Merseyside Derby Premier League Debut](https://liverpooloffside.sbnation.com/liverpool-fc-news-coverage/79985/liverpool-goalkeeper-reacts-to-merseyside-derby-premier-league-debut) - **SB Nation**
+6. [Parker on squad fitness, Man City & 'burden' of looming relegation](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_36e2d6fb-5d44-428f-957f-379fecd629c3) - **Yahoo Entertainment**
+7. [‘Like living in the past’: MI, CSK too emotionally connected to big names, says Sanjay Manjrekar](https://indianexpress.com/article/sports/cricket/sanjay-manjrekar-mi-csk-ipl-2026-rohit-sharma-ms-dhoni-suryakumar-yadav-10648628/) - **The Indian Express**
+8. [ANOTHER of Liam Rosenior's old team-mates sticks knife in and claims he is 'coming out with b****cks' - but what have others who have played with under-fire Chelsea boss made of him?](https://www.dailymail.com/sport/football/article-15752019/Liam-Rosenior-Chelsea-Premier-League-Kevin-Kilbane-Wayne-Rooney.html) - **Dailymail.com**
+9. [JioHotstar launches signal-led commerce advertising; Instamart signs on as first partner](https://economictimes.indiatimes.com/industry/media/entertainment/jiohotstar-launches-signal-led-commerce-advertising-instamart-signs-on-as-first-partner/articleshow/130419545.cms) - **The Times of India**
+10. [Hansi Flick wants Barcelona ‘leaders’: ‘It’s not just about talking in training, but showing up on the pitch’](https://www.101greatgoals.com/football/la-liga/hansi-flick-barcelona-training/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-04-22 21:10:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-22 23:12:24 (KST) / (하루 100회 제한 준수 중)*
