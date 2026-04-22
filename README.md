@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [EPL: West Ham drop crucial points; Wolves relegated](https://www.rediff.com/sports/report/epl-west-ham-drop-crucial-points-wolves-relegated/20260421.htm) - **Rediff.com**
-2. [How should Chelsea line up against Brighton to maybe win a game for once … or at least score a goal?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8c408238-99fd-4075-bc14-b98d922c39c6) - **Yahoo Entertainment**
-3. [A one-year PSL ban for Dasun Shanaka, who tried to play a 'double game'.](https://english.gossiplankanews.com/2026/04/a-one-year-psl-ban-for-dasun-shanaka.html) - **Gossiplankanews.com**
-4. [Not Wieden+Kennedy creates identity for Premier Jumping League](https://www.creativereview.co.uk/not-wiedenkennedy-premier-jumping-league-identity-graphic-design/) - **Creative Review**
-5. [Bavarian Loan Works: Nübel has bad day against Bayern Munich, Peretz shows out in Championship](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/191900/bayern-munich-loan-watch-transfer-news-rumors-nubel-stuttgart-promotion-relegation-championship-conference-league-mainz-nations-league) - **Bavarian Football Works**
-6. [Spokane to host Egypt and world superstar during World Cup](http://www.spokesman.com/stories/2026/apr/20/spokane-to-host-egypt-during-world-cup-according-t/) - **The Spokesman-Review**
-7. [Paid big bucks for Padres? You might get Dodgers wins — or Mets losses](https://nypost.com/2026/04/20/opinion/paid-big-bucks-for-padres-you-might-get-dodgers-wins-or-mets-losses/) - **New York Post**
-8. ['We're Going To Get It Right Overwhelmingly': NHL Commissioner Gary Bettman Talks Goaltender Interference Ahead Of Penguins-Flyers Game 2](https://thehockeynews.com/nhl/pittsburgh-penguins/latest-news/were-going-to-get-it-right-overwhelmingly-nhl-commissioner-gary-bettman-talks-goaltender-interference-ahead-of-penguins-flyers-game-2) - **The Hockey News**
-9. [Rangers demand £20m for Fernandez](https://punchng.com/rangers-demand-20m-for-fernandez/) - **The Punch**
-10. [GCI Old Boys clinch 2026 CCC League title](https://punchng.com/gci-old-boys-clinch-2026-ccc-league-title/) - **The Punch**
+1. [Why stakes are so high in England's hottest title race](https://www.bbc.com/sport/football/articles/czxr4446zxdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. ['A huge honour & privilege' - Al Ahli rally to book another ACL Elite final](https://www.spl.com.sa/en/news/1021465/a-huge-honour-privilege-al-ahli-rally-to-book-another-acl-elite-final) - **Spl.com.sa**
+3. [Time for Richard Hughes to open talks for £400k contract renewal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-virgil-van-dijk-time-for-richard-hughes-to-open-talks-for-ps400k-contract-renewal/) - **Anfieldwatch.co.uk**
+4. [Bayern Munich ahead of Liverpool and Arsenal in race for £75m forward](https://footballtoday.com/2026/04/21/bayern-munich-ahead-of-liverpool-and-arsenal-in-race-for-75m-forward/) - **Footballtoday.com**
+5. [Inter Milan vs Como – Match preview and team news](https://thefootballfaithful.com/inter-milan-vs-como-match-preview-and-team-news-2/) - **The Football Faithful**
+6. [Inter Milan vs Como – Predicted lineup and team news](https://thefootballfaithful.com/inter-milan-vs-como-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+7. [What channel is Celtics vs. 76ers on today? Time, TV schedule, live stream to watch Game 2 of NBA Playoffs series](https://www.sportingnews.com/us/nba/news/what-channel-celtics-vs-76ers-today-time-tv-schedule-live-stream-watch-game-2-nba-playoffs-series/b46058bc5839a72a36c37c8c) - **Sporting News**
+8. [How Wolves paid the price for poor recruitment with humiliating relegation](https://www.skysports.com/football/news/11699/13534320/wolves-relegated-from-the-premier-league-what-next-after-poor-recruitment-ended-their-eight-year-stay-in-the-top-division) - **Sky Sports**
+9. [“The message from the club” – Fabrizio Romano shares new update on Liam Rosenior’s future](https://chelsea.news/2026/04/fabrizio-romano-liam-rosenior-chelsea-latest/) - **Chelsea.news**
 
 
 ---
-*최근 업데이트: 2026-04-22 13:20:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-22 15:22:35 (KST) / (하루 100회 제한 준수 중)*
