@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [ESPN 7-round mock: Cowboys go (almost) all defense in draft, but with surprise names](https://cowboyswire.usatoday.com/story/sports/nfl/cowboys/2026/04/20/cowboys-espn-mock-draft-jordan-reid-thieneman-johnson-elarms-orr/89704066007/) - **USA Today**
-2. [NPFL halts season for Federation Cup](https://punchng.com/npfl-halts-season-for-federation-cup/) - **The Punch**
-3. [IPL teams appeal for tax rematch: 'Treat event as sport, not entertainment'](https://economictimes.indiatimes.com/news/economy/policy/ipl-teams-appeal-for-tax-rematch-treat-event-as-sport-not-entertainment/articleshow/130401882.cms) - **The Times of India**
-4. [IPL teams appeal for tax rematch: 'Treat event as sport, not entertainment'](https://economictimes.indiatimes.com/news/economy/policy/ipl-teams-appeal-for-tax-rematch-treat-event-as-sport-not-entertainment/articleshow/130402012.cms) - **The Times of India**
-5. [SIR CLIVE WOODWARD: The dull, jeopardy-free PREM has played with fire by scrapping relegation. Here's the proof that it's already hurting our clubs - and what the league must do before it's too late](https://www.dailymail.com/sport/rugbyunion/article-15748577/PREM-relegation-Clive-Woodward.html) - **Dailymail.com**
-6. [West Ham's draw at Palace relegates Wolves, piles pressure on Spurs](https://japantoday.com/category/sports/west-ham%27s-draw-at-palace-relegates-wolves-piles-pressure-on-spurs) - **Japan Today**
-7. [Former Chelsea star labeled ‘special’ after scoring first MLS goal against ex-Spurs teammate](https://www.alloutsoccer.com/news/chelsea-spurs-mls-timo-werner-1799730) - **Alloutsoccer.com**
-8. [No pick, no problem: New Falcons GM prepping for first round anyway | Opinion](https://www.usatoday.com/story/sports/nfl/columnist/bell/2026/04/20/falcons-2026-nfl-draft-first-round-pick-trade/89707567007/) - **USA Today**
-9. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/cq5965dgw5no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [EPL: West Ham drop crucial points; Wolves relegated](https://www.rediff.com/sports/report/epl-west-ham-drop-crucial-points-wolves-relegated/20260421.htm) - **Rediff.com**
+2. [How should Chelsea line up against Brighton to maybe win a game for once … or at least score a goal?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8c408238-99fd-4075-bc14-b98d922c39c6) - **Yahoo Entertainment**
+3. [A one-year PSL ban for Dasun Shanaka, who tried to play a 'double game'.](https://english.gossiplankanews.com/2026/04/a-one-year-psl-ban-for-dasun-shanaka.html) - **Gossiplankanews.com**
+4. [Not Wieden+Kennedy creates identity for Premier Jumping League](https://www.creativereview.co.uk/not-wiedenkennedy-premier-jumping-league-identity-graphic-design/) - **Creative Review**
+5. [Bavarian Loan Works: Nübel has bad day against Bayern Munich, Peretz shows out in Championship](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/191900/bayern-munich-loan-watch-transfer-news-rumors-nubel-stuttgart-promotion-relegation-championship-conference-league-mainz-nations-league) - **Bavarian Football Works**
+6. [Spokane to host Egypt and world superstar during World Cup](http://www.spokesman.com/stories/2026/apr/20/spokane-to-host-egypt-during-world-cup-according-t/) - **The Spokesman-Review**
+7. [Paid big bucks for Padres? You might get Dodgers wins — or Mets losses](https://nypost.com/2026/04/20/opinion/paid-big-bucks-for-padres-you-might-get-dodgers-wins-or-mets-losses/) - **New York Post**
+8. ['We're Going To Get It Right Overwhelmingly': NHL Commissioner Gary Bettman Talks Goaltender Interference Ahead Of Penguins-Flyers Game 2](https://thehockeynews.com/nhl/pittsburgh-penguins/latest-news/were-going-to-get-it-right-overwhelmingly-nhl-commissioner-gary-bettman-talks-goaltender-interference-ahead-of-penguins-flyers-game-2) - **The Hockey News**
+9. [Rangers demand £20m for Fernandez](https://punchng.com/rangers-demand-20m-for-fernandez/) - **The Punch**
+10. [GCI Old Boys clinch 2026 CCC League title](https://punchng.com/gci-old-boys-clinch-2026-ccc-league-title/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-04-22 10:04:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-22 13:20:44 (KST) / (하루 100회 제한 준수 중)*
