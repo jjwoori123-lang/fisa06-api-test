@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [A 'trailblazer' who 'polarised opinion'](https://www.bbc.com/sport/football/articles/c624e59w9z3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Jarrad Branthwaite ruled out for season and World Cup after Merseyside derby injury](https://footballtoday.com/2026/04/21/jarrad-branthwaite-ruled-out-for-season-and-world-cup-after-merseyside-derby-injury/) - **Footballtoday.com**
-3. [Hudson-Odoi to miss Forest run-in after surgery](https://www.bbc.com/sport/football/articles/cdrm738denlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Hudson-Odoi to miss Forest run-in after surgery](https://www.bbc.com/sport/football/articles/cdrm738denlo) - **BBC News**
-5. [Anthony Gordon: Chelsea enter race in unlikely boost for Man United](https://thepeoplesperson.com/2026/04/21/anthony-gordon-chelsea-enter-race-in-unlikely-boost-for-man-united-309130/) - **The Peoples Person**
-6. [How Brighton had a big part to play in Liam Rosenior eventually becoming Chelsea boss](https://hayters.com/how-brighton-had-a-big-part-to-play-in-liam-rosenior-eventually-becoming-chelsea-boss/) - **Hayters.com**
-7. [Football Daily](https://www.bbc.co.uk/sounds/play/p0nfqt22?at_campaign=rss) - **BBC News**
-8. [Arsenal win was 'toughest test yet'](https://www.bbc.com/sport/football/articles/c9958l8yn35o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Farke's Bournemouth line-up 'will divide opinion'](https://www.bbc.com/sport/football/articles/c77mg55287xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Reports growing that France star will replace Hugo Ekitike at Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/reports-growing-that-france-star-will-replace-hugo-ekitike-at-liverpool/) - **Anfieldwatch.co.uk**
+2. [Arteta must meet certain conditions to keep his job as the Arsenal manager](https://www.justarsenal.com/arteta-must-meet-certain-conditions-to-keep-his-job-as-the-arsenal-manager/413971) - **Just Arsenal News**
+3. [Burnley vs Manchester City (Premier League): Match Preview, Team News, Head to Head, How to Watch](https://cityxtra.co.uk/45075/burnley-vs-manchester-city-premier-league-match-preview-team-news-head-to-head-how-to-watch/) - **Cityxtra.co.uk**
+4. [Sky Sports: Liverpool have made Arne Slot sack decision](https://anfieldindex.com/93426/sky-sports-liverpool-have-made-arne-slot-sack-decision.html) - **Anfieldindex.com**
+5. [Gibbs-White hits season peak with 15-minute hat-trick](https://www.playmakerstats.com/news/gibbs-white-hits-season-peak-with-15-minute-hat-trick/1100563) - **Playmakerstats.com**
+6. [Report: Chelsea set to battle Man United in the race for Premier League midfielder](https://eplindex.com/145588/report-chelsea-set-to-battle-man-united-in-the-race-for-premier-league-midfielder.html) - **English Premier League Index - Opta Stats**
+7. [Pep Guardiola confirms major injury blows ahead of Manchester City's trip to Burnley](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_04e063b6-59ed-4090-94f1-f177c5bc6dbb) - **Yahoo Entertainment**
+8. [Brighton vs Chelsea LIVE updates, watch live, score, analysis, highlights](https://www.nbcsports.com/brighton-vs-chelsea-live-updates-score-highlights-stats-watch) - **NBCSports.com**
+9. [Sunrisers' Abhishek hits fifth highest IPL score](https://www.bbc.com/sport/cricket/articles/c070lp59m7po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-23 00:43:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-23 02:05:24 (KST) / (하루 100회 제한 준수 중)*
