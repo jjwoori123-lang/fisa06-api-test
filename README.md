@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Reports growing that France star will replace Hugo Ekitike at Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/reports-growing-that-france-star-will-replace-hugo-ekitike-at-liverpool/) - **Anfieldwatch.co.uk**
-2. [Arteta must meet certain conditions to keep his job as the Arsenal manager](https://www.justarsenal.com/arteta-must-meet-certain-conditions-to-keep-his-job-as-the-arsenal-manager/413971) - **Just Arsenal News**
-3. [Burnley vs Manchester City (Premier League): Match Preview, Team News, Head to Head, How to Watch](https://cityxtra.co.uk/45075/burnley-vs-manchester-city-premier-league-match-preview-team-news-head-to-head-how-to-watch/) - **Cityxtra.co.uk**
-4. [Sky Sports: Liverpool have made Arne Slot sack decision](https://anfieldindex.com/93426/sky-sports-liverpool-have-made-arne-slot-sack-decision.html) - **Anfieldindex.com**
-5. [Gibbs-White hits season peak with 15-minute hat-trick](https://www.playmakerstats.com/news/gibbs-white-hits-season-peak-with-15-minute-hat-trick/1100563) - **Playmakerstats.com**
-6. [Report: Chelsea set to battle Man United in the race for Premier League midfielder](https://eplindex.com/145588/report-chelsea-set-to-battle-man-united-in-the-race-for-premier-league-midfielder.html) - **English Premier League Index - Opta Stats**
-7. [Pep Guardiola confirms major injury blows ahead of Manchester City's trip to Burnley](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_04e063b6-59ed-4090-94f1-f177c5bc6dbb) - **Yahoo Entertainment**
-8. [Brighton vs Chelsea LIVE updates, watch live, score, analysis, highlights](https://www.nbcsports.com/brighton-vs-chelsea-live-updates-score-highlights-stats-watch) - **NBCSports.com**
-9. [Sunrisers' Abhishek hits fifth highest IPL score](https://www.bbc.com/sport/cricket/articles/c070lp59m7po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Real Madrid vs Alaves live: Confirmed teams and full lineups in La Liga, TV channel, live online stream as Tchouameni, Huijsen, Carreras start](https://www.101greatgoals.com/football/la-liga/real-madrid-vs-alaves-live-teams-lineups/) - **101 Great Goals**
+2. [EPL: Hudson-Odoi undergoes surgery, out until pre-season – Official](https://punchng.com/epl-hudson-odoi-undergoes-surgery-out-until-pre-season-official/) - **The Punch**
+3. [PREVIEW | Rayo Vallecano vs Espanyol: team news, lineups, predictions (La Liga 23/04)](https://www.playmakerstats.com/news/preview-rayo-vallecano-vs-espanyol-team-news-lineups-predictions-la-liga-23-04-/1100643) - **Playmakerstats.com**
+4. [Arsenal striker target keeps door open to changing clubs](https://www.justarsenal.com/arsenal-striker-target-keeps-door-open-to-changing-clubs/413972) - **Just Arsenal News**
+5. [Revealed: What Barçelona leadership secretly thinks about Julián Álvarez’s potential signing](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/118240/revealed-what-barcelona-leadership-secretly-thinks-about-julian-alvarezs-potential-signing) - **Barca Blaugranes**
+6. [Fabio Capello tempers England's World Cup hopes under two months from kick-off](https://www.alloutsoccer.com/news/fabio-capello-england-world-cup-1801133) - **Alloutsoccer.com**
+7. [Report: Liverpool ready to reignite interest in 16 G/A forward](https://anfieldindex.com/93421/report-liverpool-ready-to-reignite-interest-in-16-g-a-forward.html) - **Anfieldindex.com**
+8. [Brighton vs Chelsea – Team News: Desperate Rosenior drops formation change for away game](https://chelsea.news/2026/04/rosenior-uses-formation-change-team-news-brighton/) - **Chelsea.news**
+9. [Brighton vs Chelsea live: Confirmed teams and full lineups in Premier League, TV channel, live online stream](https://www.101greatgoals.com/football/premier-league/brighton-vs-chelsea-live-confirmed-teams-full-lineups/) - **101 Great Goals**
+10. [Liverpool make surprise Arne Slot decision ahead of next season](https://thefootballfaithful.com/liverpool-arne-slot-decision/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-04-23 02:05:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-23 03:15:35 (KST) / (하루 100회 제한 준수 중)*
