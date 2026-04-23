@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [2026 NFL Mock Draft 6.0: Giants ignore positional value with No. 5 pick, while adding WR with second selection](https://www.cbssports.com/nfl/draft/news/2026-nfl-mock-draft-6-0-giants-ignore-positional-value/) - **CBS Sports**
-2. [Arsenal makes shock entrance into the race for Man City man](https://www.justarsenal.com/arsenal-makes-shock-entrance-into-the-race-for-man-city-man/414012) - **Just Arsenal News**
-3. [Merson: Rosenior knows he is in major trouble at Chelsea](https://www.skysports.com/football/news/11668/13534990/liam-rosenior-future-under-pressure-chelsea-boss-knows-hes-in-trouble-after-brighton-loss-says-paul-merson) - **Sky Sports**
-4. [Tottenham advertise sport psychologist roles](https://www.bbc.com/sport/football/articles/cew79v5rjjwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Tottenham advertise sport psychologist roles](https://www.bbc.com/sport/football/articles/cew79v5rjjwo) - **BBC News**
-6. [Report: Liverpool goalkeeper Alisson gives Juventus approval as talks set to open](https://football-italia.net/liverpool-alisson-juventus-target-talks/) - **Football Italia**
-7. [2026 NFL Draft: Pro comparisons for top 10 prospects, including Arvell Reese and Jeremiyah Love](https://www.cbssports.com/nfl/news/2026-nfl-draft-pro-comparisons/) - **CBS Sports**
-8. [Aurelien Tchouameni’s price emerges with Man United circling](https://thepeoplesperson.com/2026/04/22/aurelien-tchouamenis-price-emerges-with-man-united-circling-309164/) - **The Peoples Person**
-9. [Victory+ Announces Milestone First WNBA Partnership as the Exclusive Local Streaming Home of the Minnesota Lynx](https://financialpost.com/pmn/business-wire-news-releases-pmn/victory-announces-milestone-first-wnba-partnership-as-the-exclusive-local-streaming-home-of-the-minnesota-lynx) - **Financial Post**
+1. [Premier League Soccer 2026: Watch Burnley vs. Man City Live](https://www.cnet.com/tech/services-and-software/premier-league-soccer-2026-watch-burnley-vs-man-city-live/) - **CNET**
+2. [Maresca prospers by 'doing nothing at all'](https://www.bbc.com/sport/football/articles/c8r46zxxjvno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [LIVE: Burnley vs Manchester City – Premier League](https://www.aljazeera.com/sports/liveblog/2026/4/22/live-burnley-vs-manchester-city-premier-league) - **Al Jazeera English**
+4. [Estevao's World Cup hopes in doubt after hamstring injury](https://www.bbc.com/sport/football/articles/cn4vk4717vdo) - **BBC News**
+5. [Manchester United weighing up summer move for Real Madrid star](https://www.101greatgoals.com/football/premier-league/manchester-united-weighing-up-summer-move-for-real-madrid-star/) - **101 Great Goals**
+6. [Carrick presence gives boost to Man Utd youngsters - Armer](https://www.bbc.com/sport/football/articles/cx24zvklrego?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Sessegnon extends Fulham contract](https://www.bbc.com/sport/football/articles/c0q9xqnqqzxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [GREENZONE: It's not just the Premier League heading for a big finish... Irish players and managers are still battling it out in the lower divisions? Here's a comprehensive GUIDE to all the potential ups, downs and maybes](https://www.dailymail.com/news/article-15753739/GREENZONE-not-just-Premier-League-heading-big-finish-Irish-players-managers-battling-lower-divisions-Heres-comprehensive-GUIDE-potential-ups-downs-maybes.html) - **Dailymail.com**
+9. [UAE ‘backed’ Colombian fighters in Sudan, says report](https://www.bbc.co.uk/programmes/w1730bmz0nq3wk1) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-23 23:06:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-24 01:12:03 (KST) / (하루 100회 제한 준수 중)*
