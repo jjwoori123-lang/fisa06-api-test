@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester City: Guehi not paying attention to treble talk](https://www.101greatgoals.com/football/premier-league/manchester-city-guehi-treble-talk/) - **101 Great Goals**
-2. [Dock Spiders and Rockers play I-41 Showdown at Timber Rattlers park](https://www.fdlreporter.com/story/sports/baseball/2026/04/23/i-41-showdown-dock-spiders-rockers-june-2-tickets-5-dollars/89735120007/) - **Fond du Lac Reporter**
-3. [PL & FA Cup Predictions: Wolves to stamp Spurs' passport to the Championship](https://www.skysports.com/football/news/11661/13535651/premier-league-and-fa-cup-predictions-and-best-bets-tottenhams-woes-to-grow-at-wolves) - **Sky Sports**
-4. [PREVIEW: Forest hope to move away from drop against Sunderland](https://wp.fromthespot.co.uk/28284/preview-forest-hope-to-move-away-from-drop-against-sunderland/) - **Fromthespot.co.uk**
-5. [Liverpool legend previews Crystal Palace match: “We will struggle, we always do”](https://anfieldindex.com/93497/liverpool-legend-previews-crystal-palace-match-we-will-struggle-we-always-do.html) - **Anfieldindex.com**
-6. [Aasgaard To Return? | Predicted 4-2-3-1 Rangers Lineup To Face Motherwell](https://the4thofficial.net/2026/04/aasgaard-to-return-predicted-4-2-3-1-rangers-lineup-to-face-motherwell/) - **The4thofficial.net**
-7. [Liverpool lurking to steal star from under Man United noses](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-lurking-to-steal-star-from-under-man-united-noses/) - **Anfieldwatch.co.uk**
-8. [Tel To Start, Kolo Muani On The Bench | 4-2-3-1 Tottenham Hotspur Predicted Lineup Vs Wolves](https://the4thofficial.net/2026/04/tel-to-start-kolo-muani-on-the-bench-4-2-3-1-tottenham-hotspur-predicted-lineup-vs-wolves/) - **The4thofficial.net**
-9. [USMNT head coach Mauricio Pochettino revels his desire to make a comeback to Tottenham Hotspur: ‘Feels like home’](https://worldsoccertalk.com/news/usmnt-head-coach-mauricio-pochettino-revels-his-desire-to-make-a-comeback-to-tottenham-hotspur-feels-like-home/) - **Worldsoccertalk.com**
-10. ['It's a pleasure to be in this project' | Le Bris eyeing long stay at Sunderland](https://www.skysports.com/football/video/11695/13535623/premier-league-regis-le-bris-eyeing-long-stay-at-sunderland) - **Sky Sports**
+1. [Bournemouth star reveals how Arsenal fans helped them beat Gunners](https://www.justarsenal.com/bournemouth-star-reveals-how-arsenal-fans-helped-them-beat-gunners/414095) - **Just Arsenal News**
+2. [Exclusive: Former Liverpool star praises ‘top manager’ Arne Slot](https://anfieldindex.com/93488/markus-babbel-on-arne-slot.html) - **Anfieldindex.com**
+3. [Is Nike’s Next Focus an Expanded Presence in Team Sports?](http://wwd.com/footwear-news/shoe-industry-news/nike-team-sports-soccer-lacrosse-brand-building-1238926612/) - **WWD**
+4. [Report: Man United only willing to pay £50m to sign Premier League midfielder](https://eplindex.com/145678/report-man-united-only-willing-to-pay-50m-to-sign-premier-league-midfielder.html) - **English Premier League Index - Opta Stats**
+5. [Aston Villa Player’s Future Monitored Closely By Club: Should The Bimringham Club Sell Him?](https://the4thofficial.net/2026/04/aston-villa-players-future-monitored-closely-by-club-should-the-bimringham-club-sell-him/) - **The4thofficial.net**
+6. [Leicester's title-winning boss Claudio Ranieri 'to leave Roma role after clashing with head coach' - just days after Foxes were relegated to League One](https://www.dailymail.com/sport/football/article-15760233/Leicester-title-winning-boss-Claudio-Ranieri-leave-Roma-relegated-League-One.html) - **Dailymail.com**
+7. [The 5 stars racing against the clock on the road to the 2026 World Cup](https://www.marca.com/en/world-cup/2026/04/23/69ea81e8e2704e8d658b45cc.html) - **Marca**
+8. [Why are McBurnie and Stewart not in World Cup mix?](https://www.bbc.com/sport/football/articles/c1w4vl3nyz0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Why are McBurnie and Stewart not in World Cup mix?](https://www.bbc.com/sport/football/articles/c1w4vl3nyz0o) - **BBC News**
+10. [Manchester City still want Bayern Munich’s Vincent Kompany, Jan-Christian Dreesen confident he’ll stay](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/192746/manchester-city-still-want-bayern-munichs-vincent-kompany-jan-christian-dreesen-confident-hell-stay) - **Bavarian Football Works**
 
 
 ---
-*최근 업데이트: 2026-04-25 05:03:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-25 06:09:03 (KST) / (하루 100회 제한 준수 중)*
