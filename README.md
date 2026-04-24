@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Editor's Picks #582](https://archinect.com/news/article/150538920/editor-s-picks-582) - **Archinect**
-2. [Mitchell Starc cleared by CA to play IPL, likely to be available for DC's game on May 1](https://economictimes.indiatimes.com/news/sports/mitchell-starc-cleared-by-ca-to-play-ipl-likely-to-be-available-for-dcs-game-on-may-1/articleshow/130458696.cms) - **The Times of India**
-3. [Liverpool have two new options to replace Mohamed Salah](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-have-two-new-options-to-replace-mohamed-salah/) - **Anfieldwatch.co.uk**
-4. [Hapless Chelsea owners have built a monument to chaos and decline](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1ee646b6-98b0-4918-b828-a4e1c9413ef4) - **Yahoo Entertainment**
-5. [John Terry wanted interim manager role at Chelsea, players were keen too](https://chelsea.news/2026/04/john-terry-wanted-interim-manager-role-at-chelsea-players-were-keen-too/) - **Chelsea.news**
-6. [Brazil's Estevao In Doubt For World Cup](https://www.huffpost.com/entry/2026-fifa-world-cup-live-updates_n_69e21c35e4b0b6f552b8c3b5/liveblog_69e9ada2e4b0fe81a527d41f) - **HuffPost**
-7. [Premier League club on standby in case Marcus Rashford deal becomes available as Barcelona cool interest](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4e9f94b3-b2ec-4b81-bbbd-6cb45187af0a) - **Yahoo Entertainment**
-8. [Joaquin Seys: Man United face major rivals in race for Club Brugge star](https://thepeoplesperson.com/2026/04/23/joaquin-seys-man-united-face-major-rivals-in-race-for-club-brugge-star-309183/) - **The Peoples Person**
-9. [Can we extend our PL record against Newcastle?](http://www.arsenal.com/news/can-we-extend-our-pl-record-against-newcastle) - **Arsenal.com**
+1. [Wolves loanee Angel Gomes to return to Marseille, but…](https://www.getfootballnewsfrance.com/2026/wolves-loanee-angel-gomes-to-return-to-marseille-but/) - **Get French Football News**
+2. [Carlos Baleba: Man United plot cut-price deal for Brighton star](https://thepeoplesperson.com/2026/04/23/carlos-baleba-man-united-plot-cut-price-deal-for-brighton-star-309194/) - **The Peoples Person**
+3. [Arne Slot has been urged to change one thing in particular if he keeps his job at Liverpool](https://www.empireofthekop.com/2026/04/23/slot-urged-to-change-one-thing-if-he-keeps-his-job-at-liverpool/) - **Empire of The Kop**
+4. [Dramatic twist as Liverpool star set to stay after talks](https://www.anfieldwatch.co.uk/liverpool-fc/news/dramatic-twist-as-liverpool-star-set-to-stay-after-talks/) - **Anfieldwatch.co.uk**
+5. [Arsenal Lead, City Chase: The Table Right Now and What Comes Next](https://www.justarsenal.com/arsenal-lead-city-chase-the-table-right-now-and-what-comes-next/414000) - **Just Arsenal News**
+6. [“I had a lot of doubts” – Pep Guardiola reveals Manchester City players suffered from fatigue after Arsenal win](https://cityxtra.co.uk/45147/i-had-a-lot-of-doubts-pep-guardiola-reveals-manchester-city-players-suffered-from-fatigue-after-arsenal-win/) - **Cityxtra.co.uk**
+7. [Whitwell Thurs morning update: Player hailed as ‘fantastic’ by Keane now a ‘genuine possibility’ for MUFC](https://strettynews.com/2026/04/23/manchester-united-carlos-baleba-links-elliot-anderson-roy-keane/) - **Strettynews.com**
+8. [‘There’ll be dark places’ – Injury warning sent to Hugo Ekitike](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2d85c391-3823-4aa7-b689-9f1e9285e11a) - **Yahoo Entertainment**
+9. ['Can we please have our club back now?' - the fans' verdict](https://www.bbc.com/sport/football/articles/c5yjn4v2v63o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-24 15:09:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-24 17:24:47 (KST) / (하루 100회 제한 준수 중)*
