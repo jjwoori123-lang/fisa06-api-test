@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle Confidential: Anthony Gordon's injury status for Arsenal clash revealed, the Premier League star on goalkeeper shortlist with Toon stopper leaving and where Eddie Howe is taking his players for pre-season](https://www.dailymail.com/sport/football/article-15755309/newcastle-anthony-gordon-injury-arsenal-eddie-howe.html) - **Dailymail.com**
-2. [Pep Guardiola to block potential summer Savinho exit amid ongoing transfer rumours](https://cityxtra.co.uk/45062/pep-guardiola-to-block-potential-summer-savinho-exit-amid-ongoing-transfer-rumours/) - **Cityxtra.co.uk**
-3. [How Gary Lineker is winning 'podcast war' with Gary Neville: Insiders reveal how his £14m World Cup Netflix show will look, the Times Square mega-studio, his return to 'Hand of God' stadium and why the BBC are being left behind](https://www.dailymail.com/sport/football/article-15758293/gary-lineker-world-cup-netflix-new-york.html) - **Dailymail.com**
-4. [Scandals, social media faux pas and snubs from Saudi Arabian clubs - why Chelsea are ignoring John Terry's come-and-get-me pleas, writes RIATH AL-SAMARRAI](https://www.dailymail.com/sport/football/article-15758469/chelsea-snubs-john-terry-scandal.html) - **Dailymail.com**
-5. [JEREMY DOKU on how he can become the world's best winger... and why he thinks Man City delivered a 'mental punch' to Arsenal as Premier League race goes to the wire](https://www.dailymail.com/sport/article-15758299/JEREMY-DOKU-worlds-best-winger-thinks-Man-City-delivered-mental-punch-Arsenal-Premier-League-race-goes-wire.html) - **Dailymail.com**
-6. [Big clubs and big names - a summer of managerial upheaval awaits](https://www.bbc.com/sport/football/articles/cp8dgjyy714o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Big clubs and big names - a summer of managerial upheaval awaits](https://www.bbc.com/sport/football/articles/cp8dgjyy714o) - **BBC News**
-8. [Man City in pole position to sign Anderson](https://www.skysports.com/football/news/11679/13535440/elliot-anderson-transfer-news-man-city-in-pole-position-to-sign-nottingham-forest-midfielder-amid-interest-from-man-utd-and-arsenal) - **Sky Sports**
-9. [Vincent Kompany to receive a mega bonus if Bayern Munich win the Champions League](https://www.bavarianfootballworks.com/bayern-munich-coaches/192691/vincent-kompany-to-receive-a-mega-bonus-if-bayern-munich-win-the-champions-league) - **Bavarian Football Works**
+1. [50-goal sensation is coming to Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/50-goal-sensation-is-coming-to-liverpool/) - **Anfieldwatch.co.uk**
+2. [Mason Greenwood: Paris FC working on signing ex-United star](https://thepeoplesperson.com/2026/04/23/mason-greenwood-paris-fc-working-on-signing-ex-united-star-309214/) - **The Peoples Person**
+3. [2026 Premier League Darts Night 12 Liverpool live results, scores and schedule](https://www.sportingnews.com/us/darts/news/premier-league-darts-night-12-liverpool-live-results-scores-schedule/0d19ce29cde2ff8d1b5eca60) - **Sporting News**
+4. [“Extreme” man marking and lack of respect made Rosenior reign “untenable”](https://chelsea.news/2026/04/extreme-man-marking-lack-of-respect-rosenior-untenable/) - **Chelsea.news**
+5. [Erling Haaland left frustrated after Man City move top in tight Premier League title race](https://www.alloutsoccer.com/news/erling-haaland-manchester-city-frustrated-1804721) - **Alloutsoccer.com**
+6. [Coventry chief admits they face battle to keep Frank Lampard amid links to Chelsea job after guiding club to Premier League promotion](https://www.dailymail.com/sport/football/article-15759649/coventry-frank-lampard-battle-chelsea-job.html) - **Dailymail.com**
+7. [Carrick on Yoro's fitness, Fernandes' form and his future](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e6c02e89-1362-47fd-9b20-1837b71b6097) - **Yahoo Entertainment**
+8. [PREVIEW | Arsenal vs Newcastle: team news, lineups, predictions (Premier League 25/04)](https://www.playmakerstats.com/news/preview-arsenal-vs-newcastle-team-news-lineups-predictions-premier-league-25-04-/1102346) - **Playmakerstats.com**
 
 
 ---
-*최근 업데이트: 2026-04-25 01:06:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-25 02:15:54 (KST) / (하루 100회 제한 준수 중)*
