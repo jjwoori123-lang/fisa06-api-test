@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [EPL: Manchester City steal top spot, Burnley relegated](https://www.rediff.com/sports/report/epl-manchester-city-steal-top-spot-burnley-relegated/20260423.htm) - **Rediff.com**
-2. [Lee Jun Young’s Path To Soccer Stardom Takes A Turn After Unexpected Soul Swap In New Drama “Reborn Rookie”](http://www.soompi.com/article/1835394wpp/lee-jun-youngs-path-to-soccer-stardom-takes-a-turn-after-unexpected-soul-swap-in-new-drama-reborn-rookie) - **soompi**
-3. [Wrexham's reluctant hero who refuses to celebrate](https://www.bbc.com/sport/football/articles/cd9v41nn5d2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Wrexham's reluctant hero who refuses to celebrate](https://www.bbc.com/sport/football/articles/cd9v41nn5d2o) - **BBC News**
-5. [The former plasterer lighting up the Premier League](https://www.bbc.com/sport/darts/articles/cr41v2l2rzdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [The former plasterer lighting up the Premier League](https://www.bbc.com/sport/darts/articles/cr41v2l2rzdo) - **BBC News**
-7. [Keldon Johnson Turns Emotional After Winning Sixth Man of the Year: “My Grandad’s Been Fighting Cancer”](https://www.essentiallysports.com/nba-active-basketball-news-keldon-johnson-turns-emotional-after-winning-sixth-man-of-the-year-my-grandads-been-fighting-cancer/) - **Essentially Sports**
-8. [Long before the Anzacs, April 25 was the day women in Australia got the right to vote](https://theconversation.com/long-before-the-anzacs-april-25-was-the-day-women-in-australia-got-the-right-to-vote-278528) - **The Conversation Africa**
-9. [Bruno Fernandes would be Ballon d’Or top-three at Manchester City, says former United star Pogba](https://worldsoccertalk.com/news/bruno-fernandes-would-be-ballon-dor-top-three-at-manchester-city-says-former-united-star-pogba/) - **Worldsoccertalk.com**
-10. [Burnley 0-1 Man City: 'Queen bee' Pep Guardiola leads side to top of table - BBC](https://slashdot.org/firehose.pl?op=view&amp;id=181877174) - **Slashdot.org**
+1. [Editor's Picks #582](https://archinect.com/news/article/150538920/editor-s-picks-582) - **Archinect**
+2. [Mitchell Starc cleared by CA to play IPL, likely to be available for DC's game on May 1](https://economictimes.indiatimes.com/news/sports/mitchell-starc-cleared-by-ca-to-play-ipl-likely-to-be-available-for-dcs-game-on-may-1/articleshow/130458696.cms) - **The Times of India**
+3. [Liverpool have two new options to replace Mohamed Salah](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-have-two-new-options-to-replace-mohamed-salah/) - **Anfieldwatch.co.uk**
+4. [Hapless Chelsea owners have built a monument to chaos and decline](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1ee646b6-98b0-4918-b828-a4e1c9413ef4) - **Yahoo Entertainment**
+5. [John Terry wanted interim manager role at Chelsea, players were keen too](https://chelsea.news/2026/04/john-terry-wanted-interim-manager-role-at-chelsea-players-were-keen-too/) - **Chelsea.news**
+6. [Brazil's Estevao In Doubt For World Cup](https://www.huffpost.com/entry/2026-fifa-world-cup-live-updates_n_69e21c35e4b0b6f552b8c3b5/liveblog_69e9ada2e4b0fe81a527d41f) - **HuffPost**
+7. [Premier League club on standby in case Marcus Rashford deal becomes available as Barcelona cool interest](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4e9f94b3-b2ec-4b81-bbbd-6cb45187af0a) - **Yahoo Entertainment**
+8. [Joaquin Seys: Man United face major rivals in race for Club Brugge star](https://thepeoplesperson.com/2026/04/23/joaquin-seys-man-united-face-major-rivals-in-race-for-club-brugge-star-309183/) - **The Peoples Person**
+9. [Can we extend our PL record against Newcastle?](http://www.arsenal.com/news/can-we-extend-our-pl-record-against-newcastle) - **Arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-04-24 12:53:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-24 15:09:34 (KST) / (하루 100회 제한 준수 중)*
