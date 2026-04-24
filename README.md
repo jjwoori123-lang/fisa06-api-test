@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [PREVIEW | Fulham vs Aston Villa: team news, lineups, predictions (Premier League 25/04)](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a4ed37ed-43e5-45a6-ba0b-e84a55a2ee69) - **Yahoo Entertainment**
-2. [When is Man City vs. Crystal Palace? Date, time of game in hand in Premier League title race](https://www.sportingnews.com/us/soccer/news/man-city-vs-crystal-palace-date-time-game-premier-league/a2b6f871d199b9fe2e97c603) - **Sporting News**
-3. [Kevin Pietersen backs Jacob Bethell to remain in India for IPL despite Alastair Cook's criticism](https://economictimes.indiatimes.com/news/sports/kevin-pietersen-backs-jacob-bethell-to-remain-in-india-for-ipl-despite-alastair-cooks-criticism/articleshow/130466665.cms) - **The Times of India**
-4. [From south London to the NFL: Traore waits on draft dream](https://www.channelnewsasia.com/sport/south-london-nfl-traore-waits-draft-dream-6076291) - **CNA**
-5. [Will Arteta release the handbrake?](https://www.bbc.com/sport/football/articles/cdxdwqqzqrwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Quiz: Name every academy scorer since 2000](http://www.arsenal.com/news/quiz-name-every-academy-scorer-2000) - **Arsenal.com**
-7. [Former Chelsea player says the club “is a mess” and tells manager not to go there](https://chelsea.news/2026/04/former-chelsea-player-says-the-club-is-a-mess-and-tells-manager-not-to-go-there/) - **Chelsea.news**
-8. [New cricket stadium in California heralds the sport's Olympic return after 128 years](https://abcnews.com/Entertainment/wireStory/new-cricket-stadium-southern-california-heralds-sports-olympic-132305415) - **Abcnews.com**
-9. [Haaland goes all out to put Manchester City at the top of the Premier League](https://www.marca.com/en/football/manchester-city/2026/04/23/69e9fe4ae2704ef2178b45a4.html) - **Marca**
-10. [This Week in Sports Trivia: April 23, 2026](https://sports.yahoo.com/articles/week-sports-trivia-april-23-111612074.html) - **Yahoo Entertainment**
+1. [Patrick Dorgu injury update will delight United fans](https://thepeoplesperson.com/2026/04/23/patrick-dorgu-injury-update-will-delight-united-fans-309208/) - **The Peoples Person**
+2. [How do Premier League managerial changes compare to other seasons?](https://www.bbc.com/sport/football/articles/c5yvn8zn4dpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [How do Premier League managerial changes compare to other seasons?](https://www.bbc.com/sport/football/articles/c5yvn8zn4dpo) - **BBC News**
+4. ['A night of fine margins awaits'](https://www.bbc.com/sport/football/articles/c895z1ygqvyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Arne Slot has got one man to thank for keeping his Liverpool job](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b0f0b239-63e2-43f6-b295-5ce21ee0a5de) - **Yahoo Entertainment**
+6. [Five Things Learned: Burnley 0-1 Manchester City (Premier League)](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b065dcc7-6103-4fb0-a3a0-aec27b0f536e) - **Yahoo Entertainment**
+7. [Chelsea's runners and riders to replace Liam Rosenior: An ex-Blues star catching the eye in Europe, three Premier League bosses - and a title-winning manager NOT yet qualified to coach in the English top flight](https://www.dailymail.com/sport/football/article-15758055/Chelseas-runners-riders-replace-Liam-Rosenior.html) - **Dailymail.com**
+8. [Chelsea going for manager who “has a pedigree of success at a high level”](https://chelsea.news/2026/04/chelsea-going-for-manager-who-has-a-pedigree-of-success-at-a-high-level/) - **Chelsea.news**
+9. [Chelsea winger Estevao in danger of missing the World Cup due to hamstring injury](https://sportsview.co.uk/2026/04/chelsea-winger-estevao-in-danger-of-missing-the-world-cup-due-to-hamstring-injury?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-winger-estevao-in-danger-of-missing-the-world-cup-due-to-hamstring-injury) - **Sportsview.co.uk**
 
 
 ---
-*최근 업데이트: 2026-04-24 20:37:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-24 21:42:33 (KST) / (하루 100회 제한 준수 중)*
