@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Luke Littler has yet to speak to Gian van Veen since on-stage spat](https://www.independent.ie/sport/other-sports/darts/luke-littler-has-yet-to-speak-to-gian-van-veen-since-on-stage-spat/a2000434938.html) - **Independent.ie**
-2. [Sancho gives green light to Borussia Dortmund return](https://thefootballfaithful.com/sancho-gives-green-light-to-borussia-dortmund-return/) - **The Football Faithful**
-3. [Fantasy Premier League: FPL players to target for Blank Gameweek 34](https://thefootballfaithful.com/fantasy-premier-league-fpl-players-to-target-for-blank-gameweek-34/) - **The Football Faithful**
-4. [Tottenham keen to renegotiate new Joao Palhinha deal](https://thefootballfaithful.com/tottenham-keen-to-renegotiate-new-joao-palhinha-deal/) - **The Football Faithful**
-5. [Real Madrid team news and predicted lineup vs Real Betis](https://thefootballfaithful.com/real-madrid-team-news-and-predicted-lineup-vs-real-betis/) - **The Football Faithful**
-6. [Liverpool receive major injury boost ahead of Crystal Palace clash](https://anfieldindex.com/93503/liverpool-receive-major-injury-boost-ahead-of-crystal-palace-clash.html) - **Anfieldindex.com**
-7. [Coventry City owner dismisses concerns over Frank Lampard’s Chelsea links](https://punchng.com/?p=2125254) - **The Punch**
-8. [Enzo Maresca is top candidate for Manchester City job if Pep Guardiola leaves](https://footballtoday.com/2026/04/24/enzo-maresca-is-top-candidate-for-manchester-city-job-if-pep-guardiola-leaves/) - **Footballtoday.com**
-9. [Erik Sviatchenko – Celtic should remain open to recruiting from MLS](https://thecelticstar.com/erik-sviatchenko-celtic-should-remain-open-to-recruiting-from-mls/) - **The Celtic Star**
-10. [£87m Yan Diomande to Liverpool deal takes huge step forward](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-rb-leipzig-yan-diomande-deal-takes-huge-step-forward/) - **Anfieldwatch.co.uk**
+1. [England's defensive problems mounting ahead of World Cup with 'bad' injury to versatile Livramento](https://sports.yahoo.com/articles/englands-defensive-problems-mounting-ahead-091151713.html) - **Yahoo Entertainment**
+2. [New management structure confirmed at RTL Deutschland after Sky buy-out](https://www.c21media.net/news/new-management-structure-confirmed-at-rtl-deutschland-after-sky-buy-out/) - **C21media.net**
+3. [Liverpool plan to raid Tottenham for £40m starlet if they are relegated](https://footballtoday.com/2026/04/24/liverpool-plan-to-raid-tottenham-for-40m-starlet-if-they-are-relegated/) - **Footballtoday.com**
+4. [The 'unnatural' drink banned and Cristiano Ronaldo's diet to be 11 years younger](https://www.marca.com/en/football/2026/04/24/69eb30a7ca4741e86b8b45b8.html) - **Marca**
+5. [Manchester City freeze cost of season tickets for 2026-27 after talks with fan groups](https://www.dailymail.com/sport/football/article-15761679/Manchester-City-freeze-cost-season-tickets-2026-27-talks-fan-groups.html) - **Dailymail.com**
+6. [Liverpool vs Crystal Palace: Slot predicts tough test to break down Eagles](https://thefootballfaithful.com/liverpool-vs-crystal-palace-slot-predicts-tough-test-to-break-down-eagles/) - **The Football Faithful**
+7. [Manchester City is not as good as Arsenal may fear they are in title run-in](https://www.justarsenal.com/manchester-city-is-not-as-good-as-arsenal-may-fear-they-are-in-title-run-in/414100) - **Just Arsenal News**
+8. [Early Liverpool team news: Slot to make late goalkeeper call](https://thefootballfaithful.com/early-liverpool-team-news-slot-to-make-late-goalkeeper-call/) - **The Football Faithful**
+9. [Ranieri Leaving Roma Following Rift with Gasperini](https://cultofcalcio.com/ranieri-leaving-roma-following-rift-with-gasperini/) - **Cultofcalcio.com**
+10. [Arne Slot provides double injury update ahead of Liverpool vs Crystal Palace](https://anfieldindex.com/93508/arne-slot-provides-double-injury-update-ahead-of-liverpool-vs-crystal-palace.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-04-25 17:05:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-25 18:13:10 (KST) / (하루 100회 제한 준수 중)*
