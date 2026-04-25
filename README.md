@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [England's defensive problems mounting ahead of World Cup with 'bad' injury to versatile Livramento](https://sports.yahoo.com/articles/englands-defensive-problems-mounting-ahead-091151713.html) - **Yahoo Entertainment**
-2. [New management structure confirmed at RTL Deutschland after Sky buy-out](https://www.c21media.net/news/new-management-structure-confirmed-at-rtl-deutschland-after-sky-buy-out/) - **C21media.net**
-3. [Liverpool plan to raid Tottenham for £40m starlet if they are relegated](https://footballtoday.com/2026/04/24/liverpool-plan-to-raid-tottenham-for-40m-starlet-if-they-are-relegated/) - **Footballtoday.com**
-4. [The 'unnatural' drink banned and Cristiano Ronaldo's diet to be 11 years younger](https://www.marca.com/en/football/2026/04/24/69eb30a7ca4741e86b8b45b8.html) - **Marca**
-5. [Manchester City freeze cost of season tickets for 2026-27 after talks with fan groups](https://www.dailymail.com/sport/football/article-15761679/Manchester-City-freeze-cost-season-tickets-2026-27-talks-fan-groups.html) - **Dailymail.com**
-6. [Liverpool vs Crystal Palace: Slot predicts tough test to break down Eagles](https://thefootballfaithful.com/liverpool-vs-crystal-palace-slot-predicts-tough-test-to-break-down-eagles/) - **The Football Faithful**
-7. [Manchester City is not as good as Arsenal may fear they are in title run-in](https://www.justarsenal.com/manchester-city-is-not-as-good-as-arsenal-may-fear-they-are-in-title-run-in/414100) - **Just Arsenal News**
-8. [Early Liverpool team news: Slot to make late goalkeeper call](https://thefootballfaithful.com/early-liverpool-team-news-slot-to-make-late-goalkeeper-call/) - **The Football Faithful**
-9. [Ranieri Leaving Roma Following Rift with Gasperini](https://cultofcalcio.com/ranieri-leaving-roma-following-rift-with-gasperini/) - **Cultofcalcio.com**
-10. [Arne Slot provides double injury update ahead of Liverpool vs Crystal Palace](https://anfieldindex.com/93508/arne-slot-provides-double-injury-update-ahead-of-liverpool-vs-crystal-palace.html) - **Anfieldindex.com**
+1. [Howe 'looks forward' to talks with Newcastle owners](https://www.bbc.com/sport/football/articles/czredr28g08o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Howe 'looks forward' to talks with Newcastle owners](https://www.bbc.com/sport/football/articles/czredr28g08o) - **BBC News**
+3. [Manchester City target Palmeiras starlet in €40 million move as agent situation clouds deal](https://cityxtra.co.uk/44992/manchester-city-target-palmeiras-starlet-in-e40-million-move-as-agent-situation-clouds-deal/) - **Cityxtra.co.uk**
+4. [Valdimarsson signs new long-term Brentford contract](https://www.brentfordfc.com/en/news/article/first-team-hakon-valdimarsson-signs-new-long-term-contract) - **Brentfordfc.com**
+5. [England World Cup hopeful could miss rest of reason with ‘bad injury’](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_18ade823-bad7-4d53-b3cd-31174a82850d) - **Yahoo Entertainment**
+6. [Slot on Alisson availability, 'acceptable' league form and Salah form](https://www.bbc.com/sport/football/articles/c2ev9ene1ego?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Liverpool's Slot warns 'margins are small' in Champions League push](https://sports.yahoo.com/articles/liverpools-slot-warns-margins-small-090813960.html) - **Yahoo Entertainment**
+8. [Howe news conference: 'Five wins out of five' target plus Gordon update](https://www.bbc.com/sport/football/live/cz78xrppn2xt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Man United's De Ligt steps up recovery from back injury](https://www.rte.ie/sport/soccer/2026/0424/1569949-man-uniteds-de-ligt-steps-up-recovery-from-back-injury/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-04-25 18:13:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-25 19:08:36 (KST) / (하루 100회 제한 준수 중)*
