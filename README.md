@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [FA Cup game: Answer our prompts for a Man City v Southampton prediction](https://www.bbc.com/sport/football/articles/c8jkzv3xmn1o) - **BBC News**
-2. [Mbappé alert, the big guns are playing... Saturday's 5️⃣ stories](https://onefootball.com/en/news/mbappe-alert-the-big-guns-are-playing-saturdays-5-stories-42764726) - **Onefootball.com**
-3. [Richard Hughes makes moves to replace £25m signing after one year](https://www.anfieldwatch.co.uk/liverpool-fc/news/richard-hughes-makes-moves-to-replace-ps25m-signing-after-one-year/) - **Anfieldwatch.co.uk**
-4. [William Saliba reveals he thinks about the title even when he's sleeping as he opens on Arsenal's mission to end 22 years of title pain](https://www.dailymail.com/sport/football/article-15764437/I-think-title-Im-sleeping-William-Saliba-Arsenals-mission-end-22-years-title-pain.html) - **Dailymail.com**
-5. [How Newcastle's 'bullies' became too nice](https://www.bbc.com/sport/football/articles/c4g8j49dgnxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [How Newcastle's 'bullies' became too nice](https://www.bbc.com/sport/football/articles/c4g8j49dgnxo) - **BBC News**
-7. [Man Utd take major step towards £36m deal after Friday night developments](https://strettynews.com/2026/04/25/manchester-united-napoli-step-towards-rasmus-hojlund-deal/) - **Strettynews.com**
-8. [Arne Slot has seen enough: Attacker offered to five Premier League clubs](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_20b97a47-b693-4c99-88cc-026b2d1f4b32) - **Yahoo Entertainment**
-9. [Wayne Rooney: Man United legend opens up on toughest night in football](https://thepeoplesperson.com/2026/04/25/wayne-rooney-man-united-legend-opens-up-on-toughest-night-in-football-309267/) - **The Peoples Person**
-10. [Farewell to much more than Best, Charlton and Shankly](https://www.bbc.com/news/articles/c3w3v79l177o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Chelsea v Leeds: Line-ups, stats and preview, FA Cup TV channel, live online stream and semi final prediction](https://www.101greatgoals.com/match-previews/chelsea-v-leeds-line-up-stats-preview-fa-cup/) - **101 Great Goals**
+2. [Show HN: GitHub Directory for Public APIs](https://github.com/public-apis/public-apis/blob/master/README.md) - **Github.com**
+3. [Where to watch Liverpool vs. Crystal Palace live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bff0c079-1842-44dd-8953-13956e0727b8) - **Yahoo Entertainment**
+4. [‘No real quality, no control, an awful game’ – Stephen Bradley calls on Shamrock Rovers to park Derry loss](https://www.independent.ie/sport/soccer/league-of-ireland/no-real-quality-no-control-an-awful-game-stephen-bradley-calls-on-shamrock-rovers-to-park-derry-loss/a558296904.html) - **Independent.ie**
+5. [Report: Liverpool set to miss out on £40m midfielder](https://anfieldindex.com/93543/report-liverpool-set-to-miss-out-on-40m-midfielder.html) - **Anfieldindex.com**
+6. [“I think for him” – Jimmy Floyd Hasselbaink explains exactly why Liam Delap is struggling to score](https://chelsea.news/2026/04/jimmy-floyd-hasselbaink-liam-delap-struggles/) - **Chelsea.news**
+7. [The Story of Celtic’s On-field Trophy Presentations](https://thecelticstar.com/the-story-of-celtics-on-field-trophy-presentations/) - **The Celtic Star**
+8. [‘My understanding is…’ – Transfer insider not ruling out Liverpool swoop for centre-back titan](https://www.empireofthekop.com/2026/04/25/transfer-insider-not-ruling-out-liverpool-swoop-for-senesi/) - **Empire of The Kop**
+9. [Eddie Howe shares his honest thoughts on Newcastle United’s summer signings](https://eplindex.com/145725/eddie-howe-shares-his-honest-thoughts-on-newcastle-uniteds-summer-signings.html) - **English Premier League Index - Opta Stats**
+10. [Roberto De Zerbi uses unique technique to inspire struggling Tottenham Hotspur in Relegation Fight using old YouTube clips ahead of Wolverhampton game](https://timesofindia.indiatimes.com/sports/international-sports/roberto-de-zerbi-uses-unique-technique-to-inspire-struggling-tottenham-hotspur-in-relegation-fight-using-old-youtube-clips-ahead-of-wolves-game/articleshow/130511318.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-04-26 16:49:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-26 18:05:04 (KST) / (하루 100회 제한 준수 중)*
