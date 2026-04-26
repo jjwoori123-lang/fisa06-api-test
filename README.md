@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Dave Portnoy is livid with ‘unacceptable’ NBA playoff announcer crew: ‘Acting like it’s Game 7’](https://nypost.com/2026/04/24/sports/dave-portnoy-is-livid-with-unacceptable-nba-playoff-announcer-crew/) - **New York Post**
-2. [Dave Portnoy is livid with ‘unacceptable’ NBA playoff announcer crew: ‘Acting like it’s Game 7’](https://nypost.com/2026/04/24/sports/dave-portnoy-is-livid-with-unacceptable-nba-playoff-announcer-crew/?utm_source=yahoo&amp;utm_campaign=nypost&amp;utm_medium=referral) - **New York Post**
-3. [Everton at West Ham: Predicted Line-Up | Will Moyes change things up?](https://royalbluemersey.sbnation.com/everton-2025-26-season-premier-league-fixtures-hill-dickinson-moyes/79589/west-ham-everton-predicted-line-up-will-moyes-change-things-up-ndiaye-george-barry) - **SB Nation**
-4. [A flatlining season, star players on the way out and uncertainty over Howe's future: Why Newcastle arrive at Arsenal as a shadow of their former selves... and how the Saudis can lift the Toon mood, writes CRAIG HOPE](https://www.dailymail.com/sport/football/article-15762005/newcastle-arsenal-saudi-eddie-howe.html) - **Dailymail.com**
-5. ['My life is like a movie': How Southampton talisman Leo Scienza battled suicidal thoughts, betrayal and plane crash tragedy in remarkable journey from Swedish fifth tier to FA Cup semi-final](https://www.dailymail.com/sport/football/article-15758649/leo-scienza-southampton-fa-cup-journey.html) - **Dailymail.com**
-6. ['My life is like a movie': How Southampton talisman Leo Scienza battled suicidal thoughts, betrayal and plane crash tragedy in remarkable journey from Swedish fifth tier to FA Cup semi-final](https://www.dailymail.com/sport/football/article-15758649/leo-scienza-southampton-fa-cup-journey.html) - **Dailymail.com**
-7. [Leeds legend GORDON STRACHAN on the 'unbelievable' job Daniel Farke has done at Elland Road, why the class of 2026 remind him of his former team-mates, and his relief at turning down the chance to manage the club he loves](https://www.dailymail.com/sport/football/article-15758575/leeds-gordon-strachan-daniel-farke.html) - **Dailymail.com**
-8. [Forest takes big step to ensuring Premier League survival by drubbing Sunderland](https://japantoday.com/category/sports/forest-takes-big-step-to-ensuring-premier-league-survival-by-drubbing-sunderland) - **Japan Today**
-9. [NFF enforces deadline for Fed Cup state finals](https://punchng.com/nff-enforces-deadline-for-fed-cup-state-finals/) - **The Punch**
-10. [Wolves boss confirms Arokodare, Mane fight](https://punchng.com/wolves-boss-confirms-arokodare-mane-fight/) - **The Punch**
+1. [Wolves vs Tottenham Hotspur – Match preview and team news](https://thefootballfaithful.com/wolves-vs-tottenham-hotspur-match-preview-and-team-news/) - **The Football Faithful**
+2. [Tottenham XI vs Wolves – Predicted lineup and team news](https://thefootballfaithful.com/tottenham-xi-vs-wolves-predicted-lineup-and-team-news/) - **The Football Faithful**
+3. [Crystal Palace XI vs Liverpool – Predicted lineup and team news](https://thefootballfaithful.com/crystal-palace-xi-vs-liverpool-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+4. [Wolves vs Tottenham Hotspur – Predicted lineup and team news](https://thefootballfaithful.com/wolves-vs-tottenham-hotspur-predicted-lineup-and-team-news/) - **The Football Faithful**
+5. [Eagles NFL Draft Day 2 takeaways: Howie Roseman trades for Jonathan Greenard, drafts Eli Stowers and Markel Bell](https://allphly.com/eagles-nfl-draft-day-2-takeaways-howie-roseman-trades-for-jonathan-greenard-drafts-eli-stowers-and-markel-bell/) - **Allphly.com**
+6. [Manchester City will take no risks with the fitness of their midfield general](https://esteemedkompany.com/2026/04/25/manchester-city-will-take-no-risks-with-the-fitness-of-their-midfield-general/) - **Esteemedkompany.com**
+7. [Michael Carrick: Bruno Fernandes pays ultimate compliment](https://thepeoplesperson.com/2026/04/25/309264-309264/) - **The Peoples Person**
+8. [Manchester City vs Southampton: Latest City injury news and predicted City starting XI](https://esteemedkompany.com/2026/04/25/manchester-city-vs-southampton-latest-city-injury-news-and-predicted-city-starting-xi/) - **Esteemedkompany.com**
+9. [Malachy Clerkin: So, are we going to keep submitting to misogynistic abuse?](https://www.irishtimes.com/sport/soccer/2026/04/25/malachy-clerkin-so-are-we-going-to-keep-submitting-to-misogynistic-abuse/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-04-26 12:21:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-26 14:56:45 (KST) / (하루 100회 제한 준수 중)*
