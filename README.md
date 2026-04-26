@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Wolves vs Tottenham Hotspur – Match preview and team news](https://thefootballfaithful.com/wolves-vs-tottenham-hotspur-match-preview-and-team-news/) - **The Football Faithful**
-2. [Tottenham XI vs Wolves – Predicted lineup and team news](https://thefootballfaithful.com/tottenham-xi-vs-wolves-predicted-lineup-and-team-news/) - **The Football Faithful**
-3. [Crystal Palace XI vs Liverpool – Predicted lineup and team news](https://thefootballfaithful.com/crystal-palace-xi-vs-liverpool-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-4. [Wolves vs Tottenham Hotspur – Predicted lineup and team news](https://thefootballfaithful.com/wolves-vs-tottenham-hotspur-predicted-lineup-and-team-news/) - **The Football Faithful**
-5. [Eagles NFL Draft Day 2 takeaways: Howie Roseman trades for Jonathan Greenard, drafts Eli Stowers and Markel Bell](https://allphly.com/eagles-nfl-draft-day-2-takeaways-howie-roseman-trades-for-jonathan-greenard-drafts-eli-stowers-and-markel-bell/) - **Allphly.com**
-6. [Manchester City will take no risks with the fitness of their midfield general](https://esteemedkompany.com/2026/04/25/manchester-city-will-take-no-risks-with-the-fitness-of-their-midfield-general/) - **Esteemedkompany.com**
-7. [Michael Carrick: Bruno Fernandes pays ultimate compliment](https://thepeoplesperson.com/2026/04/25/309264-309264/) - **The Peoples Person**
-8. [Manchester City vs Southampton: Latest City injury news and predicted City starting XI](https://esteemedkompany.com/2026/04/25/manchester-city-vs-southampton-latest-city-injury-news-and-predicted-city-starting-xi/) - **Esteemedkompany.com**
-9. [Malachy Clerkin: So, are we going to keep submitting to misogynistic abuse?](https://www.irishtimes.com/sport/soccer/2026/04/25/malachy-clerkin-so-are-we-going-to-keep-submitting-to-misogynistic-abuse/) - **The Irish Times**
+1. [FA Cup game: Answer our prompts for a Man City v Southampton prediction](https://www.bbc.com/sport/football/articles/c8jkzv3xmn1o) - **BBC News**
+2. [Mbappé alert, the big guns are playing... Saturday's 5️⃣ stories](https://onefootball.com/en/news/mbappe-alert-the-big-guns-are-playing-saturdays-5-stories-42764726) - **Onefootball.com**
+3. [Richard Hughes makes moves to replace £25m signing after one year](https://www.anfieldwatch.co.uk/liverpool-fc/news/richard-hughes-makes-moves-to-replace-ps25m-signing-after-one-year/) - **Anfieldwatch.co.uk**
+4. [William Saliba reveals he thinks about the title even when he's sleeping as he opens on Arsenal's mission to end 22 years of title pain](https://www.dailymail.com/sport/football/article-15764437/I-think-title-Im-sleeping-William-Saliba-Arsenals-mission-end-22-years-title-pain.html) - **Dailymail.com**
+5. [How Newcastle's 'bullies' became too nice](https://www.bbc.com/sport/football/articles/c4g8j49dgnxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [How Newcastle's 'bullies' became too nice](https://www.bbc.com/sport/football/articles/c4g8j49dgnxo) - **BBC News**
+7. [Man Utd take major step towards £36m deal after Friday night developments](https://strettynews.com/2026/04/25/manchester-united-napoli-step-towards-rasmus-hojlund-deal/) - **Strettynews.com**
+8. [Arne Slot has seen enough: Attacker offered to five Premier League clubs](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_20b97a47-b693-4c99-88cc-026b2d1f4b32) - **Yahoo Entertainment**
+9. [Wayne Rooney: Man United legend opens up on toughest night in football](https://thepeoplesperson.com/2026/04/25/wayne-rooney-man-united-legend-opens-up-on-toughest-night-in-football-309267/) - **The Peoples Person**
+10. [Farewell to much more than Best, Charlton and Shankly](https://www.bbc.com/news/articles/c3w3v79l177o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-26 14:56:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-26 16:49:07 (KST) / (하루 100회 제한 준수 중)*
