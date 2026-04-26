@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sooryavanshi, 15, hits 36-ball ton but Royals lose](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c686444a-6507-4f1b-a589-e98b9d7d8fc4) - **Yahoo Entertainment**
-2. [Report: Arsenal 1-0 Newcastle United](http://www.arsenal.com/fixture/arsenal/2026-Apr-25/arsenal-1-0-newcastle-united-match-report) - **Arsenal.com**
-3. [Azaz scores screamer but City break Southampton's hearts](https://www.rte.ie/sport/soccer/2026/0425/1570139-azaz-scores-screamer-but-city-break-southamptons-hearts/) - **RTE**
-4. [Sooryavanshi, 15, hits 36-ball ton but Royals lose](https://www.bbc.com/sport/cricket/articles/c74v2dgvwl8o) - **BBC News**
-5. [Man City 2-1 Southampton: Nico Gonzalez and Jeremy Doku book Pep Guardiola's side fourth FA Cup final on the trot as domestic treble-chasers survive Saints scare](https://www.dailymail.com/sport/football/article-15758659/Man-City-2-1-Southampton-Nico-Gonzalez-Jeremy-Doku-Pep-Guardiola-FA-Cup-final.html) - **Dailymail.com**
-6. [Man City 2-1 Southampton: Report, result and goals as City avoid shock to reach FA Cup final](https://www.101greatgoals.com/football/man-city-southampton-report-result-goals/) - **101 Great Goals**
-7. [The 110-minute game that may have rescued Newport](https://www.bbc.com/sport/football/articles/cjw8jxln8jdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Manchester City 2-1 Southampton: Nico Gonzalez rocket helps City come back to edge dogged Saints](https://www.nbcsports.com/manchester-city-vs-southampton-recap-fa-cup-final-score-video-highlights-nico-gonzalez-goal) - **NBCSports.com**
-9. [Man City survive Saints scare to reach fourth FA Cup final in a row](https://www.skysports.com/football/news/11095/13535464/man-city-2-1-southampton-pep-guardiolas-men-make-fa-cup-final-for-fourth-consecutive-year-after-mighty-saints-scare) - **Sky Sports**
+1. [Rangers Have Missed The Opportunity To Sign 26-Year-Old Midfielder: Big Loss For The Team?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_51268304-27ad-4c16-9a06-a4ceca1318e9) - **Yahoo Entertainment**
+2. [Arsenal 1-0 Newcastle PLAYER RATINGS: Who was his team's stand-out? Which player is growing in importance for his side? And who remains a frustrating figure for fans?](https://www.dailymail.com/sport/football/article-15758701/Arsenal-1-0-Newcastle-PLAYER-RATINGS.html) - **Dailymail.com**
+3. [Liverpool's European dreams alive amid Salah scare](https://www.rediff.com/sports/report/epl-liverpool-close-in-on-champions-league-but-mo-salah-limps-off-injured/20260426.htm) - **Rediff.com**
+4. [Man City late show beats Southampton to reach FA Cup final](https://www.vanguardngr.com/2026/04/man-city-late-show-beats-southampton-to-reach-fa-cup-final/) - **Vanguard**
+5. [Arsenal 1-0 Newcastle: Eberechi Eze's stunning strike sends Gunners back to the top of the league as Mikel Arteta's side edge out nervy win to put ball in Man City's court](https://www.dailymail.com/sport/football/article-15758693/Arsenal-1-0-Newcastle-Premier-League-2025-26-result.html) - **Dailymail.com**
+6. [Three goals, eight chaotic minutes - how day of relegation drama unfolded](https://www.bbc.com/sport/football/articles/c4g4nyjzg9do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [PREVIEW | Manchester United vs Brentford: team news, lineups, predictions (Premier League 27/04)](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7fc37e62-b9a2-41db-ac5f-574b8fc14f5a) - **Yahoo Entertainment**
+8. [Vaibhav Sooryavanshi fastest to reach 1,000 runs in T20s as teenager smashes 36-ball ton in IPL](https://economictimes.indiatimes.com/news/sports/vaibhav-sooryavanshi-fastest-to-reach-1000-runs-in-t20s-as-teenager-smashes-36-ball-ton-in-ipl/articleshow/130522302.cms) - **The Times of India**
+9. [Isak and Wirtz on scoresheet as Liverpool beat Palace](https://www.bbc.com/sport/football/videos/c8jk43nv4pzo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-04-27 03:26:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-27 04:33:25 (KST) / (하루 100회 제한 준수 중)*
