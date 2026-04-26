@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea v Leeds: Line-ups, stats and preview, FA Cup TV channel, live online stream and semi final prediction](https://www.101greatgoals.com/match-previews/chelsea-v-leeds-line-up-stats-preview-fa-cup/) - **101 Great Goals**
-2. [Show HN: GitHub Directory for Public APIs](https://github.com/public-apis/public-apis/blob/master/README.md) - **Github.com**
-3. [Where to watch Liverpool vs. Crystal Palace live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bff0c079-1842-44dd-8953-13956e0727b8) - **Yahoo Entertainment**
-4. [‘No real quality, no control, an awful game’ – Stephen Bradley calls on Shamrock Rovers to park Derry loss](https://www.independent.ie/sport/soccer/league-of-ireland/no-real-quality-no-control-an-awful-game-stephen-bradley-calls-on-shamrock-rovers-to-park-derry-loss/a558296904.html) - **Independent.ie**
-5. [Report: Liverpool set to miss out on £40m midfielder](https://anfieldindex.com/93543/report-liverpool-set-to-miss-out-on-40m-midfielder.html) - **Anfieldindex.com**
-6. [“I think for him” – Jimmy Floyd Hasselbaink explains exactly why Liam Delap is struggling to score](https://chelsea.news/2026/04/jimmy-floyd-hasselbaink-liam-delap-struggles/) - **Chelsea.news**
-7. [The Story of Celtic’s On-field Trophy Presentations](https://thecelticstar.com/the-story-of-celtics-on-field-trophy-presentations/) - **The Celtic Star**
-8. [‘My understanding is…’ – Transfer insider not ruling out Liverpool swoop for centre-back titan](https://www.empireofthekop.com/2026/04/25/transfer-insider-not-ruling-out-liverpool-swoop-for-senesi/) - **Empire of The Kop**
-9. [Eddie Howe shares his honest thoughts on Newcastle United’s summer signings](https://eplindex.com/145725/eddie-howe-shares-his-honest-thoughts-on-newcastle-uniteds-summer-signings.html) - **English Premier League Index - Opta Stats**
-10. [Roberto De Zerbi uses unique technique to inspire struggling Tottenham Hotspur in Relegation Fight using old YouTube clips ahead of Wolverhampton game](https://timesofindia.indiatimes.com/sports/international-sports/roberto-de-zerbi-uses-unique-technique-to-inspire-struggling-tottenham-hotspur-in-relegation-fight-using-old-youtube-clips-ahead-of-wolves-game/articleshow/130511318.cms) - **The Times of India**
+1. [A unique stat for the Reds this season](https://www.manutd.com/en/news/detail/man-utd-only-premier-league-team-with-no-goalless-draws-2025-26) - **Manchester United**
+2. [Former Gunner scores damaging late goal against Real Madrid](https://dailycannon.com/2026/04/bellerin-real-madrid-goal/) - **Dailycannon.com**
+3. [Sutton's predictions: Liverpool v Crystal Palace](https://www.bbc.com/sport/football/articles/c625y0deq1go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Premier League: Villa go to Fulham before huge games for Spurs & West Ham](https://www.bbc.com/sport/football/live/c8r161k147vt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [NBA’s Rwanda ties face scrutiny after sanctions-linked BAL withdrawal](https://sports.yahoo.com/articles/nba-rwanda-ties-face-scrutiny-100043333.html) - **Yahoo Entertainment**
+6. [Where to watch Arsenal vs. Newcastle live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8da6e545-0cd6-4cfa-8063-6fadcdabb106) - **Yahoo Entertainment**
+7. [Antoine Semenyo admits to “laughing” on his own during first Pep Guardiola meeting](https://cityxtra.co.uk/44843/antoine-semenyo-admits-to-laughing-on-his-own-during-first-pep-guardiola-meeting/) - **Cityxtra.co.uk**
+8. [Mexicans Abroad: How to Watch](https://www.fmfstateofmind.com/mexicans-abroad/26913/mexicans-abroad-how-to-watch) - **Fmfstateofmind.com**
+9. [Two Arsenal targets set to miss their Emirates audition for Newcastle](https://www.justarsenal.com/two-arsenal-targets-set-to-miss-their-emirates-audition-for-newcastle/414185) - **Just Arsenal News**
+10. [Sensational new signing finally joins Liverpool first-team](https://www.anfieldwatch.co.uk/liverpool-fc/news/sensational-centre-back-finally-joins-liverpool-first-team/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-04-26 18:05:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-26 19:09:53 (KST) / (하루 100회 제한 준수 중)*
