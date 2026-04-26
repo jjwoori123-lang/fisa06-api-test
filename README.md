@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester City vs Southampton LIVE updates, FA Cup semifinal watch live, score, analysis, highlights](https://www.nbcsports.com/manchester-city-vs-southampton-live-fa-cup-updates-score-highlights-stats-watch) - **NBCSports.com**
-2. [ BREAKING: Man City and Southampton name XIs for FA Cup semi-final bout](https://onefootball.com/en/news/breaking-man-city-and-southampton-name-xis-for-fa-cup-semi-final-bout-42766750) - **Onefootball.com**
-3. [Man City v Southampton live: Confirmed teams and full line ups, TV channel, live online stream](https://www.101greatgoals.com/football/man-city-v-southampton-live-teams-line-ups/) - **101 Great Goals**
-4. [Confirmed Line-Ups: Manchester City vs Southampton (FA Cup Semi-Final)](https://cityxtra.co.uk/45337/confirmed-line-ups-manchester-city-vs-southampton-fa-cup-semi-final/) - **Cityxtra.co.uk**
-5. [Manchester City and Southampton have confirmed their starting lineups for today’s FA Cup semi-final](https://esteemedkompany.com/2026/04/25/manchester-city-and-southampton-have-confirmed-their-starting-lineups-for-todays-fa-cup-semi-final/) - **Esteemedkompany.com**
-6. [Aston Villa rue lost opportunity against Fulham in ‘very difficult’ top five race](https://thefootballfaithful.com/aston-villa-top-five-race-fulham-emery/) - **The Football Faithful**
-7. [(Video) Freddie Woodman had Alisson’s firm seal of approval with two incredible moments v Palace](https://www.empireofthekop.com/2026/04/25/freddie-woodman-saves-liverpool-palace/) - **Empire of The Kop**
-8. [ BREAKING: Arsenal and Newcastle name XIs for critical PL clash](https://onefootball.com/en/news/breaking-arsenal-and-newcastle-name-xis-for-critical-pl-clash-42766707) - **Onefootball.com**
-9. [Confirmed Arsenal team v Newcastle United – Havertz starts, Saka on bench](https://www.justarsenal.com/confirmed-arsenal-team-v-newcastle-united-havertz-starts-saka-on-bench/414199) - **Just Arsenal News**
-10. [Team news: White starts v Newcastle, Saka on bench](http://www.arsenal.com/news/team-news-white-starts-v-newcastle-saka-bench) - **Arsenal.com**
+1. [Tottenham keep survival hopes alive with Joao Palhinha’s late winner at Wolves](https://www.independent.ie/sport/soccer/premier-league/tottenham-keep-survival-hopes-alive-with-joao-palhinhas-late-winner-at-wolves/a727153488.html) - **Independent.ie**
+2. [Tottenham boss Roberto De Zerbi admits injuries are rocking his side’s survival hopes after a win at Wolves](https://www.independent.ie/sport/soccer/premier-league/tottenham-boss-roberto-de-zerbi-admits-injuries-are-rocking-his-sides-survival-hopes-after-a-win-at-wolves/a727153488.html) - **Independent.ie**
+3. [Ups, downs and the race for Europe](https://www.bbc.com/sport/football/articles/c4gq030l414o) - **BBC News**
+4. [Isak on target as Liverpool beat Palace to boost CL hopes](https://www.skysports.com/football/video/12606/13536430/liverpool-3-1-crystal-palace-premier-league-highlights) - **Sky Sports**
+5. [WLOI: Five-star Shamrock Rovers roar back to beat Shelbou](https://www.rte.ie/sport/soccer/2026/0425/1570144-wloi-five-star-shamrock-rovers-roar-back-to-beat-shelbou/) - **RTE**
+6. [West Ham 2-1 Everton: Super sub Callum Wilson rescues hosts with HUGE stoppage-time winner - keeping Hammers two points above Tottenham in relegation scrap](https://www.dailymail.com/sport/football/article-15758629/West-Ham-2-1-Everton.html) - **Dailymail.com**
+7. [Emotional Mohamed Salah may have kicked his last ball for Liverpool as they beat Crystal Palace](https://www.independent.ie/sport/soccer/premier-league/emotional-mohamed-salah-may-have-kicked-his-last-ball-for-liverpool-as-they-beat-crystal-palace/a1499531034.html) - **Independent.ie**
+8. [Palhinha scores late Tottenham goal at Wolves to end winless run](https://www.channelnewsasia.com/sport/palhinha-scores-late-tottenham-goal-wolves-end-winless-run-6081011) - **CNA**
+9. [Segecic scores hat-trick in Pompey win](https://www.skysports.com/football/news/11095/13535878/stoke-city-1-3-portsmouth-adrian-segecic-scores-hat-trick-in-pompey-win) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-04-27 00:26:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-27 01:23:17 (KST) / (하루 100회 제한 준수 중)*
