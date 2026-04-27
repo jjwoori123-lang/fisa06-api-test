@@ -1,16 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Birchall takes positives from defeat](http://www.arsenal.com/news/birchall-takes-positives-defeat) - **Arsenal.com**
-2. [Odegaard & Eze call on Arsenal to give everything to win title](https://dailycannon.com/2026/04/odegaard-eze-arsenal-title/) - **Dailycannon.com**
-3. [West Ham 2-1 Everton: What We Learned](http://www.toffeeweb.com/season/25-26/news/47504.html) - **Toffeeweb**
-4. [Where does win leave Arsenal in title race?](https://www.bbc.com/sport/football/articles/c33l34rvkm2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Livestream FA Cup Soccer: Watch Leeds United vs. Chelsea](https://www.cnet.com/tech/services-and-software/livestream-fa-cup-soccer-watch-leeds-united-vs-chelsea-from-anywhere/) - **CNET**
-6. [How to watch Chelsea vs Leeds: Live Streams, TV Channels for FA Cup semi-final](https://www.techradar.com/how-to-watch/football/chelsea-vs-leeds-fa-cup-2025-26) - **TechRadar**
-7. [“Very difficult” – Tim Sherwood slams Chelsea ownership as he speaks on Blues project](https://chelsea.news/2026/04/tim-sherwood-slams-chelsea-project/) - **Chelsea.news**
-8. [FREE WSL STREAMS: Everton vs Chelsea, London City vs Leicester, Liverpool vs West Ham](https://www.skysports.com/football/news/11095/13535902/wsl-free-streams-watch-everton-vs-chelsea-london-city-lionesses-vs-leicester-liverpool-vs-west-ham) - **Sky Sports**
-9. [Man United target Godts scores sensational solo goal for Ajax](https://thefootballfaithful.com/man-united-target-godts-scores-sensational-solo-goal-for-ajax/) - **The Football Faithful**
-10. [‘That’s an understatement’ – Slot blown away by Woodman display](https://www.empireofthekop.com/2026/04/26/thats-an-understatement-slot-blown-away-by-woodman-display/) - **Empire of The Kop**
+1. [How to watch Manchester United vs Brentford live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-manchester-united-vs-brentford-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
+2. [Callum McGregor should have left Celtic years ago... and his ultimatum to the board is way too late as well, writes GARY KEOWN](https://www.dailymail.com/sport/football/article-15764789/Callum-McGregor-left-Celtic-years-ago-ultimatum-board-way-late-writes-GARY-KEOWN.html) - **Dailymail.com**
+3. [What channel is 76ers vs. Celtics on today? Time, TV schedule, live stream to watch Game 4 of NBA Playoffs series](https://www.sportingnews.com/us/nba/news/76ers-celtics-channel-time-schedule-watch-game-4-playoffs/82c771c2b8d84b3c2bc9139b) - **Sporting News**
+4. [Arsenal u21 elimination underlines poor academy season](https://dailycannon.com/2026/04/arsenal-poor-academy-season/) - **Dailycannon.com**
+5. [Last gasp Everton Under 21s through to semi final](https://royalbluemersey.sbnation.com/everton-fc-youth/79596/last-gasp-everton-under-21s-through-to-semi-final) - **SB Nation**
+6. ['City taking the big moments'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_974a5812-2523-4764-bc6a-8b41ffc00d13) - **Yahoo Entertainment**
+7. [Fired already? MLB's best managers know 'unfairness comes with the job'](https://www.usatoday.com/story/sports/mlb/columnist/bob-nightengale/2026/04/26/mlb-managers-hot-seat-alex-cora-fired/89792023007/) - **USA Today**
 
 
 ---
-*최근 업데이트: 2026-04-27 20:07:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-27 21:54:24 (KST) / (하루 100회 제한 준수 중)*
