@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Andy’s Player Ratings: Man Utd u21 3 – 2 Sunderland – Play Off Defeat for Black Cats](https://rokerreport.sbnation.com/report-amp-player-ratings/135886/andys-player-ratings-man-utd-u21-3-2-sunderland-play-off-defeat-for-black-cats) - **SB Nation**
-2. [ Hürzeler wants to 'change perception' of Brighton with ambitions high](https://onefootball.com/en/news/huerzeler-wants-to-change-perception-of-brighton-with-ambitions-high-42772281) - **Onefootball.com**
-3. [U21s report: United 3 Sunderland 2](https://www.manutd.com/en/news/detail/under-21s-match-report-man-utd-v-sunderland-26-april-2026) - **Manchester United**
-4. [Steven Gerrard set for return to management with Premier League club – Report](https://anfieldindex.com/93589/steven-gerrard-set-for-return-to-management-with-premier-league-club-report.html) - **Anfieldindex.com**
-5. [Report: Juventus leading the race to sign Man City star this summer](https://eplindex.com/145768/report-juventus-leading-the-race-to-sign-man-city-star-this-summer.html) - **English Premier League Index - Opta Stats**
-6. [Confirmed: Atletico Madrid without star midfielder for Arsenal matches](https://www.football-espana.net/2026/04/26/atletico-madrid-without-star-midfielder-arsenal) - **Football Espana**
-7. [ Everton to 'raise concerns' with PGMO after non-call against West Ham](https://onefootball.com/en/news/everton-to-raise-concerns-with-pgmo-after-non-call-against-west-ham-42772169) - **Onefootball.com**
-8. [Another IPL top-order failure for Chennai in 8-wicket defeat to Gujarat. Lucknow hosts Kolkata](https://sports.yahoo.com/articles/another-ipl-top-order-failure-143712572.html) - **Yahoo Entertainment**
-9. [GRADUATING WITH HONOURS: Ambitious St Patrick's fail semi-final test but are ready to take a bold step into Scotland's professional ranks, as On The Road discovers](https://www.dailymail.com/sport/football/article-15766705/GRADUATING-HONOURS-Ambitious-St-Patricks-fail-semi-final-test-ready-bold-step-Scotlands-professional-ranks-Road-discovers.html) - **Dailymail.com**
-10. [Yankees Birthday of the Day: Aaron Judge](https://www.pinstripealley.com/yankees-history-trivia/184946/yankees-history-aaron-judge-birthday-april-26) - **Pinstripe Alley**
+1. [Player Ratings: Manchester United U21s 3-2 Sunderland U21s](https://thepeoplesperson.com/2026/04/26/player-ratings-manchester-united-u21s-3-2-sunderland-u21s-309314/) - **The Peoples Person**
+2. [Enzo Fernandez sends Chelsea into FA Cup final with Wembley winner against Leeds](https://www.the42.ie/chelsea-leeds-fa-cup-semi-final-7024573-Apr2026/) - **The42**
+3. [Manchester United receive new Elliot Anderson transfer boost as Forest identity replacement for midfielder](https://footballtoday.com/2026/04/26/manchester-united-receive-new-elliot-anderson-transfer-boost-as-forest-identity-replacement-for-midfielder/) - **Footballtoday.com**
+4. [Everton & Nottingham Forest among five clubs chasing €25m Juventus defender](https://www.juvefc.com/everton-nottingham-forest-milan-federico-gatti-juventus/) - **JuveFC**
+5. [Five Things Learned: Manchester City 2-1 Southampton (FA Cup Semi-Final)](https://cityxtra.co.uk/45360/five-things-learned-manchester-city-2-1-southampton-fa-cup-semi-final/) - **Cityxtra.co.uk**
+6. [A closer look at Aidan Morris, Middlesbrough’s promotion quest](https://sbisoccer.com/2026/04/a-closer-look-at-aidan-morris-middlesbroughs-promotion-quest) - **Sbisoccer.com**
+7. [Academy Match Report: Manchester United U21s 3-2 Sunderland U21s](https://thepeoplesperson.com/2026/04/26/academy-match-report-manchester-united-u21s-3-2-sunderland-u21s-309311/) - **The Peoples Person**
+8. [Fernandez helps to transform Chelsea](https://www.skysports.com/football/news/13865/13536877/enzo-fernandez-transforms-chelsea-from-staring-into-the-abyss-at-brighton-to-supercharged-fa-cup-monster-vs-leeds) - **Sky Sports**
+9. [Chelsea reach FA Cup final with 1-0 win over Leeds](https://www.channelnewsasia.com/sport/chelsea-reach-fa-cup-final-1-0-win-over-leeds-6082231) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-04-28 00:08:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-28 01:58:21 (KST) / (하루 100회 제한 준수 중)*
