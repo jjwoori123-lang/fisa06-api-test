@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [MS Dhoni regains full fitness but informs CSK management he doesn't want to take youngster's spot: Report](https://thesportstak.com/cricket/ipl/story/ms-dhoni-regains-full-fitness-but-informs-csk-management-he-doesnt-want-to-take-youngster-spot-sear-3251287-2026-04-26#news) - **Thesportstak.com**
-2. [Game 4 Preview- Colorado Avalanche vs Los Angeles Kings](https://www.thesportingtribune.com/2026/04/25/game-4-preview--colorado-avalanche-vs-los-angeles-kings) - **Thesportingtribune.com**
-3. [Cowboys defense can't get much worse. NFL draft help should make it better | Opinion](https://www.usatoday.com/story/sports/nfl/columnist/bell/2026/04/25/cowboys-nfl-draft-defense-jerry-jones/89803814007/) - **USA Today**
-4. [Arsenal 1 Newcastle 0 – Can they take title race to the wire? Are Howe’s side in the relegation fight? - The Athletic - The New York Times](https://slashdot.org/firehose.pl?op=view&amp;id=182924502) - **Slashdot.org**
-5. [Manchester City are closing in on Arsenal's Premier League lead and the top spot no longer feels secure](https://www.marca.com/en/football/premier-league/2026/04/26/69ed5fdc46163fd5228b4584.html) - **Marca**
-6. [Arsenal regain Premier League lead but pay a price that could change their season](https://www.marca.com/en/football/premier-league/2026/04/26/69ed5dfb46163f35298b457a.html) - **Marca**
-7. [Chelle admits financial issues in Eagles contract talks](https://punchng.com/chelle-admits-financial-issues-in-eagles-contract-talks/) - **The Punch**
-8. [Injured Salah to miss rest of Liverpool season, says Egypt national team director](https://www.channelnewsasia.com/sport/injured-salah-miss-rest-liverpool-season-says-egypt-national-team-director-6081356) - **CNA**
-9. [JuiceBet Launches in Kenya with M-Pesa Payments, Sports Betting, and Casino Gaming Options](https://www.globenewswire.com/news-release/2026/04/25/3281176/0/en/JuiceBet-Launches-in-Kenya-with-M-Pesa-Payments-Sports-Betting-and-Casino-Gaming-Options.html) - **GlobeNewswire**
+1. [No top club or national team: why does nobody want this world-class player?](https://onefootball.com/en/news/no-top-club-or-national-team-why-does-nobody-want-this-world-class-player-42770248) - **Onefootball.com**
+2. [Liverpool create 'problem' in massive €75m transfer talks](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-create-problem-in-massive-eur75m-transfer-talks/) - **Anfieldwatch.co.uk**
+3. [Who is Calum McFarlane? From non league to Chelsea head coach](https://thefootballfaithful.com/who-is-calum-mcfarlane-chelsea-head-coach/) - **The Football Faithful**
+4. [FOLLOW THE LEADER! Former West Brom boss Gary Megson insists Derek McInnes' people skills will stand Hearts in good stead for title bid](https://www.dailymail.com/sport/football/article-15764561/FOLLOW-LEADER-Former-West-Brom-boss-Gary-Megson-insists-Derek-McInnes-people-skills-stand-Hearts-good-stead-title-bid.html) - **Dailymail.com**
+5. [Injured Salah has played his last game for Liverpool: Egypt team official](https://www.aljazeera.com/sports/2026/4/26/injured-salah-has-played-his-last-game-for-liverpool-egypt-team-official) - **Al Jazeera English**
+6. [Hyderabad's Cummins relishes IPL's big-chase 'challenge'](https://www.channelnewsasia.com/sport/hyderabads-cummins-relishes-ipls-big-chase-challenge-6081791) - **CNA**
+7. [2026 NFL Draft grades: Giants among 4 teams with an A, while a Super Bowl contender doesn't do so hot](https://sports.yahoo.com/nfl/article/2026-nfl-draft-grades-giants-among-4-teams-with-an-a-while-a-super-bowl-contender-doesnt-do-so-hot-051100373.html) - **Yahoo Entertainment**
+8. [The bubble bursts for football’s money men as Chelsea and World Cup woes show](https://www.independent.ie/sport/soccer/the-bubble-bursts-for-footballs-money-men-as-chelsea-and-world-cup-woes-show/a1652237908.html) - **Independent.ie**
+9. [Chelsea vs Leeds United – Match preview and team news](https://thefootballfaithful.com/chelsea-vs-leeds-united-match-preview-and-team-news-2/) - **The Football Faithful**
+10. [Chelsea vs Leeds United – Predicted lineup and team news](https://thefootballfaithful.com/chelsea-vs-leeds-united-predicted-lineup-and-team-news-2/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-04-27 12:26:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-27 15:16:25 (KST) / (하루 100회 제한 준수 중)*
