@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Player Ratings: Manchester United U21s 3-2 Sunderland U21s](https://thepeoplesperson.com/2026/04/26/player-ratings-manchester-united-u21s-3-2-sunderland-u21s-309314/) - **The Peoples Person**
-2. [Enzo Fernandez sends Chelsea into FA Cup final with Wembley winner against Leeds](https://www.the42.ie/chelsea-leeds-fa-cup-semi-final-7024573-Apr2026/) - **The42**
-3. [Manchester United receive new Elliot Anderson transfer boost as Forest identity replacement for midfielder](https://footballtoday.com/2026/04/26/manchester-united-receive-new-elliot-anderson-transfer-boost-as-forest-identity-replacement-for-midfielder/) - **Footballtoday.com**
-4. [Everton & Nottingham Forest among five clubs chasing €25m Juventus defender](https://www.juvefc.com/everton-nottingham-forest-milan-federico-gatti-juventus/) - **JuveFC**
-5. [Five Things Learned: Manchester City 2-1 Southampton (FA Cup Semi-Final)](https://cityxtra.co.uk/45360/five-things-learned-manchester-city-2-1-southampton-fa-cup-semi-final/) - **Cityxtra.co.uk**
-6. [A closer look at Aidan Morris, Middlesbrough’s promotion quest](https://sbisoccer.com/2026/04/a-closer-look-at-aidan-morris-middlesbroughs-promotion-quest) - **Sbisoccer.com**
-7. [Academy Match Report: Manchester United U21s 3-2 Sunderland U21s](https://thepeoplesperson.com/2026/04/26/academy-match-report-manchester-united-u21s-3-2-sunderland-u21s-309311/) - **The Peoples Person**
-8. [Fernandez helps to transform Chelsea](https://www.skysports.com/football/news/13865/13536877/enzo-fernandez-transforms-chelsea-from-staring-into-the-abyss-at-brighton-to-supercharged-fa-cup-monster-vs-leeds) - **Sky Sports**
-9. [Chelsea reach FA Cup final with 1-0 win over Leeds](https://www.channelnewsasia.com/sport/chelsea-reach-fa-cup-final-1-0-win-over-leeds-6082231) - **CNA**
+1. [Alisson edges closer to exit: Liverpool name their price](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-alisson-edges-closer-to-exit/) - **Anfieldwatch.co.uk**
+2. [Marcus Rashford to Tottenham could happen on one key condition](https://thepeoplesperson.com/2026/04/26/marcus-rashford-to-tottenham-could-happen-on-one-key-condition-309312/) - **The Peoples Person**
+3. [Injury blow ahead of Arsenal for Atletico starter after new setback](https://dailycannon.com/2026/04/atletico-barrios-arsenal-injury/) - **Dailycannon.com**
+4. [Millwall left aggrieved after club logo appears on Ku Klux Klan member in booklet](https://www.irishtimes.com/sport/2026/04/26/millwall-left-aggrieved-after-club-logo-appears-on-ku-klux-klan-member-on-booklet/) - **The Irish Times**
+5. [Bizarrely, Eddie Howe Keeps Talking About His Summer Plans for Newcastle](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2aef6896-e40e-45bf-91e1-167057dabb23) - **Yahoo Entertainment**
+6. [Midfielder proves why he is ready for Liverpool move with brilliant performance](https://anfieldindex.com/93562/midfielder-proves-why-he-is-ready-for-liverpool-move-with-brilliant-performance.html) - **Anfieldindex.com**
+7. [Journalist: Manchester United in strong position to land Premier League forward](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e53657e7-b352-45ca-893f-64d5c1c0b5f4) - **Yahoo Entertainment**
+8. [‘We gave our club so much to be proud of’ – Farke on Leeds’ FA Cup exit](https://hayters.com/we-gave-our-club-so-much-to-be-proud-of-farke-on-leeds-fa-cup-exit/) - **Hayters.com**
+9. [Sanchez says Chelsea winner ‘straight from training ground’](https://thefootballfaithful.com/sanchez-says-chelsea-winner-straight-from-training-ground/) - **The Football Faithful**
+10. [Manchester United attacker Matheus Cunha a doubt to face Brentford after scans earlier this week](https://sportsview.co.uk/2026/04/manchester-united-attacker-matheus-cunha-a-doubt-to-face-brentford-after-scans-earlier-this-week?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-attacker-matheus-cunha-a-doubt-to-face-brentford-after-scans-earlier-this-week) - **Sportsview.co.uk**
 
 
 ---
-*최근 업데이트: 2026-04-28 01:58:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-28 03:13:43 (KST) / (하루 100회 제한 준수 중)*
