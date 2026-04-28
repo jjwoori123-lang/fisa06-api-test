@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [As Soccer Grows In America The World Cup Is Becoming A Luxury Event](https://www.forbes.com/sites/beaudure/2026/04/27/as-soccer-grows-in-america-the-world-cup-is-becoming-a-luxury-event/) - **Forbes**
-2. [Outgoing Bournemouth boss Andoni Iraola emerges as contender for Chelsea job as he weighs up his future](https://www.dailymail.com/sport/football/article-15768865/bournemouth-manager-andoni-iraola-chelsea-target.html) - **Dailymail.com**
-3. [Manchester United vs. Brentford odds, predictions, best bets for Monday's English Premier League match](https://www.cbssports.com/betting/news/manchester-united-vs-brentford-odds-predictions-best-bets-for-mondays-english-premier-league-match/) - **CBS Sports**
-4. [FULL LIST: Top 10 dribblers in Europe’s top five leagues](https://punchng.com/full-list-top-10-dribblers-in-europes-top-five-leagues-2/) - **The Punch**
-5. [Chelsea contact Iraola to replace Rosenior as head coach this summer](https://sportsview.co.uk/2026/04/chelsea-contact-iraola-to-replace-rosenior-as-head-coach-this-summer?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-contact-iraola-to-replace-rosenior-as-head-coach-this-summer) - **Sportsview.co.uk**
-6. [The BBC is axing Football Focus – here’s what it means for sports broadcasting](https://theconversation.com/the-bbc-is-axing-football-focus-heres-what-it-means-for-sports-broadcasting-281472) - **The Conversation Africa**
-7. [Jacksonville Jaguars Winners And Losers From The 2026 Draft](https://www.bigcatcountry.com/jacksonville-jaguars-news/85099/jags-2026-nfl-draft-winners-losers) - **Big Cat Country**
-8. [Atletico Madrid battling injury crisis ahead of the Arsenal game](https://www.justarsenal.com/atletico-madrid-battling-injury-crisis-ahead-of-the-arsenal-game/414289) - **Just Arsenal News**
-9. [Virgil van Dijk hints at potential return for Liverpool legend](https://anfieldindex.com/93609/virgil-van-dijk-hints-at-potential-return-for-liverpool-legend.html) - **Anfieldindex.com**
-10. [Report: Premier League boss favourite to become new Chelsea manager](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c1d47343-2588-4675-9972-479302547be1) - **Yahoo Entertainment**
+1. ['I miss Liverpool': Departed fan favourite makes emotional admission](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-caoimhin-kelleher-fan-favourite-makes-emotional-admission/) - **Anfieldwatch.co.uk**
+2. [Could Dortmund be the frontrunners for El Mala with Brighton out of the picture?](https://bulinews.com/dortmund-the-frontrunners-for-mala-brighton-out-the-picture) - **Bulinews.com**
+3. [Julian Ryerson: Man United’s plan for Borussia Dortmund star unveiled](https://thepeoplesperson.com/2026/04/27/julian-ryerson-man-uniteds-plan-for-borussia-dortmund-star-unveiled-309344/) - **The Peoples Person**
+4. [Every Wisconsin high-school alum taken in the NFL Draft since 1990](https://www.jsonline.com/story/sports/nfl/draft/2026/04/27/wisconsin-high-school-alumni-nfl-draft-since-1990/89808348007/) - **Milwaukee Journal Sentinel**
+5. ['A creative hole at crunch time'](https://www.bbc.com/sport/football/articles/cdrmr7kply0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Quality of play in LOI 'a little bit concerning' - Cawley](https://www.rte.ie/sport/soccer/2026/0427/1570416-quality-of-play-in-loi-a-little-bit-concerning-cawley/) - **RTE**
+7. [2026 World Cup: Netherlands deal major blow as Xavi Simons suffers ACL injury at Tottenham Hotspur](https://worldsoccertalk.com/news/2026-world-cup-netherlands-deal-major-blow-as-xavi-simons-suffers-acl-injury-at-tottenham-hotspur/) - **Worldsoccertalk.com**
+8. [John Aldridge implores Liverpool to address one thing which ‘could have cost’ them on Saturday](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b08282cc-085a-4a3e-9efa-5d620799fe71) - **Yahoo Entertainment**
+9. [Pep Guardiola hints at extending Manchester City tenure amid treble chase](https://www.alloutsoccer.com/news/pep-guardiola-extending-manchester-city-1810185) - **Alloutsoccer.com**
 
 
 ---
-*최근 업데이트: 2026-04-28 22:18:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-29 00:41:25 (KST) / (하루 100회 제한 준수 중)*
