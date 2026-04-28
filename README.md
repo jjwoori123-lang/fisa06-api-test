@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Team-first Kane propelling Bayern to glory as PSG showdown looms](https://sports.yahoo.com/articles/team-first-kane-propelling-bayern-040048151.html) - **Yahoo Entertainment**
-2. [First statewide high school surf season is making waves](https://www.staradvertiser.com/2026/04/26/hawaii-news/first-statewide-high-school-surf-season-is-making-waves/) - **Honolulu Star-Advertiser**
-3. [(VIDEO) Wemby Injury Update: Wembanyama Dominates in Game 4 Return, Signaling Full Recovery from Concussion](https://www.ibtimes.com.au/video-wemby-injury-update-wembanyama-dominates-game-4-return-signaling-full-recovery-1867548) - **Ibtimes.com.au**
-4. [Dale Steyn slams LSG’s ‘criminal’ Super Over move against KKR: ‘When you’re desperate to win…’](https://indianexpress.com/article/sports/cricket/dale-steyn-lsg-vs-kkr-criminal-super-over-nicholas-pooran-batting-10657493/) - **The Indian Express**
-5. [2026 NFL draft grades: What do national experts think of Cowboys' draft selections?](https://www.dallasnews.com/sports/cowboys/article/nfl-draft-grades-caleb-downs-malachi-lawrence-22227368.php) - **The Dallas Morning News**
-6. [KKR vs LSG IPL 2026: Super drama, super over and who won yesterday's match?](https://economictimes.indiatimes.com/news/sports/kkr-vs-lsg-ipl-2026-super-drama-super-over-and-who-won-yesterdays-match-rinku-singh-sunil-narine-lucknow-super-giants-kolkata-knight-riders/articleshow/130542554.cms) - **The Times of India**
-7. [Stefon Diggs’ Sexual Assault Accuser Demands Financial Records](https://www.complex.com/sports/a/alex-ocho/stefon-diggs-financial-records-christopher-blake-griffith) - **Complex**
-8. ['Heartbroken' Xavi Simons out of World Cup and Spurs relegation fight](https://sports.yahoo.com/articles/heartbroken-xavi-simons-world-cup-023121858.html) - **Yahoo Entertainment**
-9. [The fastest player in the Premier League is not what fans would expect](https://www.marca.com/en/football/premier-league/2026/04/27/69eec26de2704e1e2b8b4596.html) - **Marca**
-10. [Arsenal do NOT look like champions in waiting: Why Declan Rice is a concern for Mikel Arteta and the biggest issue the Gunners boss must solve if they are to beat Man City to the title, writes CRAIG HOPE](https://www.dailymail.com/sport/football/article-15766917/declan-rice-concern-arsenal-mikel-arteta-title-race.html) - **Dailymail.com**
+1. ['Heartbroken' Xavi Simons ruled out of World Cup](https://www.rte.ie/sport/soccer/2026/0427/1570349-heartbroken-xavi-simons-ruled-out-of-world-cup/) - **RTE**
+2. [Simons to miss rest of season and World Cup with knee injury](https://www.skysports.com/football/news/11675/13537026/xavi-simons-injury-tottenham-playmaker-to-miss-rest-of-season-and-world-cup-with-netherlands-after-being-stretchered-off-at-wolves) - **Sky Sports**
+3. [Narine nails IPL Super Over as Kolkata climb off the bottom](https://www.channelnewsasia.com/sport/narine-nails-ipl-super-over-kolkata-climb-bottom-6083166) - **CNA**
+4. [Simons to miss rest of season and World Cup](https://www.bbc.com/sport/football/articles/cy0101p91z3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Simons to miss rest of season and World Cup](https://www.bbc.com/sport/football/articles/cy0101p91z3o) - **BBC News**
+6. ['I’m Heartbroken': Netherlands Star OUT Of World Cup With Injury](https://www.huffpost.com/entry/2026-fifa-world-cup-live-updates_n_69e21c35e4b0b6f552b8c3b5/liveblog_69eefe03e4b08330e41d9471) - **HuffPost**
+7. [Liverpool's Mo Salah Injured For Rest Of Season, Faces Race For World Cup](https://www.huffpost.com/entry/2026-fifa-world-cup-live-updates_n_69e21c35e4b0b6f552b8c3b5/liveblog_69eefb6fe4b0d1d8ce95006d) - **HuffPost**
+8. [Leeds' fight for survival has been founded on an unbreakable spirit but they lost their bite just when they needed it most - this FA Cup semi-final loss highlights what they need to do to kick on, writes TOM COLLOMOSSE](https://www.dailymail.com/sport/football/article-15759209/Leeds-fight-survival-founded-unbreakable-spirit-lost-bite-just-needed-FA-Cup-semi-final-loss-highlights-need-kick-writes-TOM-COLLOMOSSE.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-04-28 13:09:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-28 15:46:38 (KST) / (하루 100회 제한 준수 중)*
