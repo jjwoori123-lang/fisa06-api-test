@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Spurs dealt HUGE injury blow in bid to avoid the drop as Xavi Simons is ruled out for the rest of the season - with 'heartbroken' Dutch star to miss World Cup after being taken off in win over Wolves](https://www.dailymail.com/sport/football/article-15767423/xavi-simons-injury-blow-spurs-relegation-run-in.html) - **Dailymail.com**
-2. [Marcos Senesi: United still alive in the race](https://thepeoplesperson.com/2026/04/26/marcos-senesi-united-still-alive-in-the-race-309321/) - **The Peoples Person**
-3. [Shabbat showdown down South as Beitar Jerusalem, Hapoel Beersheba deliver thriller](https://www.jpost.com/israel-news/sports/article-894229) - **The Jerusalem Post**
-4. [Every word of Michael Carrick’s embargoed Brentford press conference](https://thepeoplesperson.com/2026/04/26/every-word-of-michael-carricks-embargoed-brentford-press-conference-309328/) - **The Peoples Person**
-5. [Egyptian sports commentator snubs Israeli goalkeeper, causes uproar](https://www.israelnationalnews.com/news/426117) - **Israelnationalnews.com**
-6. [Atletico Madrid vs. Arsenal live stream: How to watch Champions League, odds, pick, prediction, start time](https://www.cbssports.com/soccer/news/atletico-madrid-vs-arsenal-preview-live-stream-champions-league-odds-pick-prediction/) - **CBS Sports**
-7. [Chelsea interim boss reveals Enzo Fernandez’s ‘most impressive’ trait after Leeds display](https://footballtoday.com/2026/04/26/chelsea-interim-boss-reveals-enzo-fernandezs-most-impressive-trait-after-leeds-display/) - **Footballtoday.com**
-8. [Guardiola: We’ll need the whole squad](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1509e124-6340-47c1-bbcc-23b539480520) - **Yahoo Entertainment**
-9. [Chelsea beats Leeds on Fernandez goal and sets up FA Cup final meeting with Man City](https://japantoday.com/category/sports/chelsea-beats-leeds-to-set-up-fa-cup-final-meeting-with-man-city) - **Japan Today**
-10. [Wolves eye WSL 2 promotion as club backing grows and the spotlight intensifies](https://herfootballhub.com/wolves-eye-wsl-2-promotion-as-club-backing-grows-and-the-spotlight-intensifies/) - **Herfootballhub.com**
+1. [Team-first Kane propelling Bayern to glory as PSG showdown looms](https://sports.yahoo.com/articles/team-first-kane-propelling-bayern-040048151.html) - **Yahoo Entertainment**
+2. [First statewide high school surf season is making waves](https://www.staradvertiser.com/2026/04/26/hawaii-news/first-statewide-high-school-surf-season-is-making-waves/) - **Honolulu Star-Advertiser**
+3. [(VIDEO) Wemby Injury Update: Wembanyama Dominates in Game 4 Return, Signaling Full Recovery from Concussion](https://www.ibtimes.com.au/video-wemby-injury-update-wembanyama-dominates-game-4-return-signaling-full-recovery-1867548) - **Ibtimes.com.au**
+4. [Dale Steyn slams LSG’s ‘criminal’ Super Over move against KKR: ‘When you’re desperate to win…’](https://indianexpress.com/article/sports/cricket/dale-steyn-lsg-vs-kkr-criminal-super-over-nicholas-pooran-batting-10657493/) - **The Indian Express**
+5. [2026 NFL draft grades: What do national experts think of Cowboys' draft selections?](https://www.dallasnews.com/sports/cowboys/article/nfl-draft-grades-caleb-downs-malachi-lawrence-22227368.php) - **The Dallas Morning News**
+6. [KKR vs LSG IPL 2026: Super drama, super over and who won yesterday's match?](https://economictimes.indiatimes.com/news/sports/kkr-vs-lsg-ipl-2026-super-drama-super-over-and-who-won-yesterdays-match-rinku-singh-sunil-narine-lucknow-super-giants-kolkata-knight-riders/articleshow/130542554.cms) - **The Times of India**
+7. [Stefon Diggs’ Sexual Assault Accuser Demands Financial Records](https://www.complex.com/sports/a/alex-ocho/stefon-diggs-financial-records-christopher-blake-griffith) - **Complex**
+8. ['Heartbroken' Xavi Simons out of World Cup and Spurs relegation fight](https://sports.yahoo.com/articles/heartbroken-xavi-simons-world-cup-023121858.html) - **Yahoo Entertainment**
+9. [The fastest player in the Premier League is not what fans would expect](https://www.marca.com/en/football/premier-league/2026/04/27/69eec26de2704e1e2b8b4596.html) - **Marca**
+10. [Arsenal do NOT look like champions in waiting: Why Declan Rice is a concern for Mikel Arteta and the biggest issue the Gunners boss must solve if they are to beat Man City to the title, writes CRAIG HOPE](https://www.dailymail.com/sport/football/article-15766917/declan-rice-concern-arsenal-mikel-arteta-title-race.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-04-28 09:09:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-28 13:09:15 (KST) / (하루 100회 제한 준수 중)*
