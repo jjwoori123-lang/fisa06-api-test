@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['Heartbroken' Xavi Simons ruled out of World Cup](https://www.rte.ie/sport/soccer/2026/0427/1570349-heartbroken-xavi-simons-ruled-out-of-world-cup/) - **RTE**
-2. [Simons to miss rest of season and World Cup with knee injury](https://www.skysports.com/football/news/11675/13537026/xavi-simons-injury-tottenham-playmaker-to-miss-rest-of-season-and-world-cup-with-netherlands-after-being-stretchered-off-at-wolves) - **Sky Sports**
-3. [Narine nails IPL Super Over as Kolkata climb off the bottom](https://www.channelnewsasia.com/sport/narine-nails-ipl-super-over-kolkata-climb-bottom-6083166) - **CNA**
-4. [Simons to miss rest of season and World Cup](https://www.bbc.com/sport/football/articles/cy0101p91z3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Simons to miss rest of season and World Cup](https://www.bbc.com/sport/football/articles/cy0101p91z3o) - **BBC News**
-6. ['I’m Heartbroken': Netherlands Star OUT Of World Cup With Injury](https://www.huffpost.com/entry/2026-fifa-world-cup-live-updates_n_69e21c35e4b0b6f552b8c3b5/liveblog_69eefe03e4b08330e41d9471) - **HuffPost**
-7. [Liverpool's Mo Salah Injured For Rest Of Season, Faces Race For World Cup](https://www.huffpost.com/entry/2026-fifa-world-cup-live-updates_n_69e21c35e4b0b6f552b8c3b5/liveblog_69eefb6fe4b0d1d8ce95006d) - **HuffPost**
-8. [Leeds' fight for survival has been founded on an unbreakable spirit but they lost their bite just when they needed it most - this FA Cup semi-final loss highlights what they need to do to kick on, writes TOM COLLOMOSSE](https://www.dailymail.com/sport/football/article-15759209/Leeds-fight-survival-founded-unbreakable-spirit-lost-bite-just-needed-FA-Cup-semi-final-loss-highlights-need-kick-writes-TOM-COLLOMOSSE.html) - **Dailymail.com**
+1. [Which teams have made it to more Champions League semi-finals than Diego Simeone’s Atletico Madrid?](https://hayters.com/which-teams-have-made-it-to-more-champions-league-semi-finals-than-diego-simeones-atletico-madrid/) - **Hayters.com**
+2. [Serie A, 0-0 problem! Record high, is our football BORING? The fix... ](https://onefootball.com/en/news/serie-a-0-0-problem-record-high-is-our-football-boring-the-fix-42775742) - **Onefootball.com**
+3. [Women's Rugby Premier League Launching In June](https://www.rediff.com/sports/report/rugby-premier-league-inaugural-womens-edition-in-june/20260427.htm) - **Rediff.com**
+4. [Tottenham confirm Xavi Simons ACL injury](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_70f46542-2122-4cfb-9732-88493b983f9c) - **Yahoo Entertainment**
+5. [Como Coach Fabregas Lands on the Chelsea Shortlist](https://cultofcalcio.com/como-coach-fabregas-lands-on-the-chelsea-shortlist/) - **Cultofcalcio.com**
+6. [Van Dijk backs Liverpool teammate for success despite slow start](https://anfieldindex.com/93597/van-dijk-backs-liverpool-teammate-for-success-despite-slow-start.html) - **Anfieldindex.com**
+7. ['Sky Blues best team by a country mile' - Morrison](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2ddd6e6a-66d8-4b77-bc18-d0188b3fbdb9) - **Yahoo Entertainment**
+8. [Report: Tottenham Hotspur still in the race to sign Premier League defender](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_84bbcc8a-d2ce-4189-9659-58ed6843346f) - **Yahoo Entertainment**
+9. [Xavi Simons ‘heartbroken’ as injury ends season and World Cup hopes](https://www.independent.ie/sport/soccer/premier-league/xavi-simons-heartbroken-as-injury-ends-season-and-world-cup-hopes/a2108615001.html) - **Independent.ie**
 
 
 ---
-*최근 업데이트: 2026-04-28 15:46:38 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-28 18:24:44 (KST) / (하루 100회 제한 준수 중)*
