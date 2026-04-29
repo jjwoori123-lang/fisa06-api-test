@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [PSG vs. Bayern Munich odds, prediction: Best bets on Champions League semifinal first leg from proven expert](https://www.cbssports.com/soccer/news/psg-vs-bayern-munich-odds-prediction-best-bets-on-champions-league-semifinal-first-leg-from-proven-expert/) - **CBS Sports**
-2. ['Ominous feeling tight games that lean in Carrick's favour won't last'](https://www.bbc.com/sport/football/articles/cqjplq5zkn4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Fantasy Premier League: Double gameweek confirmed as Man City vs Palace moved](https://thefootballfaithful.com/fantasy-premier-league-double-gameweek-36-confirmed-man-city-crystal-palace/) - **The Football Faithful**
-4. [John Stones announces he will leave Manchester City](https://thefootballfaithful.com/john-stones-announces-he-will-leave-manchester-city/) - **The Football Faithful**
-5. [Sheffield United Eyeing Move For Promising Premier League Player Ahead of “Big Summer”](https://sheffunitedway.co.uk/2026/04/28/sheffield-united-eyeing-move-for-promising-premier-league-player-ahead-of-big-summer/) - **Sheffunitedway.co.uk**
-6. [Wayne Rooney expects returning star to hand Arsenal a massive boost](https://www.justarsenal.com/wayne-rooney-expects-returning-star-to-hand-arsenal-a-massive-boost/414340) - **Just Arsenal News**
-7. [TED LASSO Season 4 Teaser Trailer Highlights Ted’s New Coaching Challenge](https://geektyrant.com/news/ted-lasso-season-4-teaser-trailer-highlights-teds-new-coaching-challenge) - **GeekTyrant**
-8. [How to watch Atletico Madrid vs Arsenal live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-atletico-madrid-vs-arsenal-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
-9. [Arsenal 'ready to make a statement' in quest for Champions League glory](https://www.skysports.com/football/news/11095/13537670/mikel-arteta-and-martin-odegaard-say-arsenal-are-ready-to-make-history-ahead-of-champions-league-semi-final-with-atletico-madrid) - **Sky Sports**
+1. [What's gone wrong at Newcastle?](https://www.bbc.com/sport/football/articles/cwy2jrg87yeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Benjamin Sesko endorses Michael Carrick for permanent Manchester United managerial role](https://www.alloutsoccer.com/news/sesko-carrick-manchester-united-manager-1812297) - **Alloutsoccer.com**
+3. [Why it is good that Arsenal were knocked out of the FA Cup by Southampton](https://www.justarsenal.com/why-it-is-good-that-arsenal-were-knocked-out-of-the-fa-cup-by-southampton/414360) - **Just Arsenal News**
+4. [Liverpool could sign their own Rayan Cherki for just £12m](https://anfieldindex.com/93644/liverpool-could-sign-their-own-rayan-cherki-for-just-12m.html) - **Anfieldindex.com**
+5. [Report: Liverpool considering summer move for PSG forward](https://eplindex.com/145848/report-liverpool-considering-summer-move-for-psg-forward.html) - **English Premier League Index - Opta Stats**
+6. [Weser test ahead of the Champions League showdown: FCB Women away to Werder](https://fcbayern.com/frauen/en/matches/frauen/bundesliga/2025-2026/sv-werder-bremen-fc-bayern-frauen-12-02-2026/preview) - **Fcbayern.com**
+7. [Benjamin Sesko waxes lyrical on Casemiro’s performance against Brentford](https://thepeoplesperson.com/2026/04/28/benjamin-sesko-waxes-lyrical-on-casemiros-performance-against-brentford-309397/) - **The Peoples Person**
+8. [Hundreds stuck in long lines as Pakistan Super League ticket snag slows return of spectators](https://sports.yahoo.com/articles/hundreds-stuck-long-lines-pakistan-163720199.html) - **Yahoo Entertainment**
+9. [Jürgen Klopp praises Florian Wirtz and backs Liverpool stars at 2026 FIFA World Cup](https://www.alloutsoccer.com/news/klopp-wirtz-liverpool-world-cup-1812228) - **Alloutsoccer.com**
 
 
 ---
-*최근 업데이트: 2026-04-30 00:22:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-30 02:08:52 (KST) / (하루 100회 제한 준수 중)*
