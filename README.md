@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How Dortmund revamped their academy](https://www.skysports.com/football/news/11881/13524720/borussia-dortmund-academy-chief-paul-schaffran-explains-how-bio-banding-and-a-strategy-shift-has-transformed-bvb) - **Sky Sports**
-2. [Swarm FC visit Brentford’s Robert Rowan Performance Centre](https://www.brentfordfc.com/en/news/article/club-news-swarm-fc-visit-robert-rowan-performance-centre-brentford) - **Brentfordfc.com**
-3. [The 10 cheapest destinations to fly to this summer - and which week of the year can save you more than £200](https://www.dailymail.com/travel/article-15769305/cheapest-destinations-fly-summer-day-week.html) - **Dailymail.com**
-4. [Fabrizio Romano confirms ‘several clubs’ want to sign Liverpool star](https://anfieldindex.com/93632/fabrizio-romano-confirms-several-clubs-want-to-sign-liverpool-star.html) - **Anfieldindex.com**
-5. [Report: Newcastle United ready to cash in on £55m transfer flop already](https://eplindex.com/145820/report-newcastle-united-ready-to-cash-in-on-55m-transfer-flop-already.html) - **English Premier League Index - Opta Stats**
-6. [Simeone, Atletico chasing redemption against Arsenal](https://www.vanguardngr.com/2026/04/simeone-atletico-chasing-redemption-against-arsenal/) - **Vanguard**
-7. [Arsenal striker Viktor Gyokeres reconciles with girlfriend, who he 'dumped to secure £64m Premier League transfer'](https://www.dailymail.com/sport/football/article-15771263/Arsenal-Viktor-Gyokeres-reconciles-girlfriend-dumped-Premier-League-transfer.html) - **Dailymail.com**
-8. [Will Wolves bounce back?](https://www.bbc.com/sport/football/articles/c2080jegxe1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Marco Rose to bring out-of-contract Leipzig star with him to Bournemouth?](https://bulinews.com/marco-rose-bring-out-contract-leipzig-star-him-bournemouth) - **Bulinews.com**
+1. ['He's a machine!' Benjamin Sesko urges Man United team-mates to learn everything they can from veteran midfielder before he departs the club in the summer](https://www.dailymail.com/sport/football/article-15770611/Sesko-urges-United-team-mates.html) - **Dailymail.com**
+2. ['Player power has a lot of sway' - but does Rosenior 'shoulder more blame'?](https://www.bbc.com/sport/football/articles/ce9pz8e59r1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Keown says one Arsenal player is loving the run-in](https://www.justarsenal.com/keown-says-one-arsenal-player-is-loving-the-run-in/414338) - **Just Arsenal News**
+4. [Tyler Adams: USMNT’s ‘Where’s Waldo?’ Jersey Is ‘Exactly What We Want’](https://frontofficesports.com/usmnt-wheres-waldo-jersey-exactly-what-team-wants-tyler-adams/) - **Frontofficesports.com**
+5. [Howe 'looking forward' to summit - and 'mitigations' must be considered](https://www.bbc.com/sport/football/articles/c0e28qy8p9zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Arsenal ‘keen’ on Atletico star as Barcelona make contact](https://thefootballfaithful.com/arsenal-atletico-alvarez-barcelona-transfer/) - **The Football Faithful**
+7. [Real Madrid breakthrough prodigy to return to Castilla for final phase of the season](https://madriduniversal.com/real-madrid-breakthrough-prodigy-to-return-to-castilla-for-final-phase-of-the-season/) - **Madriduniversal.com**
+8. [Replacing Casemiro Will Be Man United’s Biggest Task Of The Summer](https://www.forbes.com/sites/grahamruthven/2026/04/28/replacing-casemiro-will-be-man-uniteds-biggest-task-of-the-summer/) - **Forbes**
 
 
 ---
-*최근 업데이트: 2026-04-29 18:00:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-29 20:10:03 (KST) / (하루 100회 제한 준수 중)*
