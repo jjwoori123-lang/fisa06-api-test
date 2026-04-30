@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mohamed Salah injury update: Liverpool, Egypt optimistic after hamstring scare](https://worldsoccertalk.com/news/mohamed-salah-injury-update-liverpool-egypt-optimistic-after-hamstring-scare/) - **Worldsoccertalk.com**
-2. [FA Cup final: Referee Akil Howson makes history as first black official](https://punchng.com/fa-cup-final-referee-akil-howson-makes-history-as-first-black-official/) - **The Punch**
-3. [Man Utd consider Leao move - Thursday's gossip](https://www.bbc.com/sport/football/articles/cy7288r10glo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Man Utd consider Leao move - Thursday's gossip](https://www.bbc.com/sport/football/articles/cy7288r10glo) - **BBC News**
-5. [Arteta ‘very upset’ by overturned penalty after Arsenal held by Atletico](https://www.101greatgoals.com/football/champions-league/arsenal-arteta-upset-penalty-overturn/) - **101 Great Goals**
-6. [Report: Lionel Messi’s 2021 advice to Barcelona gains relevance as Cristian Romero emerge amid Alessandro Bastoni doubts](https://worldsoccertalk.com/news/report-lionel-messis-2021-advice-to-barcelona-gains-relevance-as-cristian-romero-emerge-amid-alessandro-bastoni-doubts/) - **Worldsoccertalk.com**
-7. ['Completely unacceptable' - Arteta slams Eze penalty decision](https://www.skysports.com/football/news/11945/13537145/arsenal-mikel-arteta-slams-completely-unacceptable-decision-to-overturn-penalty-awarded-to-eberechi-eze-in-champions-league-semi-final-at-atletico-madrid) - **Sky Sports**
-8. [Every word: Arteta's post-Atletico Madrid presser](http://www.arsenal.com/news/every-word-artetas-post-atletico-madrid-presser) - **Arsenal.com**
-9. [Report: Juventus not giving up hope of signing Marcos Senesi](https://www.blackwhitereadallover.com/juventus-transfer-rumours-news/38064/report-juventus-not-giving-up-hope-of-signing-marcos-senesi-2026-serie-a-summer-transfer-rumors) - **Black & White & Read All Over**
-10. [Travis Head makes stunning return to form in IPL](https://www.abc.net.au/news/2026-04-30/ipl-cricket-travis-head-pat-cummins-sunrisers-indians/106623746) - **ABC News (AU)**
+1. [Highlights: Atletico Madrid 1-1 Arsenal](http://www.arsenal.com/news/highlights-atletico-madrid-1-1-arsenal) - **Arsenal.com**
+2. [Arsenal plans to send scouts to watch one of their top targets](https://www.justarsenal.com/arsenal-plans-to-send-scouts-to-watch-one-of-their-top-targets/414417) - **Just Arsenal News**
+3. [Arsenal coach Mikel Arteta left 'fuming' over penalty overturn vs. Atleti: 'I'm sorry, but this cannot happen'](https://www.cbssports.com/soccer/news/arsenal-coach-mikel-arteta-fuming-penalty-overturn-vs-atletico-madrid-champions-league/) - **CBS Sports**
+4. [Were Arsenal right to be 'fuming' with refereeing after Atletico draw?](https://www.bbc.com/sport/football/articles/cr5p4335v7qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Were Arsenal right to be 'fuming' with refereeing after Atletico draw?](https://www.bbc.com/sport/football/articles/cr5p4335v7qo) - **BBC News**
+6. [Arsenal 1 – Atletico Madrid 1: robbed](https://theshortfuse.sbnation.com/uefa-champions-league/36832/arsenal-1-atletico-madrid-1-robbed) - **SB Nation**
+7. [Arteta 'incredibly fuming' over referee's penalty U-turn](https://www.rte.ie/sport/soccer/2026/0429/1570976-arteta-incredibly-fuming-over-referees-penalty-u-turn/) - **RTE**
+8. [Arsenal, Atletico trade penalties in Champions League semifinal 1-1 draw](https://japantoday.com/category/sports/arsenal-atletico-trade-penalties-in-champions-league-semi-final-draw) - **Japan Today**
+9. [Arteta fumes after Arsenal have penalty overturned against Atletico](https://www.channelnewsasia.com/sport/arteta-fumes-after-arsenal-have-penalty-overturned-against-atletico-6090646) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-05-01 07:14:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-01 08:14:03 (KST) / (하루 100회 제한 준수 중)*
