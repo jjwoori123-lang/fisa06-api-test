@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Barcelona offered €30m-rated Real Betis center-back as alternative to Alessandro Bastoni](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/118995/barcelona-offered-e30m-rated-real-betis-center-back-as-alternative-to-alessandro-bastoni) - **Barca Blaugranes**
-2. [IPL 2026: Travis Head, Klaasen power SRH to fourth-highest run-chase, beat Mumbai by 6 wickets](https://economictimes.indiatimes.com/news/sports/ipl-2026-travis-head-klaasen-power-srh-to-fourth-highest-run-chase-beat-mumbai-by-6-wickets/articleshow/130616466.cms) - **The Times of India**
-3. [Fox's World Cup coverage will have British flavor, with 6 of 9 play-by-play commentators from UK](https://abcnews.com/Entertainment/wireStory/foxs-world-cup-coverage-british-flavor-6-9-132501343) - **Abcnews.com**
-4. [Gallery: Return to work!](https://www.mancity.com/news/mens/man-city-training-gallery-29-april-63912816) - **Manchester City FC**
-5. [Congested schedule leaves Man City frustrated with Premier League after five requests rejected](https://www.alloutsoccer.com/news/city-frustrated-premier-league-schedule-1814497) - **Alloutsoccer.com**
-6. [UCL: Saka on bench, Madueke starts for Arsenal at Atletico Madrid](https://punchng.com/ucl-saka-on-bench-madueke-starts-for-arsenal-at-atletico-madrid/) - **The Punch**
-7. [Liverpool's Luis Diaz replacement is finally coming](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpools-luis-diaz-replacement-is-finally-coming/) - **Anfieldwatch.co.uk**
-8. [Hyderabad cruises to a 6-wicket win over Mumbai in Indian Premier League](https://sports.yahoo.com/articles/hyderabad-cruises-6-wicket-win-183045316.html) - **Yahoo Entertainment**
-9. [Virgil van Dijk responds to transfer rumours surrounding Curtis Jones and Alisson Becker](https://footballtoday.com/2026/04/29/virgil-van-dijk-responds-to-transfer-rumours-surrounding-curtis-jones-and-alisson-becker/) - **Footballtoday.com**
-10. [Manchester United Are Showing Interest In Recruiting This Barcelona Left-Back: Good Fit For Carrick?](https://the4thofficial.net/2026/04/manchester-united-are-showing-interest-in-recruiting-this-barcelona-left-back-good-fit-for-carrick/) - **The4thofficial.net**
+1. [Chelsea Would Have To Rival Bayern Munich For This Newcastle United Winger: Should The Blues Go For Him?](https://the4thofficial.net/2026/04/chelsea-would-have-to-rival-bayern-munich-for-this-newcastle-united-winger/) - **The4thofficial.net**
+2. [Inter have basic agreement with Vicario but still have two obstacles to overcome](https://football-italia.net/inter-have-basic-agreement-with-vicario/) - **Football Italia**
+3. [VIDEO: Atletico Madrid trail to Arsenal just before half time as Viktor Gyokeres nets penalty](https://www.football-espana.net/2026/04/29/atletico-arsenal-champions-league-goal) - **Football Espana**
+4. [Tottenham Hotspur Are Genuine Contenders For This On-Loan Barcelona Winger: Decent Fit For Spurs?](https://the4thofficial.net/2026/04/tottenham-hotspur-are-genuine-contenders-for-this-on-loan-barcelona-winger/) - **The4thofficial.net**
+5. [Liverpool Remain Keen On Recruiting This Bundesliga Winger: What Will He Bring To Anfield?](https://the4thofficial.net/2026/04/liverpool-remain-keen-on-recruiting-this-bundesliga-winger-what-will-he-bring-to-anfield/) - **The4thofficial.net**
+6. [Cristiano Ronaldo’s Al-Nassr monitoring Ederson drama at Fenerbahce after referee clash and discipline issues as price tag emerges](https://worldsoccertalk.com/news/cristiano-ronaldos-al-nassr-monitoring-ederson-drama-at-fenerbahce-after-referee-clash-and-discipline-issues-as-price-tag-emerges/) - **Worldsoccertalk.com**
+7. [PSG and Bayern’s box-fresh hyper-talents or Premier League title tussle: you can only have one](https://www.irishtimes.com/sport/soccer/2026/04/29/psg-and-bayerns-box-fresh-hyper-talents-or-premier-league-title-tussle-you-can-only-have-one/) - **The Irish Times**
+8. [Bruno Fernandes: United ace makes major demand to extend stay](https://thepeoplesperson.com/2026/04/29/bruno-fernandes-united-ace-makes-major-demand-to-extend-stay-309436/) - **The Peoples Person**
+9. [Fabrizio Romano confirms Liverpool move for special winger](https://www.anfieldwatch.co.uk/liverpool-fc/news/fabrizio-romano-confirms-liverpool-move-for-special-winger/) - **Anfieldwatch.co.uk**
+10. [PREVIEW | Leeds United vs Burnley: team news, lineups, predictions (Premier League 01/05)](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f5ab9bb4-e1b1-4ce5-be23-4fdd08de9a65) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-05-01 03:48:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-01 05:10:23 (KST) / (하루 100회 제한 준수 중)*
