@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Atletico Madrid vs Arsenal - Champions League LIVE: Latest score, team news and updates as Gunners face Diego Simone's men as both sides remain in pursuit for long-awaited champions league trophy](https://www.dailymail.com/sport/football/article-15775055/Atletico-Madrid-vs-Arsenal-2025-26-Champions-League-LIVE-Result.html) - **Dailymail.com**
-2. [5 Great DC Alternate Universes Nobody Talks About](http://comicbook.com/comics/list/5-great-dc-alternate-universes-nobody-talks-about/) - **ComicBook.com**
-3. [Nottingham Forest vs. Aston Villa prediction, odds, expert picks for Europa League match Thursday](https://www.cbssports.com/betting/news/nottingham-forest-vs-aston-villa-prediction-odds-expert-picks-for-europa-league-match-thursday/) - **CBS Sports**
-4. [Mudryk appeals to CAS amid reports of four-year ban](https://www.rte.ie/sport/soccer/2026/0429/1570929-mudryk-appeals-to-cas-amid-reports-of-four-year-ban/) - **RTE**
-5. [Highest powerplay scores in IPL history: Top 10 best powerplay totals in Indian Premier League listed](https://www.sportingnews.com/in/cricket/news/highest-powerplay-scores-ipl-history-top-10-best-powerplay-totals-indian-premier-league-listed/c84eb048502d216761d03974) - **Sporting News**
-6. [Pereira claims Nottingham Forest ‘ready to fight’ Aston Villa in Europa League semi-final](https://www.101greatgoals.com/football/europa-league/pereira-nottingham-forest-aston-villa-europa-league/) - **101 Great Goals**
-7. [Villa aim to bury semi-final pain in all-English Europa League clash v Forest](https://www.channelnewsasia.com/sport/villa-aim-bury-semi-final-pain-in-all-english-europa-league-clash-v-forest-6089976) - **CNA**
-8. [Akil Howson to make history as first black FA Cup final official](https://www.vanguardngr.com/2026/04/akil-howson-to-make-history-as-first-black-fa-cup-final-official/) - **Vanguard**
-9. [Exclusive: Sources doubt Premier League manager is good fit for Chelsea’s sporting structure](https://chelsea.news/2026/04/sources-doubt-oliver-glasner-good-fit-chelsea/) - **Chelsea.news**
+1. [Barcelona offered €30m-rated Real Betis center-back as alternative to Alessandro Bastoni](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/118995/barcelona-offered-e30m-rated-real-betis-center-back-as-alternative-to-alessandro-bastoni) - **Barca Blaugranes**
+2. [IPL 2026: Travis Head, Klaasen power SRH to fourth-highest run-chase, beat Mumbai by 6 wickets](https://economictimes.indiatimes.com/news/sports/ipl-2026-travis-head-klaasen-power-srh-to-fourth-highest-run-chase-beat-mumbai-by-6-wickets/articleshow/130616466.cms) - **The Times of India**
+3. [Fox's World Cup coverage will have British flavor, with 6 of 9 play-by-play commentators from UK](https://abcnews.com/Entertainment/wireStory/foxs-world-cup-coverage-british-flavor-6-9-132501343) - **Abcnews.com**
+4. [Gallery: Return to work!](https://www.mancity.com/news/mens/man-city-training-gallery-29-april-63912816) - **Manchester City FC**
+5. [Congested schedule leaves Man City frustrated with Premier League after five requests rejected](https://www.alloutsoccer.com/news/city-frustrated-premier-league-schedule-1814497) - **Alloutsoccer.com**
+6. [UCL: Saka on bench, Madueke starts for Arsenal at Atletico Madrid](https://punchng.com/ucl-saka-on-bench-madueke-starts-for-arsenal-at-atletico-madrid/) - **The Punch**
+7. [Liverpool's Luis Diaz replacement is finally coming](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpools-luis-diaz-replacement-is-finally-coming/) - **Anfieldwatch.co.uk**
+8. [Hyderabad cruises to a 6-wicket win over Mumbai in Indian Premier League](https://sports.yahoo.com/articles/hyderabad-cruises-6-wicket-win-183045316.html) - **Yahoo Entertainment**
+9. [Virgil van Dijk responds to transfer rumours surrounding Curtis Jones and Alisson Becker](https://footballtoday.com/2026/04/29/virgil-van-dijk-responds-to-transfer-rumours-surrounding-curtis-jones-and-alisson-becker/) - **Footballtoday.com**
+10. [Manchester United Are Showing Interest In Recruiting This Barcelona Left-Back: Good Fit For Carrick?](https://the4thofficial.net/2026/04/manchester-united-are-showing-interest-in-recruiting-this-barcelona-left-back-good-fit-for-carrick/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-05-01 02:03:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-01 03:48:21 (KST) / (하루 100회 제한 준수 중)*
