@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [MI vs SRH Live win probability, prediction, odds & chances of victory in IPL 2026 clash](https://www.sportingnews.com/in/cricket/news/mi-srh-live-win-probability-prediction-odds-chances-ipl-2026/433f5adfcf62a2034ac97f57) - **Sporting News**
-2. [Match Officials: Michael Oliver to referee Everton vs Manchester City](https://cityxtra.co.uk/45563/match-officials-michael-oliver-to-referee-everton-vs-manchester-city/) - **Cityxtra.co.uk**
-3. [What is left to be decided on the Championship's final day?](https://www.playmakerstats.com/news/what-is-left-to-be-decided-on-the-championship-s-final-day-/1109291) - **Playmakerstats.com**
-4. [Mourinho sets deadline to decide future amid Real Madrid return talks](https://madriduniversal.com/mourinho-sets-deadline-to-decide-future-amid-real-madrid-return-talks/) - **Madriduniversal.com**
-5. [Three Man City players who could be about to have a huge World Cup](https://cityxtra.co.uk/45602/three-man-city-players-who-could-be-about-to-have-a-huge-world-cup/) - **Cityxtra.co.uk**
-6. [Ipswich, Millwall, Boro: Your views on promotion fight](https://www.bbc.com/sport/football/articles/ce3p1319wnvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [England's World Cup Panini stickers are revealed - including TWO stars who will be left at home, while players from Man United and Chelsea are excluded, in album that will cost hundreds to complete](https://www.dailymail.com/sport/football/article-15775077/Englands-World-Cup-Panini-stickers-revealed-including-TWO-stars-left-home-players-Man-United-Chelsea-excluded-album-cost-hundreds-complete.html) - **Dailymail.com**
-8. [Atletico Madrid vs Arsenal: TV channel and how to watch](https://thefootballfaithful.com/atletico-madrid-vs-arsenal-tv-channel-and-how-to-watch/) - **The Football Faithful**
-9. [Grealish reveals injury recovery ‘couldn’t be looking any better’](https://www.101greatgoals.com/football/premier-league/grealish-reveals-injury-recovery-couldnt-be-looking-any-better/) - **101 Great Goals**
+1. [Is there less pressure on the Gunners in Europe?](https://www.justarsenal.com/is-there-less-pressure-on-the-gunners-in-europe/414409) - **Just Arsenal News**
+2. [Pundit backs Slot to be in charge at Liverpool next season](https://anfieldindex.com/93673/pundit-backs-slot-to-be-in-charge-at-liverpool-next-season.html) - **Anfieldindex.com**
+3. [Sony Pictures Networks India and LIV Golf Forge New Broadcast Partnership for 2026 Season](https://www.thehindubusinessline.com/brandhub/pr-release/sony-pictures-networks-india-and-liv-golf-forge-new-broadcast-partnership-for-2026-season/article70920384.ece) - **BusinessLine**
+4. [Nikola Jokić vs Victor Wembanyama: Has Wemby Already Surpassed Jokić as NBA's Best Big Man?](https://www.ibtimes.com.au/nikola-jokic-vs-victor-wembanyama-has-wemby-already-surpassed-jokic-nbas-best-big-man-1867789) - **Ibtimes.com.au**
+5. [Atletico Madrid v Arsenal: Key stats and player info](https://www.bbc.com/sport/football/articles/cge0eezl3p3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. ['I'd rather we missed out' - fans on Europe chances](https://www.bbc.com/sport/football/articles/clyp35xk3yyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. ['Every chance via the Conference League'](https://www.bbc.com/sport/football/articles/c74dj2k5j3lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Igor Thiago: Man United’s plan for Brentford striker unveiled](https://thepeoplesperson.com/2026/04/29/igor-thiago-man-uniteds-plan-for-brentford-striker-unveiled-309431/) - **The Peoples Person**
+9. [Should Marcus Rashford Return To The Premier League?](https://www.forbes.com/sites/grahamruthven/2026/04/29/should-marcus-rashford-return-to-the-premier-league/) - **Forbes**
 
 
 ---
-*최근 업데이트: 2026-04-30 20:39:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-04-30 22:08:43 (KST) / (하루 100회 제한 준수 중)*
