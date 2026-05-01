@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Barcelona offered chance to sign La Liga defender for €30m](https://www.football-espana.net/2026/04/30/barcelona-offered-la-liga-defender) - **Football Espana**
-2. [Just How Big is the Culture Economy?](https://www.artsjournal.com/diacritical/2026/04/just-how-big-is-the-culture-economy.html) - **Artsjournal.com**
-3. [“I’m very angry, it’s an obvious penalty” – Arsenal manager Mikel Arteta slams VAR call during Atletico Madrid draw](https://www.football-espana.net/2026/04/30/atletico-arsenal-champions-league-mikel-arteta-reaction) - **Football Espana**
-4. [“It has to be a penalty” – Diego Simeone reacts to VAR controversy during Atletico Madrid-Arsenal draw](https://www.football-espana.net/2026/04/29/atletico-arsenal-champions-league-diego-simeone-reaction) - **Football Espana**
-5. [Highlights: Atletico Madrid 1-1 Arsenal](http://www.arsenal.com/news/highlights-atletico-madrid-1-1-arsenal) - **Arsenal.com**
-6. [Arsenal plans to send scouts to watch one of their top targets](https://www.justarsenal.com/arsenal-plans-to-send-scouts-to-watch-one-of-their-top-targets/414417) - **Just Arsenal News**
-7. [Arsenal coach Mikel Arteta left 'fuming' over penalty overturn vs. Atleti: 'I'm sorry, but this cannot happen'](https://www.cbssports.com/soccer/news/arsenal-coach-mikel-arteta-fuming-penalty-overturn-vs-atletico-madrid-champions-league/) - **CBS Sports**
-8. [Were Arsenal right to be 'fuming' with refereeing after Atletico draw?](https://www.bbc.com/sport/football/articles/cr5p4335v7qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Were Arsenal right to be 'fuming' with refereeing after Atletico draw?](https://www.bbc.com/sport/football/articles/cr5p4335v7qo) - **BBC News**
-10. [Arsenal 1 – Atletico Madrid 1: robbed](https://theshortfuse.sbnation.com/uefa-champions-league/36832/arsenal-1-atletico-madrid-1-robbed) - **SB Nation**
+1. [Our top five comebacks under Mikel Arteta](http://www.arsenal.com/news/our-top-five-comebacks-under-mikel-arteta) - **Arsenal.com**
+2. [How to watch Arsenal v Fulham on TV](http://www.arsenal.com/news/how-watch-arsenal-v-fulham-tv) - **Arsenal.com**
+3. [When Wrexham's first Hollywood season ended in final-game tears](https://www.bbc.com/sport/football/articles/crlp8834x42o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [When Wrexham's first Hollywood season ended in final-game tears](https://www.bbc.com/sport/football/articles/crlp8834x42o) - **BBC News**
+5. [Event guide: Roy Keane and Roddy Doyle, An Ideal Husband and other best things to see in Ireland this week](https://www.irishtimes.com/culture/2026/04/30/event-guide-roy-keane-and-roddy-doyle-an-ideal-husband-and-other-best-things-to-see-in-ireland-this-week/) - **The Irish Times**
+6. [When does Luke Littler play in Aberdeen on Night 13 of 2026 Premier League Darts?](https://www.sportingnews.com/us/darts/news/when-luke-littler-play-aberdeen-night-13-2026-premier-league-darts/ec905511d67d54ce435d8993) - **Sporting News**
+7. [2026 Premier League Darts Night 13 draw, match predictions and 3 storylines to watch in Aberdeen](https://www.sportingnews.com/us/darts/news/2026-premier-league-darts-night-13-draw-match-prediction-aberdeen/dbceffd0480c92971929d531) - **Sporting News**
+8. [Bavarian Loan Works: Nübel helps Stuttgart earn Pokal Final berth against Bayern Munich](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/195229/bayern-munich-loan-watch-transfer-news-rumors-nubel-dfb-pokal-promotion-relegation-cup-champions-league) - **Bavarian Football Works**
+9. [Report: Head of LIV Golf Yasir Al-Rumayyan is stepping down as league's future in doubt](https://sports.yahoo.com/articles/report-head-liv-golf-yasir-020929987.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-05-01 09:09:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-01 13:32:12 (KST) / (하루 100회 제한 준수 중)*
