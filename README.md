@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [What Everton can expect against Manchester City](http://www.toffeeweb.com/season/25-26/news/47514.html) - **Toffeeweb**
-2. [Scott Parker leaves relegated Burnley following relegation](https://www.101greatgoals.com/football/premier-league/scott-parker-leaves-relegated-burnley-following-relegation/) - **101 Great Goals**
-3. [Scott Parker is axed by Burnley - four games before the end of the season - after relegation... and Premier League legend is favourite to take his job](https://www.dailymail.com/sport/football/article-15778555/Scott-Parker-axed-Burnley-Premier-League-relegation.html) - **Dailymail.com**
-4. [Juventus set to make new offer for Bournemouth’s Marcos Senesi](https://www.getfootballnewsitaly.com/2026/juventus-set-to-make-new-offer-for-bournemouths-marcos-senesi/) - **Getfootballnewsitaly.com**
-5. [Aston Villa predicted XI vs Nott Forest: Emery eyes first-leg advantage in all-English Europa League semi-final](https://sportsview.co.uk/2026/04/aston-villa-predicted-xi-vs-nott-forest-emery-eyes-first-leg-advantage-in-all-english-europa-league-semi-final?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=aston-villa-predicted-xi-vs-nott-forest-emery-eyes-first-leg-advantage-in-all-english-europa-league-semi-final) - **Sportsview.co.uk**
-6. [Parker leaves Burnley after relegation](https://www.bbc.com/sport/football/articles/c332vpz2kgmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Parker leaves Burnley after relegation from Premier League](https://www.bbc.com/sport/football/articles/c332vpz2kgmo) - **BBC News**
-8. [A fool’s game trying to predict championships that defy analysis](https://www.irishtimes.com/sport/2026/04/30/a-fools-game-trying-to-predict-championships-that-defy-analysis/) - **The Irish Times**
-9. [Test your knowledge with our Newcastle United vs Brighton and Hove Albion quiz](https://www.newcastleunited.com/en/news/test-your-knowledge-with-our-newcastle-united-vs-brighton-and-hove-albion-quiz) - **Newcastleunited.com**
+1. [Burnley boss Parker leaves club after relegation](https://www.vanguardngr.com/2026/04/burnley-boss-parker-leaves-club-after-relegation/) - **Vanguard**
+2. ['The biggest free hit in the club's history'](https://www.bbc.com/sport/football/articles/cx21yp7y4l2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [How to watch Sky Sports' Big Weekend](https://www.skysports.com/football/news/11095/13538400/sky-sports-big-weekend-how-to-watch-premier-league-efl-scottish-premiership-wsl-miami-gp-madrid-open-and-more) - **Sky Sports**
+4. [Mason Mount: Man United star sets club lofty ambition](https://thepeoplesperson.com/2026/04/30/mason-mount-man-united-star-sets-club-lofty-ambition-309465/) - **The Peoples Person**
+5. [The 92mph England fast bowler ready to move on from difficult debut](https://www.bbc.com/sport/cricket/articles/c392llypge3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Bangladesh not playing in the World Cup: A disgraceful decision taken by the interim government - Shakib Al Hasan](https://english.gossiplankanews.com/2026/04/bangladesh-not-playing-in-world-cup.html) - **Gossiplankanews.com**
+7. [The 92mph England fast bowler ready to move on from difficult debut](https://www.bbc.com/sport/cricket/articles/c392llypge3o) - **BBC News**
+8. [Report: Andy Robertson considering ‘verbal offer’ which could see him link up with several old foes](https://www.empireofthekop.com/2026/04/30/andy-robertson-considering-verbal-offer-from-fenerbahce/) - **Empire of The Kop**
+9. [ BREAKING: Premier League reveal April Player of the Month contenders ](https://onefootball.com/en/news/breaking-premier-league-reveal-april-player-of-the-month-contenders-42792071) - **Onefootball.com**
 
 
 ---
-*최근 업데이트: 2026-05-01 18:13:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-01 19:47:16 (KST) / (하루 100회 제한 준수 중)*
