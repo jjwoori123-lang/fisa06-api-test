@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Harsh to compare Arsenal with PSG 5-4 Bayern Munich](https://www.justarsenal.com/harsh-to-compare-arsenal-with-psg-5-4-bayern-munich/414470) - **Just Arsenal News**
-2. [Help Eze win Premier League Goal of the Month!](http://www.arsenal.com/news/help-eze-win-premier-league-goal-month) - **Arsenal.com**
-3. [Jensen nominated for Premier League Goal of the Month](https://www.brentfordfc.com/en/news/article/first-team-mathias-jensen-nominated-for-premier-league-goal-of-the-month-april) - **Brentfordfc.com**
-4. [Report: Mikel Arteta wants Arsenal to sign Real Madrid defender](https://eplindex.com/145922/report-mikel-arteta-wants-arsenal-to-sign-real-madrid-defender.html) - **English Premier League Index - Opta Stats**
-5. [Arsenal summoning warrior spirit in fight against fatigue](https://www.skysports.com/football/news/12040/13538432/piero-hincapie-william-saliba-and-gabriel-personify-arsenals-warrior-spirit-as-battle-against-fatigue-continues-in-epic-trophy-hunt) - **Sky Sports**
-6. ['Leicester are in my heart... they need players who understand what the club means to people': Foxes legend WES MORGAN on the pain of seeing his beloved team relegated 10 years after lifting Premier League - and his masterplan to revive them](https://www.dailymail.com/sport/football/article-15777569/leicester-wes-morgan-relegation-revival.html) - **Dailymail.com**
-7. [Spalletti personally calls Bernardo Silva over possible Juventus switch from Man City – report](https://football-italia.net/juventus-spalletti-called-bernardo-silva-juve/) - **Football Italia**
-8. [Allen to leave Swansea coaching role](https://www.bbc.com/sport/football/articles/c775l76r7r7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Pick of the stats: Millwall v Oxford United](https://www.bbc.com/sport/football/articles/cwy24ydg9vxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Royals' Parag punished for vaping in dressing room](https://www.bbc.com/sport/cricket/articles/c775xz2z65lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Premier Sports retain Champions League rights to 2031](https://www.irishtimes.com/sport/soccer/2026/04/30/premier-sports-retain-champions-league-rights-to-2031/) - **The Irish Times**
+2. [How to watch Wolves vs Sunderland live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-wolves-vs-sunderland-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
+3. [Wissa makes admission amid dismal first season at Newcastle](https://www.101greatgoals.com/football/premier-league/wissa-newcastle-vow/) - **101 Great Goals**
+4. ['Parker has shown Championship is his limit'](https://www.bbc.com/sport/football/articles/c2k2d4x2j0zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Burnley's Scott Parker resigns, Michael Jackson named interim coach](https://www.upi.com/Sports_News/Soccer/2026/04/30/england-Burnley-Scott-Parker-resigns-coach/8691777553588/) - **UPI.com**
+6. ['Hungry' Wrexham to monitor results during Boro test](https://www.bbc.com/sport/football/articles/cpvp2d10wzmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Chelsea could end up with £200k a week disaster signing in the bomb squad if a buyer doesn’t step up](https://chelsea.news/2026/04/chelsea-200k-a-week-disaster-bomb-squad/) - **Chelsea.news**
+8. ['Hungry' Wrexham to monitor results during Boro test](https://www.bbc.com/sport/football/articles/cpvp2d10wzmo) - **BBC News**
+9. [LIV Golf Seeks “Secure Long-Term Financial Partners” With Saudi Arabia Set To End Funding](https://deadline.com/2026/04/saudi-arabia-liv-golf-funding-stopped-1236876716/) - **Deadline**
+10. [Le Bris confirms triple Sunderland injury boost](https://hayters.com/le-bris-confirms-triple-sunderland-injury-boost/) - **Hayters.com**
 
 
 ---
-*최근 업데이트: 2026-05-01 21:00:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-01 22:56:47 (KST) / (하루 100회 제한 준수 중)*
