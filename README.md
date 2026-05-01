@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [CSK vs MI: Why are there no double-headers on Saturday, May 2 in IPL 2026?](https://www.cricketnews.com/en/cricket/news/csk-mi-why-are-there-no-double-headers-saturday-may-2-ipl-2026/a9b3cf0436815cb84ddd2fcd) - **Cricketnews.com**
-2. [Gujarat notches a 4-wicket win over Bengaluru in the Indian Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_89824ffd-8d85-4ba9-a727-aa64e209faba) - **Yahoo Entertainment**
-3. [Michael Carrick’s Manchester United future in doubt as Andoni Iraola reportedly emerges as top head coach contender](https://worldsoccertalk.com/news/michael-carricks-manchester-united-future-in-doubt-as-andoni-iraola-reportedly-emerges-as-top-head-coach-contender/) - **Worldsoccertalk.com**
-4. [Liverpool ready for Rio Ngumoha win thanks to proposed new rule](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-ready-for-rio-ngumoha-win-thanks-to-proposed-new-rule/) - **Anfieldwatch.co.uk**
-5. [Rodon To Start, Bornauw On The Bench | 3-4-2-1 Leeds United Predicted Lineup Vs Burnley](https://the4thofficial.net/2026/04/rodon-to-start-bornauw-on-the-bench-3-4-2-1-leeds-united-predicted-lineup-vs-burnley/) - **The4thofficial.net**
-6. [Saudi Arabia's public fund to withdraw LIV Golf funding](https://www.dw.com/en/saudi-arabias-public-fund-to-withdraw-liv-golf-funding/a-77005158) - **DW (English)**
-7. [Adekunbi Adetayo Commits to the 2027 Navy All-American Bowl](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/adekunbi-adetayo-commits-to-the-2027-navy-all-american-bowl) - **NBCSports.com**
-8. [Nottingham Forest vs Aston Villa: Line-ups confirmed for Europa League semi-final](https://www.101greatgoals.com/football/europa-league/nottingham-forest-vs-aston-villa-line-ups-confirmed/) - **101 Great Goals**
-9. [IPL 2026 points table: Detailed standings, latest results from 2026 Indian Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f1412665-a32a-444d-bb34-9ce5c695b190) - **Yahoo Entertainment**
-10. [USMNT coach Mauricio Pochettino spoke out about Tottenham's possible relegation](https://ftw.usatoday.com/story/sports/soccer/2026/04/30/usmnt-coach-mauricio-pochettino-sad-tottenham-potential-relegation/89875881007/) - **USA Today**
+1. [£69m deal in reach for explosive forward](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-nico-williams-athletic-club-69m-deal-in-reach-for-explosive-forward/) - **Anfieldwatch.co.uk**
+2. [Everton Have Put A Formal Bid For This 21-Year-Old: Does He Solve The Attacking Problem?](https://the4thofficial.net/2026/04/everton-have-put-a-formal-bid-for-this-21-year-old-does-he-solve-the-attacking-problem/) - **The4thofficial.net**
+3. [English Premier League GW-35 FPL Clean Sheet Odds](https://www.nevermanagealone.com/playerpicks/15956/english-premier-league-gw-35-fpl-clean-sheet-odds) - **Nevermanagealone.com**
+4. [MLB owners, MLBPA reportedly set to begin labor negotiations soon, with salary cap at center of talks](https://sports.yahoo.com/mlb/article/mlb-owners-mlbpa-reportedly-set-to-begin-labor-negotiations-soon-with-salary-cap-at-center-of-talks-195325249.html) - **Yahoo Entertainment**
+5. [FPL Gameweek 35 Player Picks: Best Players to Target in GW35](https://www.nevermanagealone.com/playerpicks/15953/fpl-gameweek-35-player-picks-best-players-to-target-in-gw35) - **Nevermanagealone.com**
+6. [ Has the Europa League just seen the Save of the Season?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bf7901b0-8ee1-4015-a52c-dbf8aef05c68) - **Yahoo Entertainment**
+7. [Manchester United Could Intensify Their Efforts To Sign This AC Milan Winger: Good Fit For Carrick?](https://the4thofficial.net/2026/04/manchester-united-could-intensity-their-efforts-to-sign-this-ac-milan-winger/) - **The4thofficial.net**
+8. [No. 10 Maryland men’s lacrosse’s postseason chances hang in the balance](https://www.testudotimes.com/maryland-terps/91002/no-10-maryland-mens-lacrosses-postseason-chances-hang-in-the-balance) - **Testudo Times**
+9. [Spencer Strider Injury Update: Nearing 2026 Return with Elite Fantasy Ace Upside](https://www.si.com/onsi/fantasy/mlb/spencer-strider-injury-update-nearing-2026-return-with-elite-fantasy-ace-upside) - **Sports Illustrated**
+10. [FPL GW35 Tips: 10 Big Lessons from GW34 as the Season Nears Its End](https://www.nevermanagealone.com/playerpicks/15950/fpl-gw35-tips-10-big-lessons-from-gw34-as-the-season-nears-its-end) - **Nevermanagealone.com**
 
 
 ---
-*최근 업데이트: 2026-05-02 03:44:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-02 05:05:58 (KST) / (하루 100회 제한 준수 중)*
