@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['We love ideas from other sports' - Hurzeler on bringing in MMA fighter](https://www.bbc.com/sport/football/articles/cwy244z9vydo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Stones’ contribution ‘massive’ says Pep](https://www.mancity.com/news/mens/everton-v-manchester-city-pep-guardiola-written-preview-2-63913228) - **Manchester City FC**
-3. [Fernandes chasing down De Bruyne and Henry record](https://www.skysports.com/football/news/11095/13538856/bruno-fernandes-closing-in-on-kevin-de-bruyne-and-thierry-henrys-premier-league-assists-record-the-radar) - **Sky Sports**
-4. [Bruno Fernandes: Man United ace reveals secret to incredible form](https://thepeoplesperson.com/2026/05/01/bruno-fernandes-man-united-ace-reveals-secret-to-incredible-form-309499/) - **The Peoples Person**
-5. [Arsenal v Fulham: Line-ups, stats and preview](https://www.101greatgoals.com/match-previews/premier-league-matches/arsenal-v-fulham-line-ups-stats-preview/) - **101 Great Goals**
-6. [Howe refusing to give up on Woltemade-Wissa partnership](https://thefootballfaithful.com/newcastle-united-news-howe-refusing-to-give-up-on-woltemade-wissa-partnership/) - **The Football Faithful**
-7. [English anticipates 'humongous challenge' from Kingdom](https://www.rte.ie/sport/womens-football/2026/0501/1571293-english-anticipates-humongous-challenge-from-kingdom/) - **RTE**
-8. [O'Reilly nominated for Premier League skill award](https://www.mancity.com/news/mens/nico-oreilly-up-for-creative-moment-of-the-month-pl-award-63913228) - **Manchester City FC**
-9. ['Are they really going to appoint a guy that no other club looked twice at?': Giving Michael Carrick the job would still be a huge gamble for Manchester United - and the players and club insiders know it. This is what they are saying about him](https://www.dailymail.com/sport/football/article-15779361/Michael-Carrick-Manchester-United-manager-gamble-players-insiders.html) - **Dailymail.com**
-10. [Chelsea fight 80,000 bots per game and cancel 16,000 memberships](https://www.bbc.com/sport/football/articles/cd6pqpqpdpqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [All your FPL stats and Premier League team news in one place](https://www.bbc.com/sport/articles/cd6pqx0qd84o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [All your FPL stats and Premier League team news in one place](https://www.bbc.com/sport/articles/cd6pqx0qd84o) - **BBC News**
+3. [Pereira on improvements, 'indigestion' and adapting training](https://www.bbc.com/sport/football/articles/c86dqq3qx31o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Two sides in contrasting form](https://www.bbc.com/sport/football/articles/cd0p573ykyjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Yankees’ World Series hero weighs in on red-hot Ben Rice: ‘He’s the real deal’ | Klapisch](https://www.nj.com/yankees/2026/05/yankees-world-series-hero-weighs-in-on-red-hot-ben-rice-hes-the-real-deal-klapisch.html) - **nj.com**
+6. [It all comes down to this! All you need to know in race for automatic PL promotion!](https://www.skysports.com/football/video/30998/13538875/championship-final-day-all-you-need-to-know-in-race-for-automatic-premier-league-promotion) - **Sky Sports**
+7. [Former Chelsea winger has warning to unpopular signing who hasn’t developed since his breakthrough](https://chelsea.news/2026/05/former-chelsea-winger-unpopular-summer-signing-developed/) - **Chelsea.news**
+8. [Fantasy Premier League: Three essential FPL tips ahead of GW35](https://thefootballfaithful.com/fantasy-premier-league-fpl-tips-gw35-chips-transfers-captain/) - **The Football Faithful**
+9. [EXCLUSIVE | Louis Saha on Manchester United: ‘Ratcliffe should extend Carrick’s contract.’](https://www.getfootballnewsfrance.com/2026/exclusive-louis-saha-on-manchester-united-ratcliffe-should-extend-carricks-contract/) - **Get French Football News**
 
 
 ---
-*최근 업데이트: 2026-05-02 20:28:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-02 21:33:58 (KST) / (하루 100회 제한 준수 중)*
