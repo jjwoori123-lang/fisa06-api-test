@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Howe on Gordon's fitness, 'constructive' ownership meetings and Brighton](https://www.bbc.com/sport/football/articles/cjdpl528vp2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Bayern Munich fear losing Vincent Kompany to Manchester City amid Pep Guardiola exit possibility](https://cityxtra.co.uk/45351/bayern-munich-fear-losing-vincent-kompany-to-manchester-city-amid-pep-guardiola-exit-possibility/) - **Cityxtra.co.uk**
-3. [Remembering Marco](https://www.mancity.com/features/marcvivienfoe) - **Manchester City FC**
-4. [Brentford v West Ham United matchday guide](https://www.brentfordfc.com/en/news/article/supporter-information-brentford-vs-west-ham-united-premier-league-02-05-26) - **Brentfordfc.com**
-5. [Liverpool's Salah ruled out of Man Utd clash, says Slot](https://www.channelnewsasia.com/sport/liverpools-salah-ruled-out-man-utd-clash-says-slot-6094276) - **CNA**
-6. [FULL LIST: Top 10 Champions League managers ranked by points per match](https://punchng.com/full-list-top-10-champions-league-managers-ranked-by-points-per-match/) - **The Punch**
-7. [Time for Isak and Wirtz to prove themselves](https://www.bbc.com/sport/football/articles/c4gxg1g1d74o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Time for Isak & Wirtz to prove they are the future for Liverpool](https://www.bbc.com/sport/football/articles/c4gxg1g1d74o) - **BBC News**
-9. [Arne Slot issues Mohamed Salah and Alisson updates ahead of Liverpool's showdown with Man United: PREMIER LEAGUE LIVE](https://www.dailymail.com/sport/football/article-15781783/PREMIER-LEAGUE-LIVE-Liverpool-Man-United-Arsenal-Man-City.html) - **Dailymail.com**
-10. [Social identity and masculinity in sustainable food choices: experimental and field evidence from behavioural interventions in English football](https://researchonline.lse.ac.uk/id/eprint/138286/) - **Lse.ac.uk**
+1. [Liverpool considering a summer move for Bradley Barcola](https://www.getfootballnewsfrance.com/2026/liverpool-considering-a-summer-move-for-bradley-barcola/) - **Get French Football News**
+2. [Leeds v Burnley: Key stats and talking points](https://www.bbc.com/sport/football/articles/c74r93x8mjmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [We want to hear from YOU! Send in your video comment and tell us who you think will get relegated from the Premier League... will it be Tottenham? West Ham? Are Forest and Leeds now safe?](https://www.dailymail.com/sport/football/article-15778399/We-want-hear-YOU-Send-video-comment-tell-you-think-relegated-Premier-League-Tottenham-West-Ham-Forest-Leeds-safe.html) - **Dailymail.com**
+4. [‘Very well, not perfect’ – Slot gives verdict on Jones in new role](https://www.empireofthekop.com/2026/05/01/very-well-not-perfect-slot-gives-verdict-on-jones-in-new-role/) - **Empire of The Kop**
+5. [Forest, Spurs, Forest and match facts from the BBC](https://www.thevillablog.co.uk/aston-villa-blog/avfc-opinion/forest-spurs-forest-and-match-facts-from-the-bbc) - **Thevillablog.co.uk**
+6. [Chelsea rule out the sale of 24-year-old Barcelona backup target – report](https://barcauniversal.com/chelsea-rule-out-the-sale-of-24-year-old-barcelona-backup-target-report/) - **Barcauniversal.com**
+7. [Greenwood links reappear for Juventus as Conceicao attracts Premier League interest](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9c27ae7d-0505-4276-86b2-d2c309883b0f) - **Yahoo Entertainment**
+8. [Howe on talks with owners and his Newcastle United future](https://hayters.com/howe-on-talks-with-owners-and-his-newcastle-united-future/) - **Hayters.com**
+9. [Saudi owners' desire for success at Newcastle remains unchanged, says Howe](https://www.channelnewsasia.com/sport/saudi-owners-desire-success-newcastle-remains-unchanged-says-howe-6094361) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-05-02 18:35:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-02 19:32:09 (KST) / (하루 100회 제한 준수 중)*
