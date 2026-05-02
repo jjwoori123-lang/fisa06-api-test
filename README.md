@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Real Madrid midfielder rejects interest from Manchester United and Liverpool](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5740e26c-29b4-4610-b9ab-e7ef5801e23c) - **Yahoo Entertainment**
-2. [MLS commissioner explains shocking ‘liar, liar pants on fire’ reply to Canadian pol](https://nypost.com/2026/04/30/sports/mls-don-garber-explains-liar-liar-pants-on-fire-comment/) - **New York Post**
-3. [Taribo West’s poison is Paul Onuachu’s meat](https://punchng.com/taribo-wests-poison-is-paul-onuachus-meat/) - **The Punch**
-4. [USMNT coach Mauricio Pochettino hints at Premier League return: ‘I really like England’](https://worldsoccertalk.com/news/usmnt-coach-mauricio-pochettino-hints-at-premier-league-return-i-really-like-england/) - **Worldsoccertalk.com**
-5. [Penalty king Wood 'last piece of puzzle' for Forest](https://www.bbc.com/sport/football/articles/c042py0zgd9o) - **BBC News**
-6. [Punxsutawney Phil kind of, sort of throws out the first pitch at a Pirates game](https://www.foxnews.com/outkick-sports/punxsutawney-phil-kind-sort-throws-first-pitch-pirates-game) - **Fox News**
-7. ['If Kane scored that we'd be saying wow' - Strand Larsen shows Palace worth](https://www.bbc.com/sport/football/articles/ce3pwqw02zjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [USMNT boss Mauricio Pochettino identifies two major Tottenham Hotspur transfer regrets](https://www.alloutsoccer.com/news/usmnt-pochettino-tottenham-transfer-regrets-1816529) - **Alloutsoccer.com**
-9. [Papers: Carrick favourite for Man Utd job amid Iraola links](https://www.skysports.com/football/transfer-paper-talk/12709/13538684/michael-carrick-favourite-to-become-permanent-man-utd-head-coach-amid-andoni-iraola-links-paper-talk) - **Sky Sports**
+1. [Wood hands Forest advantage in Europa League semi](https://www.rediff.com/sports/report/wood-scores-as-forest-edge-villa-in-europa-league-semi-first-leg/20260501.htm) - **Rediff.com**
+2. [Marseille rival OGC Nice’s Grégory Lorenzi interest](https://www.getfootballnewsfrance.com/2026/marseille-rival-ogc-nices-gregory-lorenzi-interest/) - **Get French Football News**
+3. [ESTAC Troyes youngster sent to train at Manchester City](https://www.getfootballnewsfrance.com/2026/estac-troyes-youngster-sent-to-train-at-manchester-city/) - **Get French Football News**
+4. [Michael Clarke reveals huge wound on his nose after having skin cancer treatment](https://www.dailymail.com/tvshowbiz/article-15781153/Michael-Clarke-skin-cancer-wound.html) - **Dailymail.com**
+5. [Simeone hails Lookman despite Arsenal draw](https://punchng.com/simeone-hails-lookman-despite-arsenal-draw/) - **The Punch**
+6. [If NPFL clubs pay well, I won’t go to Iraq – Ifeanyi Ifeanyi](https://punchng.com/if-npfl-clubs-pay-well-i-wont-go-to-iraq-ifeanyi-ifeanyi/) - **The Punch**
+7. [Charles touches down in Bermuda after triumphant four-day state visit to the US - where Trump hailed him 'the greatest King'](https://www.dailymail.com/news/royals/article-15781229/Charles-touches-Bermuda-triumphant-four-day-state-visit-US-Trump-hailed-greatest-King.html) - **Dailymail.com**
+8. [Tottenham have had more ACL ruptures than home wins but how, after a medical department overhaul, do they get so many injuries? Experts reveal the reasons why...](https://www.dailymail.com/sport/football/article-15775553/tottenham-injury-crisis-reasons.html) - **Dailymail.com**
+9. ['We won 5-0 and Mikel Arteta was angry at us afterwards - that's the level you have to be at': AUSTON TRUSTY on Arsenal, a home World Cup and how his Celtic side can rewrite history this season](https://www.dailymail.com/sport/football/article-15776715/Auston-Trusty-Celtic-Mikel-Arteta-Arsenal-World-Cup.html) - **Dailymail.com**
+10. ['We won 5-0 and Mikel Arteta was angry at us afterwards - that's the level you have to be at': AUSTON TRUSTY on Arsenal, a home World Cup and how his Celtic side can rewrite history this season](https://www.dailymail.com/sport/football/article-15776715/Auston-Trusty-Celtic-Mikel-Arteta-Arsenal-World-Cup.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-05-02 09:08:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-02 12:55:18 (KST) / (하루 100회 제한 준수 중)*
