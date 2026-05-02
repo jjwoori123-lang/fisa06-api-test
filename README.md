@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [All your FPL stats and Premier League team news in one place](https://www.bbc.com/sport/articles/cd6pqx0qd84o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [All your FPL stats and Premier League team news in one place](https://www.bbc.com/sport/articles/cd6pqx0qd84o) - **BBC News**
-3. [Pereira on improvements, 'indigestion' and adapting training](https://www.bbc.com/sport/football/articles/c86dqq3qx31o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Two sides in contrasting form](https://www.bbc.com/sport/football/articles/cd0p573ykyjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Yankees’ World Series hero weighs in on red-hot Ben Rice: ‘He’s the real deal’ | Klapisch](https://www.nj.com/yankees/2026/05/yankees-world-series-hero-weighs-in-on-red-hot-ben-rice-hes-the-real-deal-klapisch.html) - **nj.com**
-6. [It all comes down to this! All you need to know in race for automatic PL promotion!](https://www.skysports.com/football/video/30998/13538875/championship-final-day-all-you-need-to-know-in-race-for-automatic-premier-league-promotion) - **Sky Sports**
-7. [Former Chelsea winger has warning to unpopular signing who hasn’t developed since his breakthrough](https://chelsea.news/2026/05/former-chelsea-winger-unpopular-summer-signing-developed/) - **Chelsea.news**
-8. [Fantasy Premier League: Three essential FPL tips ahead of GW35](https://thefootballfaithful.com/fantasy-premier-league-fpl-tips-gw35-chips-transfers-captain/) - **The Football Faithful**
-9. [EXCLUSIVE | Louis Saha on Manchester United: ‘Ratcliffe should extend Carrick’s contract.’](https://www.getfootballnewsfrance.com/2026/exclusive-louis-saha-on-manchester-united-ratcliffe-should-extend-carricks-contract/) - **Get French Football News**
+1. [Carrick on Cunha fitness, Mainoo contract and Liverpool rivalry](https://www.bbc.com/sport/football/articles/cj9pn0jk1lzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Arteta on hunger, Rice's form and Eze](http://www.arsenal.com/news/arteta-hunger-rices-form-and-eze) - **Arsenal.com**
+3. [Report: Liverpool ‘willing’ to pay €80m to sign Mohamed Salah replacement](https://anfieldindex.com/93736/report-liverpool-willing-to-pay-e80m-to-sign-mohamed-salah-replacement.html) - **Anfieldindex.com**
+4. [Manchester United v Liverpool: Predicted line-ups & where to watch as North West giants clash at Old Trafford](https://www.101greatgoals.com/match-previews/premier-league-matches/manchester-united-v-liverpool-predicted-line-ups-where-to-watch-as-north-west-giants-clash-at-old-trafford/) - **101 Great Goals**
+5. [Ireland U-21 star Mason Melia drafted in to train with Tottenham Hotspur first team](https://www.independent.ie/sport/soccer/premier-league/ireland-u-21-star-mason-melia-drafted-in-to-train-with-tottenham-hotspur-first-team/a2042762408.html) - **Independent.ie**
+6. [How to watch Chelsea vs Nottingham Forest live: Stream link, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-chelsea-vs-nottingham-forest-live-stream-link-tv-channel-team-news-prediction) - **NBCSports.com**
+7. [Arsenal vs Fulham: Match preview, predicted line-ups, team news and prediction](https://footballtoday.com/2026/05/01/arsenal-vs-fulham-match-preview-predicted-line-ups-team-news-and-prediction/) - **Footballtoday.com**
+8. [Carrick: Man Utd games vs Liverpool some of my favourites](https://www.skysports.com/football/news/11095/13538881/man-utd-vs-liverpool-michael-carrick-and-arne-slot-on-premier-league-rivalry-and-league-position-ahead-of-super-sunday-showdown) - **Sky Sports**
+9. [Calum McFarlane names one “amazing” change at Chelsea since he took over](https://chelsea.news/2026/05/mcfarlane-amazing-change-chelsea-since-he-took-over/) - **Chelsea.news**
+10. [Chelsea's Champions League hopes fading as McFarlane calls for final push](https://www.channelnewsasia.com/sport/chelseas-champions-league-hopes-fading-mcfarlane-calls-final-push-6094696) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-05-02 21:33:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-02 22:57:01 (KST) / (하루 100회 제한 준수 중)*
