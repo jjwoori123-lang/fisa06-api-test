@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Leeds United v Burnley: Confirmed line-ups as Farke’s men seek crucial win](https://www.101greatgoals.com/news/leeds-united-burnley-confirmed-teams/) - **101 Great Goals**
-2. [Peacock Takes Flight: United Launches New Inflight Entertainment Channel](https://www.centralcharts.com/en/news/5583517-peacock-takes-flight-united-launches-new-inflight-entertainment-channel) - **Centralcharts.com**
-3. [Weekend Warm-up: As the Anthony Gordon saga with Bayern Munich heats up, action could go cold for a while; Bundesliga predictions; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/196782/newcastle-anthony-gordon-bayern-munich-diomande-transfer-rumors-bundesliga-predictions) - **Bavarian Football Works**
-4. [Chelsea watch perfect Enzo replacement who could be relegated this season](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7b653d40-f25f-43e0-b192-10aa489308b6) - **Yahoo Entertainment**
-5. [Wirtz development this season 'so clear and obvious' - Slot](https://www.bbc.com/sport/football/articles/c5yrggl0qrxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Preview: Arsenal v Fulham](http://www.arsenal.com/news/preview-arsenal-v-fulham-2) - **Arsenal.com**
-7. ['Pereira has taken everything on board... nine unbeaten is a hell of a run'](https://www.bbc.com/sport/football/articles/cx21dg5j178o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Wolves Women target history a year on from the decision that threatened to rip the team apart](https://sports.yahoo.com/articles/wolves-women-target-history-decision-171607999.html) - **Yahoo Entertainment**
-9. [Report: Inter uncertainty over Bastoni as Barcelona eye Tottenham Hotspur defender Romero](https://football-italia.net/inter-bastoni-barcelona-spurs-romero/) - **Football Italia**
-10. [Arsenal's Mikel Arteta provides triple injury update ahead of Premier League game against Fulham](https://www.alloutsoccer.com/news/arteta-arsenal-injury-update-fulham-1817844) - **Alloutsoccer.com**
+1. [Arsenal is willing to sacrifice academy products to fund summer spree](https://www.justarsenal.com/arsenal-is-willing-to-sacrifice-academy-products-to-fund-summer-spree/414549) - **Just Arsenal News**
+2. [Ez Abde’s stance on summer return to Barcelona revealed](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/119134/ez-abdes-stance-on-summer-return-to-barcelona-revealed) - **Barca Blaugranes**
+3. [Report: Nottingham Forest set to open talks over move for 19-year-old midfielder](https://eplindex.com/145967/report-nottingham-forest-set-to-open-talks-over-move-for-19-year-old-midfielder.html) - **English Premier League Index - Opta Stats**
+4. [Will Carrick Make Any Changes? | 4-2-3-1 Manchester United Predicted Lineup Vs Liverpool](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_73ffe5a5-f06a-43dd-b56f-f06d69ff0ab0) - **Yahoo Entertainment**
+5. [Endrick to Arsenal? Real Madrid's Brazilian Talent Tabbed for Move after Lyon Loan](https://www.foxsports.com/stories/soccer/endrick-to-arsenal-gunners-great-wants-crazy-horse-real-madrid-outcast-to-bring-huge-qualities-to-the-premier-league) - **Fox Sports**
+6. [Defiant Mo Salah issues warning to Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/defiant-mo-salah-issues-warning-to-liverpool/) - **Anfieldwatch.co.uk**
+7. [IPL 2026: Dhoni to return 'any match now'? CSK batting coach drops big comeback hint](https://economictimes.indiatimes.com/news/new-updates/ipl-2026-dhoni-to-return-any-match-now-csk-batting-coach-drops-big-comeback-hint/articleshow/130684425.cms) - **The Times of India**
+8. [Newcastle v Brighton: Key stats and talking points](https://www.bbc.com/sport/football/articles/cewp22n5nxpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Brentford v West Ham: Key stats and talking points](https://www.bbc.com/sport/football/articles/cz62w957x9yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [PREVIEW | Aston Villa vs Tottenham: team news, lineups, predictions (Premier League 03/05)](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1ba0eb3a-70f3-46e8-8753-19ed1a52240c) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-05-03 02:48:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-03 04:04:36 (KST) / (하루 100회 제한 준수 중)*
