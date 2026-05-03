@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool could pursue £24m deal for Napoli star this summer](https://anfieldindex.com/93771/liverpool-could-pursue-24m-deal-for-napoli-star-this-summer.html) - **Anfieldindex.com**
-2. [Simms hat-trick 'beautiful', says Lampard](https://www.bbc.com/sport/football/articles/cvgz5xw01dgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Harry Maguire reveals key to United’s revival under Michael Carrick](https://thepeoplesperson.com/2026/05/02/harry-maguire-reveals-key-to-uniteds-revival-under-michael-carrick-309548/) - **The Peoples Person**
-4. [Olise deal impossible: Liverpool want two other forwards instead](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-michael-olise-bayern-bradley-barcola-psg-yan-diomande-rb-leipzig/) - **Anfieldwatch.co.uk**
-5. [On fire against Fulham, Bukayo Saka silences the critics ](https://onefootball.com/en/news/on-fire-against-fulham-bukayo-saka-silences-the-critics-42803093) - **Onefootball.com**
-6. [Newcastle beat Brighton 3-1 to dent Seagulls’ European bid](https://footballtoday.com/2026/05/02/newcastle-beat-brighton-3-1-to-dent-seagulls-european-bid/) - **Footballtoday.com**
-7. [Ryan Reynolds’ Wrexham Falls Just Short of Chance at Premier League Promotion](https://www.thewrap.com/industry-news/business/ryan-reynolds-wrexham-falls-short-premier-league-promotion/) - **TheWrap**
-8. [Are Ipswich better equipped for Premier League this time?](https://www.bbc.com/sport/football/articles/ckgpw5ye21jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Are Ipswich better equipped for Premier League this time?](https://www.bbc.com/sport/football/articles/ckgpw5ye21jo) - **BBC News**
+1. [Ballard sent off for hair pull in Sunderland draw at Wolves](https://www.bbc.com/sport/football/videos/c936px0rl9eo) - **BBC News**
+2. [West Ham survival hopes take a blow after defeat to Brentford](https://www.bbc.com/sport/football/videos/cd7p3ryyv4eo) - **BBC News**
+3. [Arsenal ease past Fulham to pull six points clear of Manchester City](https://www.aljazeera.com/sports/2026/5/2/arsenal-thrash-fulham-to-pull-6-points-clear-of-manchester-city) - **Al Jazeera English**
+4. [Arsenal beat Fulham to move six points clear of Man City](https://www.bbc.com/sport/football/videos/c1m2033g12no) - **BBC News**
+5. [Australian taxpayers take on risk for major oil and gas projects](https://www.abc.net.au/news/2026-05-03/australian-taxpayers-take-on-risk-for-oil-and-gas-projects/106627184) - **ABC News (AU)**
+6. [Liverpool Legend Reveals What He’s Heard About Slot’s Future](https://anfieldindex.com/93772/liverpool-legend-reveals-what-hes-heard-about-slots-future.html) - **Anfieldindex.com**
+7. [Women T20 World Cup: In search of maiden title, India show trust in familiar core](https://economictimes.indiatimes.com/news/sports/women-t20-world-cup-in-search-of-maiden-title-india-show-trust-in-familiar-core/articleshow/130723307.cms) - **The Times of India**
+8. [Game-changing Bukayo Saka is Arsenal's resident genius: With him in the team, the Gunners finally look like a side which believes it CAN win the Premier League as they heap pressure on Man City, writes OLIVER HOLT](https://www.dailymail.com/sport/football/article-15782539/bukayo-saka-arsenal-fulham-premier-league-title.html) - **Dailymail.com**
+9. [Penybont win Play-Off final to earn European spot](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_dc33cd89-8931-49f1-a0e7-4d07d0912b2f) - **Yahoo Entertainment**
+10. [Penybont win Play-Off final to earn European spot](https://www.bbc.com/sport/football/articles/cx21lz01lz0o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-04 02:50:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-04 04:04:12 (KST) / (하루 100회 제한 준수 중)*
