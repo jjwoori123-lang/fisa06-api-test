@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [“I’d love to” – Wayne Rooney makes surprise Jurgen Klopp admission](https://anfieldindex.com/93761/id-love-to-wayne-rooney-makes-surprise-jurgen-klopp-admission.html) - **Anfieldindex.com**
-2. [Osasuna vs Barcelona – Match preview and team news](https://thefootballfaithful.com/osasuna-vs-barcelona-match-preview-and-team-news/) - **The Football Faithful**
-3. [Barcelona XI vs Osasuna – Predicted lineup and team news](https://thefootballfaithful.com/barcelona-xi-vs-osasuna-predicted-lineup-and-team-news/) - **The Football Faithful**
-4. [€40m Mo Salah successor has made his mind up about Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/eur40m-mo-salah-successor-has-made-his-mind-up-about-liverpool/) - **Anfieldwatch.co.uk**
-5. [Slot reckons win at Old Trafford won't silence critics](https://www.rte.ie/sport/soccer/2026/0502/1571445-slot-reckons-win-at-old-trafford-wont-silence-critics/) - **RTE**
-6. [A decade on: Leicester City’s 5000-1 miracle revisited, from relegation fears to Premier League immortality](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_55145318-2801-4d77-b32c-a1ba8be06754) - **Yahoo Entertainment**
-7. [Arsenal’s Gabriel Jesus: Why Milan are right to make initial contact](https://www.getfootballnewsitaly.com/2026/arsenals-gabriel-jesus-why-milan-are-right-to-make-initial-contact/) - **Getfootballnewsitaly.com**
-8. [Report: FIFA considering proposal for mandatory homegrown player to play at all times](https://www.bavarianfootballworks.com/bayern-munich-champions-league/196188/report-fifa-considering-proposal-for-mandatory-homegrown-player-in-starting-xi-uefa-champions-league-bundesliga-premier-league) - **Bavarian Football Works**
-9. [Martin Odegaard was absent from the Arsenal team walk this morning ahead of Fulham clash](https://sportsview.co.uk/2026/05/martin-odegaard-was-absent-from-the-arsenal-team-walk-this-morning-ahead-of-fulham-clash?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=martin-odegaard-was-absent-from-the-arsenal-team-walk-this-morning-ahead-of-fulham-clash) - **Sportsview.co.uk**
-10. [Arsenal target six-point lead as Fulham visit Emirates](https://punchng.com/arsenal-target-six-point-lead-as-fulham-visit-emirates/) - **The Punch**
+1. [Ipswich promoted to the Premier League, Wrexham miss playoffs](https://www.channelnewsasia.com/sport/ipswich-promoted-premier-league-wrexham-miss-playoffs-6096136) - **CNA**
+2. [Championship playoffs schedule set: Bracket, confirmed games, times, dates, how to watch live](https://www.nbcsports.com/soccer/news/championship-playoffs-schedule-set-bracket-confirmed-games-times-dates-how-to-watch-live) - **NBCSports.com**
+3. [Wrexham's Premier League dream on hold after missing out on playoffs. Ipswich secures promotion](https://sports.yahoo.com/articles/wrexhams-premier-league-dream-hold-133823646.html) - **Yahoo Entertainment**
+4. [McAteer applies finishing touch as Ipswich go up](https://www.rte.ie/sport/soccer/2026/0502/1571459-mcateer-applies-finishing-touch-as-ipswich-go-up/) - **RTE**
+5. [Relegated Leicester end campaign with a win at Blackburn](https://www.skysports.com/football/news/11095/13538381/blackburn-rovers-0-1-leicester-city-stephy-mavididi-nets-winner-for-relegated-foxes) - **Sky Sports**
+6. [Millwall condemned to play-offs despite victory](https://www.skysports.com/football/news/11095/13538370/millwall-2-0-oxford-united-lions-condemned-to-play-offs-despite-victory) - **Sky Sports**
+7. [Hull complete comeback against Norwich to secure play-off spot](https://www.skysports.com/football/news/11688/13538371/hull-city-2-1-norwich-city-oli-mcburnie-nets-double-in-comeback-win-to-clinch-championship-play-off-spot-for-tigers) - **Sky Sports**
+8. [Ipswich are BACK in the Premier League! Kieran McKenna's side secure immediate return to top flight and beat Millwall in dramatic final-day fight in the Championship](https://www.dailymail.com/sport/football/article-15782489/Ipswich-Premier-League-Kieran-McKennas-secure-immediate-return-flight-beat-Millwall-dramatic-final-day-fight-Championship.html) - **Dailymail.com**
+9. [ BREAKING: Ipswich seal Premier League promotion; Hull take playoff spot](https://onefootball.com/en/news/breaking-ipswich-seal-premier-league-promotion-hull-take-playoff-spot-42801852) - **Onefootball.com**
+10. [LIVE: Arsenal vs Fulham – Premier League](https://www.aljazeera.com/sports/liveblog/2026/5/2/live-arsenal-vs-fulham-premier-league) - **Al Jazeera English**
 
 
 ---
-*최근 업데이트: 2026-05-03 20:59:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-03 22:42:58 (KST) / (하루 100회 제한 준수 중)*
