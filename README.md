@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle stalwart ends PL goal drought to bite former club ](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_29f68e54-a131-4320-9371-6c1d7354587e) - **Yahoo Entertainment**
-2. [Ed Sheeran cheers on his beloved Ipswich FC as they get promoted back to the Premier League - after shaving his head following health battle](https://www.dailymail.com/tvshowbiz/article-15784815/Ed-Sheeran-Ipswich-FC-promoted-Premier-League.html) - **Dailymail.com**
-3. [Pep Guardiola to leave Manchester City this summer claims insider – Deal ‘all but agreed’ with replacement](https://cityxtra.co.uk/45789/pep-guardiola-to-leave-manchester-city-this-summer-claims-insider-deal-all-but-agreed-with-replacement/) - **Cityxtra.co.uk**
-4. [West Ham defender suffers double case of bad luck as Brentford lead ](https://onefootball.com/en/news/west-ham-defender-suffers-double-case-of-bad-luck-as-brentford-lead-42802199) - **Onefootball.com**
-5. [Arsenal vs. Fulham live score, stats, highlights, result, analysis from Premier League game](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3ef52fe5-c39c-4909-a7aa-578a114b5c2d) - **Yahoo Entertainment**
-6. [McKenna admits Ipswich promotion was their hardest one yet](https://hayters.com/mckenna-admits-ipswich-promotion-was-their-hardest-one-yet/) - **Hayters.com**
-7. [Ranieri: ‘A legend was born’ with Leicester City triumph 10 years ago](https://football-italia.net/ranieri-a-legend-was-born-with-leicester-city/) - **Football Italia**
-8. [Christian Pulisic: Why AC Milan forward is closer than ever to a Man United switch](https://thepeoplesperson.com/2026/05/02/christian-pulisic-why-ac-milan-forward-is-closer-than-ever-to-a-man-united-switch-309540/) - **The Peoples Person**
+1. [Fabregas: ‘Football is constantly evolving, must go for victory with Napoli’](https://football-italia.net/fabregas-football-constantly-evolving-napoli/) - **Football Italia**
+2. [Arsenal vs. Fulham match thread: keep winning](https://theshortfuse.sbnation.com/premier-league/36844/arsenal-fulham-game-time-tv-schedule-how-to-watch-premier-league-online-streaming) - **SB Nation**
+3. [Bloomfield thanks Oxford for giving everything](https://www.bbc.com/sport/football/articles/cn9pxnwdgz9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Michael Carrick’s Man United fate may hinge on Steve Holland twist](https://thepeoplesperson.com/2026/05/02/michael-carricks-man-united-fate-may-hinge-on-steve-holland-twist-309533/) - **The Peoples Person**
+5. [Hair-pulling trend in Premier League continues as Dan Ballard sent off for Sunderland](https://sports.yahoo.com/articles/hair-pulling-trend-premier-league-152847262.html) - **Yahoo Entertainment**
+6. [Arsenal vs Fulham: Line-ups confirmed as Gunners look to go six point clear in Premier League](https://www.101greatgoals.com/football/premier-league/arsenal-vs-fulham-line-ups-confirmed/) - **101 Great Goals**
+7. [Ipswich Seal Premier League Return on Perfect Portman Road Afternoon](https://eplindex.com/145991/ipswich-seal-premier-league-return-on-perfect-portman-road-afternoon.html) - **English Premier League Index - Opta Stats**
+8. [ Arsenal and Fulham name XIs for critical PL London derby](https://onefootball.com/en/news/arsenal-and-fulham-name-xis-for-critical-pl-london-derby-42802424) - **Onefootball.com**
+9. [Arsenal Confirmed Team v Fulham: Saka captains the Gunners, Eze & Calafiori start](https://www.justarsenal.com/arsenal-confirmed-v-fulham-saka-captain-the-gunners-eze-calafiori-start/414582) - **Just Arsenal News**
+10. [Team news: Five changes made for Fulham test](http://www.arsenal.com/news/team-news-five-changes-made-fulham-test) - **Arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-05-03 23:51:47 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-04 00:51:23 (KST) / (하루 100회 제한 준수 중)*
