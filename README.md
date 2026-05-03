@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mohamed Salah Reveals “Peace” Over Liverpool Departure](https://anfieldindex.com/93770/mohamed-salah-reveals-peace-over-liverpool-departure.html) - **Anfieldindex.com**
-2. [ Arsenal star duo combine to gift the Gunners an early lead vs Fulham](https://onefootball.com/en/news/arsenal-star-duo-combine-to-gift-the-gunners-an-early-lead-vs-fulham-42802888) - **Onefootball.com**
-3. [Analysis: Bees reignite European push](https://www.bbc.com/sport/football/articles/c1720jpdv1vo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Gyokeres pokes Arsenal ahead after Saka brilliance](https://www.skysports.com/football/video/16429/13539433/goal-v-gyokeres-9-arsenal-0-0-fulham) - **Sky Sports**
-5. [Analysis: Ballard red inevitable after previous incidents](https://www.bbc.com/sport/football/articles/c8e8k312j3no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Why Manchester United v Liverpool is about more than just Carrick’s future](https://thepeoplesperson.com/2026/05/02/why-manchester-united-v-liverpool-is-about-more-than-just-carricks-future-309539/) - **The Peoples Person**
-7. [Wolves 1-1 Sunderland: Bueno connection saves a point after Black Cats red card](https://www.nbcsports.com/soccer/news/wolves-1-1-sunderland-video-highlights-analysis-recap) - **NBCSports.com**
-8. [Newcastle hit three past Brighton to seal comfortable win](https://www.skysports.com/football/video/12606/13539417/newcastle-3-1-brighton-premier-league-highlights) - **Sky Sports**
-9. [Sunderland held by relegated Wolves](https://www.playmakerstats.com/news/sunderland-held-by-relegated-wolves/1113143) - **Playmakerstats.com**
+1. [Liverpool could pursue £24m deal for Napoli star this summer](https://anfieldindex.com/93771/liverpool-could-pursue-24m-deal-for-napoli-star-this-summer.html) - **Anfieldindex.com**
+2. [Simms hat-trick 'beautiful', says Lampard](https://www.bbc.com/sport/football/articles/cvgz5xw01dgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Harry Maguire reveals key to United’s revival under Michael Carrick](https://thepeoplesperson.com/2026/05/02/harry-maguire-reveals-key-to-uniteds-revival-under-michael-carrick-309548/) - **The Peoples Person**
+4. [Olise deal impossible: Liverpool want two other forwards instead](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-michael-olise-bayern-bradley-barcola-psg-yan-diomande-rb-leipzig/) - **Anfieldwatch.co.uk**
+5. [On fire against Fulham, Bukayo Saka silences the critics ](https://onefootball.com/en/news/on-fire-against-fulham-bukayo-saka-silences-the-critics-42803093) - **Onefootball.com**
+6. [Newcastle beat Brighton 3-1 to dent Seagulls’ European bid](https://footballtoday.com/2026/05/02/newcastle-beat-brighton-3-1-to-dent-seagulls-european-bid/) - **Footballtoday.com**
+7. [Ryan Reynolds’ Wrexham Falls Just Short of Chance at Premier League Promotion](https://www.thewrap.com/industry-news/business/ryan-reynolds-wrexham-falls-short-premier-league-promotion/) - **TheWrap**
+8. [Are Ipswich better equipped for Premier League this time?](https://www.bbc.com/sport/football/articles/ckgpw5ye21jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Are Ipswich better equipped for Premier League this time?](https://www.bbc.com/sport/football/articles/ckgpw5ye21jo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-04 01:55:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-04 02:50:45 (KST) / (하루 100회 제한 준수 중)*
