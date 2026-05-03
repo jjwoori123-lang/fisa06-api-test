@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Takeover deal draws sell-out crowd to Hillsborough](https://www.bbc.com/news/articles/c8jvy8ldek1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Every word from Mikel Arteta's post-Fulham presser](http://www.arsenal.com/news/every-word-mikel-artetas-post-fulham-presser-1) - **Arsenal.com**
-3. [Mohamed Salah Told Saudi, MLS or Italy Are Most Likely Transfer Options](https://anfieldindex.com/93775/mohamed-salah-told-saudi-mls-or-italy-are-most-likely-transfer-options.html) - **Anfieldindex.com**
-4. [Arteta on Saka’s fitness and Gyokeres’ top performance in Fulham win](https://hayters.com/arteta-on-sakas-fitness-and-gyokeres-top-performance-in-fulham-win/) - **Hayters.com**
-5. [Lewis-Skelly delighted with his midfield impact](http://www.arsenal.com/news/lewis-skelly-delighted-his-midfield-impact) - **Arsenal.com**
-6. [Gyokeres on the double as Arsenal strengthen Premier League title bid](https://www.the42.ie/arsenal-fulham-match-report-5-7030118-May2026/) - **The42**
-7. [Leeds United Considering A £35m Bid To Sign This Brazilian Player: Will He Fix The Midfield Problem?](https://the4thofficial.net/2026/05/leeds-united-considering-a-35m-bid-to-sign-this-brazilian-player-will-he-fix-the-midfield-problem/) - **The4thofficial.net**
-8. [Richard Hughes told to make a move for £50m Elliot Anderson alternative](https://www.anfieldwatch.co.uk/liverpool-fc/news/richard-hughes-told-to-make-a-move-for-ps50m-elliot-anderson-alternative/) - **Anfieldwatch.co.uk**
-9. ['Arsenal have flipped the pressure on to Man City in title race'](https://www.skysports.com/football/news/18932/13539530/premier-league-title-race-arsenal-have-flipped-the-pressure-onto-man-city-by-taking-a-six-point-lead-says-jamie-redknapp) - **Sky Sports**
+1. [Aston Villa Lock Horns With Newcastle United For This La Liga Goalkeeper: Should They Prioritise Him?](https://the4thofficial.net/2026/05/aston-villa-lock-horns-with-newcastle-united-for-this-la-liga-goalkeeper-should-they-prioritise-him/) - **The4thofficial.net**
+2. [Lyon 3-1 Arsenal (4-3 Agg): Lyon prevail in heavyweight clash to claim spot in final and knock holders out](https://wp.fromthespot.co.uk/28405/lyon-3-1-arsenal-4-3-agg-lyon-prevail-in-heavyweight-clash-to-claim-spot-in-final-and-knock-holders-out/) - **Fromthespot.co.uk**
+3. [Man United vs. Liverpool live stream: Red Devils, Reds battle as push for Champions League continues](https://www.cbssports.com/soccer/news/man-united-vs-liverpool-live-stream-odds-pick-premier-league-how-to-watch/) - **CBS Sports**
+4. [Arsenal opens up 6-point lead in Premier League title race to pile pressure on Man City](https://japantoday.com/category/sports/premier-league-west-ham-loses-in-blow-to-survival-bid-before-arsenal-plays-fulham) - **Japan Today**
+5. [Mikel Arteta: Win over Fulham keeps Premier League title dream alive for Arsenal](https://www.independent.ie/sport/soccer/premier-league/mikel-arteta-win-over-fulham-keeps-premier-league-title-dream-alive-for-arsenal/a681236873.html) - **Independent.ie**
+6. [Papers: Isak to miss Liverpool's trip to Man Utd with injury](https://www.skysports.com/football/transfer-paper-talk/12709/13539557/alexander-isak-injury-liverpool-striker-to-miss-trip-to-manchester-united-due-to-groin-strain-paper-talk) - **Sky Sports**
+7. [What Alisson’s arrival could mean for Di Gregorio and Perin](https://www.juvefc.com/what-alissons-arrival-could-mean-for-di-gregorio-and-perin/) - **JuveFC**
+8. [Donnarumma reveals marriage with cheeky comment: ‘Long-term contract signed’](https://football-italia.net/donnarumma-reveals-marriage-cheeky-comment/) - **Football Italia**
+9. [Has much-maligned Gyokeres proved his critics wrong?](https://www.bbc.com/sport/football/articles/cdjp3v7lv8mo) - **BBC News**
+10. [Three red cards for hair pulling in 2026 - is it time to change law?](https://www.bbc.com/sport/football/articles/cgkp15ejk5lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-04 05:02:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-04 06:05:20 (KST) / (하루 100회 제한 준수 중)*
