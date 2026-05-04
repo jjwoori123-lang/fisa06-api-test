@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [☕️ Breakfast FC: hack of the century , WTF celebration ](https://onefootball.com/en/news/breakfast-fc-hack-of-the-century-wtf-celebration-42805986) - **Onefootball.com**
-2. [Bruno Fernandes makes emphatic United stance clear in striking statement](https://thepeoplesperson.com/2026/05/03/bruno-fernandes-makes-emphatic-united-stance-clear-in-striking-statement-309567/) - **The Peoples Person**
-3. [Richard Hughes offered incredible £43m deal for Portugal star forward](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-ac-milan-rafa-leao-richard-hughes-offered-incredible-ps43m-deal-for-portugal-star-forward/) - **Anfieldwatch.co.uk**
-4. [Manchester United vs. Liverpool: Live stream, Time & How to watch](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_eb36eb6a-481c-4c8b-bc5e-b16a0f4c29e9) - **Yahoo Entertainment**
-5. [Pundit Predictions: Will Cunha start v Liverpool?](https://www.manutd.com/en/news/detail/pundit-predictions-for-man-utd-v-liverpool-3-may-2026) - **Manchester United**
-6. [Gyokeres joins elite club after hitting 20 goals](http://www.arsenal.com/news/gyokeres-joins-elite-club-after-hitting-20-goals) - **Arsenal.com**
-7. [‘I was crying’ – Mo Salah says one player’s exit from Liverpool left him in tears](https://www.empireofthekop.com/2026/05/03/i-was-crying-mo-salah-says-one-players-exit-from-liverpool-left-him-in-tears/) - **Empire of The Kop**
-8. [Liverpool have €45m Bundesliga full back in their sights](https://anfieldindex.com/93778/liverpool-have-e45m-bundesliga-full-back-in-their-sights.html) - **Anfieldindex.com**
-9. [Arsenal want €80m star after agent spotted at Emirates but Man United in pole position](https://strettynews.com/2026/05/03/arsenal-man-united-want-morten-hjulmand/) - **Strettynews.com**
-10. [Ed Sheeran celebrates Ipswich’s PL return with dressing‑room singalong!](https://www.skysports.com/football/video/33727/13539602/ed-sheeran-celebrates-ipswich-s-premier-league-return-with-dressing-room-singalong) - **Sky Sports**
+1. [Difficult to replace Amanjot Kaur, India on right track for T20 World Cup preparations: Amol Muzumdar](https://economictimes.indiatimes.com/news/sports/difficult-to-replace-amanjot-kaur-india-on-right-track-for-t20-world-cup-preparations-amol-muzumdar/articleshow/130730352.cms) - **The Times of India**
+2. [ Continent in celebration! Europe hails titles and promotions; see ](https://onefootball.com/en/news/continent-in-celebration-europe-hails-titles-and-promotions-see-42806447) - **Onefootball.com**
+3. [Darren Bent believes Fulham’s approach helped Arsenal](https://www.justarsenal.com/darren-bent-believes-fulhams-approach-helped-arsenal/414608) - **Just Arsenal News**
+4. [Report: Chelsea and Man United set to battle it out for €60m rated Premier League star](https://chelsea.news/2026/05/chelsea-sunderland-noah-sadiki-transfer/) - **Chelsea.news**
+5. [Petr Cech says exactly what fans feel as he delivers worrying Chelsea verdict](https://chelsea.news/2026/05/petr-cech-delivers-chelsea-verdict/) - **Chelsea.news**
+6. [Mittal family set to own 75% of Rajasthan Royals in $1.65 billion deal](https://economictimes.indiatimes.com/news/sports/mittal-family-set-to-own-75-of-rajasthan-royals-in-1-65-billion-deal/articleshow/130729847.cms) - **The Times of India**
+7. [Stephen Ross: Hard Rock Stadium 'not really in line' for Super Bowl](https://www.palmbeachpost.com/story/sports/nfl/dolphins/2026/05/03/hard-rock-stadium-super-bowl-stephen-ross/89913799007/) - **Palm Beach Post**
+8. [Pep Guardiola's model daughter who is by Man City's side in Premier League title bid: Maria Guardiola reveals the one trait she shares with her legendary father](https://www.dailymail.com/sport/football/article-15778789/pep-guardiola-maria-guardiola-manchester-city.html) - **Dailymail.com**
+9. [Virgil van Dijk is joined by Man United's 'Mr Reliable' in a back three, Michael Carrick's renaissance man sits in midfield but there is NO place for Arne Slot's mega-money signings: Stats boffins reveal combined Man United vs Liverpool XI](https://www.dailymail.com/sport/football/article-15778787/virgil-van-dijk-manchester-united-liverpool-premier-league.html) - **Dailymail.com**
+10. ['No one is happy to be relegation battlers'](https://www.bbc.com/sport/football/articles/c1l2npm79rqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-04 16:27:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-04 18:59:34 (KST) / (하루 100회 제한 준수 중)*
