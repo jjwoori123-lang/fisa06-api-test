@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Pillars visit Khalifat in survival chase](https://punchng.com/pillars-visit-khalifat-in-survival-chase/) - **The Punch**
-2. [How to watch Arsenal v Atletico Madrid live on TV](http://www.arsenal.com/news/how-watch-arsenal-v-atletico-madrid-live-tv) - **Arsenal.com**
-3. [Rivers host Abia in high stakes clash](https://punchng.com/rivers-host-abia-in-high-stakes-clash/) - **The Punch**
-4. [Katsina captain Barau seeks revenge in Benin](https://punchng.com/katsina-captain-barau-seeks-revenge-in-benin/) - **The Punch**
-5. [Peacock sports streaming guide: How to watch NFL, NBA, Premier League and more](https://www.sportingnews.com/us/watch/news/peacock-watch-live-sports-nfl-college-football-stream/dd89fd36f2d350c00c92cf30) - **Sporting News**
-6. [Toure scores again for Norwich in red hot preparation for World Cup](https://www.abc.net.au/news/2026-05-03/mohamed-toure-scores-for-norwich-city-in-the-championship/106635960) - **ABC News (AU)**
-7. [Erin Holland shares her delight at being pregnant after challenging IVF journey: 'It feels so weird to say it out loud'](https://www.dailymail.com/tvshowbiz/article-15785705/Erin-Holland-shares-delight-pregnant.html) - **Dailymail.com**
-8. [Referees raise security alarm over attacks in NPFL](https://punchng.com/referees-raise-security-alarm-over-attacks-in-npfl/) - **The Punch**
-9. [3SC, Nasarawa lock horns in Ibadan for continental spot](https://punchng.com/3sc-nasarawa-lock-horns-in-ibadan-for-continental-spot/) - **The Punch**
-10. [Rajasthan Royals' $1.63 billion buyout delayed on funding, legal hurdles](https://economictimes.indiatimes.com/news/sports/rajasthan-royals-1-63-billion-buyout-delayed-on-funding-legal-hurdles-ipl-2026-raj-kundra-kal-somani/articleshow/130721963.cms) - **The Times of India**
+1. [☕️ Breakfast FC: hack of the century , WTF celebration ](https://onefootball.com/en/news/breakfast-fc-hack-of-the-century-wtf-celebration-42805986) - **Onefootball.com**
+2. [Bruno Fernandes makes emphatic United stance clear in striking statement](https://thepeoplesperson.com/2026/05/03/bruno-fernandes-makes-emphatic-united-stance-clear-in-striking-statement-309567/) - **The Peoples Person**
+3. [Richard Hughes offered incredible £43m deal for Portugal star forward](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-ac-milan-rafa-leao-richard-hughes-offered-incredible-ps43m-deal-for-portugal-star-forward/) - **Anfieldwatch.co.uk**
+4. [Manchester United vs. Liverpool: Live stream, Time & How to watch](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_eb36eb6a-481c-4c8b-bc5e-b16a0f4c29e9) - **Yahoo Entertainment**
+5. [Pundit Predictions: Will Cunha start v Liverpool?](https://www.manutd.com/en/news/detail/pundit-predictions-for-man-utd-v-liverpool-3-may-2026) - **Manchester United**
+6. [Gyokeres joins elite club after hitting 20 goals](http://www.arsenal.com/news/gyokeres-joins-elite-club-after-hitting-20-goals) - **Arsenal.com**
+7. [‘I was crying’ – Mo Salah says one player’s exit from Liverpool left him in tears](https://www.empireofthekop.com/2026/05/03/i-was-crying-mo-salah-says-one-players-exit-from-liverpool-left-him-in-tears/) - **Empire of The Kop**
+8. [Liverpool have €45m Bundesliga full back in their sights](https://anfieldindex.com/93778/liverpool-have-e45m-bundesliga-full-back-in-their-sights.html) - **Anfieldindex.com**
+9. [Arsenal want €80m star after agent spotted at Emirates but Man United in pole position](https://strettynews.com/2026/05/03/arsenal-man-united-want-morten-hjulmand/) - **Strettynews.com**
+10. [Ed Sheeran celebrates Ipswich’s PL return with dressing‑room singalong!](https://www.skysports.com/football/video/33727/13539602/ed-sheeran-celebrates-ipswich-s-premier-league-return-with-dressing-room-singalong) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-05-04 13:12:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-04 16:27:55 (KST) / (하루 100회 제한 준수 중)*
