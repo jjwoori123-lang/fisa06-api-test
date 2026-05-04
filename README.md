@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [3SC, Nasarawa lock horns in Ibadan for continental spot](https://punchng.com/3sc-nasarawa-lock-horns-in-ibadan-for-continental-spot/) - **The Punch**
-2. [Rajasthan Royals' $1.63 billion buyout delayed on funding, legal hurdles](https://economictimes.indiatimes.com/news/sports/rajasthan-royals-1-63-billion-buyout-delayed-on-funding-legal-hurdles-ipl-2026-raj-kundra-kal-somani/articleshow/130721963.cms) - **The Times of India**
-3. [Watch a full match replay from our Fulham victory](http://www.arsenal.com/news/watch-full-match-replay-our-fulham-victory) - **Arsenal.com**
-4. [FPLai – AI-powered insights for smarter transfers and decisions](https://betalist.com/startups/fplai) - **Betalist.com**
-5. [Is it advantage Arsenal in dramatic title race?](https://www.bbc.com/sport/football/articles/c6269y4gdlxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Is it advantage Arsenal in dramatic title race?](https://www.bbc.com/sport/football/articles/c6269y4gdlxo) - **BBC News**
-7. [Expekts Premier League Bombe: Odds 4,20 på nyt uafgjort resultat i Bournemouth](https://www.bt.dk/betting/expekts-premier-league-bombe-odds-420-paa-nyt-uafgjort-resultat-i-bournemouth) - **Www.bt.dk**
-8. [Ryan Reynolds 'gutted' as Wrexham misses shot at EPL promotion](https://www.abc.net.au/news/2026-05-03/ryan-reynolds-gutted-wrexham-misses-premier-league-promotion/106635638) - **ABC News (AU)**
-9. [Arsenal 3-0 Fulham: Saka and Gyokeres Drive Gunners Closer to Glory](https://eplindex.com/146001/arsenal-3-0-fulham-saka-and-gyokeres-drive-gunners-closer-to-glory.html) - **English Premier League Index - Opta Stats**
-10. [Liverpool dealt hammer blow ahead of Man United clash at Old Trafford - with £130m Alexander Isak now a major doubt after training injury](https://www.dailymail.com/sport/football/article-15785547/Liverpool-Man-United-Alexander-Isak-injury-Premier-League.html) - **Dailymail.com**
+1. [Pillars visit Khalifat in survival chase](https://punchng.com/pillars-visit-khalifat-in-survival-chase/) - **The Punch**
+2. [How to watch Arsenal v Atletico Madrid live on TV](http://www.arsenal.com/news/how-watch-arsenal-v-atletico-madrid-live-tv) - **Arsenal.com**
+3. [Rivers host Abia in high stakes clash](https://punchng.com/rivers-host-abia-in-high-stakes-clash/) - **The Punch**
+4. [Katsina captain Barau seeks revenge in Benin](https://punchng.com/katsina-captain-barau-seeks-revenge-in-benin/) - **The Punch**
+5. [Peacock sports streaming guide: How to watch NFL, NBA, Premier League and more](https://www.sportingnews.com/us/watch/news/peacock-watch-live-sports-nfl-college-football-stream/dd89fd36f2d350c00c92cf30) - **Sporting News**
+6. [Toure scores again for Norwich in red hot preparation for World Cup](https://www.abc.net.au/news/2026-05-03/mohamed-toure-scores-for-norwich-city-in-the-championship/106635960) - **ABC News (AU)**
+7. [Erin Holland shares her delight at being pregnant after challenging IVF journey: 'It feels so weird to say it out loud'](https://www.dailymail.com/tvshowbiz/article-15785705/Erin-Holland-shares-delight-pregnant.html) - **Dailymail.com**
+8. [Referees raise security alarm over attacks in NPFL](https://punchng.com/referees-raise-security-alarm-over-attacks-in-npfl/) - **The Punch**
+9. [3SC, Nasarawa lock horns in Ibadan for continental spot](https://punchng.com/3sc-nasarawa-lock-horns-in-ibadan-for-continental-spot/) - **The Punch**
+10. [Rajasthan Royals' $1.63 billion buyout delayed on funding, legal hurdles](https://economictimes.indiatimes.com/news/sports/rajasthan-royals-1-63-billion-buyout-delayed-on-funding-legal-hurdles-ipl-2026-raj-kundra-kal-somani/articleshow/130721963.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-05-04 09:06:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-04 13:12:52 (KST) / (하루 100회 제한 준수 중)*
