@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man Utd beats Liverpool, Spurs climb out of relegation zone](https://japantoday.com/category/sports/man-utd-beat-liverpool-spurs-climb-out-of-relegation-zone) - **Japan Today**
-2. [Emery defends Villa squad rotation after Spurs loss](https://www.bbc.com/sport/football/videos/c0m2v981408o) - **BBC News**
-3. [Arsenal Are Eyeing A Move For This Chelsea Midfielder: A Good Choice For Arteta?](https://the4thofficial.net/2026/05/arsenal-are-eyeing-a-move-for-this-chelsea-midfielder/) - **The4thofficial.net**
-4. [De Zerbi hails ‘very good’ Tottenham after escape from relegation zone](https://www.101greatgoals.com/football/premier-league/de-zerbi-hails-very-good-tottenham-after-escape-from-relegation-zone/) - **101 Great Goals**
-5. [Aston Villa 1-2 Tottenham: What Emery said](https://www.bbc.com/sport/football/articles/cm2pevejkjgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Tottenham appear like a team capable of Premier League survival with a second win in a row](https://www.independent.ie/sport/soccer/premier-league/tottenham-appear-like-a-team-capable-of-premier-league-survival-with-a-second-win-in-a-row/a1066824319.html) - **Independent.ie**
-7. [Arsenal vs Atletico Madrid: Match preview, predicted line-ups, team news and prediction](https://footballtoday.com/2026/05/03/arsenal-vs-atletico-madrid-match-preview-predicted-line-ups-team-news-and-prediction/) - **Footballtoday.com**
-8. [Spurs solved mental frailty to boost survival bid: De Zerbi](https://sports.yahoo.com/articles/spurs-solved-mental-frailty-boost-204412741.html) - **Yahoo Entertainment**
-9. [Chelsea vs. Nottingham Forest, Premier League: Preview, team news, how to watch](https://weaintgotnohistory.sbnation.com/premier-league/168320/chelsea-vs-nottingham-forest-premier-league-preview-team-news-how-to-watch) - **SB Nation**
+1. [Has tide turned for troubled Spurs under De Zerbi?](https://www.bbc.com/sport/football/articles/c1e2l4g106go) - **BBC News**
+2. ['Absolutely STINKS': Angry fans claim Unai Emery's second-string line-up against Spurs 'needs investigating' for 'integrity' issues - as relegation rivals West Ham and Nottingham Forest pay the price for hosts' 'abysmal' display](https://www.dailymail.com/sport/football/article-15787087/Absolutely-STINKS-Angry-fans-claim-Unai-Emerys-second-string-line-against-Spurs-needs-investigating-integrity-issues-relegation-rivals-West-Ham-Nottingham-Forest-pay-price-hosts-abysmal-display.html) - **Dailymail.com**
+3. [Forgotten Rayan Cherki moment shows Man City's hard-hitting maverick is boxing clever](https://www.sportingnews.com/us/soccer/news/forgotten-rayan-cherki-moment-man-citys-maverick-boxing-clever/7433f7417d8fdf97b9235786) - **Sporting News**
+4. [Matheus Cunha pinpoints traits shared by Carrick and Sir Alex](https://thepeoplesperson.com/2026/05/03/matheus-cunha-pinpoints-traits-shared-by-carrick-and-sir-alex-309607/) - **The Peoples Person**
+5. [Football Daily](https://www.bbc.co.uk/sounds/play/p0nj5jr6?at_campaign=rss) - **BBC News**
+6. [De Zerbi sends clear message to Spurs players after climbing out of relegation zone – and gives update on Bentancur](https://hayters.com/de-zerbi-sends-clear-message-to-spurs-players-after-climbing-out-of-relegation-zone-and-gives-update-on-bentancur/) - **Hayters.com**
+7. [“No doubt” – Pep Guardiola issues fresh update on Jack Grealish’s Manchester City future](https://cityxtra.co.uk/45829/no-doubt-pep-guardiola-issues-fresh-update-on-jack-grealishs-manchester-city-future/) - **Cityxtra.co.uk**
+8. [Pep Guardiola was given a rude awakening on his first trip to Everton as Man City manager nine years ago - now he is hoping for no shocks to their title bid in their maiden visit at the Hill Dickinson Stadium](https://www.dailymail.com/sport/football/article-15786585/Pep-Guardiola-given-rude-awakening-trip-Everton-Man-City-manager-nine-years-ago-hoping-no-shocks-title-bid-maiden-visit-Hill-Dickinson-Stadium.html) - **Dailymail.com**
+9. [David Moyes calls out Everton's £42m signing 'to do better' and 'step up' - with out-of-favour forward having just played ONE MINUTE since January](https://www.dailymail.com/sport/football/article-15786517/David-Moyes-calls-Evertons-42m-signing.html) - **Dailymail.com**
+10. [Calum McFarlane hits out at 'fake' Cole Palmer narrative as Chelsea's interim boss defends out-of-form star amid quiet season](https://www.dailymail.com/sport/football/article-15786327/calum-mcfarlane-cole-palmer-chelsea.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-05-05 06:14:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-05 07:16:45 (KST) / (하루 100회 제한 준수 중)*
