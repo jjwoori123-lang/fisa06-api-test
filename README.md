@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Every word from Arteta's pre-Atletico presser](http://www.arsenal.com/news/every-word-artetas-pre-atletico-presser-0) - **Arsenal.com**
-2. [Bruno Fernandes hits 140 goal contributions faster than Cristiano Ronaldo at Manchester United in Premier League](https://worldsoccertalk.com/news/bruno-fernandes-hits-140-goal-contributions-faster-than-cristiano-ronaldo-at-manchester-united-in-premier-league/) - **Worldsoccertalk.com**
-3. [Chelsea hit new low after Forest loss as Jesse Derry is conscious following clash of heads on first start for Blues](https://www.independent.ie/sport/soccer/premier-league/chelsea-hit-new-low-after-forest-loss-as-jesse-derry-is-conscious-following-clash-of-heads-on-first-start-for-blues/a913182240.html) - **Independent.ie**
-4. [Everton v Manchester City: Confirmed line-ups for massive Premier League clash](https://www.101greatgoals.com/football/premier-league/everton-manchester-city-teams/) - **101 Great Goals**
-5. [Pep Guardiola opens up on Manchester City future amidst domestic treble push](https://www.alloutsoccer.com/news/pep-guardiola-manchester-city-future-1821226) - **Alloutsoccer.com**
-6. [Fabregas: ‘Conte was a big shock and Wenger still sends messages’](https://football-italia.net/fabregas-conte-was-a-big-shock-and-wenger/) - **Football Italia**
-7. [Everton vs Manchester City - Premier League LIVE: Pep Guardiola's side look to slash gap to Arsenal while Toffees hope to remain in European football hunt](https://www.dailymail.com/sport/football/article-15786371/Everton-vs-Manchester-City-Premier-League-LIVE-Pep-Guardiolas-look-slash-gap-Arsenal-Toffees-hope-remain-European-football-hunt.html) - **Dailymail.com**
-8. [David Robinson's time is now as Spurs' center proves worth the wait (SN Archive — 1990)](https://www.sportingnews.com/us/nba/news/david-robinson-time-now-spurs-center-worth-wait-sn-archive-1990/63fde03a889b961f32ccaeee) - **Sporting News**
-9. [Arsenal vs. Atletico Madrid odds, prediction: Expert's best bets for Champions League match](https://www.cbssports.com/betting/news/arsenal-vs-atletico-madrid-odds-prediction-experts-best-bets-for-champions-league-match/) - **CBS Sports**
-10. [Chelsea's Derry, 18, taken to hospital after head injury](https://www.bbc.com/sport/football/articles/cpwpx80p0eyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Manchester United Have Set Their Sights On This Barcelona Winger: Should Carrick Snap Him Up?](https://the4thofficial.net/2026/05/manchester-united-have-set-their-sights-on-this-barcelona-winger/) - **The4thofficial.net**
+2. [Mikel Arteta promises Arsenal will ‘go out there like beasts’ in Atlético second leg](https://www.irishtimes.com/sport/soccer/2026/05/04/mikel-arteta-promises-arsenal-will-go-out-there-like-beasts-in-atletico-second-leg/) - **The Irish Times**
+3. [Nottingham Forest star Morgan Gibbs-White expected to miss Europa League game against Aston Villa after injury against Chelsea](https://sportsview.co.uk/2026/05/nottingham-forest-star-morgan-gibbs-white-expected-to-miss-europa-league-game-against-aston-villa-after-injury-against-chelsea?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=nottingham-forest-star-morgan-gibbs-white-expected-to-miss-europa-league-game-against-aston-villa-after-injury-against-chelsea) - **Sportsview.co.uk**
+4. [Arteta: I feel the energy in the team](http://www.arsenal.com/news/arteta-i-feel-energy-team) - **Arsenal.com**
+5. [Pep Guardiola Hints He Will Stay On As Manchester City Boss For 2026-27 Season](https://www.foxsports.com/stories/soccer/pep-guardiola-hints-he-will-stay-manchester-city-boss-2026-27-season) - **Fox Sports**
+6. [Liverpool Identify This Barcelona Winger As A Target: Should The Reds Move In For Him?](https://the4thofficial.net/2026/05/liverpool-identify-this-barcelona-winger-as-a-target/) - **The4thofficial.net**
+7. [Champions League: Winner of blockbuster PSG-Bayern sequel to face Arsenal or Atletico in final](https://economictimes.indiatimes.com/news/sports/champions-league-winner-of-blockbuster-psg-bayern-sequel-to-face-arsenal-or-atletico-in-final/articleshow/130810335.cms) - **The Times of India**
+8. [Barcelona join race for €70m-rated Premier League wonderkid](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/119384/barcelona-join-race-for-e70m-rated-premier-league-wonderkid) - **Barca Blaugranes**
 
 
 ---
-*최근 업데이트: 2026-05-06 02:54:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-06 04:25:45 (KST) / (하루 100회 제한 준수 중)*
