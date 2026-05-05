@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Saka sparks Arsenal attack into life ahead of Atletico showdown](https://sports.yahoo.com/articles/saka-sparks-arsenal-attack-life-033448412.html) - **Yahoo Entertainment**
-2. [Atletico aim to show Alvarez their ambition in Arsenal semi](https://sports.yahoo.com/articles/atletico-aim-show-alvarez-ambition-033428020.html) - **Yahoo Entertainment**
-3. [USMNT World Cup roster watch: Sergiño Dest is back, but the real concern is the back line](https://sports.yahoo.com/soccer/article/usmnt-world-cup-roster-watch-sergino-dest-is-back-but-the-real-concern-is-the-back-line-031839777.html) - **Yahoo Entertainment**
-4. [Investor Group Led By José E. Feliciano, Kwanza Jones Vows World Series Championship After Reaching Deal To Buy Padres](https://dailycaller.com/2026/05/03/jose-feliciano-kwanza-jones-san-diego-padres-sale-mlb/) - **The Daily Caller**
-5. [Why Aston Villa should have given everything to keep Spurs in relegation jeopardy, the most worrying part of Unai Emery's mass rotation - and what he must do now to win back disgruntled fans: TOM COLLOMOSSE](https://www.dailymail.com/sport/football/article-15782635/Why-Aston-Villa-given-Spurs-relegation-jeopardy.html) - **Dailymail.com**
-6. [Cole Floyd Earns First Bass Pro Tour Win at Yuengling Light Lager Stage 5 at Beaver Lake Presented by YETI](https://www.globenewswire.com/news-release/2026/05/04/3286387/0/en/Cole-Floyd-Earns-First-Bass-Pro-Tour-Win-at-Yuengling-Light-Lager-Stage-5-at-Beaver-Lake-Presented-by-YETI.html) - **GlobeNewswire**
-7. [3SC’s Adegoke shines as Chelle scouts NPFL players](https://punchng.com/3scs-adegoke-shines-as-chelle-scouts-npfl-players/) - **The Punch**
-8. [Should Sesko goal have been ruled out?](https://www.bbc.com/sport/football/videos/c0e2wr4pxv3o) - **BBC News**
-9. [Cummins endures horror IPL over as Sunrisers fall to Knight Riders](https://www.abc.net.au/news/2026-05-04/ipl-pat-cummins-travis-head-sunrisers-hyderabad/106637632) - **ABC News (AU)**
-10. [How 'outstanding' Tottenham beat Villa](https://www.bbc.com/sport/football/videos/c5y07dn84xqo) - **BBC News**
+1. [Bruno Fernandes: Man United catalyst helps take down Liverpool](https://thepeoplesperson.com/2026/05/04/bruno-fernandes-man-united-catalyst-helps-take-down-liverpool-309614/) - **The Peoples Person**
+2. [What happened to Everton's £40m signing Dibling?](https://www.bbc.com/sport/football/articles/cn5pz1d5432o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Scudetto Stars: Five Key Figures in Inter’s Triumph](https://football-italia.net/scudetto-stars-5-key-figures-inter-triumph/) - **Football Italia**
+4. [Everton vs Man City: Opposition Analysis | Can the Guardiola Juggernaut Be Halted?](https://royalbluemersey.sbnation.com/everton-2025-26-season-premier-league-fixtures-hill-dickinson-moyes/79804/everton-vs-man-city-opposition-analysis-can-the-guardiola-juggernaut-be-halted) - **SB Nation**
+5. [New location for summer festival of football](https://www.bbc.com/news/articles/cn7pypz5m7po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. ['Premflix' and tourist fans - future of football predictions](https://www.bbc.com/sport/football/articles/cn4vpezd2jpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. ['Premflix' and tourist fans - future of football predictions](https://www.bbc.com/sport/football/articles/cn4vpezd2jpo) - **BBC News**
+8. [Manchester City stance on Phil Foden contract extension revealed amid future doubts](https://cityxtra.co.uk/45847/manchester-city-stance-on-phil-foden-contract-extension-revealed-amid-future-doubts/) - **Cityxtra.co.uk**
+9. [Arne Slot has found his next Dean Huijsen in 'incredible' star](https://www.anfieldwatch.co.uk/liverpool-fc/news/arne-slot-has-found-his-next-dean-huijsen-in-incredible-star/) - **Anfieldwatch.co.uk**
+10. [Pep Guardiola has the ideal player for his team in a Manchester City maverick](https://esteemedkompany.com/2026/05/04/pep-guardiola-has-the-ideal-player-for-his-team-in-a-manchester-city-maverick/) - **Esteemedkompany.com**
 
 
 ---
-*최근 업데이트: 2026-05-05 12:52:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-05 15:19:10 (KST) / (하루 100회 제한 준수 중)*
