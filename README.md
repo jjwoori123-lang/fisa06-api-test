@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Liverpool joined by Arsenal in hunt for PSG winger](https://anfieldindex.com/93817/report-liverpool-joined-by-arsenal-in-hunt-for-psg-winger.html) - **Anfieldindex.com**
-2. [David Moyes claims £42m man needs to do much better for Everton](https://eplindex.com/146047/david-moyes-claims-42m-man-needs-to-do-much-better-for-everton.html) - **English Premier League Index - Opta Stats**
-3. [Thousands celebrate Coventry City's promotion](https://www.bbc.com/news/live/c4g8jy18jjpt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Coach Marcelino to leave Villarreal at end of season](https://www.channelnewsasia.com/sport/coach-marcelino-leave-villarreal-end-season-6098551) - **CNA**
-5. ['We know anything can happen' - Burn](https://www.bbc.com/sport/football/articles/cx21ywgqxr0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Ligue 1 Review | Didier Deschamps, are you watching? Corentin Tolisso stars in Lyon’s podium push](https://www.getfootballnewsfrance.com/2026/ligue-1-review-didier-deschamps-are-you-watching-corentin-tolisso-stars-in-lyons-podium-push/) - **Get French Football News**
-7. [Moyes 'looking for a lot more' from lavishly-gifted Dibling](https://www.bbc.com/sport/football/articles/c7941g141n9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [West Ham United want Nuno Espirito Santo to remain as manager even if they are relegated](https://sportsview.co.uk/2026/05/west-ham-united-want-nuno-espirito-santo-to-remain-as-manager-even-if-they-are-relegated?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=west-ham-united-want-nuno-espirito-santo-to-remain-as-manager-even-if-they-are-relegated) - **Sportsview.co.uk**
-9. [Juventus make Liverpool's Alisson a top target](https://www.skysports.com/football/news/11669/13540034/alisson-becker-transfer-news-juventus-make-liverpool-goalkeeper-a-top-target-this-summer) - **Sky Sports**
+1. [Every word from Arteta's pre-Atletico presser](http://www.arsenal.com/news/every-word-artetas-pre-atletico-presser-0) - **Arsenal.com**
+2. [Bruno Fernandes hits 140 goal contributions faster than Cristiano Ronaldo at Manchester United in Premier League](https://worldsoccertalk.com/news/bruno-fernandes-hits-140-goal-contributions-faster-than-cristiano-ronaldo-at-manchester-united-in-premier-league/) - **Worldsoccertalk.com**
+3. [Chelsea hit new low after Forest loss as Jesse Derry is conscious following clash of heads on first start for Blues](https://www.independent.ie/sport/soccer/premier-league/chelsea-hit-new-low-after-forest-loss-as-jesse-derry-is-conscious-following-clash-of-heads-on-first-start-for-blues/a913182240.html) - **Independent.ie**
+4. [Everton v Manchester City: Confirmed line-ups for massive Premier League clash](https://www.101greatgoals.com/football/premier-league/everton-manchester-city-teams/) - **101 Great Goals**
+5. [Pep Guardiola opens up on Manchester City future amidst domestic treble push](https://www.alloutsoccer.com/news/pep-guardiola-manchester-city-future-1821226) - **Alloutsoccer.com**
+6. [Fabregas: ‘Conte was a big shock and Wenger still sends messages’](https://football-italia.net/fabregas-conte-was-a-big-shock-and-wenger/) - **Football Italia**
+7. [Everton vs Manchester City - Premier League LIVE: Pep Guardiola's side look to slash gap to Arsenal while Toffees hope to remain in European football hunt](https://www.dailymail.com/sport/football/article-15786371/Everton-vs-Manchester-City-Premier-League-LIVE-Pep-Guardiolas-look-slash-gap-Arsenal-Toffees-hope-remain-European-football-hunt.html) - **Dailymail.com**
+8. [David Robinson's time is now as Spurs' center proves worth the wait (SN Archive — 1990)](https://www.sportingnews.com/us/nba/news/david-robinson-time-now-spurs-center-worth-wait-sn-archive-1990/63fde03a889b961f32ccaeee) - **Sporting News**
+9. [Arsenal vs. Atletico Madrid odds, prediction: Expert's best bets for Champions League match](https://www.cbssports.com/betting/news/arsenal-vs-atletico-madrid-odds-prediction-experts-best-bets-for-champions-league-match/) - **CBS Sports**
+10. [Chelsea's Derry, 18, taken to hospital after head injury](https://www.bbc.com/sport/football/articles/cpwpx80p0eyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-05 20:50:20 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-06 02:54:35 (KST) / (하루 100회 제한 준수 중)*
