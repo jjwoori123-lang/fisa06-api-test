@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Michael Edwards is about to do it again, brilliant Liverpool transfer on the horizon](https://www.anfieldwatch.co.uk/liverpool-fc/news/michael-edwards-is-about-to-do-it-again-brilliant-liverpool-transfer-on-the-horizon/) - **Anfieldwatch.co.uk**
-2. [Sixers guard discusses defending former Knicks teammate, Jalen Brunson](https://sixerswire.usatoday.com/story/sports/nba/sixers/2026/05/04/sixers-guard-discusses-defending-former-knicks-teammate-jalen-brunson/89931635007/) - **USA Today**
-3. ['City are in big trouble!' - Hill Dickinson ERUPTS as O'Brien gives Everton the lead!](https://www.skysports.com/football/video/12606/13540219/goal-j-obrien-73-everton-2-1-manchester-city) - **Sky Sports**
-4. [Guehi HOWLER gifts Everton the equaliser!](https://www.skysports.com/watch/video/sports/13540218/goal-t-barry-68-everton-1-1-manchester-city) - **Sky Sports**
-5. [Six in a row: Chelsea slump matches clubs worst Premier League streak](https://www.playmakerstats.com/news/six-in-a-row-chelsea-slump-matches-club-s-worst-premier-league-streak/1115873) - **Playmakerstats.com**
-6. [Chelsea: McFarlane bemoans ‘unacceptable’ 15 minutes after sixth straight loss](https://www.101greatgoals.com/football/premier-league/chelsea-mcfarlane-bemoans-unacceptable-15-minutes/) - **101 Great Goals**
-7. [Barcelona eyeing move for Rayo Vallecano defender Andrei Ratiu with Jules Kounde drawing Premier League interest](https://sportsview.co.uk/2026/05/barcelona-eyeing-move-for-rayo-vallecano-defender-andrei-ratiu-with-jules-kounde-drawing-premier-league-interest?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=barcelona-eyeing-move-for-rayo-vallecano-defender-andrei-ratiu-with-jules-kounde-drawing-premier-league-interest) - **Sportsview.co.uk**
-8. [After declining nearly 50% in 6 months, has this ASX tech stock finally turned the corner?](https://www.fool.com.au/2026/05/05/after-declining-nearly-50-in-6-months-has-this-asx-tech-stock-finally-turned-the-corner/) - **Motley Fool Australia**
-9. [Leeds United Are Keeping A Keen Eye On This Wolves Defender: Should Farke Get Him On Board?](https://the4thofficial.net/2026/05/leeds-united-are-keeping-a-keen-eye-on-this-wolves-defender-should-farke-get-him-on-board/) - **The4thofficial.net**
-10. [The high-quality relegation battle more like a title race](https://www.bbc.com/sport/football/articles/cy5235v2lrro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Man City’s Late Draw At Everton Hands Premier League Momentum To Arsenal](https://www.foxsports.com/stories/soccer/man-citys-last-minute-draw-everton-hands-premier-league-momentum-arsenal) - **Fox Sports**
+2. [Man City's title hopes dented despite late Doku stunner in six-goal thriller](https://www.bbc.com/sport/football/videos/c2k2dd79wyxo) - **BBC News**
+3. [Carra: If Arsenal beat West Ham, they win the Premier League](https://www.skysports.com/football/news/11679/13540221/everton-3-3-man-city-if-arsenal-beat-west-ham-on-sunday-they-win-the-premier-league-title-says-jamie-carragher) - **Sky Sports**
+4. [Everton 3-3 Man City: What Moyes said](https://www.bbc.com/sport/football/articles/cwy2wp1k7qzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Europe’s Soccer Giants Keep Winning—and Are Cashing In](https://frontofficesports.com/europes-soccer-giants-keep-winning-and-are-cashing-in/) - **Frontofficesports.com**
+6. [We'll keep fighting until the end, promises Doku](https://www.mancity.com/news/mens/doku-post-everton-reaction-pl-4-may-63913499) - **Manchester City FC**
+7. [Title-race twist! Doku saves Man City with dramatic stoppage-time equaliser](https://www.skysports.com/premier-league-highlights/video/36504/13540239/everton-3-3-man-city-premier-league-highlights) - **Sky Sports**
+8. [Arsenal ile şampiyonluk mücadelesi veren Manchester City, Everton deplasmanından 1 puanla döndü](https://anlatilaninotesi.com.tr/20260505/arsenal-ile-sampiyonluk-mucadelesi-veren-manchester-city-everton-deplasmanindan-1-puanla-dondu-1105490860.html) - **Anlatilaninotesi.com.tr**
+9. [Arsenal take control of title race after Man City’s 3-3 draw with Everton](https://punchng.com/arsenal-take-control-of-title-race-after-man-citys-3-3-draw-with-everton/) - **The Punch**
+10. [Man City’s defensive horror show at Everton leaves title hopes hanging by a thread](https://footballtoday.com/2026/05/04/man-citys-defensive-horror-show-at-everton-leaves-title-hopes-hanging-by-a-thread/) - **Footballtoday.com**
 
 
 ---
-*최근 업데이트: 2026-05-06 05:43:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-06 07:02:38 (KST) / (하루 100회 제한 준수 중)*
