@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United Have Set Their Sights On This Barcelona Winger: Should Carrick Snap Him Up?](https://the4thofficial.net/2026/05/manchester-united-have-set-their-sights-on-this-barcelona-winger/) - **The4thofficial.net**
-2. [Mikel Arteta promises Arsenal will ‘go out there like beasts’ in Atlético second leg](https://www.irishtimes.com/sport/soccer/2026/05/04/mikel-arteta-promises-arsenal-will-go-out-there-like-beasts-in-atletico-second-leg/) - **The Irish Times**
-3. [Nottingham Forest star Morgan Gibbs-White expected to miss Europa League game against Aston Villa after injury against Chelsea](https://sportsview.co.uk/2026/05/nottingham-forest-star-morgan-gibbs-white-expected-to-miss-europa-league-game-against-aston-villa-after-injury-against-chelsea?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=nottingham-forest-star-morgan-gibbs-white-expected-to-miss-europa-league-game-against-aston-villa-after-injury-against-chelsea) - **Sportsview.co.uk**
-4. [Arteta: I feel the energy in the team](http://www.arsenal.com/news/arteta-i-feel-energy-team) - **Arsenal.com**
-5. [Pep Guardiola Hints He Will Stay On As Manchester City Boss For 2026-27 Season](https://www.foxsports.com/stories/soccer/pep-guardiola-hints-he-will-stay-manchester-city-boss-2026-27-season) - **Fox Sports**
-6. [Liverpool Identify This Barcelona Winger As A Target: Should The Reds Move In For Him?](https://the4thofficial.net/2026/05/liverpool-identify-this-barcelona-winger-as-a-target/) - **The4thofficial.net**
-7. [Champions League: Winner of blockbuster PSG-Bayern sequel to face Arsenal or Atletico in final](https://economictimes.indiatimes.com/news/sports/champions-league-winner-of-blockbuster-psg-bayern-sequel-to-face-arsenal-or-atletico-in-final/articleshow/130810335.cms) - **The Times of India**
-8. [Barcelona join race for €70m-rated Premier League wonderkid](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/119384/barcelona-join-race-for-e70m-rated-premier-league-wonderkid) - **Barca Blaugranes**
+1. [Michael Edwards is about to do it again, brilliant Liverpool transfer on the horizon](https://www.anfieldwatch.co.uk/liverpool-fc/news/michael-edwards-is-about-to-do-it-again-brilliant-liverpool-transfer-on-the-horizon/) - **Anfieldwatch.co.uk**
+2. [Sixers guard discusses defending former Knicks teammate, Jalen Brunson](https://sixerswire.usatoday.com/story/sports/nba/sixers/2026/05/04/sixers-guard-discusses-defending-former-knicks-teammate-jalen-brunson/89931635007/) - **USA Today**
+3. ['City are in big trouble!' - Hill Dickinson ERUPTS as O'Brien gives Everton the lead!](https://www.skysports.com/football/video/12606/13540219/goal-j-obrien-73-everton-2-1-manchester-city) - **Sky Sports**
+4. [Guehi HOWLER gifts Everton the equaliser!](https://www.skysports.com/watch/video/sports/13540218/goal-t-barry-68-everton-1-1-manchester-city) - **Sky Sports**
+5. [Six in a row: Chelsea slump matches clubs worst Premier League streak](https://www.playmakerstats.com/news/six-in-a-row-chelsea-slump-matches-club-s-worst-premier-league-streak/1115873) - **Playmakerstats.com**
+6. [Chelsea: McFarlane bemoans ‘unacceptable’ 15 minutes after sixth straight loss](https://www.101greatgoals.com/football/premier-league/chelsea-mcfarlane-bemoans-unacceptable-15-minutes/) - **101 Great Goals**
+7. [Barcelona eyeing move for Rayo Vallecano defender Andrei Ratiu with Jules Kounde drawing Premier League interest](https://sportsview.co.uk/2026/05/barcelona-eyeing-move-for-rayo-vallecano-defender-andrei-ratiu-with-jules-kounde-drawing-premier-league-interest?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=barcelona-eyeing-move-for-rayo-vallecano-defender-andrei-ratiu-with-jules-kounde-drawing-premier-league-interest) - **Sportsview.co.uk**
+8. [After declining nearly 50% in 6 months, has this ASX tech stock finally turned the corner?](https://www.fool.com.au/2026/05/05/after-declining-nearly-50-in-6-months-has-this-asx-tech-stock-finally-turned-the-corner/) - **Motley Fool Australia**
+9. [Leeds United Are Keeping A Keen Eye On This Wolves Defender: Should Farke Get Him On Board?](https://the4thofficial.net/2026/05/leeds-united-are-keeping-a-keen-eye-on-this-wolves-defender-should-farke-get-him-on-board/) - **The4thofficial.net**
+10. [The high-quality relegation battle more like a title race](https://www.bbc.com/sport/football/articles/cy5235v2lrro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-06 04:25:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-06 05:43:27 (KST) / (하루 100회 제한 준수 중)*
