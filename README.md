@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Should Sesko goal have been ruled out?](https://www.bbc.com/sport/football/videos/c0e2wr4pxv3o) - **BBC News**
-2. [Cummins endures horror IPL over as Sunrisers fall to Knight Riders](https://www.abc.net.au/news/2026-05-04/ipl-pat-cummins-travis-head-sunrisers-hyderabad/106637632) - **ABC News (AU)**
-3. [How 'outstanding' Tottenham beat Villa](https://www.bbc.com/sport/football/videos/c5y07dn84xqo) - **BBC News**
-4. ['Exceptional' Mainoo is proving his worth - Richards](https://www.bbc.com/sport/football/videos/c1j209j0g0yo) - **BBC News**
-5. [A huge night for Spurs - but who are favourites to go down?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0eb667c9-ea39-4f90-ba19-bf831abbf5c0) - **Yahoo Entertainment**
-6. [Has tide turned for troubled Spurs under De Zerbi?](https://www.bbc.com/sport/football/articles/c1e2l4g106go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [A huge night for Spurs - but who are favourites to go down?](https://www.bbc.com/sport/football/articles/cpdpnjjlp18o) - **BBC News**
-8. [Has tide turned for troubled Spurs under De Zerbi?](https://www.bbc.com/sport/football/articles/c1e2l4g106go) - **BBC News**
-9. ['Absolutely STINKS': Angry fans claim Unai Emery's second-string line-up against Spurs 'needs investigating' for 'integrity' issues - as relegation rivals West Ham and Nottingham Forest pay the price for hosts' 'abysmal' display](https://www.dailymail.com/sport/football/article-15787087/Absolutely-STINKS-Angry-fans-claim-Unai-Emerys-second-string-line-against-Spurs-needs-investigating-integrity-issues-relegation-rivals-West-Ham-Nottingham-Forest-pay-price-hosts-abysmal-display.html) - **Dailymail.com**
-10. [Forgotten Rayan Cherki moment shows Man City's hard-hitting maverick is boxing clever](https://www.sportingnews.com/us/soccer/news/forgotten-rayan-cherki-moment-man-citys-maverick-boxing-clever/7433f7417d8fdf97b9235786) - **Sporting News**
+1. [Saka sparks Arsenal attack into life ahead of Atletico showdown](https://sports.yahoo.com/articles/saka-sparks-arsenal-attack-life-033448412.html) - **Yahoo Entertainment**
+2. [Atletico aim to show Alvarez their ambition in Arsenal semi](https://sports.yahoo.com/articles/atletico-aim-show-alvarez-ambition-033428020.html) - **Yahoo Entertainment**
+3. [USMNT World Cup roster watch: Sergiño Dest is back, but the real concern is the back line](https://sports.yahoo.com/soccer/article/usmnt-world-cup-roster-watch-sergino-dest-is-back-but-the-real-concern-is-the-back-line-031839777.html) - **Yahoo Entertainment**
+4. [Investor Group Led By José E. Feliciano, Kwanza Jones Vows World Series Championship After Reaching Deal To Buy Padres](https://dailycaller.com/2026/05/03/jose-feliciano-kwanza-jones-san-diego-padres-sale-mlb/) - **The Daily Caller**
+5. [Why Aston Villa should have given everything to keep Spurs in relegation jeopardy, the most worrying part of Unai Emery's mass rotation - and what he must do now to win back disgruntled fans: TOM COLLOMOSSE](https://www.dailymail.com/sport/football/article-15782635/Why-Aston-Villa-given-Spurs-relegation-jeopardy.html) - **Dailymail.com**
+6. [Cole Floyd Earns First Bass Pro Tour Win at Yuengling Light Lager Stage 5 at Beaver Lake Presented by YETI](https://www.globenewswire.com/news-release/2026/05/04/3286387/0/en/Cole-Floyd-Earns-First-Bass-Pro-Tour-Win-at-Yuengling-Light-Lager-Stage-5-at-Beaver-Lake-Presented-by-YETI.html) - **GlobeNewswire**
+7. [3SC’s Adegoke shines as Chelle scouts NPFL players](https://punchng.com/3scs-adegoke-shines-as-chelle-scouts-npfl-players/) - **The Punch**
+8. [Should Sesko goal have been ruled out?](https://www.bbc.com/sport/football/videos/c0e2wr4pxv3o) - **BBC News**
+9. [Cummins endures horror IPL over as Sunrisers fall to Knight Riders](https://www.abc.net.au/news/2026-05-04/ipl-pat-cummins-travis-head-sunrisers-hyderabad/106637632) - **ABC News (AU)**
+10. [How 'outstanding' Tottenham beat Villa](https://www.bbc.com/sport/football/videos/c5y07dn84xqo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-05 09:11:11 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-05 12:52:40 (KST) / (하루 100회 제한 준수 중)*
