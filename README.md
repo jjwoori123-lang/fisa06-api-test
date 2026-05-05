@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man City’s Late Draw At Everton Hands Premier League Momentum To Arsenal](https://www.foxsports.com/stories/soccer/man-citys-last-minute-draw-everton-hands-premier-league-momentum-arsenal) - **Fox Sports**
-2. [Man City's title hopes dented despite late Doku stunner in six-goal thriller](https://www.bbc.com/sport/football/videos/c2k2dd79wyxo) - **BBC News**
-3. [Carra: If Arsenal beat West Ham, they win the Premier League](https://www.skysports.com/football/news/11679/13540221/everton-3-3-man-city-if-arsenal-beat-west-ham-on-sunday-they-win-the-premier-league-title-says-jamie-carragher) - **Sky Sports**
-4. [Everton 3-3 Man City: What Moyes said](https://www.bbc.com/sport/football/articles/cwy2wp1k7qzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Europe’s Soccer Giants Keep Winning—and Are Cashing In](https://frontofficesports.com/europes-soccer-giants-keep-winning-and-are-cashing-in/) - **Frontofficesports.com**
-6. [We'll keep fighting until the end, promises Doku](https://www.mancity.com/news/mens/doku-post-everton-reaction-pl-4-may-63913499) - **Manchester City FC**
-7. [Title-race twist! Doku saves Man City with dramatic stoppage-time equaliser](https://www.skysports.com/premier-league-highlights/video/36504/13540239/everton-3-3-man-city-premier-league-highlights) - **Sky Sports**
-8. [Arsenal ile şampiyonluk mücadelesi veren Manchester City, Everton deplasmanından 1 puanla döndü](https://anlatilaninotesi.com.tr/20260505/arsenal-ile-sampiyonluk-mucadelesi-veren-manchester-city-everton-deplasmanindan-1-puanla-dondu-1105490860.html) - **Anlatilaninotesi.com.tr**
-9. [Arsenal take control of title race after Man City’s 3-3 draw with Everton](https://punchng.com/arsenal-take-control-of-title-race-after-man-citys-3-3-draw-with-everton/) - **The Punch**
-10. [Man City’s defensive horror show at Everton leaves title hopes hanging by a thread](https://footballtoday.com/2026/05/04/man-citys-defensive-horror-show-at-everton-leaves-title-hopes-hanging-by-a-thread/) - **Footballtoday.com**
+1. [Manchester United To Rest Brazilian Star Matheus Cunha Ahead of World Cup](https://www.foxsports.com/stories/soccer/manchester-united-rest-brazilian-star-matheus-cunha-ahead-world-cup) - **Fox Sports**
+2. [A remarkable finale - but will 13 chaotic minutes cost Man City title?](https://www.bbc.com/sport/football/articles/cedpn81ep1do) - **BBC News**
+3. [Jamie Carragher makes bold title race prediction after Man City's damaging 3-3 draw with Everton](https://www.dailymail.com/sport/football/article-15789951/Jamie-Carragher-makes-bold-title-race-prediction-Man-Citys-damaging-3-3-draw-Everton.html) - **Dailymail.com**
+4. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/cwy21xwnz10o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/cwy21xwnz10o) - **BBC News**
+6. [Defiant Guardiola insists City's title challenge not over](https://www.rte.ie/sport/soccer/2026/0504/1571715-defiant-guardiola-insists-citys-title-challenge-not-over/) - **RTE**
+7. [Arsenal control their Premier League title fate](https://theshortfuse.sbnation.com/premier-league/36855/arsenal-manchester-city-premier-league-title-race) - **SB Nation**
+8. [NNL Super 4: Fantami header secures win for Doma United over Inter Lagos](https://punchng.com/?p=2134402) - **The Punch**
+9. [Lewis Hall: Wilcox pushing to sign Newcastle ace as odds align in United’s favour](https://thepeoplesperson.com/2026/05/04/lewis-hall-wilcox-pushing-to-sign-newcastle-ace-as-odds-align-in-uniteds-favour-309635/) - **The Peoples Person**
+10. [Title race slips from City's grasp as Guardiola concedes control](https://www.channelnewsasia.com/sport/title-race-slips-citys-grasp-guardiola-concedes-control-6099666) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-05-06 07:02:38 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-06 08:14:27 (KST) / (하루 100회 제한 준수 중)*
