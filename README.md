@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Joshua Zirkzee: Napoli shift stance on move for modern-day Berbatov](https://thepeoplesperson.com/2026/05/05/joshua-zirkzee-napoli-shift-stance-on-move-for-modern-day-berbatov-309673/) - **The Peoples Person**
-2. [The Great Dane Returns: Peter Schmeichel Joins FOX Sports For 2026 FIFA World Cup](https://www.foxsports.com/stories/soccer/great-dane-returns-peter-schmeichel-joins-fox-sports-2026-fifa-world-cup) - **Fox Sports**
-3. [Arsenal vs Atletico Madrid LIVE: Champions League updates, watch live, score, analysis, highlights](https://www.nbcsports.com/arsenal-vs-atletico-madrid-champions-league-live-updates-score-highlights-stats-watch) - **NBCSports.com**
-4. ['We did not give up and we are not going to give up' - Doku](https://www.bbc.com/sport/football/articles/c8e8d9repddo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Newcastle United Under-21s inspire young patients during special United for Health visit](https://www.newcastleunited.com/en/news/newcastle-united-under-21s-inspire-young-patients-during-special-united-for-health-visit) - **Newcastleunited.com**
-6. [Everton supporter arrested for racially abusing Antoine Semenyo and Marc Guehi in Manchester City draw](https://cityxtra.co.uk/45939/everton-supporter-arrested-for-racially-abusing-antoine-semenyo-and-marc-guehi-in-manchester-city-draw/) - **Cityxtra.co.uk**
-7. [Former Chelsea star delivers verdict on Cesc Fabregas as next Blues boss](https://www.alloutsoccer.com/news/chelsea-manager-verdict-cesc-fabregas-1823135) - **Alloutsoccer.com**
-8. [Most goals scored by teenagers in debut Premier League season](https://thefootballfaithful.com/most-goals-scored-by-teenagers-debut-premier-league-season/) - **The Football Faithful**
-9. [Report: Newcastle United eyeing summer move for Liverpool midfielder](https://eplindex.com/146085/report-newcastle-united-eyeing-summer-move-for-liverpool-midfielder.html) - **English Premier League Index - Opta Stats**
-10. [Police make arrest as Manchester City players face racist abuse at Everton](https://www.usatoday.com/story/sports/soccer/2026/05/05/manchester-city-racist-abuse-everton-arrest/89945972007/) - **USA Today**
+1. [Chelsea's Jesse Derry speaks out after frightening head injury during Premier League debut](https://www.alloutsoccer.com/news/chelsea-jesse-derry-head-injury-1823330) - **Alloutsoccer.com**
+2. [Manchester City Are Keeping A Keen Eye On This Bournemouth Striker: One For The Future?](https://the4thofficial.net/2026/05/manchester-city-are-keeping-a-keen-eye-on-this-bournemouth-striker-one-for-the-future/) - **The4thofficial.net**
+3. [All in red, all for the final: Preview of PSG showdown](https://fcbayern.com/en/news/matchpreviews/2026/05/preview-champions-league-fc-bayern-vs.-paris-saint-germain) - **Fcbayern.com**
+4. [Liverpool make initial approach for impressive Ligue 1 star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-make-initial-approach-for-impressive-ligue-1-star/) - **Anfieldwatch.co.uk**
+5. [Rumour Mongering: Inter Milan Plot €15M Curtis Jones Transfer](https://liverpooloffside.sbnation.com/liverpool-fc-transfer-news/80210/rumour-mongering-inter-milan-plot-e15m-curtis-jones-transfer) - **SB Nation**
+6. [Documenting recent vehicle-ramming incidents worldwide](https://www.pbs.org/newshour/world/documenting-recent-vehicle-ramming-incidents-worldwide) - **PBS**
+7. [Why Man City weren't ready to win the Premier League this season](https://www.bbc.com/sport/football/articles/cj4p8yvyk7ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Five Things Learned: Everton 3-3 Manchester City (Premier League)](https://cityxtra.co.uk/45938/five-things-learned-everton-3-3-manchester-city-premier-league/) - **Cityxtra.co.uk**
+9. [Baylor University Wins the Inaugural Shopify Rebellion and Follett Higher Education Rocket League Invitational](https://www.prnewswire.com/news-releases/baylor-university-wins-the-inaugural-shopify-rebellion-and-follett-higher-education-rocket-league-invitational-302763019.html) - **PRNewswire**
+10. [LIVE – Arsenal v Atletico Madrid: Commentary, updates, goals and stats as Gunners seek place in Champions League final](https://www.101greatgoals.com/live/arsenal-v-atletico-madrid-commentary-live-updates-goals-stream-stats-gunners-champions-league-semi-final/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-05-07 02:13:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-07 04:03:48 (KST) / (하루 100회 제한 준수 중)*
