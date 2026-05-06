@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea's Jesse Derry speaks out after frightening head injury during Premier League debut](https://www.alloutsoccer.com/news/chelsea-jesse-derry-head-injury-1823330) - **Alloutsoccer.com**
-2. [Manchester City Are Keeping A Keen Eye On This Bournemouth Striker: One For The Future?](https://the4thofficial.net/2026/05/manchester-city-are-keeping-a-keen-eye-on-this-bournemouth-striker-one-for-the-future/) - **The4thofficial.net**
-3. [All in red, all for the final: Preview of PSG showdown](https://fcbayern.com/en/news/matchpreviews/2026/05/preview-champions-league-fc-bayern-vs.-paris-saint-germain) - **Fcbayern.com**
-4. [Liverpool make initial approach for impressive Ligue 1 star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-make-initial-approach-for-impressive-ligue-1-star/) - **Anfieldwatch.co.uk**
-5. [Rumour Mongering: Inter Milan Plot €15M Curtis Jones Transfer](https://liverpooloffside.sbnation.com/liverpool-fc-transfer-news/80210/rumour-mongering-inter-milan-plot-e15m-curtis-jones-transfer) - **SB Nation**
-6. [Documenting recent vehicle-ramming incidents worldwide](https://www.pbs.org/newshour/world/documenting-recent-vehicle-ramming-incidents-worldwide) - **PBS**
-7. [Why Man City weren't ready to win the Premier League this season](https://www.bbc.com/sport/football/articles/cj4p8yvyk7ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Five Things Learned: Everton 3-3 Manchester City (Premier League)](https://cityxtra.co.uk/45938/five-things-learned-everton-3-3-manchester-city-premier-league/) - **Cityxtra.co.uk**
-9. [Baylor University Wins the Inaugural Shopify Rebellion and Follett Higher Education Rocket League Invitational](https://www.prnewswire.com/news-releases/baylor-university-wins-the-inaugural-shopify-rebellion-and-follett-higher-education-rocket-league-invitational-302763019.html) - **PRNewswire**
-10. [LIVE – Arsenal v Atletico Madrid: Commentary, updates, goals and stats as Gunners seek place in Champions League final](https://www.101greatgoals.com/live/arsenal-v-atletico-madrid-commentary-live-updates-goals-stream-stats-gunners-champions-league-semi-final/) - **101 Great Goals**
+1. [Liverpool have power to stop disaster transfer now](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-have-power-to-stop-disaster-transfer-now/) - **Anfieldwatch.co.uk**
+2. [Leeds United Eye 20-Year-Old German Defensive Midfielder: Do They Need Him?](https://the4thofficial.net/2026/05/leeds-united-eye-20-year-old-german-defensive-midfielder-do-they-need-him/) - **The4thofficial.net**
+3. [Celtic Keeping Close Eyes On This Young Custodian: Why They Should Step Up Interest](https://the4thofficial.net/2026/05/celtic-keeping-close-eyes-on-this-young-custodian-why-they-should-step-up-interest/) - **The4thofficial.net**
+4. [Alex Schwolow Dreams Of The SPL Title With Hearts](https://worldfootballindex.com/2026/05/alex-schwolow-dreams-of-the-spl-title-with-hearts/) - **World Football Index**
+5. [Chelsea Are Ready To Step Up Their Efforts To Land This Talented Defender: Good Option For The Blues?](https://the4thofficial.net/2026/05/chelsea-are-ready-to-step-up-their-efforts-to-land-this-talented-defender/) - **The4thofficial.net**
+6. [Liverpool can have Premier League breakout star for £60m](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-bournemouth-eli-junior-kroupi-premier-league-breakout-star-for-ps60m/) - **Anfieldwatch.co.uk**
+7. [Napoli to make Hojlund's move permanent - Wednesday's gossip](https://www.bbc.com/sport/football/articles/cn0p19vzvz1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Kei Kamara releases touching video as two-time MLS All-Star announces retirement](https://www.alloutsoccer.com/news/mls-kei-kamara-retirement-video-1823441) - **Alloutsoccer.com**
+9. [CarGurus Joins NASCAR Canada Series as Presenting Partner and Official Automotive Marketplace](https://www.globenewswire.com/news-release/2026/05/05/3288241/0/en/CarGurus-Joins-NASCAR-Canada-Series-as-Presenting-Partner-and-Official-Automotive-Marketplace.html) - **GlobeNewswire**
+10. [Napoli to make Hojlund's move permanent - Wednesday's gossip](https://www.bbc.com/sport/football/articles/cn0p19vzvz1o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-07 04:03:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-07 05:48:58 (KST) / (하루 100회 제한 준수 중)*
