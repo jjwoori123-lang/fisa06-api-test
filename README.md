@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [2026 World Cup: Ancelotti reportedly receives green light on Matheus Cunha rest plan after Brazil and Man United agreement](https://worldsoccertalk.com/world-cup/2026-world-cup-ancelotti-reportedly-receives-green-light-on-matheus-cunha-rest-plan-after-brazil-and-man-united-agreement/) - **Worldsoccertalk.com**
-2. [What caused Man City vs Everton chaos? #sports](https://alltoc.com/sports/what-caused-man-city-vs-everton-chaos) - **Alltoc.com**
-3. [A remarkable finale - but will 13 chaotic minutes cost Man City title?](https://www.bbc.com/sport/football/articles/cedpn81ep1do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Manchester United To Rest Brazilian Star Matheus Cunha Ahead of World Cup](https://www.foxsports.com/stories/soccer/manchester-united-rest-brazilian-star-matheus-cunha-ahead-world-cup) - **Fox Sports**
-5. [A remarkable finale - but will 13 chaotic minutes cost Man City title?](https://www.bbc.com/sport/football/articles/cedpn81ep1do) - **BBC News**
-6. [Jamie Carragher makes bold title race prediction after Man City's damaging 3-3 draw with Everton](https://www.dailymail.com/sport/football/article-15789951/Jamie-Carragher-makes-bold-title-race-prediction-Man-Citys-damaging-3-3-draw-Everton.html) - **Dailymail.com**
-7. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/cwy21xwnz10o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/cwy21xwnz10o) - **BBC News**
-9. [Defiant Guardiola insists City's title challenge not over](https://www.rte.ie/sport/soccer/2026/0504/1571715-defiant-guardiola-insists-citys-title-challenge-not-over/) - **RTE**
-10. [Arsenal control their Premier League title fate](https://theshortfuse.sbnation.com/premier-league/36855/arsenal-manchester-city-premier-league-title-race) - **SB Nation**
+1. [Spirit put the NWSL on notice. Plus: Americans still starring abroad](https://sports.yahoo.com/articles/spirit-put-nwsl-notice-plus-040107107.html) - **Yahoo Entertainment**
+2. [Pep Guardiola frustrated as hopes of taking Arsenal to wire left in critical condition - The Guardian](https://slashdot.org/firehose.pl?op=view&amp;id=183129568) - **Slashdot.org**
+3. [Manchester City’s wild draw at Everton hands Arsenal title edge despite late Doku strike - The Guardian](https://slashdot.org/firehose.pl?op=view&amp;id=183129362) - **Slashdot.org**
+4. [Jake Hildebrand Pledges to the 2027 Navy All-American Bowl](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/jake-hildebrand-pledges-to-the-2027-navy-all-american-bowl) - **NBCSports.com**
+5. [Four-Star Mekai Brown Accepts Navy All-American Bowl Invitation](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/four-star-mekai-brown-accepts-navy-all-american-bowl-invitation) - **NBCSports.com**
+6. [Phoenix Evans Commits to 2027 Navy All-American Bowl](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/phoenix-evans-commits-to-2027-navy-all-american-bowl) - **NBCSports.com**
+7. [Premier League losses soar for clubs locked in 'arms race'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e4813ad7-8f69-43a0-88a9-15b7c21db904) - **Yahoo Entertainment**
+8. [Advantage Arsenal as Man City held in six-goal Everton thriller](https://japantoday.com/category/sports/advantage-arsenal-as-man-city-held-in-six-goal-everton-thriller) - **Japan Today**
+9. [Why coaches love Iwobi – Sodje](https://punchng.com/why-coaches-love-iwobi-sodje/) - **The Punch**
+10. [Ilechukwu demands Rangers focus in NPFL title race](https://punchng.com/ilechukwu-demands-rangers-focus-in-npfl-title-race/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-05-06 09:08:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-06 13:09:03 (KST) / (하루 100회 제한 준수 중)*
