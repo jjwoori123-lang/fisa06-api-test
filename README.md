@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal Beats Atletico Madrid To Reach First Champions League Final In 20 Years](https://www.foxsports.com/stories/soccer/arsenal-beats-atletico-madrid-to-reach-its-first-champions-league-final-in-20-years) - **Fox Sports**
-2. [Five talking points after we reached the UCL final](http://www.arsenal.com/news/five-talking-points-after-we-reached-ucl-final) - **Arsenal.com**
-3. [Arsenal close in on historic double by reaching Champions League final](https://www.abc.net.au/news/2026-05-06/arsenal-through-to-champions-league-final-atletico-madrid/106646246) - **ABC News (AU)**
-4. [Arsenal 1-0 (2-1 agg.) Atletico Madrid: Gunners reach first Champions League final in 20 years](https://www.nbcsports.com/soccer/news/arsenal-1-0-atletico-madrid-champions-league-video-highlights-analysis-recap) - **NBCSports.com**
-5. [Casemiro: Why there is “no chance” of extending United stay despite fan plea](https://thepeoplesperson.com/2026/05/05/casemiro-why-there-is-no-chance-of-extending-united-stay-despite-fan-plea-309686/) - **The Peoples Person**
-6. [Fiery Diego Simeone PUSHES Arsenal's sporting director Andrea Berta in touchline spat as UEFA official is forced to step in](https://www.dailymail.com/sport/football/article-15793267/Diego-Simeone-Arsenal-Andrea-Berta.html) - **Dailymail.com**
-7. [Papers: Napoli to sign Hojlund from Man Utd](https://www.skysports.com/football/transfer-paper-talk/12709/13540543/rasmus-hojlund-napoli-say-they-will-sign-man-utd-striker-this-summer-by-triggering-lb38m-release-clause-paper-talk) - **Sky Sports**
-8. [From Holland: Nathan Ake set to leave Manchester City – Italian clubs interested](https://cityxtra.co.uk/45927/from-holland-nathan-ake-set-to-leave-manchester-city-italian-clubs-interested/) - **Cityxtra.co.uk**
-9. [Soccer fan aged 71 arrested at Everton for alleged racist abuse of Manchester City's Semenyo](https://japantoday.com/category/sports/soccer-fan-aged-71-arrested-at-everton-for-alleged-racist-abuse-of-manchester-city%27s-semenyo) - **Japan Today**
-10. [Tottenham Move Ruled Out For Rangers Star: Does His Departure Leave The Scottish Club Exposed?](https://the4thofficial.net/2026/05/tottenham-move-ruled-out-for-rangers-star-does-his-departure-leave-the-scottish-club-exposed/) - **The4thofficial.net**
+1. [‘You can’t just sell him off cheaply’ – Inter warned about Alessandro Bastoni sale amid Barcelona interest](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/119455/you-cant-just-sell-him-off-cheaply-inter-warned-about-alessandro-bastoni-sale-amid-barcelona-interest) - **Barca Blaugranes**
+2. [Saka takes Arsenal past Atletico into Champions League final](https://www.rediff.com/sports/report/saka-scores-arsenal-atletico-madrid-champions-league-semi-final-second-leg/20260506.htm) - **Rediff.com**
+3. [A different Atletico Madrid, same result: What now for Diego Simeone after more Champions League heartbreak?](https://www.cbssports.com/soccer/news/what-now-for-diego-simeone-after-champions-league-heartbreak-atletic-madrid-2026/) - **CBS Sports**
+4. [Tottenham's Conor Gallagher Says New Boss Roberto De Zerbi 'Has Been Brilliant'](https://www.foxsports.com/stories/soccer/conor-gallagher-reveals-how-brilliant-roberto-de-zerbi-has-lifted-tottenham-squad-amid-gruelling-relegation-battle) - **Fox Sports**
+5. [Arteta: We knew how much this meant to everybody](https://www.rte.ie/sport/soccer/2026/0505/1571890-arteta-we-knew-how-much-this-meant-to-everybody/) - **RTE**
+6. [24 hours that pushed Arsenal to the brink of a Premier League and Champions League double](https://sports.yahoo.com/articles/24-hours-pushed-arsenal-brink-224927158.html) - **Yahoo Entertainment**
+7. [Champions League legend jokes UEFA should have 'CANCELLED' Arsenal vs Atletico Madrid during first half and announced PSG's second leg clash against Bayern Munich as this year's final](https://www.dailymail.com/sport/football/article-15793143/Champions-League-legend-jokes-UEFA-CANCELLED-Arsenal-Atletico-Madrid-PSG-Bayern-Munich-final.html) - **Dailymail.com**
+8. [Champions League legend jokes UEFA should have 'CANCELLED' Arsenal vs Atletico Madrid during first half and announced PSG's second leg clash against Bayern Munich as this year's final](https://www.dailymail.com/sport/football/article-15793143/Champions-League-legend-jokes-UEFA-CANCELLED-Arsenal-Atletico-Madrid-PSG-Bayern-Munich-final.html) - **Dailymail.com**
+9. [Canadiens vs. Sabres: What to know for NHL's best 2nd-round matchup](https://www.cbc.ca/sports/the-buzzer-newsletter-nhl-canadiens-sabres-primer-9.7188869) - **CBC News**
+10. [Wayne Rooney accuses Arsenal of over-celebrating after Gunners reached Champions League final - as Ian Wright tells jubilant fans: 'Don't get nicked by the celebration police!'](https://www.dailymail.com/sport/football/article-15793345/Wayne-Rooney-accuses-Arsenal-celebrating-Gunners-reached-Champions-League-final-Ian-Wright-tells-jubilant-fans-Dont-nicked-celebration-police.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-05-07 06:59:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-07 08:00:50 (KST) / (하루 100회 제한 준수 중)*
