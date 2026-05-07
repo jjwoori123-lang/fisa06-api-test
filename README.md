@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Door opens for sensational Jarrod Bowen Liverpool deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/door-opens-for-sensational-jarrod-bowen-liverpool-deal/) - **Anfieldwatch.co.uk**
-2. [Casemiro: Man United ace makes bold claim about Ruben Amorim](https://thepeoplesperson.com/2026/05/06/casemiro-man-united-ace-makes-bold-claim-about-ruben-amorim-309722/) - **The Peoples Person**
-3. [William Saliba believes Arsenal can win historic double](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_23f930c8-7e2d-43fe-ac4a-76521c0c2f25) - **Yahoo Entertainment**
-4. [Ben Mee announces retirement from football](https://www.playmakerstats.com/news/ben-mee-announces-retirement-from-football/1118011) - **Playmakerstats.com**
-5. [Black Caps v England: Player of the Year Jacob Duffy missing, one new face for test tour to England and Ireland](https://www.nzherald.co.nz/sport/cricket/black-caps/black-caps-v-england-player-of-the-year-jacob-duffy-missing-one-new-face-for-test-tour-to-england-and-ireland/6VPPFDNZDBBR3FTT7VC6DELCKU/) - **New Zealand Herald**
-6. [Guernsey FC stripped of home advantage in play-offs](https://www.bbc.com/sport/football/articles/cwy2ngndje1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Spurs ready to make moves for Premier League defender](https://eplindex.com/146122/spurs-ready-to-make-moves-for-premier-league-defender.html) - **English Premier League Index - Opta Stats**
-8. [Villa's future is bright even if Europa dream ends: Emery](https://sports.yahoo.com/articles/villas-future-bright-even-europa-164825130.html) - **Yahoo Entertainment**
-9. [Departing Glasner wants no sadness as Palace eye European glory](https://sports.yahoo.com/articles/departing-glasner-wants-no-sadness-164615202.html) - **Yahoo Entertainment**
-10. [How did Sheffield Wednesday avoid 15-point deduction?](https://www.bbc.com/sport/football/articles/cz72vjp382go) - **BBC News**
+1. [Manchester United move ahead of Atletico Madrid in race for midfielder](https://www.football-espana.net/2026/05/06/manchester-united-move-ahead-of-atletico-madrid-in-race-for-midfielder) - **Football Espana**
+2. [Everton is still tracking Arsenal’s youngster ahead of a summer move](https://www.justarsenal.com/everton-is-still-tracking-arsenals-youngster-ahead-of-a-summer-move/414791) - **Just Arsenal News**
+3. [Saka sends Arsenal past Atletico into Champions League final](https://economictimes.indiatimes.com/news/sports/saka-sends-arsenal-past-atletico-into-champions-league-final/articleshow/130868116.cms) - **The Times of India**
+4. [Marsch praise for Kone, but blasts ‘real a**hole’ De Zerbi over CANMNT talent](https://football-italia.net/marsch-praise-kone-blasts-real-ahole-de-zerbi/) - **Football Italia**
+5. [Diallo says Manchester United squad happy if Carrick stays](https://sports.yahoo.com/articles/diallo-says-manchester-united-squad-184945924.html) - **Yahoo Entertainment**
+6. [Arsenal Are Eyeing A Move For This On-Loan Ligue 1 Striker: What Will He Add To Arteta’s Side?](https://the4thofficial.net/2026/05/arsenal-are-eyeing-a-move-for-this-on-loan-ligue-1-striker/) - **The4thofficial.net**
+7. [Match Officials: Michael Salisbury to referee Manchester City vs Brentford](https://cityxtra.co.uk/45996/match-officials-michael-salisbury-to-referee-manchester-city-vs-brentford/) - **Cityxtra.co.uk**
+8. [2026 World Cup viewer's guide: Everything to know, from start times to USMNT players to watch and more](https://sports.yahoo.com/soccer/article/2026-world-cup-viewers-guide-everything-to-know-from-start-times-to-usmnt-players-to-watch-and-more-183000437.html) - **Yahoo Entertainment**
+9. [Manchester United Are Keeping Tabs On This Nottingham Forest Midfielder: Good Choice For Carrick?](https://the4thofficial.net/2026/05/manchester-united-are-keeping-tabs-on-this-nottingham-forest-midfielder-good-choice-for-carrick/) - **The4thofficial.net**
+10. [Thierry Henry sends bold Premier League warning as Arsenal stars react to Manchester City collapse against Everton](https://timesofindia.indiatimes.com/sports/international-sports/thierry-henry-sends-bold-premier-league-warning-as-arsenal-stars-react-to-manchester-city-collapse-against-everton/articleshow/130866969.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-05-08 02:11:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-08 04:03:20 (KST) / (하루 100회 제한 준수 중)*
