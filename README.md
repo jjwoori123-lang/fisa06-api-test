@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Success or failure? How to rate Hughes and Carlisle?](https://www.bbc.com/sport/football/articles/cdxperzpvnro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Chelsea 1-3 Nottingham Forest, Player Ratings: Recount](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_73ae6d9f-61ba-4c41-8784-102ac0dd1eb0) - **Yahoo Entertainment**
-3. [Schmeichel encourages INEOS to sign ‘controversial’ Casemiro successor this summer, he’d be a ‘proper leader’](https://strettynews.com/2026/05/06/peter-schmeichel-urges-manchester-united-granit-xhaka-casemiro/) - **Strettynews.com**
-4. [Liverpool midfielder closes in on Inter Milan move](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-curtis-jones-midfielder-closes-in-on-inter-milan-move/) - **Anfieldwatch.co.uk**
-5. [All roads seem to lead to Manchester City for an England international](https://esteemedkompany.com/2026/05/06/all-roads-seem-to-lead-to-manchester-city-for-an-england-international/) - **Esteemedkompany.com**
-6. [Liverpool sent firm message over ‘world-class’ £100m attacker who equalled Robbie Fowler feat](https://www.empireofthekop.com/2026/05/06/liverpool-sent-firm-message-over-world-class-100m-attacker-who-equalled-fowler-feat/) - **Empire of The Kop**
-7. [IPL 2026 Playoffs: BCCI unveils schedule and venues; final goes to Narendra Modi Stadium](https://economictimes.indiatimes.com/news/sports/ipl-2026-playoffs-bcci-unveils-schedule-and-venues-final-goes-to-narendra-modi-stadium/articleshow/130846881.cms) - **The Times of India**
-8. [All we have to do now is keep being positive.](https://untold-arsenal.com/archives/120681) - **Untold-arsenal.com**
-9. [Sedi Kinteh: Why Man United are chasing Tromso sensation](https://thepeoplesperson.com/2026/05/06/sedi-kinteh-why-man-united-are-chasing-tromso-sensation-309693/) - **The Peoples Person**
+1. [Casemiro ends speculation: no chance of Man United U-turn as he vows to leave “on top”](https://www.footballmuse.com/news/casemiro-ends-speculation-no-chance-of-man-united-u-turn-as-he-vows-to-leave-on-top) - **Footballmuse.com**
+2. [Arsenal feel gnawing fear of failure start to fall away as they make Champions League final](https://www.irishtimes.com/sport/soccer/2026/05/06/arsenal-feel-gnawing-fear-of-failure-start-to-fall-away-as-they-make-champions-league-final/) - **The Irish Times**
+3. [Alessandro Bastoni growing tired of Barcelona delays due to Hansi Flick](https://www.football-espana.net/2026/05/06/alessandro-bastoni-growing-tired-of-barcelona-delays-due-to-hansi-flick) - **Football Espana**
+4. [Report: Marcos Senesi declines Juventus’ final offer in favor of Premier League stay](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_977fe35c-aafd-4d1b-a85f-44e3e162e4c6) - **Yahoo Entertainment**
+5. ['Everybody can feel a shift in energy, belief, everything' - Arteta](https://www.bbc.com/sport/football/articles/cpwpxw5ezj7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Xavi ‘tempted’ by Premier League amid Chelsea links](https://thefootballfaithful.com/xavi-tempted-by-premier-league-amid-chelsea-links/) - **The Football Faithful**
+7. [Liverpool transfer news: Reds eye €25m Inter defender](https://thefootballfaithful.com/liverpool-transfer-news-reds-eye-inter-defender-denzel-dumfries/) - **The Football Faithful**
+8. ['You know who we want' - Saka drops big hint over who Arsenal want to face in CL final](https://www.skysports.com/football/news/11945/13540629/bukayo-saka-drops-big-hint-over-whether-arsenal-want-to-face-psg-or-bayern-munich-in-the-champions-league-final-you-know-who-we-want) - **Sky Sports**
+9. ['Bigger issues at the club than another change of manager' - Fans on Nuno future](https://www.bbc.com/sport/football/articles/czx2k47w6kzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Has the 'moment of reckoning' arrived for BlueCo?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9ac844b1-f1db-4640-9333-cda67157515a) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-05-07 16:21:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-07 19:06:03 (KST) / (하루 100회 제한 준수 중)*
