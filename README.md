@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United move ahead of Atletico Madrid in race for midfielder](https://www.football-espana.net/2026/05/06/manchester-united-move-ahead-of-atletico-madrid-in-race-for-midfielder) - **Football Espana**
-2. [Everton is still tracking Arsenal’s youngster ahead of a summer move](https://www.justarsenal.com/everton-is-still-tracking-arsenals-youngster-ahead-of-a-summer-move/414791) - **Just Arsenal News**
-3. [Saka sends Arsenal past Atletico into Champions League final](https://economictimes.indiatimes.com/news/sports/saka-sends-arsenal-past-atletico-into-champions-league-final/articleshow/130868116.cms) - **The Times of India**
-4. [Marsch praise for Kone, but blasts ‘real a**hole’ De Zerbi over CANMNT talent](https://football-italia.net/marsch-praise-kone-blasts-real-ahole-de-zerbi/) - **Football Italia**
-5. [Diallo says Manchester United squad happy if Carrick stays](https://sports.yahoo.com/articles/diallo-says-manchester-united-squad-184945924.html) - **Yahoo Entertainment**
-6. [Arsenal Are Eyeing A Move For This On-Loan Ligue 1 Striker: What Will He Add To Arteta’s Side?](https://the4thofficial.net/2026/05/arsenal-are-eyeing-a-move-for-this-on-loan-ligue-1-striker/) - **The4thofficial.net**
-7. [Match Officials: Michael Salisbury to referee Manchester City vs Brentford](https://cityxtra.co.uk/45996/match-officials-michael-salisbury-to-referee-manchester-city-vs-brentford/) - **Cityxtra.co.uk**
-8. [2026 World Cup viewer's guide: Everything to know, from start times to USMNT players to watch and more](https://sports.yahoo.com/soccer/article/2026-world-cup-viewers-guide-everything-to-know-from-start-times-to-usmnt-players-to-watch-and-more-183000437.html) - **Yahoo Entertainment**
-9. [Manchester United Are Keeping Tabs On This Nottingham Forest Midfielder: Good Choice For Carrick?](https://the4thofficial.net/2026/05/manchester-united-are-keeping-tabs-on-this-nottingham-forest-midfielder-good-choice-for-carrick/) - **The4thofficial.net**
-10. [Thierry Henry sends bold Premier League warning as Arsenal stars react to Manchester City collapse against Everton](https://timesofindia.indiatimes.com/sports/international-sports/thierry-henry-sends-bold-premier-league-warning-as-arsenal-stars-react-to-manchester-city-collapse-against-everton/articleshow/130866969.cms) - **The Times of India**
+1. [Barcelona offered chance to sign Chelsea star](https://getfootballnewsspain.com/barcelona-offered-chance-to-sign-chelsea-star/) - **Getfootballnewsspain.com**
+2. [Mookie Betts to sponsor Tennessee’s TBCA Mr. Baseball Award](https://www.on3.com/high-school/news/mookie-betts-to-sponsor-tennessees-tbca-mr-baseball-award/) - **On3.com**
+3. [Leeds United Keeping Tabs On 22-Year-Old For Free Transfer: What Does He Offer The Whites?](https://the4thofficial.net/2026/05/leeds-united-keeping-tabs-on-22-year-old-for-free-transfer-what-does-he-offer-the-whites/) - **The4thofficial.net**
+4. [2026 Premier League Darts Night 14 draw, match predictions and 3 storylines to watch in Leeds](https://www.sportingnews.com/us/darts/news/2026-premier-league-darts-night-14-draw-predictions-leeds/84904e2eed7325370b2bec40) - **Sporting News**
+5. [Danilo: Arsenal pressure forces Man United to reveal midfield transfer plans](https://thepeoplesperson.com/2026/05/06/danilo-arsenal-pressure-forces-man-united-to-reveal-midfield-transfer-plans-309731/) - **The Peoples Person**
+6. [Jeremy Doku issues battle cry ahead of Man City’s Premier League season finale](https://cityxtra.co.uk/46001/jeremy-doku-issues-battle-cry-ahead-of-man-citys-premier-league-season-finale/) - **Cityxtra.co.uk**
+7. [Former Premier League manager calls Roberto De Zerbi an 'A**HOLE' after Spurs boss' training ground altercation with a player at Marseille](https://www.dailymail.com/sport/football/article-15796189/Premier-League-Roberto-Zerbi-Spurs.html) - **Dailymail.com**
+8. [Alan Shearer tips Arsenal to win their remaining Premier League games](https://www.justarsenal.com/alan-shearer-tips-arsenal-to-win-their-remaining-premier-league-games/414792) - **Just Arsenal News**
+9. [Why Tijjani Reijnders could be the right profile for Juventus](https://www.juvefc.com/why-tijjani-reijnders-could-be-the-right-profile-for-juventus/) - **JuveFC**
+10. [Liverpool considering summer moves for Lamine Camara and Mamadou Sangaré](https://www.getfootballnewsfrance.com/2026/liverpool-considering-summer-moves-for-lamine-camara-and-mamadou-sangare/) - **Get French Football News**
 
 
 ---
-*최근 업데이트: 2026-05-08 04:03:20 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-08 05:41:19 (KST) / (하루 100회 제한 준수 중)*
