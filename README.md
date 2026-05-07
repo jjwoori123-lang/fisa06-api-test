@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal on cusp of history after reaching Champions League final](https://sports.yahoo.com/articles/arsenal-cusp-history-reaching-champions-234150525.html) - **Yahoo Entertainment**
-2. [The league is the dream - but is this Arsenal's moment in Europe?](https://www.bbc.com/sport/football/articles/cj0p2p60vl2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Arsenal’s semifinal win offers preview of a brutal Champions League Final](https://www.bavarianfootballworks.com/bayern-munich-champions-league/198761/arsenal-champions-league-final-preview-bayern-munich-psg-semifinal) - **Bavarian Football Works**
-4. [The league is the dream - but is this Arsenal's moment in Europe?](https://www.bbc.com/sport/football/articles/cj0p2p60vl2o) - **BBC News**
-5. [When is the Champions League final? Arsenal to face Bayern or PSG](https://thefootballfaithful.com/when-is-the-champions-league-final-2026-arsenal-bayern-psg/) - **The Football Faithful**
-6. [Arteta hails 'incredible night' as Arsenal reach Champions League final](https://www.channelnewsasia.com/sport/arsenal-reaches-champions-league-final-football-6102406) - **CNA**
-7. [Potholes and boarded-up high streets damaging voters' pride in their local areas, new poll that damns Labour finds](https://www.dailymail.com/news/article-15792689/Potholes-boarded-high-streets-damaging-voters-pride-Labour.html) - **Dailymail.com**
-8. [Casemiro has made his choice regarding summer destination](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_94725c28-3998-459d-9b11-e546dd2886d2) - **Yahoo Entertainment**
-9. [‘You can’t just sell him off cheaply’ – Inter warned about Alessandro Bastoni sale amid Barcelona interest](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/119455/you-cant-just-sell-him-off-cheaply-inter-warned-about-alessandro-bastoni-sale-amid-barcelona-interest) - **Barca Blaugranes**
-10. [Saka takes Arsenal past Atletico into Champions League final](https://www.rediff.com/sports/report/saka-scores-arsenal-atletico-madrid-champions-league-semi-final-second-leg/20260506.htm) - **Rediff.com**
+1. [Bayern Munich News: FC Bayern, Newcastle United make contact on Anthony Gordon; Bayern exec details Konrad Laimer standoff; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/198328/bayern-munich-newcastle-gordon-bayern-laimer-psg-arsenal-real-madrid-liverpool-chelsea-fc-barcelona-tottenham) - **Bavarian Football Works**
+2. [Kobie Dee to Kick Off A-League Grand Final Celebrations](http://www.billboard.com/music/rb-hip-hop/kobie-dee-a-league-grand-final-celebrations-1236240167/) - **Billboard**
+3. [Unity Cup: Chelle rates 3SC midfielder Ayobami](https://punchng.com/unity-cup-chelle-rates-3sc-midfielder-ayobami/) - **The Punch**
+4. [Casemiro backs Carrick for full-time role at Man United](https://www.rediff.com/sports/report/casemiro-hails-carricks-impact-backs-him-for-full-time-role-at-man-united/20260506.htm) - **Rediff.com**
+5. [Casemiro backs Carrick for permanent Man United manager's job](https://www.channelnewsasia.com/sport/casemiro-backs-carrick-permanent-man-united-managers-job-6102886) - **CNA**
+6. [Premier League fan arrested over alleged racial abuse toward Antoine Semenyo](https://nypost.com/2026/05/05/sports/premier-league-fan-arrested-over-alleged-racial-abuse-toward-antoine-semenyo/) - **New York Post**
+7. [Akpom joins Ipswich permanently](https://punchng.com/akpom-joins-ipswich-permanently/) - **The Punch**
+8. [NPFL title race will go down to last day – Finidi](https://punchng.com/npfl-title-race-will-go-down-to-last-day-finidi/) - **The Punch**
+9. [EPL clubs battle for Dele-Bashiru](https://punchng.com/epl-clubs-battle-for-dele-bashiru/) - **The Punch**
+10. [Jeremy Doku Issues Title Warning To Arsenal As Man City Fall Five Points Back](https://www.foxsports.com/stories/soccer/we-are-not-going-to-give-up-jeremy-doku-issues-defiant-premier-league-title-warning-to-arsenal-as-man-city-fall-five-points-behind) - **Fox Sports**
 
 
 ---
-*최근 업데이트: 2026-05-07 09:07:28 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-07 13:08:31 (KST) / (하루 100회 제한 준수 중)*
