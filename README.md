@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Spain beat Germany to extra Champions League spot with England](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260507-99-362295/) - **Dpa-international.com**
-2. [Can Arsenal Survive PSG? Tim Ream on USMNT Pressure & Is Mbappe Tearing Real Madrid Apart?](https://sports.yahoo.com/soccer/article/can-arsenal-survive-psg-tim-ream-on-usmnt-pressure--is-mbappe-tearing-real-madrid-apart-213708675.html) - **Yahoo Entertainment**
-3. [Papers: Arsenal's Champions League winning bonuses revealed](https://www.skysports.com/football/transfer-paper-talk/12709/13541250/arsenal-gunners-players-set-to-pocket-over-lb1m-in-bonuses-if-they-win-champions-league-paper-talk) - **Sky Sports**
-4. [Ruben Dias and Josko Gvardiol return to Manchester City training ahead of Brentford clash](https://cityxtra.co.uk/46071/ruben-dias-and-josko-gvardiol-return-to-manchester-city-training-ahead-of-brentford-clash/) - **Cityxtra.co.uk**
-5. [Palace beat Shakhtar to make Conference League final](https://www.rte.ie/sport/soccer/2026/0507/1572272-palace-beat-shakhtar-to-make-conference-league-final/) - **RTE**
-6. [Freiburg and Villa to clash in Europa League final after comebacks](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260507-99-358927/) - **Dpa-international.com**
-7. [How Villa could get sixth into the Champions League](https://www.bbc.com/sport/football/articles/cewpkpdgllro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Villa crush Forest to reach Europa League final against Freiburg](https://punchng.com/villa-crush-forest-to-reach-europa-league-final-against-freiburg/) - **The Punch**
+1. ['His record speaks for itself' - Watkins hails Emery](https://www.rte.ie/sport/soccer/2026/0507/1572278-his-record-speaks-for-itself-watkins-hails-emery/) - **RTE**
+2. ['If we lose, we aren't achieving nothing' | Emery remains calm despite reaching final](https://www.skysports.com/football/video/33727/13541299/unai-emery-demands-more-from-his-players-despite-reaching-the-europa-league-final-and-being-in-a-good-spot-in-the-premier-league-table) - **Sky Sports**
+3. [Crystal Palace reach Conference League final: Oliver Glasner's men beat Shakhtar Donetsk on one of the greatest nights in their history as they set sights on first European title](https://www.dailymail.com/sport/football/article-15798805/Crystal-Palace-reach-Conference-League-final-Oliver-Glasners-men-beat-Shakhtar-Donetsk-one-greatest-nights-history-set-sights-European-title.html) - **Dailymail.com**
+4. [Morgan Rogers: United have the perfect plan of attack for Villa ace](https://thepeoplesperson.com/2026/05/07/morgan-rogers-united-have-the-perfect-plan-of-attack-for-villa-ace-309772/) - **The Peoples Person**
+5. [English clubs reach all three European finals for first time](https://www.bbc.com/sport/football/articles/c5yr4vle9w2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [English clubs reach all three European finals for first time](https://www.bbc.com/sport/football/articles/c5yr4vle9w2o) - **BBC News**
+7. [How Johnny Cardoso’s Injury Could Affect the USA's World Cup Roster](https://www.foxsports.com/stories/soccer/usmnt-world-cup-roster-stock-watch-johnny-cardoso-injury) - **Fox Sports**
+8. [Littler beats Humphries for record-equalling win](https://www.bbc.com/sport/darts/articles/c62dz1j0e25o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Littler beats Humphries for record-equalling win](https://www.bbc.com/sport/darts/articles/c62dz1j0e25o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-09 06:40:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-09 07:58:05 (KST) / (하루 100회 제한 준수 중)*
