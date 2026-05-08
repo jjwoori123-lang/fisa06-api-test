@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool have found their next Dominik Szoboszlai in 20-year-old wonderkid](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-have-found-their-next-dominik-szoboszlai-in-20-year-old-wonderkid/) - **Anfieldwatch.co.uk**
-2. [Arsenal enter the race to sign Bradley Barcola](https://www.getfootballnewsfrance.com/2026/arsenal-enter-the-race-to-sign-bradley-barcola/) - **Get French Football News**
-3. [USMNT's Johnny Cardoso picks up injury that could throw wrench in Mauricio Pochettino's World Cup plans](https://www.cbssports.com/soccer/news/usmnts-johnny-cardoso-injury-mauricio-pochettinos-world-cup/) - **CBS Sports**
-4. [Barcelona ‘closely monitoring’ PSG star Bradley Barcola](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/119664/barcelona-closely-monitoring-psg-star-bradley-barcola) - **Barca Blaugranes**
-5. [Everton Become Real Options For 35-Year-Old Striker: Would He Solve The Goal Scoring Issues?](https://the4thofficial.net/2026/05/everton-become-real-options-for-35-year-old-striker-would-he-solve-the-goal-scoring-issues/) - **The4thofficial.net**
-6. [Asisat Oshoala’s hat-trick sends Al Hilal into Saudi Women’s cup final](https://punchng.com/asisat-oshoalas-hat-trick-sends-al-hilal-into-saudi-womens-cup-final/) - **The Punch**
-7. [It's happening again! Liverpool ready to strike £73m agreement to sign next Luis Diaz](https://www.anfieldwatch.co.uk/liverpool-fc/news/its-happening-again-liverpool-ready-to-strike-ps73m-agreement-to-sign-next-luis-diaz/) - **Anfieldwatch.co.uk**
-8. [Aston Villa Are Still In The Race For This Sporting CP Star: Will €30m Price Tag Make Sense For Emery?](https://the4thofficial.net/2026/05/aston-villa-are-still-in-the-race-for-this-sporting-cp-star-will-e30m-price-tag-make-sense-for-emery/) - **The4thofficial.net**
-9. [Carragher reveals a tactical switch that has improved Arsenal’s season](https://www.justarsenal.com/carragher-reveals-a-tactical-switch-that-has-improved-arsenals-season/414845) - **Just Arsenal News**
-10. [Report: Chelsea ready to give up on £40m summer signing already](https://eplindex.com/146161/report-chelsea-ready-to-give-up-on-40m-summer-signing-already.html) - **English Premier League Index - Opta Stats**
+1. [Spain beat Germany to extra Champions League spot with England](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260507-99-362295/) - **Dpa-international.com**
+2. [Can Arsenal Survive PSG? Tim Ream on USMNT Pressure & Is Mbappe Tearing Real Madrid Apart?](https://sports.yahoo.com/soccer/article/can-arsenal-survive-psg-tim-ream-on-usmnt-pressure--is-mbappe-tearing-real-madrid-apart-213708675.html) - **Yahoo Entertainment**
+3. [Papers: Arsenal's Champions League winning bonuses revealed](https://www.skysports.com/football/transfer-paper-talk/12709/13541250/arsenal-gunners-players-set-to-pocket-over-lb1m-in-bonuses-if-they-win-champions-league-paper-talk) - **Sky Sports**
+4. [Ruben Dias and Josko Gvardiol return to Manchester City training ahead of Brentford clash](https://cityxtra.co.uk/46071/ruben-dias-and-josko-gvardiol-return-to-manchester-city-training-ahead-of-brentford-clash/) - **Cityxtra.co.uk**
+5. [Palace beat Shakhtar to make Conference League final](https://www.rte.ie/sport/soccer/2026/0507/1572272-palace-beat-shakhtar-to-make-conference-league-final/) - **RTE**
+6. [Freiburg and Villa to clash in Europa League final after comebacks](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260507-99-358927/) - **Dpa-international.com**
+7. [How Villa could get sixth into the Champions League](https://www.bbc.com/sport/football/articles/cewpkpdgllro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Villa crush Forest to reach Europa League final against Freiburg](https://punchng.com/villa-crush-forest-to-reach-europa-league-final-against-freiburg/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-05-09 05:38:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-09 06:40:26 (KST) / (하루 100회 제한 준수 중)*
