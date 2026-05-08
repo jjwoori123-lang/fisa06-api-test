@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How to watch West Ham United v Arsenal live on TV](http://www.arsenal.com/news/how-watch-west-ham-united-v-arsenal-live-tv) - **Arsenal.com**
-2. [Which wonder strike from the sideline was better?](https://www.irishtimes.com/sport/2026/05/07/which-wonder-strike-from-the-sideline-was-better/) - **The Irish Times**
-3. [Report: Tottenham Hotspur facing huge battle to sign Premier League defender](https://eplindex.com/146133/report-tottenham-hotspur-facing-huge-battle-to-sign-premier-league-defender.html) - **English Premier League Index - Opta Stats**
-4. ['I don't think loads of people were talking about Europe'](https://www.bbc.com/sport/football/articles/c626znz6n2qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Former Liverpool star blasts ‘arrogant’ Reds and accuses Isak of being soft: ‘He needs to toughen up’](https://www.101greatgoals.com/football/premier-league/former-liverpool-star-blasts-arrogant-reds-and-accuses-alexander-isak-of-being-soft-he-needs-to-toughen-up/) - **101 Great Goals**
-6. [‘Everything points to…’ – James Pearce outlines FSG stance on Slot amid Alonso availability](https://www.empireofthekop.com/2026/05/07/james-pearce-outlines-fsg-stance-on-slot-amid-alonso-availability/) - **Empire of The Kop**
-7. [Manchester City to rename Etihad Stadium for one game only](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a1d50022-79a0-4f7e-9cf6-918031bcef1a) - **Yahoo Entertainment**
-8. [Rio Ferdinand is baffled that Arsenal star has spent a lot of time on the bench](https://www.justarsenal.com/rio-ferdinand-is-baffled-that-arsenal-star-has-spent-a-lot-of-time-on-the-bench/414801) - **Just Arsenal News**
-9. [How Kane goal could earn Germany extra Champions League spot](https://www.bbc.com/sport/football/articles/cj0pq152zejo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Pick of the stats: Hull City v Millwall](https://www.bbc.com/sport/football/articles/c2324rl9427o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [From wild card to underdog - who will win Championship play-offs?](https://www.bbc.com/sport/football/articles/c78k5811447o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [From wild card to underdog - who will win Championship play-offs?](https://www.bbc.com/sport/football/articles/c78k5811447o) - **BBC News**
+3. [Dave Brailsford leaves role as director at Manchester United](https://www.independent.ie/sport/soccer/premier-league/dave-brailsford-leaves-role-as-director-at-manchester-united/a1049259811.html) - **Independent.ie**
+4. [Where to watch Major League Volleyball playoffs: Schedule, TV channel, live stream for 2026 MLV semis, final](https://www.sportingnews.com/us/tsn/news/watch-major-league-volleyball-playoffs-schedule-channel-stream-mlv/ad5153307f2c67c40f6497ce) - **Sporting News**
+5. [Play-off specialist Neil seeks 'moment of magic' to take Millwall to Wembley](https://www.skysports.com/football/news/11735/13541031/championship-play-offs-millwall-boss-alex-neil-calls-on-lions-to-produce-moment-of-magic-at-hull-to-earn-first-leg-advantage) - **Sky Sports**
+6. [Scholes names Man United ‘issues’ Carrick must fix](https://thefootballfaithful.com/scholes-names-man-united-issues-carrick-must-fix/) - **The Football Faithful**
+7. [Why Spurs have the edge on West Ham in two-way relegation scrap](https://www.skysports.com/football/news/11095/13541041/tottenham-and-west-ham-in-two-way-premier-league-relegation-scrap-with-three-games-left-of-the-season) - **Sky Sports**
+8. [How to watch Premier League Darts 2026 Leeds: Live stream, TV channel and schedule](https://www.sportingnews.com/us/darts/news/watch-premier-league-darts-2026-leeds-live-stream-tv-schedule/40f177388dd76ea812fa9cb5) - **Sporting News**
+9. [Arsenal linked with a move for exciting West Ham man](https://www.justarsenal.com/arsenal-linked-with-a-move-for-exciting-west-ham-man/414804) - **Just Arsenal News**
+10. [Aston Villa midfielder Staniforth announces retirement](https://fawslfulltime.co.uk/2026/05/07/aston-villa-midfielder-staniforth-announces-retirement/) - **Fawslfulltime.co.uk**
 
 
 ---
-*최근 업데이트: 2026-05-08 18:57:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-08 20:25:42 (KST) / (하루 100회 제한 준수 중)*
