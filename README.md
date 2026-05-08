@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Amad Diallo: Premier League outfit eye Man United ace as dream summer signing](https://thepeoplesperson.com/2026/05/07/amad-diallo-premier-league-outfit-eye-man-united-ace-as-dream-summer-signing-309774/) - **The Peoples Person**
-2. [Bethell fails after injury scare in RCB defeat](https://www.bbc.com/sport/cricket/articles/c0j2gyjvy65o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Kayode: ‘Training much tougher in Italy, Brentford let you rest’](https://football-italia.net/kayode-training-much-tougher-italy-brentford/) - **Football Italia**
-4. [PREVIEW | Real Sociedad vs Real Betis: team news, lineups, predictions (La Liga 09/05)](https://www.playmakerstats.com/news/preview-real-sociedad-vs-real-betis-team-news-lineups-predictions-la-liga-09-05-/1119280) - **Playmakerstats.com**
-5. [Liverpool Scales Back Plans For Ticket Price Increases After Fans Protests](https://www.foxsports.com/stories/soccer/liverpool-scales-back-plans-for-ticket-price-increases-after-protests-from-fans) - **Fox Sports**
-6. [Adebayor tells Gyokeres what he needs to add to his game as an Arsenal player](https://www.justarsenal.com/adebayor-tells-gyokeres-what-he-needs-to-add-to-his-game-as-an-arsenal-player/414842) - **Just Arsenal News**
-7. [Indian coaches pick up lessons from Premier League counterparts](https://timesofindia.indiatimes.com/city/goa/indian-coaches-pick-up-lessons-from-premier-league-counterparts/articleshow/130918163.cms) - **The Times of India**
-8. [Diallo To Start, Mount On The Bench | 4-2-3-1 Manchester United Predicted Lineup Vs Sunderland](https://the4thofficial.net/2026/05/diallo-to-start-mount-on-the-bench-4-2-3-1-manchester-united-predicted-lineup-vs-sunderland/) - **The4thofficial.net**
-9. [Roy Keane has major concern about Michael Carrick moving forward](https://thepeoplesperson.com/2026/05/07/roy-keane-has-major-concern-about-michael-carrick-moving-forward-309763/) - **The Peoples Person**
-10. [Exclusive: Former Man City defender tips Abdukodir Khusanov for Real Madrid transfer interest](https://cityxtra.co.uk/45164/exclusive-former-man-city-defender-tips-abdukodir-khusanov-for-real-madrid-transfer-interest/) - **Cityxtra.co.uk**
+1. [Liverpool have found their next Dominik Szoboszlai in 20-year-old wonderkid](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-have-found-their-next-dominik-szoboszlai-in-20-year-old-wonderkid/) - **Anfieldwatch.co.uk**
+2. [Arsenal enter the race to sign Bradley Barcola](https://www.getfootballnewsfrance.com/2026/arsenal-enter-the-race-to-sign-bradley-barcola/) - **Get French Football News**
+3. [USMNT's Johnny Cardoso picks up injury that could throw wrench in Mauricio Pochettino's World Cup plans](https://www.cbssports.com/soccer/news/usmnts-johnny-cardoso-injury-mauricio-pochettinos-world-cup/) - **CBS Sports**
+4. [Barcelona ‘closely monitoring’ PSG star Bradley Barcola](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/119664/barcelona-closely-monitoring-psg-star-bradley-barcola) - **Barca Blaugranes**
+5. [Everton Become Real Options For 35-Year-Old Striker: Would He Solve The Goal Scoring Issues?](https://the4thofficial.net/2026/05/everton-become-real-options-for-35-year-old-striker-would-he-solve-the-goal-scoring-issues/) - **The4thofficial.net**
+6. [Asisat Oshoala’s hat-trick sends Al Hilal into Saudi Women’s cup final](https://punchng.com/asisat-oshoalas-hat-trick-sends-al-hilal-into-saudi-womens-cup-final/) - **The Punch**
+7. [It's happening again! Liverpool ready to strike £73m agreement to sign next Luis Diaz](https://www.anfieldwatch.co.uk/liverpool-fc/news/its-happening-again-liverpool-ready-to-strike-ps73m-agreement-to-sign-next-luis-diaz/) - **Anfieldwatch.co.uk**
+8. [Aston Villa Are Still In The Race For This Sporting CP Star: Will €30m Price Tag Make Sense For Emery?](https://the4thofficial.net/2026/05/aston-villa-are-still-in-the-race-for-this-sporting-cp-star-will-e30m-price-tag-make-sense-for-emery/) - **The4thofficial.net**
+9. [Carragher reveals a tactical switch that has improved Arsenal’s season](https://www.justarsenal.com/carragher-reveals-a-tactical-switch-that-has-improved-arsenals-season/414845) - **Just Arsenal News**
+10. [Report: Chelsea ready to give up on £40m summer signing already](https://eplindex.com/146161/report-chelsea-ready-to-give-up-on-40m-summer-signing-already.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-05-09 04:25:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-09 05:38:17 (KST) / (하루 100회 제한 준수 중)*
