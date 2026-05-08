@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [NHL faces backlash over 2025-26 Norris Trophy finalists](https://www.thebiglead.com/nhl-faces-backlash-over-2025-26-norris-trophy-finalists/) - **The Big Lead**
-2. [How to watch West Ham vs Arsenal live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-west-ham-vs-arsenal-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
-3. [Crystal Palace vs Shakhtar Donetsk: Line-ups confirmed for Conference League semi-final](https://www.101greatgoals.com/football/conference-league/crystal-palace-vs-shakhtar-donetsk-line-ups-confirmed/) - **101 Great Goals**
-4. [Aston Villa vs Nottingham Forest - Europa League LIVE: Latest score, team news and updates as Premier League sides battle it out for spot in the final - plus Crystal Palace in Conference League semi-final action](https://www.dailymail.com/sport/football/article-15797565/Aston-Villa-vs-Nottingham-Forest-Europa-League-LIVE.html) - **Dailymail.com**
-5. [‘Out of my hands’ – Carrick updates on his future as Man Utd manager](https://hayters.com/out-of-my-hands-carrick-updates-on-his-future-as-man-utd-manager/) - **Hayters.com**
-6. [How to watch Aston Villa v Nottingham Forest, team news, predicted line-ups and more](https://hayters.com/how-to-watch-aston-villa-v-nottingham-forest-team-news-predicted-line-ups-and-more/) - **Hayters.com**
-7. [Millwall eye 'fairytale' in Championship play-offs](https://sports.yahoo.com/articles/millwall-eye-fairytale-championship-play-171846115.html) - **Yahoo Entertainment**
-8. [World Cup injuries: Every star player at risk of missing 2026 FIFA tournament including Rodrygo, Ekitike, more](https://www.sportingnews.com/us/soccer/news/world-cup-injuries-players-missing-2026-fifa-tournament/fc7bc16508cfc5996534ddbc) - **Sporting News**
-9. [Liverpool vs Chelsea: Match preview, predicted line-ups, team news and prediction](https://footballtoday.com/2026/05/07/liverpool-vs-chelsea-match-preview-predicted-line-ups-team-news-and-prediction/) - **Footballtoday.com**
-10. [2026 Premier League Darts Night 14 Leeds live results, scores and schedule: Humphries seeking a third title on home soil](https://www.sportingnews.com/us/darts/news/2026-premier-league-darts-night-14-leeds-live-results-scores-schedule/4e1c7903cbe9de51d6001312) - **Sporting News**
+1. [Amad Diallo: Premier League outfit eye Man United ace as dream summer signing](https://thepeoplesperson.com/2026/05/07/amad-diallo-premier-league-outfit-eye-man-united-ace-as-dream-summer-signing-309774/) - **The Peoples Person**
+2. [Bethell fails after injury scare in RCB defeat](https://www.bbc.com/sport/cricket/articles/c0j2gyjvy65o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Kayode: ‘Training much tougher in Italy, Brentford let you rest’](https://football-italia.net/kayode-training-much-tougher-italy-brentford/) - **Football Italia**
+4. [PREVIEW | Real Sociedad vs Real Betis: team news, lineups, predictions (La Liga 09/05)](https://www.playmakerstats.com/news/preview-real-sociedad-vs-real-betis-team-news-lineups-predictions-la-liga-09-05-/1119280) - **Playmakerstats.com**
+5. [Liverpool Scales Back Plans For Ticket Price Increases After Fans Protests](https://www.foxsports.com/stories/soccer/liverpool-scales-back-plans-for-ticket-price-increases-after-protests-from-fans) - **Fox Sports**
+6. [Adebayor tells Gyokeres what he needs to add to his game as an Arsenal player](https://www.justarsenal.com/adebayor-tells-gyokeres-what-he-needs-to-add-to-his-game-as-an-arsenal-player/414842) - **Just Arsenal News**
+7. [Indian coaches pick up lessons from Premier League counterparts](https://timesofindia.indiatimes.com/city/goa/indian-coaches-pick-up-lessons-from-premier-league-counterparts/articleshow/130918163.cms) - **The Times of India**
+8. [Diallo To Start, Mount On The Bench | 4-2-3-1 Manchester United Predicted Lineup Vs Sunderland](https://the4thofficial.net/2026/05/diallo-to-start-mount-on-the-bench-4-2-3-1-manchester-united-predicted-lineup-vs-sunderland/) - **The4thofficial.net**
+9. [Roy Keane has major concern about Michael Carrick moving forward](https://thepeoplesperson.com/2026/05/07/roy-keane-has-major-concern-about-michael-carrick-moving-forward-309763/) - **The Peoples Person**
+10. [Exclusive: Former Man City defender tips Abdukodir Khusanov for Real Madrid transfer interest](https://cityxtra.co.uk/45164/exclusive-former-man-city-defender-tips-abdukodir-khusanov-for-real-madrid-transfer-interest/) - **Cityxtra.co.uk**
 
 
 ---
-*최근 업데이트: 2026-05-09 02:55:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-09 04:25:42 (KST) / (하루 100회 제한 준수 중)*
