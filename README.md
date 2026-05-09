@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Reds Legend Molby Breaks Down Liverpool’s Midfield Crisis Under Slot](https://anfieldindex.com/93945/reds-legend-molby-breaks-down-liverpools-midfield-crisis-under-slot.html) - **Anfieldindex.com**
-2. [Report: Arsenal and Liverpool are in the race to sign PSG forward](https://eplindex.com/146167/report-arsenal-and-liverpool-are-in-the-race-to-sign-psg-forward.html) - **English Premier League Index - Opta Stats**
-3. ["Pressure is always there": RCB's Krunal Pandya on challenges of being IPL defending champions](https://economictimes.indiatimes.com/news/sports/pressure-is-always-there-rcbs-krunal-pandya-on-challenges-of-being-ipl-defending-champions/articleshow/130955065.cms) - **The Times of India**
-4. [Juventus urged to sign Man City star Bernardo Silva ‘right away’](https://football-italia.net/juventus-urged-sign-bernardo-silva-right-away/) - **Football Italia**
-5. [Howe on Miley's injury, back to winning ways, Gordon interest](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7b588f0b-34d9-47aa-91eb-852e5dd37793) - **Yahoo Entertainment**
-6. [Carrick focussed ahead of return to Stadium of Light](https://www.rte.ie/sport/soccer/2026/0508/1572334-carrick-focussed-ahead-of-return-to-stadium-of-light/) - **RTE**
-7. [English clubs achieve historic European final feat](https://thefootballfaithful.com/english-clubs-achieve-historic-european-final-feat/) - **The Football Faithful**
-8. [El Hadji Malick Diouf: Man United blown away by West Ham star](https://thepeoplesperson.com/2026/05/08/el-hadji-malick-diouf-man-united-blown-away-by-west-ham-star-309790/) - **The Peoples Person**
-9. [Hurzeler on team fitness, his new deal and Wolves](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_cc075670-f6c6-4c9b-9056-0a13248379d1) - **Yahoo Entertainment**
-10. ['They looked like me': Why Arsenal became Africa's club](https://sports.yahoo.com/articles/looked-why-arsenal-became-africas-092211452.html) - **Yahoo Entertainment**
+1. [Eric Cantona Talks Alex Ferguson In First Footage From Cannes-Bound Documentary: “I Was Well Protected By Him…We Loved Him”](http://deadline.com/2026/05/eric-cantona-talks-alex-ferguson-first-footage-new-film-1236887650/) - **Deadline**
+2. [Roberto De Zerbi has already approved £27m Spurs signing](https://eplindex.com/146171/roberto-de-zerbi-has-already-approved-27m-spurs-signing.html) - **English Premier League Index - Opta Stats**
+3. [Molby’s View: Tactical Tweaks Liverpool Must Make to Beat Chelsea](https://anfieldindex.com/93946/molbys-view-tactical-tweaks-liverpool-must-make-to-beat-chelsea.html) - **Anfieldindex.com**
+4. [ Power Rankings: Man City stumble, PSG take top spot](https://thefootballfaithful.com/%f0%9f%93%88-power-rankings-man-city-stumble-psg-take-top-spot/) - **The Football Faithful**
+5. [Bayern Munich open Gordon transfer talks with Newcastle United](https://thefootballfaithful.com/bayern-munich-gordon-trnasfer-talks-newcastle-united/) - **The Football Faithful**
+6. [Manchester City vs Brentford (Premier League): Match Preview, Team News, Stats, Head to Head, How to Watch](https://cityxtra.co.uk/46077/manchester-city-vs-brentford-premier-league-match-preview-team-news-stats-head-to-head-how-to-watch/) - **Cityxtra.co.uk**
+7. [JJ Gabriel, Albert Mills: United starlets nominated for U18 PL POTS award](https://thepeoplesperson.com/2026/05/08/jj-gabriel-albert-mills-united-starlets-nominated-for-u18-pl-pots-award-309797/) - **The Peoples Person**
+8. [KKR vs DC head-to-head IPL: Last 5 matches, records at Eden Gardens, Kolkata and Arun Jaitley Stadium, Delhi](https://www.cricketnews.com/en/cricket/news/kkr-vs-dc-head-head-ipl-last-matches-eden-gardens-kolkata-delhi/cb32362c42d44ef643ed6f53) - **Cricketnews.com**
+9. [‘Would hold immense appeal…’: £43m PL stalwart left mulling over Anfield/Old Trafford moves ahead of summer approaches](https://strettynews.com/2026/05/08/micky-van-de-ven-manchester-united-liverpool-interest-tottenham-hotspur-premier-league/) - **Strettynews.com**
+10. [Leinster continue to ride the waves of negativity that come their way](https://www.irishtimes.com/sport/2026/05/08/leinster-continue-to-ride-the-waves-of-negativity-that-come-their-way/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-05-09 18:55:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-09 19:59:43 (KST) / (하루 100회 제한 준수 중)*
