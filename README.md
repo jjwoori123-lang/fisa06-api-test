@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [“He’s not the right guy” – Matt Law explains why reported Chelsea target would be “terrible signing”](https://chelsea.news/2026/05/matt-law-morgan-rogers-aston-villa-chelsea/) - **Chelsea.news**
-2. [Arsenal very keen on signing PSG’s Bradley Barcola](https://sportsview.co.uk/2026/05/arsenal-very-keen-on-signing-psgs-bradley-barcola?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-very-keen-on-signing-psgs-bradley-barcola) - **Sportsview.co.uk**
-3. [Gujarat Titans look to leapfrog wobbly Rajasthan Royals in mid-table IPL battle](https://economictimes.indiatimes.com/news/sports/gujarat-titans-look-to-leapfrog-wobbly-rajasthan-royals-in-mid-table-ipl-battle/articleshow/130950924.cms) - **The Times of India**
-4. [Bryan Robson: Man United legend returns to Carrington](https://thepeoplesperson.com/2026/05/08/bryan-robson-man-united-legend-returns-to-carrington-309783/) - **The Peoples Person**
-5. [Man Utd take major steps in pursuit of £42m relegation-threatened midfielder who is ‘open’ to Old Trafford switch](https://strettynews.com/2026/05/08/manchester-united-talks-mateus-fernandes-west-ham-transfer/) - **Strettynews.com**
-6. [Middlesbrough report Southampton first-team analyst to EFL for spying on their training session from a bush](https://footballtoday.com/2026/05/08/middlesbrough-report-southampton-first-team-analyst-to-efl-for-spying-on-their-training-session-from-a-bush/) - **Footballtoday.com**
-7. [Manchester City have received a huge double boost as two defenders return to training](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2b5c0f12-d5cd-46ea-a4f4-ca2932fe3d4b) - **Yahoo Entertainment**
-8. [Predictor picks: Find out who our expert is backing this gameweek... and play the game with £1,000 up for grabs](https://www.dailymail.com/sport/football/article-15795731/Predictor-picks-expert-backing-gameweek-play-game-1-000-grabs.html) - **Dailymail.com**
-9. [Do Arsenal have a West Ham curse? How title run-ins have faltered vs. Hammers, giving Man City hope](https://www.sportingnews.com/us/soccer/news/arsenal-west-ham-curse-title-run-premier-league/ba5f93f87809bd277ef4e48a) - **Sporting News**
-10. [Remembering 2012 - why Sunderland away means more to Man Utd than normal](https://www.bbc.com/sport/football/articles/cvgze4l1nqvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Bruno Fernandes: Zeki Önder Özen wants Galatasaray to sign United ace](https://thepeoplesperson.com/2026/05/08/bruno-fernandes-zeki-onder-ozen-wants-galatasaray-to-sign-united-ace-309782/) - **The Peoples Person**
+2. [Arsenal sense Premier League glory as Spurs eye safety](https://punchng.com/arsenal-sense-premier-league-glory-as-spurs-eye-safety/) - **The Punch**
+3. [Manchester City experienced star remains an option for Barcelona – report](https://barcauniversal.com/manchester-city-experienced-star-remains-an-option-for-barcelona-report/) - **Barcauniversal.com**
+4. [Arsenal and Man City will fight for Premier League midfielder](https://www.justarsenal.com/arsenal-and-man-city-will-fight-for-premier-league-midfielder/414850) - **Just Arsenal News**
+5. [Rumour Monger: Liverpool, Arsenal and Newcastle Interested in Froholdt](https://liverpooloffside.sbnation.com/liverpool-transfer-news-rumours/80248/liverpool-fc-transfer-rumour-monger-liverpool-arsenal-and-newcastle-interested-in-victor-froholdt-porto-arsenal-newcastle) - **SB Nation**
+6. [Sam Saunders: My reflection on historic Brentford B season](https://www.brentfordfc.com/en/news/article/brentford-b-team-sam-saunders-2025-26-review-interview) - **Brentfordfc.com**
+7. [Chelsea team news: Latest on Reece James, Levi Colwill and more ahead of Liverpool clash](https://anfieldindex.com/93943/chelsea-team-news-latest-on-reece-james-levi-colwill-and-more-ahead-of-liverpool-clash.html) - **Anfieldindex.com**
+8. [Report: Man City considering mega move for world-class Real Madrid star](https://eplindex.com/146164/report-man-city-considering-mega-move-for-world-class-real-madrid-star.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-05-09 15:29:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-09 17:21:26 (KST) / (하루 100회 제한 준수 중)*
