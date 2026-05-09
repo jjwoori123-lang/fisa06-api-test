@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Star now free to join Liverpool after bombshell decision](https://www.anfieldwatch.co.uk/liverpool-fc/news/star-now-free-to-join-liverpool-after-bombshell-decision/) - **Anfieldwatch.co.uk**
-2. [Wrexham post-season report: 10 key takeaways after Premier League dream cruelly evaporates](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_efdbb1cb-6fe5-4017-99ce-714016becb0e) - **Yahoo Entertainment**
-3. [Benjamin Sesko set to feature vs Sunderland after injury scare](https://thepeoplesperson.com/2026/05/08/benjamin-sesko-set-to-feature-vs-sunderland-after-injury-scare-309825/) - **The Peoples Person**
-4. [“It has to be better” – Liverpool star sends message to teammates ahead of Chelsea clash](https://anfieldindex.com/93964/it-has-to-be-better-liverpool-star-sends-message-to-teammates-ahead-of-chelsea-clash.html) - **Anfieldindex.com**
-5. [Ronald McDonald goes viral after singing the 'Star-Spangled Banner' at a minor league baseball game](https://www.foxnews.com/outkick-sports/ronald-mcdonald-goes-viral-singing-star-spangled-banner-minor-league-baseball-game) - **Fox News**
-6. [PREVIEW | Barcelona vs Real Madrid: team news, lineups, predictions (La Liga 10/05)](https://www.playmakerstats.com/news/preview-barcelona-vs-real-madrid-team-news-lineups-predictions-la-liga-10-05-/1120175) - **Playmakerstats.com**
-7. [Tottenham Hotspur Full-Back Is On The Radar Of Barcelona: Should De Zerbi Cash In On Him?](https://the4thofficial.net/2026/05/tottenham-hotspur-full-back-is-on-the-radar-of-barcelona/) - **The4thofficial.net**
-8. [Oh what a night, more of the same on Sunday please and match facts from the BBC](https://www.thevillablog.co.uk/aston-villa-blog/avfc-opinion/oh-what-a-night-more-of-the-same-on-sunday-please-and-match-facts-from-the-bbc) - **Thevillablog.co.uk**
-9. [Report: Chelsea could make summer move for Pavlovic as Milan set asking price](https://football-italia.net/chelsea-could-make-summer-move-for-pavlovic/) - **Football Italia**
-10. [Man Utd's Fernandes wins Football Writers' men's award](https://www.bbc.com/sport/football/articles/cn8pvvp6n0qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Man City's Pep Guardiola provides Rodri injury update ahead of Brentford game](https://www.alloutsoccer.com/news/city-guardiola-rodri-injury-update-1828814) - **Alloutsoccer.com**
+2. [Dominant St Patrick’s Athletic too strong for Waterford](https://www.irishtimes.com/sport/soccer/2026/05/08/dominant-st-patricks-athletic-too-strong-for-waterford/) - **The Irish Times**
+3. [Former Chelsea star backs Jose Mourinho to become the Blues' next manager in THIRD stint - despite Real Madrid's attempts to lure him back to the Bernabeu](https://www.dailymail.com/sport/football/article-15802915/Chelsea-Jose-Mourinho-manager-Real-Madrid.html) - **Dailymail.com**
+4. [Ian Wright Singled Out Daniel Farke For This Big Reason: Are Leeds United Heading In The Right Direction?](https://the4thofficial.net/2026/05/ian-wright-singled-out-daniel-farke-for-this-big-reason-are-leeds-united-heading-in-the-right-direction/) - **The4thofficial.net**
+5. [Papers: Van Dijk 'ready to leave' Liverpool](https://www.skysports.com/football/transfer-paper-talk/12709/13541686/virgil-van-dijk-liverpool-captain-ready-to-leave-club-with-approach-from-european-club-imminent-paper-talk) - **Sky Sports**
+6. [United U21s advance to PL2 finals: Man City U21s 3-4 Man United U21s](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_25be05b0-767b-480e-b7e4-b21e65ebccd6) - **Yahoo Entertainment**
+7. [Ederson: United planning talks next week to seal the deal](https://thepeoplesperson.com/2026/05/08/ederson-united-planning-talks-next-week-to-seal-the-deal-309823/) - **The Peoples Person**
+8. [Michael Edwards enters talk to sign £80m star](https://www.anfieldwatch.co.uk/liverpool-fc/news/michael-edwards-enters-talk-to-sign-ps80m-star/) - **Anfieldwatch.co.uk**
+9. [Liverpool Are Monitoring The Situation Of This Real Madrid Star: Dream Option For Slot?](https://the4thofficial.net/2026/05/liverpool-are-monitoring-the-situation-of-this-real-madrid-star/) - **The4thofficial.net**
+10. [Arsenal’s title destiny is now in their hands – can they get over the line?](https://sportsview.co.uk/2026/05/arsenals-title-destiny-is-now-in-their-hands-can-they-get-over-the-line?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenals-title-destiny-is-now-in-their-hands-can-they-get-over-the-line) - **Sportsview.co.uk**
 
 
 ---
-*최근 업데이트: 2026-05-10 05:25:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-10 06:27:08 (KST) / (하루 100회 제한 준수 중)*
