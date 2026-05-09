@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['His record speaks for itself' - Watkins hails Emery](https://www.rte.ie/sport/soccer/2026/0507/1572278-his-record-speaks-for-itself-watkins-hails-emery/) - **RTE**
-2. ['If we lose, we aren't achieving nothing' | Emery remains calm despite reaching final](https://www.skysports.com/football/video/33727/13541299/unai-emery-demands-more-from-his-players-despite-reaching-the-europa-league-final-and-being-in-a-good-spot-in-the-premier-league-table) - **Sky Sports**
-3. [Crystal Palace reach Conference League final: Oliver Glasner's men beat Shakhtar Donetsk on one of the greatest nights in their history as they set sights on first European title](https://www.dailymail.com/sport/football/article-15798805/Crystal-Palace-reach-Conference-League-final-Oliver-Glasners-men-beat-Shakhtar-Donetsk-one-greatest-nights-history-set-sights-European-title.html) - **Dailymail.com**
-4. [Morgan Rogers: United have the perfect plan of attack for Villa ace](https://thepeoplesperson.com/2026/05/07/morgan-rogers-united-have-the-perfect-plan-of-attack-for-villa-ace-309772/) - **The Peoples Person**
-5. [English clubs reach all three European finals for first time](https://www.bbc.com/sport/football/articles/c5yr4vle9w2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [English clubs reach all three European finals for first time](https://www.bbc.com/sport/football/articles/c5yr4vle9w2o) - **BBC News**
-7. [How Johnny Cardoso’s Injury Could Affect the USA's World Cup Roster](https://www.foxsports.com/stories/soccer/usmnt-world-cup-roster-stock-watch-johnny-cardoso-injury) - **Fox Sports**
-8. [Littler beats Humphries for record-equalling win](https://www.bbc.com/sport/darts/articles/c62dz1j0e25o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Littler beats Humphries for record-equalling win](https://www.bbc.com/sport/darts/articles/c62dz1j0e25o) - **BBC News**
+1. [Pereira reveals quadruple Nottingham Forest injury blow after Europa League exit](https://hayters.com/pereira-reveals-quadruple-nottingham-forest-injury-blow-after-europa-league-exit/) - **Hayters.com**
+2. [Emery on celebrating with Prince William and the importance of Villa Park after reaching Europa League final](https://hayters.com/emery-on-celebrating-with-prince-william-and-the-importance-of-villa-park-after-reaching-europa-league-final/) - **Hayters.com**
+3. [Michael Carrick asks Manchester United for clarity on his future as manager](https://worldsoccertalk.com/news/michael-carrick-asks-manchester-united-for-clarity-on-his-future-as-manager/) - **Worldsoccertalk.com**
+4. [Igor Matanović: “It was 34,000 against 11 today”](https://bulinews.com/igor-matanovic-was-34-000-against-11-today) - **Bulinews.com**
+5. [Glasner's long Palace goodbye sets up 'perfect' finale](https://www.bbc.com/sport/football/articles/cdepl8k6y5no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Luke Shaw opens up on why last season was his “toughest year” in candid admission](https://thepeoplesperson.com/2026/05/07/luke-shaw-opens-up-on-why-last-season-was-his-toughest-year-in-candid-admission-309777/) - **The Peoples Person**
+7. [Vibrant and victorious - Villa ready to end 30-year trophy drought](https://www.bbc.com/sport/football/articles/cddpy80r5dgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Vibrant and victorious - Villa ready to end 30-year trophy drought](https://www.bbc.com/sport/football/articles/cddpy80r5dgo) - **BBC News**
+9. ['His record speaks for itself' - Watkins hails Emery](https://www.rte.ie/sport/soccer/2026/0507/1572278-his-record-speaks-for-itself-watkins-hails-emery/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-05-09 07:58:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-09 09:04:13 (KST) / (하루 100회 제한 준수 중)*
