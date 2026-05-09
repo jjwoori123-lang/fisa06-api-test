@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [World Cup, ‘Reina Del Sur,’ ‘Señor De Los Cielos’ Anchor Telemundo 2026-27 Slate](https://www.forbes.com/sites/veronicavillafane/2026/05/07/world-cup-reina-del-sur-seor-de-los-cielos-anchor-telemundo-2026-27-slate/) - **Forbes**
-2. [Aston Villa march into Europa League final](https://www.rediff.com/sports/report/aston-villa-march-into-europa-league-final/20260508.htm) - **Rediff.com**
-3. [Who will be India's captain in the Ireland T20I series? Likely captaincy options listed](https://www.cricketnews.com/en/cricket/news/india-captain-ireland-t20i-series-captaincy-options-listed/1e5f2cd26a805ae5dfe1a235) - **Cricketnews.com**
-4. [Lionel Messi on alert as Cristian Romero reportedly expected to recover for Argentina friendlies ahead of 2026 World Cup](https://worldsoccertalk.com/world-cup/lionel-messi-on-alert-as-cristian-romero-reportedly-expected-to-recover-for-argentina-friendlies-ahead-of-2026-world-cup/) - **Worldsoccertalk.com**
-5. [How should Chelsea line up against Liverpool amid fresh injury crisis?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a423f8ad-ae28-41e1-ad34-ead6d74b0a64) - **Yahoo Entertainment**
-6. [In big man US football league, guys score a different kind of goal](https://sports.yahoo.com/articles/big-man-us-football-league-012228743.html) - **Yahoo Entertainment**
-7. [Is this the most trees facing the axe in Adelaide Parklands since settlement?](https://www.abc.net.au/news/2026-05-08/adelaide-parklands-tree-felling-golf-course-peter-malinauskas/106649612) - **ABC News (AU)**
-8. ['It's the best feeling ever. It's unique': The essential guide to winning the play-offs, by those who've actually done it - DON'T look around Wembley, DO insult your own players... and bring a Roy Chubby Brown VHS!](https://www.dailymail.com/sport/football/article-15797823/efl-playoffs-winning-secrets.html) - **Dailymail.com**
-9. [Uche felt I don’t like him – Glasner](https://punchng.com/uche-felt-i-dont-like-him-glasner/) - **The Punch**
-10. [Arsenal sense Premier League glory as Spurs eye safety](https://sports.yahoo.com/articles/arsenal-sense-premier-league-glory-003042126.html) - **Yahoo Entertainment**
+1. [“He’s not the right guy” – Matt Law explains why reported Chelsea target would be “terrible signing”](https://chelsea.news/2026/05/matt-law-morgan-rogers-aston-villa-chelsea/) - **Chelsea.news**
+2. [Arsenal very keen on signing PSG’s Bradley Barcola](https://sportsview.co.uk/2026/05/arsenal-very-keen-on-signing-psgs-bradley-barcola?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-very-keen-on-signing-psgs-bradley-barcola) - **Sportsview.co.uk**
+3. [Gujarat Titans look to leapfrog wobbly Rajasthan Royals in mid-table IPL battle](https://economictimes.indiatimes.com/news/sports/gujarat-titans-look-to-leapfrog-wobbly-rajasthan-royals-in-mid-table-ipl-battle/articleshow/130950924.cms) - **The Times of India**
+4. [Bryan Robson: Man United legend returns to Carrington](https://thepeoplesperson.com/2026/05/08/bryan-robson-man-united-legend-returns-to-carrington-309783/) - **The Peoples Person**
+5. [Man Utd take major steps in pursuit of £42m relegation-threatened midfielder who is ‘open’ to Old Trafford switch](https://strettynews.com/2026/05/08/manchester-united-talks-mateus-fernandes-west-ham-transfer/) - **Strettynews.com**
+6. [Middlesbrough report Southampton first-team analyst to EFL for spying on their training session from a bush](https://footballtoday.com/2026/05/08/middlesbrough-report-southampton-first-team-analyst-to-efl-for-spying-on-their-training-session-from-a-bush/) - **Footballtoday.com**
+7. [Manchester City have received a huge double boost as two defenders return to training](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2b5c0f12-d5cd-46ea-a4f4-ca2932fe3d4b) - **Yahoo Entertainment**
+8. [Predictor picks: Find out who our expert is backing this gameweek... and play the game with £1,000 up for grabs](https://www.dailymail.com/sport/football/article-15795731/Predictor-picks-expert-backing-gameweek-play-game-1-000-grabs.html) - **Dailymail.com**
+9. [Do Arsenal have a West Ham curse? How title run-ins have faltered vs. Hammers, giving Man City hope](https://www.sportingnews.com/us/soccer/news/arsenal-west-ham-curse-title-run-premier-league/ba5f93f87809bd277ef4e48a) - **Sporting News**
+10. [Remembering 2012 - why Sunderland away means more to Man Utd than normal](https://www.bbc.com/sport/football/articles/cvgze4l1nqvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-09 13:00:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-09 15:29:58 (KST) / (하루 100회 제한 준수 중)*
