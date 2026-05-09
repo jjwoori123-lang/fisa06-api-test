@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bruno Fernandes: Zeki Önder Özen wants Galatasaray to sign United ace](https://thepeoplesperson.com/2026/05/08/bruno-fernandes-zeki-onder-ozen-wants-galatasaray-to-sign-united-ace-309782/) - **The Peoples Person**
-2. [Arsenal sense Premier League glory as Spurs eye safety](https://punchng.com/arsenal-sense-premier-league-glory-as-spurs-eye-safety/) - **The Punch**
-3. [Manchester City experienced star remains an option for Barcelona – report](https://barcauniversal.com/manchester-city-experienced-star-remains-an-option-for-barcelona-report/) - **Barcauniversal.com**
-4. [Arsenal and Man City will fight for Premier League midfielder](https://www.justarsenal.com/arsenal-and-man-city-will-fight-for-premier-league-midfielder/414850) - **Just Arsenal News**
-5. [Rumour Monger: Liverpool, Arsenal and Newcastle Interested in Froholdt](https://liverpooloffside.sbnation.com/liverpool-transfer-news-rumours/80248/liverpool-fc-transfer-rumour-monger-liverpool-arsenal-and-newcastle-interested-in-victor-froholdt-porto-arsenal-newcastle) - **SB Nation**
-6. [Sam Saunders: My reflection on historic Brentford B season](https://www.brentfordfc.com/en/news/article/brentford-b-team-sam-saunders-2025-26-review-interview) - **Brentfordfc.com**
-7. [Chelsea team news: Latest on Reece James, Levi Colwill and more ahead of Liverpool clash](https://anfieldindex.com/93943/chelsea-team-news-latest-on-reece-james-levi-colwill-and-more-ahead-of-liverpool-clash.html) - **Anfieldindex.com**
-8. [Report: Man City considering mega move for world-class Real Madrid star](https://eplindex.com/146164/report-man-city-considering-mega-move-for-world-class-real-madrid-star.html) - **English Premier League Index - Opta Stats**
+1. [Reds Legend Molby Breaks Down Liverpool’s Midfield Crisis Under Slot](https://anfieldindex.com/93945/reds-legend-molby-breaks-down-liverpools-midfield-crisis-under-slot.html) - **Anfieldindex.com**
+2. [Report: Arsenal and Liverpool are in the race to sign PSG forward](https://eplindex.com/146167/report-arsenal-and-liverpool-are-in-the-race-to-sign-psg-forward.html) - **English Premier League Index - Opta Stats**
+3. ["Pressure is always there": RCB's Krunal Pandya on challenges of being IPL defending champions](https://economictimes.indiatimes.com/news/sports/pressure-is-always-there-rcbs-krunal-pandya-on-challenges-of-being-ipl-defending-champions/articleshow/130955065.cms) - **The Times of India**
+4. [Juventus urged to sign Man City star Bernardo Silva ‘right away’](https://football-italia.net/juventus-urged-sign-bernardo-silva-right-away/) - **Football Italia**
+5. [Howe on Miley's injury, back to winning ways, Gordon interest](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7b588f0b-34d9-47aa-91eb-852e5dd37793) - **Yahoo Entertainment**
+6. [Carrick focussed ahead of return to Stadium of Light](https://www.rte.ie/sport/soccer/2026/0508/1572334-carrick-focussed-ahead-of-return-to-stadium-of-light/) - **RTE**
+7. [English clubs achieve historic European final feat](https://thefootballfaithful.com/english-clubs-achieve-historic-european-final-feat/) - **The Football Faithful**
+8. [El Hadji Malick Diouf: Man United blown away by West Ham star](https://thepeoplesperson.com/2026/05/08/el-hadji-malick-diouf-man-united-blown-away-by-west-ham-star-309790/) - **The Peoples Person**
+9. [Hurzeler on team fitness, his new deal and Wolves](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_cc075670-f6c6-4c9b-9056-0a13248379d1) - **Yahoo Entertainment**
+10. ['They looked like me': Why Arsenal became Africa's club](https://sports.yahoo.com/articles/looked-why-arsenal-became-africas-092211452.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-05-09 17:21:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-09 18:55:07 (KST) / (하루 100회 제한 준수 중)*
