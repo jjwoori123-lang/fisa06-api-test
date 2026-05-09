@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Eric Cantona Talks Alex Ferguson In First Footage From Cannes-Bound Documentary: “I Was Well Protected By Him…We Loved Him”](http://deadline.com/2026/05/eric-cantona-talks-alex-ferguson-first-footage-new-film-1236887650/) - **Deadline**
-2. [Roberto De Zerbi has already approved £27m Spurs signing](https://eplindex.com/146171/roberto-de-zerbi-has-already-approved-27m-spurs-signing.html) - **English Premier League Index - Opta Stats**
-3. [Molby’s View: Tactical Tweaks Liverpool Must Make to Beat Chelsea](https://anfieldindex.com/93946/molbys-view-tactical-tweaks-liverpool-must-make-to-beat-chelsea.html) - **Anfieldindex.com**
-4. [ Power Rankings: Man City stumble, PSG take top spot](https://thefootballfaithful.com/%f0%9f%93%88-power-rankings-man-city-stumble-psg-take-top-spot/) - **The Football Faithful**
-5. [Bayern Munich open Gordon transfer talks with Newcastle United](https://thefootballfaithful.com/bayern-munich-gordon-trnasfer-talks-newcastle-united/) - **The Football Faithful**
-6. [Manchester City vs Brentford (Premier League): Match Preview, Team News, Stats, Head to Head, How to Watch](https://cityxtra.co.uk/46077/manchester-city-vs-brentford-premier-league-match-preview-team-news-stats-head-to-head-how-to-watch/) - **Cityxtra.co.uk**
-7. [JJ Gabriel, Albert Mills: United starlets nominated for U18 PL POTS award](https://thepeoplesperson.com/2026/05/08/jj-gabriel-albert-mills-united-starlets-nominated-for-u18-pl-pots-award-309797/) - **The Peoples Person**
-8. [KKR vs DC head-to-head IPL: Last 5 matches, records at Eden Gardens, Kolkata and Arun Jaitley Stadium, Delhi](https://www.cricketnews.com/en/cricket/news/kkr-vs-dc-head-head-ipl-last-matches-eden-gardens-kolkata-delhi/cb32362c42d44ef643ed6f53) - **Cricketnews.com**
-9. [‘Would hold immense appeal…’: £43m PL stalwart left mulling over Anfield/Old Trafford moves ahead of summer approaches](https://strettynews.com/2026/05/08/micky-van-de-ven-manchester-united-liverpool-interest-tottenham-hotspur-premier-league/) - **Strettynews.com**
-10. [Leinster continue to ride the waves of negativity that come their way](https://www.irishtimes.com/sport/2026/05/08/leinster-continue-to-ride-the-waves-of-negativity-that-come-their-way/) - **The Irish Times**
+1. [Sky Sports: Liverpool are in the race to sign PSG star this summer](https://anfieldindex.com/93947/sky-sports-liverpool-are-in-the-race-to-sign-psg-star-this-summer.html) - **Anfieldindex.com**
+2. [Arsenal, Villa and Palace eye unique European treble for England](https://www.playmakerstats.com/news/arsenal-villa-and-palace-eye-unique-european-treble-for-england/1119757) - **Playmakerstats.com**
+3. [Premier League club confirm investigation into star amid alleged messages to 15-year-old girl as player is excluded from squad for match this weekend](https://www.dailymail.com/sport/football/article-15801375/bournemouth-alex-jimenez-investigation-alleged-messages.html) - **Dailymail.com**
+4. [Pep Guardiola press conference: Rodri, Ruben Dias and Josko Gvardiol fitness updates for Brentford clash](https://cityxtra.co.uk/46092/pep-guardiola-press-conference-rodri-ruben-dias-and-josko-gvardiol-fitness-updates-for-brentford-clash/) - **Cityxtra.co.uk**
+5. [Pick of the stats: Middlesbrough v Southampton](https://www.bbc.com/sport/football/articles/cvgzpxgel1yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Howe insists Gordon ‘committed’ to Newcastle amid Bayern talks](https://thefootballfaithful.com/howe-gordon-newcastle-bayern-transfer-talks/) - **The Football Faithful**
+7. [Howe casts doubt on Livramento’s World Cup hopes](https://thefootballfaithful.com/newcastle-injury-news-howe-casts-doubt-on-livramentos-world-cup-hopes/) - **The Football Faithful**
+8. [Rooney hails calm Carrick has brought to Man United](https://thefootballfaithful.com/rooney-hails-calm-carrick-has-brought-to-man-united/) - **The Football Faithful**
+9. [Iraola on Kluivert's return, 'massive' fight for Europe and Fulham](https://www.bbc.com/sport/football/articles/cq6p72z94mlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Tchouameni: Blockbuster contract United can offer to Real Madrid star](https://thepeoplesperson.com/2026/05/08/tchouameni-blockbuster-contract-united-can-offer-real-madrid-star-309800/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-05-09 19:59:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-09 20:57:09 (KST) / (하루 100회 제한 준수 중)*
