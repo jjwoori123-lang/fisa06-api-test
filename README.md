@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [TV and streaming viewing picks for May 9, 2026: How to watch NBA and NHL Playoffs](https://awfulannouncing.com/viewing-picks/may-9-2026-watch-nba-and-nhl-playoffs.html) - **Awful Announcing**
-2. [Bournemouth close in on European place with crucial win at Fulham](https://www.skysports.com/football/news/11661/13540704/fulham-0-1-bournemouth-rayan-nets-winner-after-ryan-christie-and-joachim-andersen-sent-off-as-cherries-close-in-on-european-spot) - **Sky Sports**
-3. [Carragher names the teams interested in Arsenal’s game against West Ham](https://www.justarsenal.com/carragher-names-the-teams-interested-in-arsenals-game-against-west-ham/414923) - **Just Arsenal News**
-4. [Pundit explains why it is unclear how Juventus will approach the transfer market](https://www.juvefc.com/pundit-explains-why-it-is-unclear-how-juventus-will-approach-the-transfer-market/) - **JuveFC**
-5. [Man City beat Brentford to move two points behind Arsenal](https://www.skysports.com/football/news/11679/13540734/man-city-3-0-brentford-jeremy-doku-erling-haaland-and-omar-marmoush-on-target-as-pep-guardiolas-side-cut-gap-to-arsenal-to-two-points) - **Sky Sports**
-6. [LIVE – Liverpool v Chelsea: Commentary, updates, goals and stats for Premier League clash](https://www.101greatgoals.com/live/liverpool-v-chelsea-live-updates-goals-stats/) - **101 Great Goals**
-7. [Man Utd miss chance to secure third in Sunderland stalemate](https://www.skysports.com/football/news/11095/13540710/sunderland-0-0-manchester-united-michael-carricks-men-move-closer-to-securing-third-placed-finish) - **Sky Sports**
-8. [Chelsea make five changes as Colwill starts against Liverpool](https://thefootballfaithful.com/chelsea-colwill-starts-liverpool-premier-league/) - **The Football Faithful**
-9. [Mateus Fernandes: Why United are ahead in race to sign West Ham gem](https://thepeoplesperson.com/2026/05/09/mateus-fernandes-why-united-are-ahead-in-race-to-sign-west-ham-gem-309850/) - **The Peoples Person**
-10. [Report: Wolves star set to leave in £39m deal](https://eplindex.com/146214/report-wolves-star-set-to-leave-in-39m-deal.html) - **English Premier League Index - Opta Stats**
+1. [Leeds vs. Tottenham prediction: Odds, picks, expert best bets for Monday's Premier League match](https://www.cbssports.com/betting/news/leeds-vs-tottenham-prediction-odds-picks-expert-best-bets-for-mondays-premier-league-match/) - **CBS Sports**
+2. [Nottingham Forest v Newcastle United: Key stats and talking points](https://www.bbc.com/sport/football/articles/ckgp10p8ek9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Atletico Madrid gives boost to Arsenal in battle to sign Serie A star](https://www.justarsenal.com/atletico-madrid-gives-boost-to-arsenal-in-battle-to-sign-serie-a-star/414926) - **Just Arsenal News**
+4. ['We can breathe, but nothing is safe' - Okafor adamant Leeds need more](https://www.skysports.com/football/news/11095/13541078/tottenham-vs-leeds-noah-okafors-goals-play-key-part-in-steering-daniel-farkes-side-clear-of-relegation-threat) - **Sky Sports**
+5. [Liverpool vs Chelsea live: Gravenberch goal gives Reds lead with ‘beautiful’ strike in Premier League](https://www.101greatgoals.com/football/premier-league/liverpool-vs-chelsea-live-gravenberch-goal/) - **101 Great Goals**
+6. [ Early Liverpool worldie compounds Chelsea's defensive woes](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_78907a55-c6dd-4acb-812f-6827cec46cb7) - **Yahoo Entertainment**
+7. [PSG missing injured Mendes, Pacho and Zaïre-Emery for game against Brest in Ligue 1](https://sports.yahoo.com/articles/psg-missing-injured-mendes-pacho-114959983.html) - **Yahoo Entertainment**
+8. [Altoona Inferno to bring semi-pro hockey to Galactic Ice](https://www.tribdem.com/sports/local_sports/altoona-inferno-to-bring-semi-pro-hockey-to-galactic-ice/article_05af3b75-16cc-44c5-9021-2b4d1ec64b95.html) - **TribDem.com**
+9. [FC Barcelona signs MoU to establish football academy in Bayelsa](https://punchng.com/fc-barcelona-signs-mou-to-establish-football-academy-in-bayelsa/) - **The Punch**
+10. [Premier League: Gravenberch curls Liverpool in front against Chelsea](https://www.bbc.com/sport/football/live/c3w331lyddlt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-10 20:01:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-10 21:06:10 (KST) / (하루 100회 제한 준수 중)*
