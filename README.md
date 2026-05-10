@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Real Madrid’s Coaching Search Intensifies As Mourinho Emerges As Leading Candidate](https://www.managingmadrid.com/real-madrid-cf-transfer-talk/107490/real-madrids-coaching-search-intensifies-as-mourinho-emerges-as-leading-candidate) - **Managing Madrid**
-2. [Man City vs. Brentford live score, stats, highlights, Premier League result, analysis from the Etihad Stadium](https://www.sportingnews.com/us/soccer/news/man-city-brentford-score-result-stats-highlights-premier-league/577f8b693c8a5d2738691bf3) - **Sporting News**
-3. [Barcelona wants to ruin Arsenal’s plans for Champions League winners](https://www.justarsenal.com/barcelona-wants-to-ruin-arsenals-plans-for-champions-league-winners/414942) - **Just Arsenal News**
-4. [Middlesbrough 0-0 Southampton: Report, result, highlights from EFL Championship play off semi final as Hellberg says alleged spying is ‘not okay’ in quest to reach Premier League](https://www.101greatgoals.com/news/middlesbrough-southampton-report-result-championship-play-off/) - **101 Great Goals**
-5. [Ex-Juventus man says they have to sign Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_781c9e2a-b573-4a21-9227-b2c2ac191aae) - **Yahoo Entertainment**
-6. [Liverpool star singled out after 'incredible' moment vs Chelsea](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-star-singled-out-after-incredible-moment-vs-chelsea/) - **Anfieldwatch.co.uk**
-7. [Slot says Anfield boos ‘make sense’ after Liverpool held by Chelsea](https://www.101greatgoals.com/football/premier-league/liverpool-slot-anfield-boos/) - **101 Great Goals**
-8. ['Hard to accept' recent results - Slot](https://www.bbc.com/sport/football/videos/c62rgjg50m5o) - **BBC News**
-9. [(Video) Arne Slot will have loved what Rio Ngumoha did just before Ryan Gravenberch goal](https://www.empireofthekop.com/2026/05/09/slot-will-have-loved-what-ngumoha-did-just-before-gravenberch-goal/) - **Empire of The Kop**
-10. [Stephen Warnock noticed two Liverpool players ‘constantly arguing’ during wretched first half](https://www.empireofthekop.com/2026/05/09/stephen-warnock-noticed-two-liverpool-players-constantly-arguing/) - **Empire of The Kop**
+1. [Manchester United held to battling goalless draw at Sunderland](https://www.independent.ie/sport/soccer/premier-league/manchester-united-held-to-battling-goalless-draw-at-sunderland/a1730458475.html) - **Independent.ie**
+2. [Bournemouth and Brighton keep European hopes on track](https://www.rte.ie/sport/soccer/2026/0509/1572544-bournemouth-and-brighton-keep-european-hopes-on-track/) - **RTE**
+3. [Sunderland and Man United in Stadium Of Light stalemate](https://www.rte.ie/sport/soccer/2026/0509/1572495-sunderland-and-man-united-in-stadium-of-light-stalemate/) - **RTE**
+4. [How to watch Tottenham Hotspur vs Leeds live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-tottenham-hotspur-vs-leeds-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
+5. [Club to name stadium after ex-Gunner](https://dailycannon.com/2026/05/utrea-jose-antonio-reyes-stadium/) - **Dailycannon.com**
+6. [Sunderland 0-0 Manchester United: Report, result, analysis as Zirkzee ‘offers absolutely nothing’ – but ‘old-fashioned’ Black Cats striker shines in Premier League draw](https://www.101greatgoals.com/football/premier-league/sunderland-manchester-united-report-result-goals/) - **101 Great Goals**
+7. [Seagulls cruise past Wolves](https://www.playmakerstats.com/news/brighton-hove-albion-x-wolverhampton-highlights-summary-and-match-report/1120767) - **Playmakerstats.com**
+8. [LIVE – Man City v Brentford: Commentary, updates, goals and stats for Premier League clash](https://www.101greatgoals.com/live/man-city-v-brentford-live-updates-goals-stats/) - **101 Great Goals**
+9. [Split Arsenal votes cost Declan Rice as Bruno Fernandes win Footballer of the Year](https://www.justarsenal.com/split-arsenal-votes-cost-declan-rice-as-bruno-fernandes-win-footballer-of-the-year/414937) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-05-11 00:02:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-11 01:12:57 (KST) / (하루 100회 제한 준수 중)*
