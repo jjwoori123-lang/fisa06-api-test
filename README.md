@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Departing Iraola targets strong finish as Bournemouth edge closer to Europe](https://www.channelnewsasia.com/sport/departing-iraola-targets-strong-finish-bournemouth-edge-closer-europe-6111326) - **CNA**
-2. [Senne Lammens saved Man United’s blushes against Sunderland](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_798286d4-fedd-40db-af60-5faa7fc7f046) - **Yahoo Entertainment**
-3. [Haway The Podcast | MATCHDAY PUBCAST | SAFC 0-0 MUFC | The Lads Dominate But It Ends Goalless!](https://rokerreport.sbnation.com/haway-the-podcast/137216/haway-the-podcast-matchday-pubcast-safc-0-0-mufc-the-lads-dominate-but-it-ends-goalless) - **SB Nation**
-4. [It's all over for Arne Slot at Liverpool](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_067f0cd2-7ee0-40a3-aab0-a0e0b3ef958e) - **Yahoo Entertainment**
-5. [Fans have right to be angry after 'despicable' start - Edwards](https://www.bbc.com/sport/football/videos/c62rgjgx20do) - **BBC News**
-6. [Will Jurrien Timber return to the Arsenal team against West Ham?](https://www.justarsenal.com/will-jurrien-timber-return-to-the-arsenal-team-against-west-ham/414938) - **Just Arsenal News**
-7. [Inside Training: Working hard before West Ham](http://www.arsenal.com/news/inside-training-working-hard-west-ham) - **Arsenal.com**
-8. [Could a complex UEFA coefficient loophole save Chelsea's disastrous Premier League season?](https://www.cbssports.com/soccer/news/uefa-coefficient-chelsea-disastrous-premier-league-season/) - **CBS Sports**
-9. [Silva unhappy with Andersen red card decision](https://www.bbc.com/sport/football/videos/cj0pz698855o) - **BBC News**
-10. [Senne Lammens holds Sunderland at bay as Manchester United struggle without Benjamin Sesko](https://www.irishtimes.com/sport/soccer/2026/05/09/senne-lammens-holds-sunderland-at-bay-as-manchester-united-struggle-without-benjamin-sesko/) - **The Irish Times**
+1. [Premier League all-time goal leaders — Haaland ties Mane, eyes Wright; Welbeck, Wood, Wilson in top 50](https://www.nbcsports.com/soccer/news/premier-league-all-time-goals-leaders-scoring-records-stats-100-goals-top-50) - **NBCSports.com**
+2. [How Bournemouth are on brink of Europe despite losing stars](https://www.bbc.com/sport/football/articles/cddp9q7qeyvo) - **BBC News**
+3. [Jérémy Doku simply can not stop scoring bangers ](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8609dcdd-33db-4c6e-82bf-bdf02aa159f6) - **Yahoo Entertainment**
+4. [Chelsea finally show some fight ahead of do-or-die FA Cup final, Rio Ngumoha proves he made the right call and Xabi Alonso might have a decision to make after emerging as top target](https://www.dailymail.com/sport/football/article-15801251/Chelsea-fight-FA-Cup-Rio-Ngumoha.html) - **Dailymail.com**
+5. [Fuchs should stay at Newport amid Leicester links](https://www.bbc.com/sport/football/articles/c0j2zyn9xq7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Wrexham can build on 2025-26 season - Vokes](https://www.bbc.com/sport/football/articles/c0425ygkgz4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Premier League results today: Reports, scores, highlights, full table and reaction from Brighton vs Wolves, Fulham vs Bournemouth](https://www.101greatgoals.com/football/premier-league/premier-league-results-today-reports-scores-highlights-table/) - **101 Great Goals**
+8. [Aston Villa snub Douglas Luiz purchase as Juventus face repeat of Arthur problem](https://football-italia.net/aston-villa-snub-douglas-luiz-juventus/) - **Football Italia**
+9. [Slot booed as Chelsea hold Liverpool to end losing run](https://www.rediff.com/sports/report/slot-booed-as-chelsea-hold-liverpool-to-end-losing-run-what-it-means-to-epl-standings/20260509.htm) - **Rediff.com**
 
 
 ---
-*최근 업데이트: 2026-05-11 02:15:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-11 03:10:08 (KST) / (하루 100회 제한 준수 중)*
