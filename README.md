@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Player Ratings: Slot’s Reds Booed After Another Lifeless Display at Anfield](https://anfieldindex.com/93989/player-ratings-slots-reds-booed-after-another-lifeless-display-at-anfield.html) - **Anfieldindex.com**
-2. [Spotted: Liverpool duo seen arguing as 'petrified' claim made](https://www.anfieldwatch.co.uk/liverpool-fc/news/spotted-liverpool-duo-seen-arguing-as-petrified-claim-made/) - **Anfieldwatch.co.uk**
-3. [Liverpool settles for 1-1 draw with Chelsea amid boos at Anfield](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bec38ada-4004-4e5e-94f7-3005b36ea413) - **Yahoo Entertainment**
-4. [Chelsea holt Remis bei Liverpool](https://sport.orf.at/stories/3155611/) - **Sport.orf.at**
-5. [Report: PSG eyeing surprise move for Arsenal forward](https://eplindex.com/146218/report-psg-eyeing-surprise-move-for-arsenal-forward.html) - **English Premier League Index - Opta Stats**
-6. [(VIDEO) Liverpool 1-1 Chelsea: Gravenberch Strike Cancelled by Fernández Equalizer in Anfield Thriller](https://www.ibtimes.com.au/video-liverpool-1-1-chelsea-gravenberch-strike-cancelled-fernandez-equalizer-anfield-thriller-1868470) - **Ibtimes.com.au**
-7. [“It’ll sting if weak team wins”- Fans slam Arne Slot’s big decision to include Jeremie Frimpong in Liverpool vs Chelsea](https://timesofindia.indiatimes.com/sports/international-sports/itll-sting-if-weak-team-wins-fans-slam-arne-slots-big-decision-to-include-jeremie-frimpong-in-liverpool-vs-chelsea/articleshow/130978525.cms) - **The Times of India**
-8. [Rio And Gravenberch Get 7.5 | Liverpool Players Rated In Lackluster Draw Vs Chelsea](https://the4thofficial.net/2026/05/rio-and-gravenberch-get-7-5-liverpool-players-rated-in-lackluster-draw-vs-chelsea/) - **The4thofficial.net**
-9. [ Sunderland v Manchester United XIs: Mbeumo and Dorgu on the bench!](https://onefootball.com/en/news/sunderland-v-manchester-united-xis-mbeumo-and-dorgu-on-the-bench-42838947) - **Onefootball.com**
-10. [Chelsea end six-game losing run with 1-1 draw at Liverpool](https://www.channelnewsasia.com/sport/chelsea-end-six-game-losing-run-1-1-draw-liverpool-6111196) - **CNA**
+1. [Real Madrid’s Coaching Search Intensifies As Mourinho Emerges As Leading Candidate](https://www.managingmadrid.com/real-madrid-cf-transfer-talk/107490/real-madrids-coaching-search-intensifies-as-mourinho-emerges-as-leading-candidate) - **Managing Madrid**
+2. [Man City vs. Brentford live score, stats, highlights, Premier League result, analysis from the Etihad Stadium](https://www.sportingnews.com/us/soccer/news/man-city-brentford-score-result-stats-highlights-premier-league/577f8b693c8a5d2738691bf3) - **Sporting News**
+3. [Barcelona wants to ruin Arsenal’s plans for Champions League winners](https://www.justarsenal.com/barcelona-wants-to-ruin-arsenals-plans-for-champions-league-winners/414942) - **Just Arsenal News**
+4. [Middlesbrough 0-0 Southampton: Report, result, highlights from EFL Championship play off semi final as Hellberg says alleged spying is ‘not okay’ in quest to reach Premier League](https://www.101greatgoals.com/news/middlesbrough-southampton-report-result-championship-play-off/) - **101 Great Goals**
+5. [Ex-Juventus man says they have to sign Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_781c9e2a-b573-4a21-9227-b2c2ac191aae) - **Yahoo Entertainment**
+6. [Liverpool star singled out after 'incredible' moment vs Chelsea](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-star-singled-out-after-incredible-moment-vs-chelsea/) - **Anfieldwatch.co.uk**
+7. [Slot says Anfield boos ‘make sense’ after Liverpool held by Chelsea](https://www.101greatgoals.com/football/premier-league/liverpool-slot-anfield-boos/) - **101 Great Goals**
+8. ['Hard to accept' recent results - Slot](https://www.bbc.com/sport/football/videos/c62rgjg50m5o) - **BBC News**
+9. [(Video) Arne Slot will have loved what Rio Ngumoha did just before Ryan Gravenberch goal](https://www.empireofthekop.com/2026/05/09/slot-will-have-loved-what-ngumoha-did-just-before-gravenberch-goal/) - **Empire of The Kop**
+10. [Stephen Warnock noticed two Liverpool players ‘constantly arguing’ during wretched first half](https://www.empireofthekop.com/2026/05/09/stephen-warnock-noticed-two-liverpool-players-constantly-arguing/) - **Empire of The Kop**
 
 
 ---
-*최근 업데이트: 2026-05-10 22:57:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-11 00:02:17 (KST) / (하루 100회 제한 준수 중)*
