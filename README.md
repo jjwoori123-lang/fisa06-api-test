@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Leeds vs. Tottenham prediction: Odds, picks, expert best bets for Monday's Premier League match](https://www.cbssports.com/betting/news/leeds-vs-tottenham-prediction-odds-picks-expert-best-bets-for-mondays-premier-league-match/) - **CBS Sports**
-2. [Nottingham Forest v Newcastle United: Key stats and talking points](https://www.bbc.com/sport/football/articles/ckgp10p8ek9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Atletico Madrid gives boost to Arsenal in battle to sign Serie A star](https://www.justarsenal.com/atletico-madrid-gives-boost-to-arsenal-in-battle-to-sign-serie-a-star/414926) - **Just Arsenal News**
-4. ['We can breathe, but nothing is safe' - Okafor adamant Leeds need more](https://www.skysports.com/football/news/11095/13541078/tottenham-vs-leeds-noah-okafors-goals-play-key-part-in-steering-daniel-farkes-side-clear-of-relegation-threat) - **Sky Sports**
-5. [Liverpool vs Chelsea live: Gravenberch goal gives Reds lead with ‘beautiful’ strike in Premier League](https://www.101greatgoals.com/football/premier-league/liverpool-vs-chelsea-live-gravenberch-goal/) - **101 Great Goals**
-6. [ Early Liverpool worldie compounds Chelsea's defensive woes](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_78907a55-c6dd-4acb-812f-6827cec46cb7) - **Yahoo Entertainment**
-7. [PSG missing injured Mendes, Pacho and Zaïre-Emery for game against Brest in Ligue 1](https://sports.yahoo.com/articles/psg-missing-injured-mendes-pacho-114959983.html) - **Yahoo Entertainment**
-8. [Altoona Inferno to bring semi-pro hockey to Galactic Ice](https://www.tribdem.com/sports/local_sports/altoona-inferno-to-bring-semi-pro-hockey-to-galactic-ice/article_05af3b75-16cc-44c5-9021-2b4d1ec64b95.html) - **TribDem.com**
-9. [FC Barcelona signs MoU to establish football academy in Bayelsa](https://punchng.com/fc-barcelona-signs-mou-to-establish-football-academy-in-bayelsa/) - **The Punch**
-10. [Premier League: Gravenberch curls Liverpool in front against Chelsea](https://www.bbc.com/sport/football/live/c3w331lyddlt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Player Ratings: Slot’s Reds Booed After Another Lifeless Display at Anfield](https://anfieldindex.com/93989/player-ratings-slots-reds-booed-after-another-lifeless-display-at-anfield.html) - **Anfieldindex.com**
+2. [Spotted: Liverpool duo seen arguing as 'petrified' claim made](https://www.anfieldwatch.co.uk/liverpool-fc/news/spotted-liverpool-duo-seen-arguing-as-petrified-claim-made/) - **Anfieldwatch.co.uk**
+3. [Liverpool settles for 1-1 draw with Chelsea amid boos at Anfield](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bec38ada-4004-4e5e-94f7-3005b36ea413) - **Yahoo Entertainment**
+4. [Chelsea holt Remis bei Liverpool](https://sport.orf.at/stories/3155611/) - **Sport.orf.at**
+5. [Report: PSG eyeing surprise move for Arsenal forward](https://eplindex.com/146218/report-psg-eyeing-surprise-move-for-arsenal-forward.html) - **English Premier League Index - Opta Stats**
+6. [(VIDEO) Liverpool 1-1 Chelsea: Gravenberch Strike Cancelled by Fernández Equalizer in Anfield Thriller](https://www.ibtimes.com.au/video-liverpool-1-1-chelsea-gravenberch-strike-cancelled-fernandez-equalizer-anfield-thriller-1868470) - **Ibtimes.com.au**
+7. [“It’ll sting if weak team wins”- Fans slam Arne Slot’s big decision to include Jeremie Frimpong in Liverpool vs Chelsea](https://timesofindia.indiatimes.com/sports/international-sports/itll-sting-if-weak-team-wins-fans-slam-arne-slots-big-decision-to-include-jeremie-frimpong-in-liverpool-vs-chelsea/articleshow/130978525.cms) - **The Times of India**
+8. [Rio And Gravenberch Get 7.5 | Liverpool Players Rated In Lackluster Draw Vs Chelsea](https://the4thofficial.net/2026/05/rio-and-gravenberch-get-7-5-liverpool-players-rated-in-lackluster-draw-vs-chelsea/) - **The4thofficial.net**
+9. [ Sunderland v Manchester United XIs: Mbeumo and Dorgu on the bench!](https://onefootball.com/en/news/sunderland-v-manchester-united-xis-mbeumo-and-dorgu-on-the-bench-42838947) - **Onefootball.com**
+10. [Chelsea end six-game losing run with 1-1 draw at Liverpool](https://www.channelnewsasia.com/sport/chelsea-end-six-game-losing-run-1-1-draw-liverpool-6111196) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-05-10 21:06:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-10 22:57:42 (KST) / (하루 100회 제한 준수 중)*
