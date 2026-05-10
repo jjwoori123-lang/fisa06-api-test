@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United held to battling goalless draw at Sunderland](https://www.independent.ie/sport/soccer/premier-league/manchester-united-held-to-battling-goalless-draw-at-sunderland/a1730458475.html) - **Independent.ie**
-2. [Bournemouth and Brighton keep European hopes on track](https://www.rte.ie/sport/soccer/2026/0509/1572544-bournemouth-and-brighton-keep-european-hopes-on-track/) - **RTE**
-3. [Sunderland and Man United in Stadium Of Light stalemate](https://www.rte.ie/sport/soccer/2026/0509/1572495-sunderland-and-man-united-in-stadium-of-light-stalemate/) - **RTE**
-4. [How to watch Tottenham Hotspur vs Leeds live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-tottenham-hotspur-vs-leeds-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
-5. [Club to name stadium after ex-Gunner](https://dailycannon.com/2026/05/utrea-jose-antonio-reyes-stadium/) - **Dailycannon.com**
-6. [Sunderland 0-0 Manchester United: Report, result, analysis as Zirkzee ‘offers absolutely nothing’ – but ‘old-fashioned’ Black Cats striker shines in Premier League draw](https://www.101greatgoals.com/football/premier-league/sunderland-manchester-united-report-result-goals/) - **101 Great Goals**
-7. [Seagulls cruise past Wolves](https://www.playmakerstats.com/news/brighton-hove-albion-x-wolverhampton-highlights-summary-and-match-report/1120767) - **Playmakerstats.com**
-8. [LIVE – Man City v Brentford: Commentary, updates, goals and stats for Premier League clash](https://www.101greatgoals.com/live/man-city-v-brentford-live-updates-goals-stats/) - **101 Great Goals**
-9. [Split Arsenal votes cost Declan Rice as Bruno Fernandes win Footballer of the Year](https://www.justarsenal.com/split-arsenal-votes-cost-declan-rice-as-bruno-fernandes-win-footballer-of-the-year/414937) - **Just Arsenal News**
+1. [Departing Iraola targets strong finish as Bournemouth edge closer to Europe](https://www.channelnewsasia.com/sport/departing-iraola-targets-strong-finish-bournemouth-edge-closer-europe-6111326) - **CNA**
+2. [Senne Lammens saved Man United’s blushes against Sunderland](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_798286d4-fedd-40db-af60-5faa7fc7f046) - **Yahoo Entertainment**
+3. [Haway The Podcast | MATCHDAY PUBCAST | SAFC 0-0 MUFC | The Lads Dominate But It Ends Goalless!](https://rokerreport.sbnation.com/haway-the-podcast/137216/haway-the-podcast-matchday-pubcast-safc-0-0-mufc-the-lads-dominate-but-it-ends-goalless) - **SB Nation**
+4. [It's all over for Arne Slot at Liverpool](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_067f0cd2-7ee0-40a3-aab0-a0e0b3ef958e) - **Yahoo Entertainment**
+5. [Fans have right to be angry after 'despicable' start - Edwards](https://www.bbc.com/sport/football/videos/c62rgjgx20do) - **BBC News**
+6. [Will Jurrien Timber return to the Arsenal team against West Ham?](https://www.justarsenal.com/will-jurrien-timber-return-to-the-arsenal-team-against-west-ham/414938) - **Just Arsenal News**
+7. [Inside Training: Working hard before West Ham](http://www.arsenal.com/news/inside-training-working-hard-west-ham) - **Arsenal.com**
+8. [Could a complex UEFA coefficient loophole save Chelsea's disastrous Premier League season?](https://www.cbssports.com/soccer/news/uefa-coefficient-chelsea-disastrous-premier-league-season/) - **CBS Sports**
+9. [Silva unhappy with Andersen red card decision](https://www.bbc.com/sport/football/videos/cj0pz698855o) - **BBC News**
+10. [Senne Lammens holds Sunderland at bay as Manchester United struggle without Benjamin Sesko](https://www.irishtimes.com/sport/soccer/2026/05/09/senne-lammens-holds-sunderland-at-bay-as-manchester-united-struggle-without-benjamin-sesko/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-05-11 01:12:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-11 02:15:55 (KST) / (하루 100회 제한 준수 중)*
