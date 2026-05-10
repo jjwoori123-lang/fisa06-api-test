@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Premier League all-time goal leaders — Haaland ties Mane, eyes Wright; Welbeck, Wood, Wilson in top 50](https://www.nbcsports.com/soccer/news/premier-league-all-time-goals-leaders-scoring-records-stats-100-goals-top-50) - **NBCSports.com**
-2. [How Bournemouth are on brink of Europe despite losing stars](https://www.bbc.com/sport/football/articles/cddp9q7qeyvo) - **BBC News**
-3. [Jérémy Doku simply can not stop scoring bangers ](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8609dcdd-33db-4c6e-82bf-bdf02aa159f6) - **Yahoo Entertainment**
-4. [Chelsea finally show some fight ahead of do-or-die FA Cup final, Rio Ngumoha proves he made the right call and Xabi Alonso might have a decision to make after emerging as top target](https://www.dailymail.com/sport/football/article-15801251/Chelsea-fight-FA-Cup-Rio-Ngumoha.html) - **Dailymail.com**
-5. [Fuchs should stay at Newport amid Leicester links](https://www.bbc.com/sport/football/articles/c0j2zyn9xq7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Wrexham can build on 2025-26 season - Vokes](https://www.bbc.com/sport/football/articles/c0425ygkgz4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Premier League results today: Reports, scores, highlights, full table and reaction from Brighton vs Wolves, Fulham vs Bournemouth](https://www.101greatgoals.com/football/premier-league/premier-league-results-today-reports-scores-highlights-table/) - **101 Great Goals**
-8. [Aston Villa snub Douglas Luiz purchase as Juventus face repeat of Arthur problem](https://football-italia.net/aston-villa-snub-douglas-luiz-juventus/) - **Football Italia**
-9. [Slot booed as Chelsea hold Liverpool to end losing run](https://www.rediff.com/sports/report/slot-booed-as-chelsea-hold-liverpool-to-end-losing-run-what-it-means-to-epl-standings/20260509.htm) - **Rediff.com**
+1. ['Lovely' Liverpool star proves why Richard Hughes doesn't need to sign £69m ace](https://www.anfieldwatch.co.uk/liverpool-fc/news/lovely-liverpool-star-proves-why-richard-hughes-doesnt-need-to-sign-ps69m-ace/) - **Anfieldwatch.co.uk**
+2. [Arsenal Are In The Running For This Ligue 1 Striker: One For The Future?](https://the4thofficial.net/2026/05/arsenal-are-in-the-running-for-this-ligue-1-striker-one-for-the-future/) - **The4thofficial.net**
+3. [Race for Europe: How it stands and remaining games](https://www.bbc.com/sport/football/articles/cm2p4djmzl2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Race for Europe: How it stands and remaining games](https://www.bbc.com/sport/football/articles/cm2p4djmzl2o) - **BBC News**
+5. [Five Things Learned: Manchester City 3-0 Brentford (Premier League)](https://cityxtra.co.uk/46142/five-things-learned-manchester-city-3-0-brentford-premier-league/) - **Cityxtra.co.uk**
+6. [‘It’s okay’ – Haaland unimpressed by goal tally for Man City this season](https://thefootballfaithful.com/haaland-unimpressed-goal-tally-man-city-premier-league/) - **The Football Faithful**
+7. [Bournemouth stay in European hunt with win over Fulham in fiery contest](https://www.bbc.com/sport/football/videos/c2k2gx7kv1po) - **BBC News**
+8. [Brentford showed 'nothing but bravery' in Man City defeat - Andrews](https://www.bbc.com/sport/football/videos/c9v3e9ry00go) - **BBC News**
+9. [Manchester City beat stubborn Brentford to keep title race alive](https://www.bbc.com/sport/football/videos/c4g57xk140go) - **BBC News**
+10. ['Scoring goals isn't about being a genius' - Guardiola praises City's attack](https://www.bbc.com/sport/football/videos/c4g72m8xvzxo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-11 03:10:08 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-11 04:35:54 (KST) / (하루 100회 제한 준수 중)*
