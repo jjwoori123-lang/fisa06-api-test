@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Inside Jose Mourinho's looming Real Madrid return: How training ground chaos has provided conditions for shock move and the Kylian Mbappe vs Vinicius Jnr divide his predecessors have failed to solve](https://www.dailymail.com/sport/football/article-15803889/Jose-Mourinho-Real-Madrid-return-Mbappe-Vinicius-divide.html) - **Dailymail.com**
-2. [NPFL threatens points deduction over fixture violations](https://punchng.com/npfl-threatens-points-deduction-over-fixture-violations/) - **The Punch**
-3. [Ozebagbe demands focus in Ikorodu continental chase](https://punchng.com/ozebagbe-demands-focus-in-ikorodu-continental-chase/) - **The Punch**
-4. [Ex-Kwara keeper relishes top-flight return](https://punchng.com/ex-kwara-keeper-relishes-top-flight-return/) - **The Punch**
-5. [Remo, Bayelsa clash in relegation battle](https://punchng.com/remo-bayelsa-clash-in-relegation-battle/) - **The Punch**
-6. [Premier League Soccer: Stream West Ham vs. Arsenal From Anywhere Live](https://www.cnet.com/tech/services-and-software/premier-league-soccer-stream-west-ham-vs-arsenal-from-anywhere-live/) - **CNET**
-7. [Moses thrills Chelsea fans in Lagos visit](https://punchng.com/moses-thrills-chelsea-fans-in-lagos-visit/) - **The Punch**
-8. [The Ultimate Fandom Fest is Back and Has Officially Kicked Off, as Mumbai Comic Con Takes Over the Weekend](https://www.animenewsnetwork.com/press-release/2026-05-09/the-ultimate-fandom-fest-is-back-and-has-officially-kicked-off-as-mumbai-comic-con-takes-over-the-/.237213) - **Anime News Network**
-9. [Premier League footballers have to pass this running test to prove their fitness. Would you make the team?](https://www.runnersworld.com/uk/training/motivation/a71229536/premier-league-footballer-fitness/) - **Runner's World (UK)**
+1. [Man United learn asking price for defensive target with 11 goal contributions this season](https://strettynews.com/2026/05/10/man-united-maximiliano-araujo-asking-price/) - **Strettynews.com**
+2. [How Newcastle could line up in Premier League clash vs Nottingham Forest](https://sportsview.co.uk/2026/05/how-newcastle-could-line-up-in-premier-league-clash-vs-nottingham-forest?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=how-newcastle-could-line-up-in-premier-league-clash-vs-nottingham-forest) - **Sportsview.co.uk**
+3. [Newcastle United XI vs Nottingham Forest – Predicted lineup and team news](https://thefootballfaithful.com/newcastle-united-xi-vs-nottingham-forest-predicted-lineup-and-team-news/) - **The Football Faithful**
+4. [Nottingham Forest vs Newcastle United — Predicted lineup and team news](https://thefootballfaithful.com/nottingham-forest-vs-newcastle-united-predicted-lineup-and-team-news/) - **The Football Faithful**
+5. [Michael Carrick: Man United boss bristles at reporter’s suggestion](https://thepeoplesperson.com/2026/05/10/michael-carrick-man-united-boss-bristles-at-reporters-suggestion-309888/) - **The Peoples Person**
+6. [Talking Points: Sunderland “Quick On The Draw” As United Are Held](https://rokerreport.sbnation.com/opinion/137259/talking-points-sunderland-quick-on-the-draw-as-united-are-held) - **SB Nation**
+7. [“I can guarantee” – Fabrizio Romano drops big update on Chelsea manager search](https://chelsea.news/2026/05/i-can-guarantee-fabrizio-romano-drops-big-update-on-chelsea-manager-search/) - **Chelsea.news**
+8. [Report: 15-goal star says yes to Man United, £43m could get deal done](https://strettynews.com/2026/05/10/man-united-ederson-atalanta-transfer/) - **Strettynews.com**
+9. [Is West Ham vs Arsenal on TV? Channel, kick-off time and how to watch Premier League fixture](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7e4769c9-b382-4233-9a8c-a16d9d9dac3c) - **Yahoo Entertainment**
+10. [Scouting's Real Crisis Is Not Marketing. It Is Decades of Neglect.](https://www.untendedfire.org/2026/05/09/scoutings-real-crisis-is-not-marketing-it-is-decades-of-neglect/) - **Untendedfire.org**
 
 
 ---
-*최근 업데이트: 2026-05-11 10:29:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-11 14:42:20 (KST) / (하루 100회 제한 준수 중)*
