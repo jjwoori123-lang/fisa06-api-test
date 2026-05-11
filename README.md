@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Trossard gives Arsenal huge win despite late VAR controversy](https://www.skysports.com/football/video/12606/13542483/west-ham-0-1-arsenal-premier-league-highlights) - **Sky Sports**
-2. [Arsenal take massive step towards title after surviving late, late VAR drama in win over West Ham](https://www.independent.ie/sport/soccer/premier-league/arsenal-take-massive-step-towards-title-after-surviving-late-late-var-drama-in-win-over-west-ham/a672285655.html) - **Independent.ie**
-3. [Barcelona v Real Madrid: Confirmed team news and starting XIs for El Clasico](https://www.101greatgoals.com/football/la-liga/barcelona-v-real-madrid-confirmed-team-news-and-starting-xis-for-el-clasico/) - **101 Great Goals**
-4. [Arsenal on brink of Premier League title, Villa slip up in Champions League chase](https://sports.yahoo.com/articles/arsenal-brink-premier-league-title-175144180.html) - **Yahoo Entertainment**
-5. [Arsenal emerge from West Ham struggle with precious win](https://www.rte.ie/sport/soccer/2026/0510/1572599-arsenal-emerge-from-west-ham-struggle-with-precious-win/) - **RTE**
-6. [Arsenal survive late VAR drama to claim precious West Ham win](https://thefootballfaithful.com/arsenal-survive-late-var-drama-to-claim-precious-west-ham-win/) - **The Football Faithful**
-7. [Journalist: Arsenal must pay £74.5m to sign Premier League forward](https://eplindex.com/146266/journalist-arsenal-must-pay-74-5m-to-sign-premier-league-forward.html) - **English Premier League Index - Opta Stats**
-8. [Why was West Ham goal disallowed vs. Arsenal? David Raya incident explained as VAR saves Gunners](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8544354c-96b6-4dba-833a-7e64fb71da99) - **Yahoo Entertainment**
-9. [Arsenal survive VAR drama to move closer to title with dramatic win at West Ham](https://sports.yahoo.com/articles/arsenal-survive-var-drama-move-174610848.html) - **Yahoo Entertainment**
-10. [Trossard secures vital win for Arsenal at West Ham](https://www.channelnewsasia.com/sport/trossard-secures-vital-win-arsenal-west-ham-6112266) - **CNA**
+1. [Football Daily](https://www.bbc.co.uk/sounds/play/m002whpz?at_campaign=rss) - **BBC News**
+2. [Neville: Arsenal VAR call was 'biggest in Premier League history'](https://www.skysports.com/football/video/30998/13542531/west-ham-v-arsenal-gary-neville-says-arsenal-var-decision-could-be-biggest-in-premier-league-history) - **Sky Sports**
+3. [Mumbai, Lucknow out of IPL playoffs as RCB win thriller, CSK stay alive](https://www.channelnewsasia.com/sport/mumbai-lucknow-out-ipl-playoffs-rcb-win-thriller-csk-stay-alive-6112366) - **CNA**
+4. [EPL: Arteta hails referees for ‘brave decision’ after Arsenal win](https://punchng.com/epl-arteta-hails-referees-for-brave-decision-after-arsenal-win/) - **The Punch**
+5. [Tottenham star Luka Vuskovic bags free-kick in Hamburg win over Freiburg](https://sportsview.co.uk/2026/05/tottenham-star-luka-vuskovic-bags-free-kick-in-hamburg-win-over-freiburg?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-star-luka-vuskovic-bags-free-kick-in-hamburg-win-over-freiburg) - **Sportsview.co.uk**
+6. [Arne Slot's reign coming to an end as Liverpool make bombshell approach](https://www.anfieldwatch.co.uk/liverpool-fc/news/arne-slots-reign-coming-to-an-end-as-liverpool-make-bombshell-approach/) - **Anfieldwatch.co.uk**
+7. [Arsenal duo called up for England youth tournament](https://dailycannon.com/2026/05/munoz-maghoma-arsenal-england-u15s/) - **Dailycannon.com**
+8. [Highlights: West Ham United 0-1 Arsenal](http://www.arsenal.com/news/highlights-west-ham-united-0-1-arsenal) - **Arsenal.com**
+9. [Arteta reacts to huge VAR decision in Arsenal’s tense West Ham win](https://www.justarsenal.com/arteta-reacts-to-huge-var-decision-in-arsenals-tense-west-ham-win/414985) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-05-12 02:57:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-12 04:57:55 (KST) / (하루 100회 제한 준수 중)*
