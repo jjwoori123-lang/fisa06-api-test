@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Late goal and dramatic VAR call help Arsenal stay in control of Premier League title race](https://japantoday.com/category/sports/premier-league-villa-only-draws-to-hold-up-champions-league-qualification-bid.-forest-almost-safe) - **Japan Today**
-2. [Ken Early: Arsenal will be the champions this fearful Premier League deserves](https://www.irishtimes.com/sport/soccer/2026/05/11/ken-early-arsenal-will-be-the-champions-this-fearful-premier-league-deserves/) - **The Irish Times**
-3. [Japan's Mitoma injured as World Cup looms](https://japantoday.com/category/2026-fifa-world-cup/japan%27s-mitoma-injured-as-world-cup-looms) - **Japan Today**
-4. [Andoni Iraola “willing” to crush Michael Carrick’s dream](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f9a6f2a1-811f-4ee1-abd6-fdaf2ec29e2d) - **Yahoo Entertainment**
-5. [Papers: West Ham to lodge official complaint with PGMOL](https://www.skysports.com/football/news/11685/13542565/west-ham-will-lodge-a-formal-complaint-with-the-pgmol-over-the-disallowed-goal-vs-arsenal-paper-talk) - **Sky Sports**
-6. [Arsenal near first EPL crown in 22 years after late VAR call](https://punchng.com/arsenal-near-first-epl-crown-in-22-years-after-late-var-call/) - **The Punch**
-7. [Zohran Mamdani rubs elbows with Spike Lee to cheer on English soccer team in NYC](https://nypost.com/2026/05/10/us-news/zohran-mamdani-rubs-elbows-with-spike-lee-to-cheer-on-english-soccer-team-in-nyc/) - **New York Post**
-8. [Arsenal Player Ratings v West Ham – Raya immense as Trossard delivers](https://www.justarsenal.com/arsenal-player-ratings-v-west-ham-raya-immense-as-trossard-delivers/414983) - **Just Arsenal News**
-9. [The reasons West Ham face relegation - and why they are unlucky](https://www.bbc.com/sport/football/articles/c2l2kv57l9lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Liverpool make Arne Slot intention clear after boos at Anfield](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-make-arne-slot-intention-clear-after-boos-at-anfield/) - **Anfieldwatch.co.uk**
+1. [Season-defining VAR call causes division in EPL](https://www.abc.net.au/news/2026-05-11/var-helps-arsenal-title-push-pushes-west-ham-towards-relegation/106664586) - **ABC News (AU)**
+2. ['Only his last changes worked' - how Arteta's gambles finally paid off](https://www.bbc.com/sport/football/articles/c5yek23p30lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. ['Only his last changes worked' - how Arteta's gambles finally paid off](https://www.bbc.com/sport/football/articles/c5yek23p30lo) - **BBC News**
+4. [Everton target Stones return - Monday's gossip](https://www.bbc.com/sport/football/articles/c9q30e3lq5go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Everton target Stones return - Monday's gossip](https://www.bbc.com/sport/football/articles/c9q30e3lq5go) - **BBC News**
+6. [NBA Draft Lottery: The 7 biggest winners (Wizards finally!) and losers (tough break, Pacers)](https://ftw.usatoday.com/story/sports/nba/2026/05/10/nba-draft-lottery-winners-losers-wizards-pacers-jazz-aj-dybantsa-cam-boozer/90022523007/) - **USA Today**
+7. [Nuno Espirito Santo fumes after West Ham denied dramatic late equaliser by VAR in Arsenal clash - and claims referees are 'confusing' themselves over 'wrestling' in the box](https://www.dailymail.com/sport/football/article-15806279/nuno-espirito-santo-fumes-west-ham-arsenal-var-call.html) - **Dailymail.com**
+8. [Arsenal the champions in waiting but doing it the hard way](https://www.bbc.com/sport/football/articles/c2k2q928zl4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Arsenal the champions in waiting but doing it the hard way](https://www.bbc.com/sport/football/articles/c2k2q928zl4o) - **BBC News**
+10. [Peter Schmeichel FUMES at 'crazy' and 'so wrong' decision to disallow last-gasp West Ham goal - as he claims Arsenal have been scoring like that all season](https://www.dailymail.com/sport/football/article-15806059/Peter-Schmeichel-FUMES-crazy-wrong-decision-disallow-gasp-West-Ham-goal-claims-Arsenal-scoring-like-season.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-05-12 06:24:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-12 07:37:21 (KST) / (하루 100회 제한 준수 중)*
