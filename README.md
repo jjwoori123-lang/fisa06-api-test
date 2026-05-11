@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle and Chelsea keen on former Liverpool star](https://eplindex.com/146239/newcastle-and-chelsea-keen-on-former-liverpool-star.html) - **English Premier League Index - Opta Stats**
-2. [Newcastle’s Stance on Will Osula’s Future Emerges Amid Rising Transfer Interest](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/21628/newcastles-stance-on-will-osulas-future-emerges-amid-rising-transfer-interest) - **SB Nation**
-3. [Leeds the ‘favorites’ to sign redundant Juventus forward – Report](https://www.juvefc.com/leeds-united-juventus-lois-openda-2/) - **JuveFC**
-4. [Highest successful run chases in all T20 cricket at Chepauk stadium, Chennai: Full list of records including IPL and T20Is](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_05870a01-4b9d-4e19-93bf-1c9967ed753f) - **Yahoo Entertainment**
-5. [Guardiola publicly backs West Ham ahead of Arsenal title showdown](https://www.justarsenal.com/guardiola-publicly-backs-west-ham-ahead-of-arsenal-title-showdown/414978) - **Just Arsenal News**
-6. [dpa SPORTS SCHEDULE for SUNDAY, MAY 10, 1200 GMT](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260510-99-383129/) - **Dpa-international.com**
-7. [When did CSK last chase a 180+ target successfully in IPL? Full list of Chennai Super Kings' results in big run chases since 2019](https://www.sportingnews.com/in/ipl/news/csk-last-chase-180-target-successfully-ipl-list-results-2019/e39a783b832a13b8ec354bae) - **Sporting News**
-8. [Premier League LIVE: Nottingham Forest look to take step closer to survival against Newcastle before title-chasing Arsenal travel to West Ham](https://www.dailymail.com/sport/football/article-15797585/West-Ham-vs-Arsenal-Nottingham-Forest-Newcastle-Crystal-Palace-Everton-2025-26-Premier-League.html) - **Dailymail.com**
-9. [‘It does hurt’ – Joe Gomez says Liverpool fans are entitled to voice frustrations](https://www.independent.ie/sport/soccer/premier-league/it-does-hurt-joe-gomez-says-liverpool-fans-are-entitled-to-voice-frustrations/a2021622907.html) - **Independent.ie**
-10. [Dave Hendrick: “No tactical plan, no structure, no patterns, it’s game over for Slot”](https://anfieldindex.com/94010/dave-hendrick-no-tactical-plan-no-structure-no-patterns-its-game-over-for-slot.html) - **Anfieldindex.com**
+1. [Everton not out of European chase yet - Moyes](https://www.bbc.com/sport/football/videos/cd9p0ywn27vo) - **BBC News**
+2. [Burnley 2-2 Aston Villa: What Emery and Watkins said](https://www.bbc.com/sport/football/articles/ckgpryxn5rwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Villa stumble again in 2-2 draw with Burnley](https://www.channelnewsasia.com/sport/villa-stumble-again-in-2-2-draw-burnley-6112171) - **CNA**
+4. [Watkins rues quick turnaround after Aston Villa draw at relegated Burnley](https://thefootballfaithful.com/watkins-rues-quick-turnaround-after-aston-villa-draw-at-relegated-burnley/) - **The Football Faithful**
+5. [Gallery: Sunny Sunday session after Brentford victory!](https://www.mancity.com/news/mens/training-gallery-10-may-2026-63914020) - **Manchester City FC**
+6. [Urvil Patel hits record-equaling 13-ball 50 in IPL as Chennai beats Lucknow to boost top-4 hopes](https://sports.yahoo.com/articles/urvil-patel-hits-record-equaling-153254324.html) - **Yahoo Entertainment**
+7. [Guimaraes Gets 7.5 | Newcastle United Players Rated In Lackluster Draw Vs Nottingham Forest](https://the4thofficial.net/2026/05/guimaraes-gets-7-5-newcastle-united-players-rated-in-lackluster-draw-vs-nottingham-forest/) - **The4thofficial.net**
+8. [Aston Villa are sleepwalking and could blow the Champions League - and one superstar's odd habit is what might cost them, writes NATHAN SALT](https://www.dailymail.com/sport/football/article-15801671/Burnley-2-2-Aston-Villa-Unai-Emerys-sleepwalking-blow-MASSIVE-opportunity-effectively-secure-Champions-League-football-no-wonder-Villa-boss-furious-touchline-writes-NATHAN-SALT.html) - **Dailymail.com**
+9. [Elliot Anderson Earns Nottingham Forest Vital Point Against Newcastle United](https://eplindex.com/146260/elliot-anderson-earns-nottingham-forest-vital-point-against-newcastle-united.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-05-11 21:40:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-12 00:48:35 (KST) / (하루 100회 제한 준수 중)*
