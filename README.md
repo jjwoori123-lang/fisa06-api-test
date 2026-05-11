@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How can I watch City v Palace on TV?](https://www.mancity.com/news/mens/man-city-v-crystal-palace-tv-listings-63913997) - **Manchester City FC**
-2. [Arsenal learn referee appointed for key West Ham clash](https://dailycannon.com/2026/05/west-ham-arsenal-referee/) - **Dailycannon.com**
-3. [Arne Slot situation compared to final days of Roy Hodgson](https://www.empireofthekop.com/2026/05/10/arne-slot-situation-compared-to-final-days-of-roy-hodgson/) - **Empire of The Kop**
-4. [MLB trade deadline: Five teams to watch as executives weigh in on wild scenarios](https://www.usatoday.com/story/sports/mlb/columnist/bob-nightengale/2026/05/10/mlb-trade-deadline-rumors-2026-take-shape-sellers-to-watch/90016512007/) - **USA Today**
-5. [Match Preview: Arsenal must refocus quickly for dangerous West Ham test](https://www.justarsenal.com/match-preview-arsenal-must-refocus-quickly-for-dangerous-west-ham-test/414961) - **Just Arsenal News**
-6. [Irish Liverpool fan injured in Rome attack presents thank-you GAA jersey to Mo Salah](https://www.irishtimes.com/ireland/2026/05/10/irish-liverpool-fan-injured-in-rome-attack-presents-thank-you-gaa-jersey-to-mo-salah/) - **The Irish Times**
-7. [Chennai Super Kings vs Lucknow Super Giants Live Score Updates, IPL 2026: Lucknow Super Giants' formidable lineup against Chennai Super Kings](https://economictimes.indiatimes.com/news/sports/csk-vs-lsg-ipl-live-score-updates-chennai-super-kings-vs-lucknow-super-giants-live-match-score-today-10-may-2026/liveblog/130989917.cms) - **The Times of India**
-8. [Premier MHSAA football recruit trades lacrosse for track](https://www.freep.com/story/sports/high-school/2026/05/10/gideon-gash-trades-lacrosse-for-track-sets-novi-dcc-records/90012613007/) - **Detroit Free Press**
-9. [Where to watch West Ham vs. Arsenal live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-west-ham-arsenal-live-stream-tv-channel-time-premier-league/9e66687737f0236c7d348381) - **Sporting News**
-10. [Everton at Crystal Palace: Starting Lineups, TV and Live Streams, How to Watch Online](https://royalbluemersey.sbnation.com/everton-gamethread-live-blog/79917/everton-at-crystal-palace-starting-lineups-tv-and-live-streams-how-to-watch-online) - **SB Nation**
+1. [Newcastle and Chelsea keen on former Liverpool star](https://eplindex.com/146239/newcastle-and-chelsea-keen-on-former-liverpool-star.html) - **English Premier League Index - Opta Stats**
+2. [Newcastle’s Stance on Will Osula’s Future Emerges Amid Rising Transfer Interest](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/21628/newcastles-stance-on-will-osulas-future-emerges-amid-rising-transfer-interest) - **SB Nation**
+3. [Leeds the ‘favorites’ to sign redundant Juventus forward – Report](https://www.juvefc.com/leeds-united-juventus-lois-openda-2/) - **JuveFC**
+4. [Highest successful run chases in all T20 cricket at Chepauk stadium, Chennai: Full list of records including IPL and T20Is](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_05870a01-4b9d-4e19-93bf-1c9967ed753f) - **Yahoo Entertainment**
+5. [Guardiola publicly backs West Ham ahead of Arsenal title showdown](https://www.justarsenal.com/guardiola-publicly-backs-west-ham-ahead-of-arsenal-title-showdown/414978) - **Just Arsenal News**
+6. [dpa SPORTS SCHEDULE for SUNDAY, MAY 10, 1200 GMT](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260510-99-383129/) - **Dpa-international.com**
+7. [When did CSK last chase a 180+ target successfully in IPL? Full list of Chennai Super Kings' results in big run chases since 2019](https://www.sportingnews.com/in/ipl/news/csk-last-chase-180-target-successfully-ipl-list-results-2019/e39a783b832a13b8ec354bae) - **Sporting News**
+8. [Premier League LIVE: Nottingham Forest look to take step closer to survival against Newcastle before title-chasing Arsenal travel to West Ham](https://www.dailymail.com/sport/football/article-15797585/West-Ham-vs-Arsenal-Nottingham-Forest-Newcastle-Crystal-Palace-Everton-2025-26-Premier-League.html) - **Dailymail.com**
+9. [‘It does hurt’ – Joe Gomez says Liverpool fans are entitled to voice frustrations](https://www.independent.ie/sport/soccer/premier-league/it-does-hurt-joe-gomez-says-liverpool-fans-are-entitled-to-voice-frustrations/a2021622907.html) - **Independent.ie**
+10. [Dave Hendrick: “No tactical plan, no structure, no patterns, it’s game over for Slot”](https://anfieldindex.com/94010/dave-hendrick-no-tactical-plan-no-structure-no-patterns-its-game-over-for-slot.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-05-11 18:46:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-11 21:40:14 (KST) / (하루 100회 제한 준수 중)*
