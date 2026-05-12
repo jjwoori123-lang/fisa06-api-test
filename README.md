@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle's late goal struggles continue](https://www.playmakerstats.com/news/newcastle-s-late-goal-struggles-continue/1122777) - **Playmakerstats.com**
-2. [Premier League forward to prioritise Barcelona above all summer offers](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b4fe086c-15c2-4335-aa1d-7dbd5b1d3afb) - **Yahoo Entertainment**
-3. [Do Arsenal need a goalscorer? And indeed did we need one last summer?](https://untold-arsenal.com/archives/120755) - **Untold-arsenal.com**
-4. ['More change the better' - Edwards calls for big summer overhaul](https://www.bbc.com/sport/football/articles/c6268y1v4jwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Cornerkick grappling to come under IFAB spotlight](https://www.rte.ie/sport/soccer/2026/0511/1572772-cornerkick-grappling-to-come-under-ifab-spotlight/) - **RTE**
-6. [Inaugural World Sports Economy Summit Launches in London: A New Era of International Collaboration and Digital Innovation](https://www.prnewswire.com/news-releases/inaugural-world-sports-economy-summit-launches-in-london-a-new-era-of-international-collaboration-and-digital-innovation-302768110.html) - **PRNewswire**
-7. [Report: Juventus revive interest in Bournemouth stalwart](https://www.juvefc.com/juventus-revive-bournemouth-marcos-senesi/) - **JuveFC**
-8. [EPL: Man City boss Guardiola backs Marmoush to play big role in run-in](https://punchng.com/epl-man-city-boss-guardiola-backs-marmoush-to-play-big-role-in-run-in/) - **The Punch**
-9. [Ex-goalkeeper Martyn savours 'special' England cricket call](https://www.bbc.com/sport/articles/czd2335v1rmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Ex-goalkeeper Martyn savours 'special' England cricket call](https://www.bbc.com/sport/articles/czd2335v1rmo) - **BBC News**
+1. [Two Chelsea players get big praise from Athletic journalist but consistency is key](https://chelsea.news/2026/05/two-chelsea-players-get-big-praise-from-athletic-journalist-but-consistency-is-key/) - **Chelsea.news**
+2. [How Roma’s €70M Sponsorship Income Is Reshaping the Club](https://romapress.net/how-romas-e70m-sponsorship-income-is-reshaping-the-club/) - **RomaPress**
+3. [One moment in time: Goalscorer to goalkeeper!](https://www.mancity.com/news/mens/one-moment-in-time-crystal-palace-63914094) - **Manchester City FC**
+4. [Americans Abroad Player of the Week: Chris Richards](https://sbisoccer.com/2026/05/americans-abroad-player-of-the-week-chris-richards-4) - **Sbisoccer.com**
+5. [David Raya wins third straight Premier League Golden Glove](https://www.playmakerstats.com/news/david-raya-wins-third-straight-premier-league-golden-glove/1122910) - **Playmakerstats.com**
+6. [“Magic” Mikel Arteta enjoyed key moment from one Arsenal player](https://www.justarsenal.com/magic-mikel-arteta-enjoyed-key-moment-from-one-arsenal-player/415016) - **Just Arsenal News**
+7. [Roger Bennett’s message to A-Rod is one for the country: Soccer has already overtaken baseball in America](https://fortune.com/2026/05/11/roger-bennett-men-in-blazers-soccer-world-cup-2026-america/) - **Fortune**
+8. [Manchester United plot summer move for Real Madrid mainstay if club opens door to offers](https://madriduniversal.com/manchester-united-plot-summer-move-for-real-madrid-mainstay-if-club-opens-door-to-offers/) - **Madriduniversal.com**
+9. [Bournemouth working to keep key talent as clubs circle](https://thefootballfaithful.com/bournemouth-working-to-keep-key-talent-as-clubs-circle/) - **The Football Faithful**
+10. [Will Victor Wembanyama be suspended? What NBA history says about potential punishment for ejection due to elbow](https://www.sportingnews.com/us/nba/san-antonio-spurs/news/victor-wembanyama-suspended-elbow-ejection/6acdbd9ec91d575dbfc85498) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-05-12 19:43:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-12 22:05:23 (KST) / (하루 100회 제한 준수 중)*
