@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Shocking moment an Arsenal fan is thrown down the stairs at the London Stadium after committing ultimate football sin](https://www.dailymail.com/sport/football/article-15807069/arsenal-fan-thrown-london-stadium.html) - **Dailymail.com**
-2. [Premier League reaction: Was that Arsenal's title-winning moment?](https://www.bbc.com/sport/football/live/ckgpee77z8yt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Key games to watch for Florida football in first season under Jon Sumrall](https://www.gainesville.com/story/sports/college/football/2026/05/11/florida-football-schedule-five-games-to-watch-in-2026-jon-sumrall/89774683007/) - **Gainesville Sun**
-4. [“It was quite tense” Leandro Trossard reacts to win over West Ham](https://www.justarsenal.com/it-was-quite-tense-leandro-trossard-reacts-to-win-over-west-ham/415000) - **Just Arsenal News**
-5. [Barcelona defender achieves incredible feat no other player in world football has managed](https://barcauniversal.com/barcelona-defender-achieves-incredible-feat-no-other-player-in-world-football-has-managed/) - **Barcauniversal.com**
-6. [West Ham 0-1 Arsenal Stats: Arsenal Take Huge Step Towards Title After Leandro Trossard Winner and Late VAR Drama - Opta Analyst](https://slashdot.org/firehose.pl?op=view&amp;id=183179580) - **Slashdot.org**
-7. [Report: Two European giants keen on Manchester City defender](https://eplindex.com/146275/report-two-european-giants-keen-on-manchester-city-defender.html) - **English Premier League Index - Opta Stats**
-8. [Liverpool ready to sell Alexis Mac Allister; £73m phenom picked to replace him](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-ready-to-sell-alexis-mac-allister-ps73m-phenom-picked-to-replace-him/) - **Anfieldwatch.co.uk**
-9. [Arteta hails referee ‘courage’ as Arsenal saved by VAR](https://thefootballfaithful.com/arteta-hails-referee-courage-as-arsenal-saved-by-var/) - **The Football Faithful**
+1. [Newcastle's late goal struggles continue](https://www.playmakerstats.com/news/newcastle-s-late-goal-struggles-continue/1122777) - **Playmakerstats.com**
+2. [Premier League forward to prioritise Barcelona above all summer offers](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b4fe086c-15c2-4335-aa1d-7dbd5b1d3afb) - **Yahoo Entertainment**
+3. [Do Arsenal need a goalscorer? And indeed did we need one last summer?](https://untold-arsenal.com/archives/120755) - **Untold-arsenal.com**
+4. ['More change the better' - Edwards calls for big summer overhaul](https://www.bbc.com/sport/football/articles/c6268y1v4jwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Cornerkick grappling to come under IFAB spotlight](https://www.rte.ie/sport/soccer/2026/0511/1572772-cornerkick-grappling-to-come-under-ifab-spotlight/) - **RTE**
+6. [Inaugural World Sports Economy Summit Launches in London: A New Era of International Collaboration and Digital Innovation](https://www.prnewswire.com/news-releases/inaugural-world-sports-economy-summit-launches-in-london-a-new-era-of-international-collaboration-and-digital-innovation-302768110.html) - **PRNewswire**
+7. [Report: Juventus revive interest in Bournemouth stalwart](https://www.juvefc.com/juventus-revive-bournemouth-marcos-senesi/) - **JuveFC**
+8. [EPL: Man City boss Guardiola backs Marmoush to play big role in run-in](https://punchng.com/epl-man-city-boss-guardiola-backs-marmoush-to-play-big-role-in-run-in/) - **The Punch**
+9. [Ex-goalkeeper Martyn savours 'special' England cricket call](https://www.bbc.com/sport/articles/czd2335v1rmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Ex-goalkeeper Martyn savours 'special' England cricket call](https://www.bbc.com/sport/articles/czd2335v1rmo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-12 17:11:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-12 19:43:34 (KST) / (하루 100회 제한 준수 중)*
