@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['Sheer persistance!' | Palhinha effort flies over bar as Spurs increase pressure](https://www.skysports.com/football/video/12606/13542884/shot-j-palhinha-36-tottenham-hotspur-0-0-leeds) - **Sky Sports**
-2. [Ex-Rangers Star Exposes The Major Problem Holding Club Back: Does The Rebuild Address That?](https://the4thofficial.net/2026/05/ex-rangers-star-exposes-the-major-problem-holding-club-back-does-the-rebuild-address-that/) - **The4thofficial.net**
-3. [Joao Pedro names Arsenal man as his toughest defender he has faced this season](https://www.justarsenal.com/joao-pedro-names-arsenal-man-as-his-toughest-defender-he-has-faced-this-season/415031) - **Just Arsenal News**
-4. [Liverpool are strong contenders to sign £60m-rated Bowen this summer](https://sportsview.co.uk/2026/05/liverpool-are-strong-contenders-to-sign-60m-rated-bowen-this-summer?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=liverpool-are-strong-contenders-to-sign-60m-rated-bowen-this-summer) - **Sportsview.co.uk**
-5. [Liverpool preparing cut-price deal for relegated Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1f615876-da88-4a92-81eb-bc8f69e9480f) - **Yahoo Entertainment**
-6. [Chelsea ‘exploring deal’ with former Real Madrid boss as Blues search for Rosenior successor](https://www.101greatgoals.com/news/chelsea-exploring-deal-xabi-alonso/) - **101 Great Goals**
-7. [Carra: Only people who don't want Arsenal to win PL thought VAR call was wrong](https://www.skysports.com/football/news/11095/13542862/jamie-carragher-david-raya-was-fouled-vs-west-ham-people-just-dont-want-arsenal-to-win-the-premier-league-title) - **Sky Sports**
-8. [Sky Sports provide Mohamed Salah transfer update ahead of Liverpool exit](https://anfieldindex.com/94062/sky-sports-provide-mohamed-salah-transfer-update-ahead-of-liverpool-exit.html) - **Anfieldindex.com**
-9. [Revealed: The three Premier League clubs keeping tabs on Jarrod Bowen ahead of this summer's window - with West Ham at risk of losing England star even if they survive relegation scrap](https://www.dailymail.com/sport/football/article-15809021/hunt-sign-Jarrod-Bowen-summer-West-Ham.html) - **Dailymail.com**
-10. [Sandbox VR Continues to Expand Presence in Georgia with New Location in Savannah, Opening May 15](https://www.prnewswire.com/news-releases/sandbox-vr-continues-to-expand-presence-in-georgia-with-new-location-in-savannah-opening-may-15-302768608.html) - **PRNewswire**
+1. [Marthy Tel mixes the sublime with ridiculous as Tottenham let it slip against Leeds with VAR to the fore again](https://www.independent.ie/sport/soccer/premier-league/marthy-tel-mixes-the-sublime-with-ridiculous-as-tottenham-let-it-slip-against-leeds-with-var-to-the-fore-again/a1503871136.html) - **Independent.ie**
+2. [Tottenham 1-1 Leeds: Spurs show the same streak of crippling self-sabotage despite Roberto De Zerbi's best efforts as hosts drop critical points in relegation dog-fight, writes IAN LADYMAN](https://www.dailymail.com/sport/football/article-15807699/Tottenham-1-1-Leeds-Spurs-streak-crippling-self-sabotage-despite-Roberto-Zerbis-best-efforts-hosts-drop-critical-points-relegation-dog-fight-writes-IAN-LADYMAN.html) - **Dailymail.com**
+3. [Spurs draw with Leeds for priceless point in Premier League survival fight](https://sports.yahoo.com/articles/spurs-draw-leeds-priceless-point-213617599.html) - **Yahoo Entertainment**
+4. [Analysis: De Zerbi's side miss big chance](https://www.bbc.com/sport/football/articles/crkp6e22y44o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Kinsky wonder save earns Spurs point to move two clear of West Ham in relegation zone](https://www.skysports.com/football/video/12606/13542930/spurs-1-1-leeds-premier-league-highlights) - **Sky Sports**
+6. [Premier League corner chaos is heading to the World Cup and FIFA believes referees will handle it](https://japantoday.com/category/2026-fifa-world-cup/premier-league-corner-chaos-is-heading-to-the-world-cup-and-fifa-believes-referees-will-handle-it) - **Japan Today**
+7. [Hull subs play their part in securing play-off final spot](https://www.rte.ie/sport/soccer/2026/0511/1572836-hull-subs-play-their-part-in-securing-play-off-final-spot/) - **RTE**
+8. [Dominic Calvert-Lewin rescues point for Leeds and leaves Tottenham in survival scrap](https://www.irishtimes.com/sport/soccer/2026/05/11/dominic-calvert-lewin-rescues-point-for-leeds-and-leaves-tottenham-in-survival-scrap/) - **The Irish Times**
+9. [Mohamed Belloumi and Joe Gelhardt send Hull City into Championship play-off final at Millwall’s expense](https://www.independent.ie/sport/soccer/international-soccer/mohamed-belloumi-and-joe-gelhardt-send-hull-city-into-championship-play-off-final-at-millwalls-expense/a2070695200.html) - **Independent.ie**
 
 
 ---
-*최근 업데이트: 2026-05-13 05:11:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-13 06:42:59 (KST) / (하루 100회 제한 준수 중)*
