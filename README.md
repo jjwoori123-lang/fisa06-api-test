@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Can Manchester City overtake Arsenal to win the Premier League title?](https://www.aljazeera.com/sports/2026/5/12/can-manchester-city-overtake-arsenal-to-win-the-premier-league-title) - **Al Jazeera English**
-2. [Analysis: BBC, Sky & Netflix Dominate YouTube UK Reach But Niche Channels Drum Up Loyalty](http://deadline.com/2026/05/youtube-uk-analysis-bbc-sky-most-watched-niche-channels-1236898958/) - **Deadline**
-3. [Was Antonin Kinsky's save the best of the Premier League season? Daily Mail Sport experts reveal their favourites - including heroics from David Raya and Jordan Pickford](https://www.dailymail.com/sport/football/article-15810745/Antonin-Kinsky-save-best-Premier-League-season-Daily-Mail-Sport-experts-reveal-favorites-David-Raya-Jordan-Pickford.html) - **Dailymail.com**
-4. [It's West Ham or Spurs - how relegation fight is shaping up](https://www.bbc.com/sport/football/articles/c5y0kp74gyeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Wolves' Shi appointed as executive chairman](https://www.bbc.com/news/articles/cdxplw490e7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. ['Next season will be different... I'm not sure I believe him'](https://www.bbc.com/sport/football/articles/c4g9enqd4pro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [IPL 2026: Delhi Capitals captain Axar Patel fined for slow over rate vs Punjab Kings](https://economictimes.indiatimes.com/news/sports/ipl-2026-delhi-capitals-captain-axar-patel-fined-for-slow-over-rate-vs-punjab-kings/articleshow/131034928.cms) - **The Times of India**
-8. [Pressure on City remains the same, says Pep](https://www.mancity.com/news/mens/pep-guardiola-crystal-palace-written-63914183) - **Manchester City FC**
+1. [Arsenal's White out for rest of the season with knee injury](https://sports.yahoo.com/articles/arsenals-white-rest-season-knee-152223825.html) - **Yahoo Entertainment**
+2. [Premier League referees announced: Matchweek 37](https://www.playmakerstats.com/news/premier-league-referees-announced-matchweek-37/1123979) - **Playmakerstats.com**
+3. [White out for season and set to miss World Cup](https://www.bbc.com/sport/football/articles/c0m28g07m39o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [White out for season and set to miss World Cup](https://www.bbc.com/sport/football/articles/c0m28g07m39o) - **BBC News**
+5. [The Cherries European dream is closer than ever](https://www.playmakerstats.com/news/the-cherries-european-dream-is-closer-than-ever/1123759) - **Playmakerstats.com**
+6. [FULL LIST: Man Utd, 18 other teams qualify for 2026/27 UCL](https://punchng.com/full-list-man-utd-18-other-teams-qualify-for-2026-27-ucl/) - **The Punch**
+7. [Wales confident of retaining Bellamy](https://www.bbc.com/sport/football/articles/c7v9rjgd48mo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Glasner on player fitness, 'raising standards' and title race 'influence'](https://www.bbc.com/sport/football/articles/c392z47gegjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [“We have to” Arsenal star urges his teammates to stay humble](https://www.justarsenal.com/we-have-to-arsenal-star-urges-his-teammates-to-stay-humble/415066) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-05-13 21:25:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-14 00:33:02 (KST) / (하루 100회 제한 준수 중)*
