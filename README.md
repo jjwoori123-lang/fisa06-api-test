@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal star Ben White will not require surgery on his injured knee](https://sportsview.co.uk/2026/05/arsenal-star-ben-white-will-not-require-surgery-on-his-injured-knee?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-star-ben-white-will-not-require-surgery-on-his-injured-knee) - **Sportsview.co.uk**
-2. [Liverpool could be set to move for £87m Bournemouth star](https://eplindex.com/146353/liverpool-could-be-set-to-move-for-87m-bournemouth-star.html) - **English Premier League Index - Opta Stats**
-3. [Manchester City vs Crystal Palace – Match preview and team news](https://thefootballfaithful.com/manchester-city-vs-crystal-palace-match-preview-and-team-news-2/) - **The Football Faithful**
-4. [Manchester United talent JJ Gabriel named u-18 Player of the Year](https://thefootballfaithful.com/manchester-united-talent-jj-gabriel-named-u-18-player-of-the-year/) - **The Football Faithful**
-5. [Man City predicted XI: Cityzens host must-win Palace clash with Premier League title on the line](https://sportsview.co.uk/2026/05/man-city-predicted-xi-cityzens-host-must-win-palace-clash-with-premier-league-title-on-the-line?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=man-city-predicted-xi-cityzens-host-must-win-palace-clash-with-premier-league-title-on-the-line) - **Sportsview.co.uk**
-6. [McDonald's and Chicago Fire Football Club Announce Landmark Stadium Naming Rights Partnership: McDonald's Park to Open in 2028 as a New Destination for Soccer, Culture, and Community in Chicago](https://www.prnewswire.com/news-releases/mcdonalds-and-chicago-fire-football-club-announce-landmark-stadium-naming-rights-partnership-mcdonalds-park-to-open-in-2028-as-a-new-destination-for-soccer-culture-and-community-in-chicago-302770303.html) - **PRNewswire**
-7. [€25m title-winning right-back is coming to Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-denzel-dumfries-inter-milan-25m-title-winning-right-back-is-coming/) - **Anfieldwatch.co.uk**
-8. [Is Leeds' hierarchy as 'solid' as it's ever been?](https://www.bbc.com/sport/football/articles/cx219kknyx4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Casemiro hits back at 'disrespectful' Jamie Carragher over his 'leave the football' speech about him - and opens up on how 'everyone kills you' during his struggles at Man United](https://www.dailymail.com/sport/football/article-15813555/Casemiro-disrespectful-Jamie-Carragher-leave-football-speech-struggles-Man-United.html) - **Dailymail.com**
+1. [Accelerator candidates lose key owner interactions after NFL meeting schedule change](https://www.cbssports.com/nfl/news/nfl-accelerator-program-owner-interactions-cut/) - **CBS Sports**
+2. [Liverpool could look to activate £87m release clause for Premier League star](https://anfieldindex.com/94114/liverpool-could-look-to-activate-87m-release-clause-for-premier-league-star.html) - **Anfieldindex.com**
+3. [Report: Marco Silva could leave Fulham and join Premier League rivals](https://eplindex.com/146358/report-marco-silva-could-leave-fulham-and-join-premier-league-rivals.html) - **English Premier League Index - Opta Stats**
+4. ['It's been an amazing season with so many high points'](https://www.bbc.com/sport/football/articles/c7594lrrv1xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Rafael Leao: United target’s stance on Premier League transfer emerges](https://thepeoplesperson.com/2026/05/13/rafael-leao-united-targets-stance-on-premier-league-transfer-emerges-310024/) - **The Peoples Person**
+6. [Vikings Looking to Raid Detroit Lions Front Office Again](https://detroitsportsnation.com/minnesota-vikings-request-interview-ray-agnew-detroit-lions/jeff/detroit-lions/05/13/2026/486314/) - **Detroit Sports Nation**
+7. [Bosnia and Herzegovina's Canadian community ready for a World Cup party when team opens tournament vs. Canada](https://www.cbc.ca/sports/soccer/worldcup/bosnia-herzegovina-world-cup-canada-shireen-ahmed-9.7188094) - **CBC News**
+8. [Manchester United to reportedly talk with Michael Carrick about permanent job — The right man for the job?](https://www.nbcsports.com/soccer/news/manchester-united-to-reportedly-talk-with-michael-carrick-about-permanent-job-the-right-man-for-the-job) - **NBCSports.com**
+9. [They're no Saints! Rogue ball boys, Matt Le Tissier's bizarre referee accusation, 'discriminatory language' and the Spygate scandal that kicked it all off - how Southampton became public enemy No 1](https://www.dailymail.com/sport/football/article-15813767/Southampton-spying-Middlesbrough-Championship-ball-boy-Luke-Ayling-Taylor-Harwood-Bellis.html) - **Dailymail.com**
+10. [Referee explains Sesko handball decision in Liverpool’s defeat to Man United](https://eplindex.com/146357/referee-explains-sesko-handball-decision-in-liverpools-defeat-to-man-united.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-05-14 18:57:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-14 20:58:26 (KST) / (하루 100회 제한 준수 중)*
