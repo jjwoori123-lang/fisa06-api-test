@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Premier League club prepared to sacrifice 26y/o to make way for exit-linked Liverpool maestro](https://www.empireofthekop.com/2026/05/13/newcastle-prepared-to-sacrifice-26yo-to-make-way-for-liverpool-maestro/) - **Empire of The Kop**
-2. [Ex-Spurs chief Levy never imagined relegation fight](https://www.bbc.com/sport/football/articles/c3e2z4xqdgvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Ex-Spurs chief Levy never imagined relegation fight](https://www.bbc.com/sport/football/articles/c3e2z4xqdgvo) - **BBC News**
-4. [Kick! - Issue 255 2026](https://post.rlsbb.to/kick-issue-255-2026/) - **Rlsbb.to**
-5. [England’s version of ‘Spygate’ gave us the funniest photo imaginable](https://www.sbnation.com/soccer/1114433/englands-version-of-spygate-gave-us-the-funniest-photo-imaginable) - **SB Nation**
-6. [We want to hear from YOU! Send in your video comment and tell us: After Arsenal West Ham controversy... how would you fix VAR?](https://www.dailymail.com/sport/football/article-15813663/We-want-hear-YOU-Send-video-comment-tell-Arsenal-West-Ham-controversy-you-fix-VAR.html) - **Dailymail.com**
-7. [Can Brentford be effective against Palace?](https://www.bbc.com/sport/football/articles/cpvp04dg8rpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Taylor named England fielding coach in landmark move](https://www.bbc.com/sport/cricket/articles/ce8p7md8y4xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Taylor named England fielding coach in landmark move](https://www.bbc.com/sport/cricket/articles/ce8p7md8y4xo) - **BBC News**
-10. [Live sports on TV today: Schedule, leagues, streaming options (May 13)](https://www.businessinsider.com/guides/streaming/live-sports-on-tv-today-2026-5-13) - **Business Insider**
+1. [One eye on the FA Cup final, Pep? Man City boss makes SIX changes for clash with Crystal Palace - and BENCHES Erling Haaland - despite needing a win to stay in Premier League title fight with Arsenal](https://www.dailymail.com/sport/football/article-15815553/pep-guardiola-manchester-city-crystal-palace.html) - **Dailymail.com**
+2. [One eye on the FA Cup final, Pep? Man City boss makes SIX changes for clash with Crystal Palace - and BENCHES Erling Haaland - despite needing a win to stay in Premier League title fight with Arsenal](https://www.dailymail.com/sport/football/article-15815553/pep-guardiola-manchester-city-crystal-palace.html) - **Dailymail.com**
+3. [6 First-Time World Cup Players Poised To Break Out In 2026](https://www.foxsports.com/stories/soccer/2026-world-cup-breakout-players-argentina-france-england) - **Fox Sports**
+4. [Manchester City and Crystal Palace have confirmed their starting lineups ahead of tonight’s match](https://esteemedkompany.com/2026/05/13/manchester-city-and-crystal-palace-have-confirmed-their-starting-lineups-ahead-of-tonights-match/) - **Esteemedkompany.com**
+5. [Aston Villa Eye Galatasaray’s Brazilian Star: Can Emery Fit Him Without Risking PSR Compliance?](https://the4thofficial.net/2026/05/aston-villa-eye-galatasarays-brazilian-star-can-emery-fit-him-without-risking-psr-compliance/) - **The4thofficial.net**
+6. [Marseille brace for massive flash sale to prevent UEFA expulsion](https://www.getfootballnewsfrance.com/2026/marseille-brace-for-massive-flash-sale-to-prevent-uefa-expulsion/) - **Get French Football News**
+7. [Arsenal has joined the race for AS Monaco star](https://www.justarsenal.com/arsenal-has-joined-the-race-for-as-monaco-star/415148) - **Just Arsenal News**
+8. [Relegation Fear Grows but West Ham May Still Keep Their Key Man](https://eplindex.com/146350/relegation-fear-grows-but-west-ham-may-still-keep-their-key-man.html) - **English Premier League Index - Opta Stats**
+9. [Rodri & O’Reilly absent; Haaland & Cherki benched; Gvardiol returns: Man City line-up vs Crystal Palace](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_64b6858e-97c1-4d2b-be35-e417b5463aba) - **Yahoo Entertainment**
+10. [Gvardiol starts as City make six changes](https://www.mancity.com/news/mens/manchester-city-v-crystal-palace-team-news-and-tactics-63914288) - **Manchester City FC**
 
 
 ---
-*최근 업데이트: 2026-05-15 01:30:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-15 03:21:31 (KST) / (하루 100회 제한 준수 중)*
