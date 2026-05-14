@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool want deal for £45m Premier League breakout midfield star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-noah-sadiki-sunderland-45m-premier-league-breakout-midfield-star/) - **Anfieldwatch.co.uk**
-2. [City’s six players to 100 Premier League goal involvements](https://www.mancity.com/news/mens/city-players-100-premier-league-goal-involvements-63907107) - **Manchester City FC**
-3. [Quiz: Foden’s Premier League goals and assists so far](https://www.mancity.com/news/mens/phil-foden-100-premier-league-goal-involvements-quiz-63907797) - **Manchester City FC**
-4. [Foden hits 100 Premier League goal involvements](https://www.mancity.com/news/mens/phil-foden-100-premier-league-goal-involvements-63906438) - **Manchester City FC**
-5. [Last time Celtic or Rangers didn't win Scottish league title: Gers check Hearts' bid for glory, Bhoys close the gap](https://www.sportingnews.com/us/soccer/news/last-time-celtic-rangers-didnt-win-scottish-league-title/f8cd5d77ba8aae5b4649c706) - **Sporting News**
-6. [Premier League Scouts Interested As Celtic Star Eyes Big Move: Should The Club Cash In Before It’s Too Late?](https://the4thofficial.net/2026/05/premier-league-scouts-interested-as-celtic-star-eyes-big-move-should-the-club-cash-in-before-its-too-late/) - **The4thofficial.net**
-7. [“The silence” Fabrizio Romano gives an update on Alisson’s move to Juventus](https://www.juvefc.com/the-silence-fabrizio-romano-gives-an-update-on-alissons-move-to-juventus/) - **JuveFC**
-8. [Everton Target Struggling Striker As Summer Move Gains Momentum: Will He Solve David Moyes’ Attacking Issues?](https://the4thofficial.net/2026/05/everton-target-struggling-striker-as-summer-move-gains-momentum-will-he-solve-david-moyes-attacking-issues/) - **The4thofficial.net**
-9. [WATCH: Sublime Foden backheel sets up Semenyo to open scoring for Manchester City vs Crystal Palace](https://www.101greatgoals.com/football/premier-league/watch-man-city-crystal-palace-foden-semenyo-goal-live/) - **101 Great Goals**
-10. [Phil Foden ends slump with stunning back-heel assist ](https://onefootball.com/en/news/phil-foden-ends-slump-with-stunning-back-heel-assist-42861548) - **Onefootball.com**
+1. [Foden overjoyed after starring role in victory over Palace](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5ec8cedd-d79b-47ec-b0c2-14c754889d66) - **Yahoo Entertainment**
+2. [Manchester City keep pressure on Arsenal with comfortable win over Crystal Palace](https://www.irishtimes.com/sport/soccer/2026/05/13/manchester-city-keep-pressure-on-arsenal-with-comfortable-win-over-crystal-palace/) - **The Irish Times**
+3. [Title Race heats up as Man City win cuts Arsenal lead to two points](https://www.justarsenal.com/title-race-heats-up-as-man-city-win-cuts-arsenal-lead-to-two-points/415169) - **Just Arsenal News**
+4. [Papers: Arsenal keen on signing Fernandes](https://www.skysports.com/football/transfer-paper-talk/12709/13544091/mateus-fernandes-arsenal-keen-on-signing-west-ham-midfielder-this-summer-paper-talk) - **Sky Sports**
+5. [Foden Gets 8.5, Marmoush With 8 | Manchester City Players Rated In Impressive Win Vs Crystal Palace](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d555d8b1-6ebd-4be4-b3ac-c045d39b55a9) - **Yahoo Entertainment**
+6. [Tottenham Hotspur Are Eager To Land This Borussia Dortmund Striker: Should De Zerbi Snap Him Up?](https://the4thofficial.net/2026/05/tottenham-hotspur-are-eager-to-land-this-borussia-dortmund-striker-should-de-zerbi-snap-him-up/) - **The4thofficial.net**
+7. [Manchester City 3-0 Crystal Palace: Clinical Sky Blues pile pressure on leaders Arsenal](https://wp.fromthespot.co.uk/28547/manchester-city-3-0-crystal-palace-clinical-sky-blues-pile-pressure-on-leaders-arsenal/) - **Fromthespot.co.uk**
+8. [Premier League : Manchester City s’impose face à Crystal Palace et se disputera le titre avec Arsenal jusqu’au bout](https://www.sofoot.com/breves/premier-league-manchester-city-simpose-face-a-crystal-palace-et-se-disputera-le-titre-avec-arsenal-jusquau-bout) - **SO FOOT**
+9. [Steven Gerrard urges Liverpool to keep homegrown star pushing for more minutes](https://www.alloutsoccer.com/news/liverpool-steven-gerrard-curtis-jones-1835966) - **Alloutsoccer.com**
+10. [Midfielder set for transfer showdown talks with Arne Slot](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-harvey-elliott-set-for-transfer-showdown-talks-with-arne-slot/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-05-15 05:17:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-15 06:39:56 (KST) / (하루 100회 제한 준수 중)*
