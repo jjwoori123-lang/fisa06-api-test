@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [EPL: Man City crush Palace to keep Arsenal under fire](https://www.rediff.com/sports/report/epl-man-city-crush-palace-to-keep-arsenal-under-fire/20260514.htm) - **Rediff.com**
-2. [PSG boss Luis Enrique praises team's mentality after securing title](https://www.channelnewsasia.com/sport/psg-boss-luis-enrique-praises-teams-mentality-after-securing-title-6120471) - **CNA**
-3. [Bavarian Loan Works: Peretz takes Southampton one step away from Premier League](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/201498/bayern-munich-transfer-news-rumors-loan-watch-southampton-peretz-premier-league-bundesliga-nubel-champions-legaue-spurs-palhinha-relegation-playoffs) - **Bavarian Football Works**
-4. [Yesterday IPL Match RCB vs KKR: Virat Kohli's unbeaten 105 powers Royal Challengers Bengaluru to six-wicket win over Kolkata Knight Riders](https://economictimes.indiatimes.com/news/new-updates/yesterday-ipl-match-rcb-vs-kkr-virat-kohlis-unbeaten-105-powers-royal-challengers-bengaluru-to-six-wicket-win-over-kolkata-knight-riders/articleshow/131080139.cms) - **The Times of India**
-5. [Sporting Jax men's soccer earns first win in cup match](https://www.jacksonville.com/story/sports/2026/05/13/sporting-club-jacksonville-sarasota-paradise-mens-soccer-score/90070958007/) - **The Florida Times-Union**
-6. [Atletico Madrid consider big-money move for Newcastle United star](https://www.football-espana.net/2026/05/14/atletico-madrid-consider-move-newcastle) - **Football Espana**
-7. [Wood urges New Zealand to 'create some history' at World Cup](https://sports.yahoo.com/articles/wood-urges-zealand-create-history-011721203.html) - **Yahoo Entertainment**
-8. [From the 'mini David Beckham' to the new Eberechi Eze and a Rodri clone: Meet the six young stars ready to light up the FA Youth Cup final as Man City take on rivals Man United](https://www.dailymail.com/sport/football/article-15800931/man-city-man-united-fa-youth-cup-final-stars.html) - **Dailymail.com**
-9. [From the 'mini David Beckham' to the new Eberechi Eze and a Rodri clone: Meet the six young stars ready to light up the FA Youth Cup final as Man City take on rivals Man United](https://www.dailymail.com/sport/football/article-15800931/man-city-man-united-fa-youth-cup-final-stars.html) - **Dailymail.com**
+1. [Louie Barry - Barcelona to Wembley via nine loans](https://www.bbc.com/sport/football/articles/c3r24pg1jvjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Stockport's Barry - Barcelona to Wembley via nine loans](https://www.bbc.com/sport/football/articles/c3r24pg1jvjo) - **BBC News**
+3. [Rob Couhig And Co, One Year On: Reflections And Approval Rating](https://thetilehurstend.sbnation.com/2025-26-analysis-opinion-reading-fc-royals/55472/rob-couhig-and-co-one-year-on-reflections-and-approval-rating) - **SB Nation**
+4. [“The problem is” – Jimmy Floyd Hasselbaink highlights potential issue if Chelsea appoint Xabi Alonso](https://chelsea.news/2026/05/jimmy-floyd-hasselbaink-xabi-alonso-chelsea/) - **Chelsea.news**
+5. ['McAllister made me a better player and person' - Gerrard](https://www.bbc.com/sport/football/articles/c208g7lvkm2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [“I will let you know” – Fabrizio Romano shares update on Chelsea star, sale would be “complicated”](https://chelsea.news/2026/05/fabrizio-romano-joao-pedro-chelsea-barcelona/) - **Chelsea.news**
+7. [Ben Jacobs shares clear Slot sack update as FSG stance emerges](https://www.empireofthekop.com/2026/05/14/ben-jacobs-shares-clear-slot-sack-update-as-fsg-stance-emerges/) - **Empire of The Kop**
+8. [Besiktas to open talks in deal for Liverpool forward](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-federico-chiesa-besiktas-to-open-talks-in-deal-for-forward/) - **Anfieldwatch.co.uk**
+9. [Meet the two unsung heroes of Man United's bid for Youth Cup glory - as they reveal the surprise first team stars who have been mentoring them](https://www.dailymail.com/sport/football/article-15811279/Meet-unsung-heroes-Man-United-bid-Youth-Cup.html) - **Dailymail.com**
+10. [More than the Score](https://www.bbc.co.uk/sounds/play/p0nl11v4?at_campaign=rss) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-15 13:12:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-15 16:35:56 (KST) / (하루 100회 제한 준수 중)*
