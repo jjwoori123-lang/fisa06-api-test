@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Louie Barry - Barcelona to Wembley via nine loans](https://www.bbc.com/sport/football/articles/c3r24pg1jvjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Stockport's Barry - Barcelona to Wembley via nine loans](https://www.bbc.com/sport/football/articles/c3r24pg1jvjo) - **BBC News**
-3. [Rob Couhig And Co, One Year On: Reflections And Approval Rating](https://thetilehurstend.sbnation.com/2025-26-analysis-opinion-reading-fc-royals/55472/rob-couhig-and-co-one-year-on-reflections-and-approval-rating) - **SB Nation**
-4. [“The problem is” – Jimmy Floyd Hasselbaink highlights potential issue if Chelsea appoint Xabi Alonso](https://chelsea.news/2026/05/jimmy-floyd-hasselbaink-xabi-alonso-chelsea/) - **Chelsea.news**
-5. ['McAllister made me a better player and person' - Gerrard](https://www.bbc.com/sport/football/articles/c208g7lvkm2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [“I will let you know” – Fabrizio Romano shares update on Chelsea star, sale would be “complicated”](https://chelsea.news/2026/05/fabrizio-romano-joao-pedro-chelsea-barcelona/) - **Chelsea.news**
-7. [Ben Jacobs shares clear Slot sack update as FSG stance emerges](https://www.empireofthekop.com/2026/05/14/ben-jacobs-shares-clear-slot-sack-update-as-fsg-stance-emerges/) - **Empire of The Kop**
-8. [Besiktas to open talks in deal for Liverpool forward](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-federico-chiesa-besiktas-to-open-talks-in-deal-for-forward/) - **Anfieldwatch.co.uk**
-9. [Meet the two unsung heroes of Man United's bid for Youth Cup glory - as they reveal the surprise first team stars who have been mentoring them](https://www.dailymail.com/sport/football/article-15811279/Meet-unsung-heroes-Man-United-bid-Youth-Cup.html) - **Dailymail.com**
-10. [More than the Score](https://www.bbc.co.uk/sounds/play/p0nl11v4?at_campaign=rss) - **BBC News**
+1. [Revealed: Two European giants showing interest in Liverpool defender Joe Gomez, who looks set to leave club this summer](https://www.dailymail.com/sport/football/article-15817537/Two-giants-showing-Liverpool-defender-Gomez.html) - **Dailymail.com**
+2. [Arsenal staff left fuming after club charge employees £859 for travel to Champions League final in Budapest - while opponents PSG are putting on flights for FREE](https://www.dailymail.com/sport/football/article-15815535/Arsenal-staff-fuming-charge-employees-travel-Champions-League-final-PSG-putting-flights-FREE.html) - **Dailymail.com**
+3. [Kelsey Plum Joins WNBA on Prime as Player Contributor](http://www.thefutoncritic.com/news/2026/05/14/kelsey-plum-joins-wnba-on-prime-as-player-contributor-447310/20260514amazon02/) - **Thefutoncritic.com**
+4. [Trio nominated for PL Player of the Season](http://www.arsenal.com/news/trio-nominated-pl-player-season) - **Arsenal.com**
+5. [Previewing the MSU Basketball Recruiting Class of 2026: C, Ethan Taylor](https://www.theonlycolors.com/basketball/46371/previewing-the-msu-basketball-recruiting-class-of-2026-c-ethan-taylor) - **The Only Colors**
+6. [Arsenal boss Mikel Arteta adamant VAR was right to chalk off West Ham goal: ‘I think it’s very clear, no discussion’](https://www.101greatgoals.com/football/premier-league/arsenal-boss-mikel-arteta-adamant-var-was-right-to-chalk-off-west-ham-goal-i-think-its-very-clear-no-discussion/) - **101 Great Goals**
+7. [Arsenal in high spirits for run-in, says Arteta](https://www.channelnewsasia.com/sport/arsenal-in-high-spirits-run-in-says-arteta-6121161) - **CNA**
+8. [Report: Liverpool have made their final decision on Arne Slot’s future](https://anfieldindex.com/94146/report-liverpool-have-made-their-final-decision-on-arne-slots-future.html) - **Anfieldindex.com**
+9. [Community programmes supporting mental health](http://www.arsenal.com/news/community-programmes-supporting-mental-health-0) - **Arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-05-15 16:35:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-15 19:04:17 (KST) / (하루 100회 제한 준수 중)*
