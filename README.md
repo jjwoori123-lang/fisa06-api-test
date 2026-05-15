@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Revealed: Two European giants showing interest in Liverpool defender Joe Gomez, who looks set to leave club this summer](https://www.dailymail.com/sport/football/article-15817537/Two-giants-showing-Liverpool-defender-Gomez.html) - **Dailymail.com**
-2. [Arsenal staff left fuming after club charge employees £859 for travel to Champions League final in Budapest - while opponents PSG are putting on flights for FREE](https://www.dailymail.com/sport/football/article-15815535/Arsenal-staff-fuming-charge-employees-travel-Champions-League-final-PSG-putting-flights-FREE.html) - **Dailymail.com**
-3. [Kelsey Plum Joins WNBA on Prime as Player Contributor](http://www.thefutoncritic.com/news/2026/05/14/kelsey-plum-joins-wnba-on-prime-as-player-contributor-447310/20260514amazon02/) - **Thefutoncritic.com**
-4. [Trio nominated for PL Player of the Season](http://www.arsenal.com/news/trio-nominated-pl-player-season) - **Arsenal.com**
-5. [Previewing the MSU Basketball Recruiting Class of 2026: C, Ethan Taylor](https://www.theonlycolors.com/basketball/46371/previewing-the-msu-basketball-recruiting-class-of-2026-c-ethan-taylor) - **The Only Colors**
-6. [Arsenal boss Mikel Arteta adamant VAR was right to chalk off West Ham goal: ‘I think it’s very clear, no discussion’](https://www.101greatgoals.com/football/premier-league/arsenal-boss-mikel-arteta-adamant-var-was-right-to-chalk-off-west-ham-goal-i-think-its-very-clear-no-discussion/) - **101 Great Goals**
-7. [Arsenal in high spirits for run-in, says Arteta](https://www.channelnewsasia.com/sport/arsenal-in-high-spirits-run-in-says-arteta-6121161) - **CNA**
-8. [Report: Liverpool have made their final decision on Arne Slot’s future](https://anfieldindex.com/94146/report-liverpool-have-made-their-final-decision-on-arne-slots-future.html) - **Anfieldindex.com**
-9. [Community programmes supporting mental health](http://www.arsenal.com/news/community-programmes-supporting-mental-health-0) - **Arsenal.com**
+1. [Manchester United interest in Tonali has ‘receded’](https://thefootballfaithful.com/manchester-united-interest-in-tonali-has-receded/) - **The Football Faithful**
+2. [FULL LIST: Top 10 best goalkeepers in Europe’s clean sheet rankings](https://punchng.com/full-list-top-10-best-goalkeepers-in-europes-clean-sheet-rankings/) - **The Punch**
+3. [Manuel Ugarte: Galatasaray take key step to strike deal with Man United](https://thepeoplesperson.com/2026/05/14/manuel-ugarte-galatasaray-take-key-step-to-strike-deal-with-man-united-310084/) - **The Peoples Person**
+4. [Andrews nominated for Barclays Manager of the Season](https://www.rte.ie/sport/soccer/2026/0514/1573349-andrews-nominated-for-barclays-manager-of-the-season/) - **RTE**
+5. [Hall nominated for Premier League Young Player of the Season award](https://www.newcastleunited.com/en/news/hall-nominated-for-premier-league-young-player-of-the-season-award) - **Newcastleunited.com**
+6. [Title door wide open for Arsenal, but no time for a stumble](https://www.channelnewsasia.com/sport/title-door-wide-open-arsenal-no-time-stumble-6121481) - **CNA**
+7. [BBC: Man Utd make ‘discreet enquiry’ over ex-Liverpool star as ‘discussions’ get ‘underway’](https://strettynews.com/2026/05/14/manchester-united-neco-williams-enquiry-nottingham-forest/) - **Strettynews.com**
+8. [No league derby for Jersey Bulls and Guernsey FC](https://www.bbc.com/sport/football/articles/clyp4ppx3lyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Man City 3-0 Crystal Palace - the fans' verdict](https://www.bbc.com/sport/football/articles/czd20q88y0no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-15 19:04:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-15 21:14:35 (KST) / (하루 100회 제한 준수 중)*
