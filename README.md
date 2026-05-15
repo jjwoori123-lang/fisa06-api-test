@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arne Slot addresses Liverpool future amidst speculation linking Xabi Alonso with the Reds hot seat](https://www.alloutsoccer.com/news/liverpool-arne-slot-xabi-alonso-1837150) - **Alloutsoccer.com**
-2. [How to watch Colors outside India – from anywhere with a VPN](https://www.techradar.com/how-to-watch/colors-outside-india-free) - **TechRadar**
-3. [Versant CEO speculates NFL negotiations put MLB, NHL, Premier League rights in play](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e549f880-d126-443e-9972-90de394ca8c3) - **Yahoo Entertainment**
-4. [Man Utd's route to FA Youth Cup final and who to look out for](https://www.bbc.com/sport/football/articles/c3r242d0d93o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [How controversial VAR calls have defined two title battles](https://www.bbc.com/sport/football/articles/c93x979px45o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Man City's route to FA Youth Cup final and who to look out for](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_11ad4789-c09d-4d00-bfd7-f02370297abd) - **Yahoo Entertainment**
-7. [The NFL’s Thanksgiving scheduling is so dumb](https://www.sbnation.com/nfl/1114507/nfl-thanksgiving-schedule-sucks-bad-lions-bears-cowboys-eagles) - **SB Nation**
-8. [Hurzeler on Mitoma's injury, team 'intensity' and facing Leeds](https://www.bbc.com/sport/football/articles/cgmp2dwgnrpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Anfield Favourite Could Be Heading for the Exit With European Giants Interested](https://anfieldindex.com/94159/anfield-favourite-could-be-heading-for-the-exit-with-european-giants-interested.html) - **Anfieldindex.com**
-10. [PREVIEW | Manchester City vs Chelsea: team news, lineups, predictions (The FA Cup 16/05)](https://www.playmakerstats.com/news/preview-manchester-city-vs-chelsea-team-news-lineups-predictions-the-fa-cup-16-05-/1125586) - **Playmakerstats.com**
+1. [Barcelona make Premier League forward number one priority due to Julian Alvarez difficulties](https://www.football-espana.net/2026/05/14/barcelona-make-premier-league-forward-number-one-priority-due-to-julian-alvarez-difficulties) - **Football Espana**
+2. [NFL schedule leaks: Saints to open the season on the road vs Lions](https://saintswire.usatoday.com/story/sports/nfl/saints/2026/05/14/nfl-schedule-release-leaks-saints-lions-season-opener/90078473007/) - **USA Today**
+3. [2026 Premier League Darts Night 15 Birmingham live results, scores and schedule](https://www.sportingnews.com/us/darts/news/premier-league-darts-night-15-birmingham-live-results-scores-schedule/bccdb1931322c14c3c3c70fc) - **Sporting News**
+4. [EPL: Emery admits frustration over Elliott’s failed loan at Villa](https://punchng.com/epl-emery-admits-frustration-over-elliotts-failed-loan-at-villa/) - **The Punch**
+5. [Chargers schedule: Predicting the 2026 primetime matchups](https://chargerswire.usatoday.com/story/sports/nfl/chargers/2026/05/14/chargers-primetime-games-predictions-nfl-schedule/90078512007/) - **USA Today**
+6. ['Harvey Elliott situation has been embarrassing for everyone involved': Unai Emery bemoans having to leave starlet out in the cold while Liverpool fail to offer him long-term assurances](https://www.dailymail.com/sport/football/article-15818363/Harvey-Elliott-situation-embarrassing-Unai-Emery-leave-starlet-cold-Liverpool-fail-offer-assurances.html) - **Dailymail.com**
+7. [How to watch Newcastle vs West Ham live: Stream link, TV channel, latest team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-newcastle-vs-west-ham-live-stream-link-tv-channel-latest-team-news-prediction) - **NBCSports.com**
+8. [Liverpool's slow starts have haunted their season - these are the two players to blame, the stars Reds will target to fix the issue this summer and the damning stats that prove the scale of the problem, writes LEWIS STEELE](https://www.dailymail.com/sport/football/article-15815355/liverpool-slow-starts-slot.html) - **Dailymail.com**
+9. [Ryan Reynolds’ Hit Hulu TV Show Returns Today](https://www.comingsoon.net/tv/news/2131965-ryan-reynolds-hit-hulu-tv-show-returns-today) - **ComingSoon.net**
 
 
 ---
-*최근 업데이트: 2026-05-15 23:39:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-16 01:27:28 (KST) / (하루 100회 제한 준수 중)*
