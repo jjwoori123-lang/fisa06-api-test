@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [PREVIEW | Wolverhampton vs Fulham: team news, lineups, predictions (Premier League 17/05)](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f3bf7c0f-cb9b-4094-9ec0-8c01fcaca542) - **Yahoo Entertainment**
-2. [Aston Villa Starting XI vs Liverpool: Confirmed Team News and Predicted Lineup](https://eplindex.com/146434/aston-villa-starting-xi-vs-liverpool-confirmed-team-news-and-predicted-lineup.html) - **English Premier League Index - Opta Stats**
-3. [Championship clubs back new squad spending rules](https://www.bbc.com/sport/football/articles/c072vd1vxeeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Aston Villa vs. Liverpool: Premier League 2025-26 Live Coverage & How to Watch](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/80473/aston-villa-liverpool-premier-league-2025-26-live-coverage-how-to-watch-streaming-tv) - **SB Nation**
-5. [Bournemouth confirm Senesi’s exit amid Juventus, Chelsea, Barça and Tottenham links](https://football-italia.net/bournemouth-senesi-exit-confirmed-juventus/) - **Football Italia**
-6. [PREVIEW | Leeds United vs Brighton & Hove Albion: team news, lineups, predictions (Premier League 17/05)](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2646d2b3-fe2c-4496-8414-f52f3965096c) - **Yahoo Entertainment**
-7. [Matthijs De Ligt Undergoes Surgery, Set for 26-27 Return](https://thebusbybabe.sbnation.com/general/34740/matthijs-de-ligt-undergoes-surgery-set-for-26-27-return) - **SB Nation**
-8. [Guardiola says Man City have not trained ahead of FA Cup final amid tight schedule](https://www.channelnewsasia.com/sport/guardiola-says-man-city-have-not-trained-ahead-fa-cup-final-amid-tight-schedule-6124241) - **CNA**
-9. [Folarin Balogun responds to Monaco exit rumours](https://www.getfootballnewsfrance.com/2026/folarin-balogun-responds-to-monaco-exit-rumours/) - **Get French Football News**
+1. [Middlesbrough want Saints thrown out of play-offs](https://www.rte.ie/sport/soccer/2026/0515/1573578-middlesbrough-want-saints-thrown-out-of-play-offs/) - **RTE**
+2. [Will Champions League Qualification Save Slot’s Job?](https://worldfootballindex.com/2026/05/will-champions-league-qualification-save-slots-job/) - **World Football Index**
+3. [What LSG’s Akash Singh said in note he held up to celebrate wickets vs CSK](https://indianexpress.com/article/sports/cricket/akash-singh-celebration-note-chit-lsg-vs-csk-ipl-2026-10691654/) - **The Indian Express**
+4. [Middlesbrough call for Southampton to be thrown out of play-offs](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3e52961d-6995-4cf6-9b22-774145d06d75) - **Yahoo Entertainment**
+5. [De Ligt undergoes surgery and will be out for Man United till 2026/27](https://sportsview.co.uk/2026/05/de-ligt-undergoes-surgery-and-will-be-out-for-man-united-till-2026-27?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=de-ligt-undergoes-surgery-and-will-be-out-for-man-united-till-2026-27) - **Sportsview.co.uk**
+6. [How to buy Premier League tickets for Chelsea vs. Tottenham](https://football-italia.net/buy-premier-league-tickets-chelsea-v-tottenham/) - **Football Italia**
+7. [Liverpool pushing hard for centre-back signing after exit confirmed](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-bournemouth-marcos-senesi-pushing-hard-for-centre-back-signing-after-exit-confirmed/) - **Anfieldwatch.co.uk**
+8. [Middlesbrough call for Southampton playoff final ban over spying row](https://www.channelnewsasia.com/sport/middlesbrough-call-southampton-playoff-final-ban-over-spying-row-6124371) - **CNA**
+9. [De Ligt to miss World Cup after back surgery](https://punchng.com/de-ligt-to-miss-world-cup-after-back-surgery/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-05-16 23:22:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-17 00:39:25 (KST) / (하루 100회 제한 준수 중)*
