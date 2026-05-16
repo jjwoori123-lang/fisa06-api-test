@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arteta: Arsenal should have won more trophies under my reign, this season could start a dynasty](https://www.skysports.com/football/video/33653/13544219/mikel-arteta-arsenal-should-have-won-more-trophies-under-my-reign-but-this-season-could-start-a-dynasty) - **Sky Sports**
-2. [My quality time with Guardiola - and getting his guide to Barcelona](https://www.bbc.com/sport/football/articles/c1l2de6g201o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [My quality time with Guardiola - and getting his guide to Barcelona](https://www.bbc.com/sport/football/articles/c1l2de6g201o) - **BBC News**
-4. [Injured Mitoma left out of Japan World Cup squad](https://www.bbc.com/sport/football/articles/ckgpez39k50o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Report: Chelsea star ready to hand Calum McFarlane major FA Cup final boost](https://chelsea.news/2026/05/reece-james-chelsea-fa-cup-final/) - **Chelsea.news**
-6. [Premier League winger Mitoma out of Japan squad for World Cup as 26-player squad named](https://sports.yahoo.com/articles/premier-league-winger-mitoma-japan-061131754.html) - **Yahoo Entertainment**
-7. [The Guardian detail feeling amongst Chelsea stars over possible Xabi Alonso appointment](https://chelsea.news/2026/05/chelsea-players-xabi-alonso-head-coach/) - **Chelsea.news**
-8. [David O’Leary: Leeds legend makes stunning revelation about Man United job](https://thepeoplesperson.com/2026/05/15/david-oleary-leeds-legend-makes-stunning-revelation-about-man-united-job-310121/) - **The Peoples Person**
-9. [‘Standout’ EPL star ‘very open’ to joining Man Utd after initial contact with his entourage](https://strettynews.com/2026/05/15/man-utd-mateus-fernandes-west-ham-contacts/) - **Strettynews.com**
+1. [Aston Villa vs Liverpool – Match preview and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6641cb20-06c1-4f37-a3ab-6ad6bc2540c9) - **Yahoo Entertainment**
+2. [Aston Villa vs Liverpool – Predicted lineup and team news](https://thefootballfaithful.com/aston-villa-vs-liverpool-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+3. [Liverpool predicted lineup and team news vs Aston Villa](https://thefootballfaithful.com/liverpool-predicted-lineup-and-team-news-vs-aston-villa/) - **The Football Faithful**
+4. [Aston Villa v Liverpool: Key stats and talking points](https://www.bbc.com/sport/football/articles/cvgzn05py24o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. ['Proud' Reiss hails 'special' final victory over Man Utd](https://www.bbc.com/sport/football/articles/cj6px28n2p5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Man Utd kids will bounce back after defeat - Fletcher](https://www.bbc.com/sport/football/articles/cvgzpgpegk9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Where to watch the Black-Eyed Susan Stakes: Channel, time, TV schedule, live stream for 2026 horse race](https://www.sportingnews.com/us/horse-racing/news/watch-black-eyed-susan-channel-time-schedule-stream-2026-race/6d75d0da2c91536a041fbaa4) - **Sporting News**
+8. [Match Preview: Arne Slot must silence doubters as Liverpool face Aston Villa](https://anfieldindex.com/94170/match-preview-arne-slot-must-silence-doubters-as-liverpool-face-aston-villa.html) - **Anfieldindex.com**
+9. [Pure connection, Arsenal unveil their new kit](https://onefootball.com/en/news/pure-connection-arsenal-unveil-their-new-kit-42869166) - **Onefootball.com**
+10. [EPL: Raya one clean sheet away from Arsenal Premier League history – Report](https://punchng.com/epl-raya-one-clean-sheet-away-from-arsenal-premier-league-history-report/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-05-16 15:37:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-16 17:27:17 (KST) / (하루 100회 제한 준수 중)*
