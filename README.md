@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Despite draw with Hapoel Beersheba, Beitar Jerusalem still in title race](https://www.jpost.com/israel-news/sports/article-896288) - **The Jerusalem Post**
-2. [2026 NFL schedule: A phenomenal slate for Thanksgiving, Black Friday and even Thanksgiving eve](https://sports.yahoo.com/nfl/article/2026-nfl-schedule-a-phenomenal-slate-for-thanksgiving-black-friday-and-even-thanksgiving-eve-234042741.html) - **Yahoo Entertainment**
-3. [Top Takeaways from the Jaguars 2026 NFL schedule release](https://www.bigcatcountry.com/nfl-schedule/85494/top-takeaways-from-the-jaguars-2026-nfl-schedule-release) - **Big Cat Country**
-4. [“You fool!”: Mason Mount’s dad lashes out at Michael Owen over criticism of son](https://thepeoplesperson.com/2026/05/15/you-fool-mason-mounts-dad-lashes-out-at-michael-owen-over-criticism-of-son-310117/) - **The Peoples Person**
-5. ['Dangerous' Bolton come full circle for play-off final](https://www.bbc.com/sport/football/articles/cn0p20443d5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. ['Dangerous' Bolton come full circle for play-off final](https://www.bbc.com/sport/football/articles/cn0p20443d5o) - **BBC News**
-7. [Humphries beats Littler to seal Premier League play-off](https://www.rte.ie/sport/darts/2026/0514/1573434-humphries-beats-littler-to-seal-premier-league-play-off/) - **RTE**
-8. [Court Slaps Down Rogers Appeal as OneSoccer Scores Major Legal Victory](https://www.iphoneincanada.ca/2026/05/14/court-slaps-down-rogers-appeal-as-onesoccer-scores-major-legal-victory/) - **iPhone in Canada**
-9. [Humphries & Price seal Premier League play-off spots](https://www.bbc.com/sport/darts/articles/c042r6kwd1eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Daily Briefing: India weighs withholding tax cut to woo foreign investors](https://indianexpress.com/article/live-news/daily-briefing-top-news-today-10690381/) - **The Indian Express**
+2. [Which Wales players could move this summer?](https://www.bbc.com/sport/football/articles/c202r42rz0lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Which Wales players could move this summer?](https://www.bbc.com/sport/football/articles/c202r42rz0lo) - **BBC News**
+4. [Ryan Reynolds and Rob Mac on ‘Welcome to Wrexham’ Season 5, Earning the ‘Community’s Trust’ and Staying Out Of ‘Football Decisions’](https://variety.com/2026/tv/news/ryan-reynolds-rob-mac-on-welcome-to-wrexham-season-5-1236745410/) - **Variety**
+5. [Rugby league player Eugene Hanna dies after 'unsurvivable' injury in season opener](https://www.dailymail.com/sport/nrl/article-15819627/Rugby-league-player-Eugene-Hanna-dies-unsurvivable-injury-season-opener.html) - **Dailymail.com**
+6. [5 biggest observations from Philadelphia's 2026 slate of games](https://theeagleswire.usatoday.com/story/sports/nfl/eagles/2026/05/14/ive-takeaways-philadelphia-eagles-2026-schedule/90055449007/) - **USA Today**
+7. [Rivers Hoopers plot NPBL title comeback](https://punchng.com/rivers-hoopers-plot-npbl-title-comeback/) - **The Punch**
+8. [Ghana Premier League Match day 33 Fixtures and Previews](https://thechronicle.com.gh/ghana-premier-league-match-day-33-fixtures-and-previews/) - **Thechronicle.com.gh**
+9. [Ranking 15 best matchups on 2026 NFL schedule, from Patrick Mahomes vs. Josh Allen to Seahawks vs. Broncos](https://www.sportingnews.com/us/nfl/news/best-matchups-2026-nfl-schedule-chiefs-bills-seahawks-broncos/dd1b1d25d5c9d3ca40b3c3f2) - **Sporting News**
+10. [Torino, Trabzonspor track Durosinmi](https://punchng.com/torino-trabzonspor-track-durosinmi/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-05-16 09:10:38 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-16 13:05:40 (KST) / (하루 100회 제한 준수 중)*
