@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [What time is the Preakness Stakes? TV channel, post time, horses and more to watch 2026 Triple Crown race](https://www.sportingnews.com/us/horse-racing/news/what-time-preakness-post-channel-horses-watch-2026-race/6c45ff0c3920c6be3b8d9b92) - **Sporting News**
-2. [Seamus Coleman calls time on Everton playing career after 17 years](https://www.irishtimes.com/sport/soccer/2026/05/15/seamus-coleman-calls-time-on-everton-playing-career-after-17-years/) - **The Irish Times**
-3. [Howe hints Gordon could have played his last game for Newcastle](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260515-99-435570/) - **Dpa-international.com**
-4. [West Ham United should have had two penalties against Brentford following VAR errors in recent review](https://sportsview.co.uk/2026/05/west-ham-united-should-have-had-two-penalties-against-brentford-following-var-errors-in-recent-review?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=west-ham-united-should-have-had-two-penalties-against-brentford-following-var-errors-in-recent-review) - **Sportsview.co.uk**
-5. [Bournemouth announce Man United and Liverpool target is leaving for FREE - in move that splits Premier League power couple](https://www.dailymail.com/sport/football/article-15820623/Bournemouth-announce-Man-United-Liverpool-target-leaving-FREE-splits-Premier-League-power-couple.html) - **Dailymail.com**
-6. [The making of the £60K bargain who became an Everton legend](https://www.bbc.com/sport/football/articles/cn91ddjd4e0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Lions schedule: Game-by-game score predictions, wins outlook](https://lionswire.usatoday.com/story/sports/nfl/lions/2026/05/15/detroit-lions-schedule-score-predictions-record/90090288007/) - **USA Today**
-8. [Howe on team fitness, Gordon's future and summer plans](https://www.bbc.com/sport/football/articles/c0529lqzvvqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [‘I want time to focus on what’s next’ – Seamus Coleman ponders future as he calls time on Everton career](https://www.independent.ie/sport/soccer/i-want-time-to-focus-on-whats-next-seamus-coleman-ponders-future-as-he-calls-time-on-everton-career/a1483702974.html) - **Independent.ie**
+1. [Beckham becomes first British billionaire sportsman](https://punchng.com/beckham-becomes-first-british-billionaire-sportsman/) - **The Punch**
+2. [Seamus Coleman to finish Everton playing career at end of season before deciding next move](https://www.the42.ie/seamus-coleman-23-7040507-May2026/) - **The42**
+3. [Seamus Coleman announces he will be leaving Everton](https://royalbluemersey.sbnation.com/everton-news/80013/seamus-coleman-announces-he-will-be-leaving-everton) - **SB Nation**
+4. [Anderson on Forest's rollercoaster season, Pereira magic and England hopes](https://www.skysports.com/football/news/11095/13544315/elliot-anderson-on-nottingham-forest-rollercoster-season-vitor-pereiras-influence-and-world-cup-hopes-with-england) - **Sky Sports**
+5. [Liverpool predicted XI: Reds looking to seal Champions League qualification in must-win top-five six-pointer](https://sportsview.co.uk/2026/05/liverpool-predicted-xi-reds-looking-to-seal-champions-league-qualification-in-must-win-top-five-six-pointer?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=liverpool-predicted-xi-reds-looking-to-seal-champions-league-qualification-in-must-win-top-five-six-pointer) - **Sportsview.co.uk**
+6. [Chelsea v Manchester City: Preview, predicted line-ups and where to watch FA Cup final](https://www.101greatgoals.com/match-previews/chelsea-v-manchester-city-preview-predicted-line-ups-and-where-to-watch-fa-cup-final/) - **101 Great Goals**
+7. [Should Sheffield United Even Consider Building Around Talent That Struggles With Availability?](https://sheffunitedway.co.uk/2026/05/15/should-sheffield-united-even-consider-building-around-talent-that-struggles-with-availability/) - **Sheffunitedway.co.uk**
+8. [Seamus Coleman to retire after 17-year Everton career](https://www.playmakerstats.com/news/seamus-coleman-to-retire-after-17-year-everton-career/1126150) - **Playmakerstats.com**
+9. [Villa team news confirmed before Liverpool clash](https://www.empireofthekop.com/2026/05/15/villa-team-news-confirmed-before-liverpool-clash/) - **Empire of The Kop**
+10. [Why Liverpool must sign free agent Marcos Senesi after troubling Ibrahima Konate update](https://www.empireofthekop.com/2026/05/15/why-liverpool-must-sign-free-agent-marcos-senesi-after-troubling-ibrahima-konate-update/) - **Empire of The Kop**
 
 
 ---
-*최근 업데이트: 2026-05-16 19:02:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-16 20:28:54 (KST) / (하루 100회 제한 준수 중)*
