@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Daily Briefing: India weighs withholding tax cut to woo foreign investors](https://indianexpress.com/article/live-news/daily-briefing-top-news-today-10690381/) - **The Indian Express**
-2. [Which Wales players could move this summer?](https://www.bbc.com/sport/football/articles/c202r42rz0lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Which Wales players could move this summer?](https://www.bbc.com/sport/football/articles/c202r42rz0lo) - **BBC News**
-4. [Ryan Reynolds and Rob Mac on ‘Welcome to Wrexham’ Season 5, Earning the ‘Community’s Trust’ and Staying Out Of ‘Football Decisions’](https://variety.com/2026/tv/news/ryan-reynolds-rob-mac-on-welcome-to-wrexham-season-5-1236745410/) - **Variety**
-5. [Rugby league player Eugene Hanna dies after 'unsurvivable' injury in season opener](https://www.dailymail.com/sport/nrl/article-15819627/Rugby-league-player-Eugene-Hanna-dies-unsurvivable-injury-season-opener.html) - **Dailymail.com**
-6. [5 biggest observations from Philadelphia's 2026 slate of games](https://theeagleswire.usatoday.com/story/sports/nfl/eagles/2026/05/14/ive-takeaways-philadelphia-eagles-2026-schedule/90055449007/) - **USA Today**
-7. [Rivers Hoopers plot NPBL title comeback](https://punchng.com/rivers-hoopers-plot-npbl-title-comeback/) - **The Punch**
-8. [Ghana Premier League Match day 33 Fixtures and Previews](https://thechronicle.com.gh/ghana-premier-league-match-day-33-fixtures-and-previews/) - **Thechronicle.com.gh**
-9. [Ranking 15 best matchups on 2026 NFL schedule, from Patrick Mahomes vs. Josh Allen to Seahawks vs. Broncos](https://www.sportingnews.com/us/nfl/news/best-matchups-2026-nfl-schedule-chiefs-bills-seahawks-broncos/dd1b1d25d5c9d3ca40b3c3f2) - **Sporting News**
-10. [Torino, Trabzonspor track Durosinmi](https://punchng.com/torino-trabzonspor-track-durosinmi/) - **The Punch**
+1. [Arteta: Arsenal should have won more trophies under my reign, this season could start a dynasty](https://www.skysports.com/football/video/33653/13544219/mikel-arteta-arsenal-should-have-won-more-trophies-under-my-reign-but-this-season-could-start-a-dynasty) - **Sky Sports**
+2. [My quality time with Guardiola - and getting his guide to Barcelona](https://www.bbc.com/sport/football/articles/c1l2de6g201o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [My quality time with Guardiola - and getting his guide to Barcelona](https://www.bbc.com/sport/football/articles/c1l2de6g201o) - **BBC News**
+4. [Injured Mitoma left out of Japan World Cup squad](https://www.bbc.com/sport/football/articles/ckgpez39k50o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Report: Chelsea star ready to hand Calum McFarlane major FA Cup final boost](https://chelsea.news/2026/05/reece-james-chelsea-fa-cup-final/) - **Chelsea.news**
+6. [Premier League winger Mitoma out of Japan squad for World Cup as 26-player squad named](https://sports.yahoo.com/articles/premier-league-winger-mitoma-japan-061131754.html) - **Yahoo Entertainment**
+7. [The Guardian detail feeling amongst Chelsea stars over possible Xabi Alonso appointment](https://chelsea.news/2026/05/chelsea-players-xabi-alonso-head-coach/) - **Chelsea.news**
+8. [David O’Leary: Leeds legend makes stunning revelation about Man United job](https://thepeoplesperson.com/2026/05/15/david-oleary-leeds-legend-makes-stunning-revelation-about-man-united-job-310121/) - **The Peoples Person**
+9. [‘Standout’ EPL star ‘very open’ to joining Man Utd after initial contact with his entourage](https://strettynews.com/2026/05/15/man-utd-mateus-fernandes-west-ham-contacts/) - **Strettynews.com**
 
 
 ---
-*최근 업데이트: 2026-05-16 13:05:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-16 15:37:01 (KST) / (하루 100회 제한 준수 중)*
