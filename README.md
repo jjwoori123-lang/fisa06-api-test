@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Maeda reveals ambition to play in England - gossip](https://www.bbc.com/sport/football/articles/c5yxkllj785o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Maeda reveals ambition to play in England - gossip](https://www.bbc.com/sport/football/articles/c5yxkllj785o) - **BBC News**
-3. [BBC Sport provide major update on Chelsea interest in Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3a9bfe56-9078-435c-ab1e-f993b4241794) - **Yahoo Entertainment**
-4. [Good news as dramatic contract U-turn will see Liverpool forward stay](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-keyrol-figueroa-good-news-as-dramatic-contract-u-turn-will-see-forward-stay/) - **Anfieldwatch.co.uk**
-5. [Man Utd's Lacey earns defensive plaudits](https://www.bbc.com/sport/football/articles/cwy2l07ekkvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [‘The FA Cup is everything to me’ – Keown backs Man City to break Chelsea hearts at Wembley](https://hayters.com/keown-backs-man-city-to-break-chelsea-hearts-at-wembley/) - **Hayters.com**
-7. [Wolves v Fulham: Key stats and talking points](https://www.bbc.com/sport/articles/cq6p58zl639o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Brentford v Crystal Palace: Key stats and talking points](https://www.bbc.com/sport/articles/czx2wy401yko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Trippier 'deserving of recognition' on Sunday - Howe](https://www.bbc.com/sport/football/articles/c0m249zxg1no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Aston Villa trounce Liverpool 4-2 to seal Champions League place](https://www.aljazeera.com/sports/2026/5/16/aston-villa-thrash-liverpool-4-2-to-seal-champions-league-place) - **Al Jazeera English**
+1. [Chopping trees and country music - how Paterson will prepare for Wembley](https://www.bbc.com/sport/football/articles/cpvpl828l13o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Virat Kohli: ‘6 cameras following you at practice is not a comfortable feeling’](https://indianexpress.com/article/sports/cricket/virat-kohli-cameras-following-practice-not-comfortable-feeling-10692646/) - **The Indian Express**
+3. [Racing legends reflect on the 1996 Indianapolis 500's 'dark day'](https://www.indystar.com/story/sports/motor/indy-500/2026/05/16/indianapolis-500-1996-drivers-reflect-mario-andretti-tony-stewart-bobby-rahal-buddy-lazier-ims/90084106007/) - **The Indianapolis Star**
+4. [Racing legends reflect on the 1996 Indianapolis 500's 'dark day'](https://www.indystar.com/story/sports/motor/indy-500/2026/05/16/indianapolis-500-1996-drivers-reflect-mario-andretti-tony-stewart-bobby-rahal-buddy-lazier-ims/90084106007/) - **The Indianapolis Star**
+5. [Emil Krafth to depart Newcastle United this summer](https://www.newcastleunited.com/en/news/emil-krafth-to-depart-newcastle-united-this-summer) - **Newcastleunited.com**
+6. [Ngumoha Gives Liverpool Hope During Another Slot Disaster](https://anfieldindex.com/94200/ngumoha-gives-liverpool-hope-during-another-slot-disaster.html) - **Anfieldindex.com**
+7. [Liverpool Beaten 4-2 by Aston Villa in Costly Premier League Defeat](https://anfieldindex.com/94201/liverpool-beaten-4-2-by-aston-villa-in-costly-premier-league-defeat.html) - **Anfieldindex.com**
+8. [Liverpool Torn Apart Again as Villa Expose Slot’s Broken System](https://anfieldindex.com/94199/liverpool-torn-apart-again-as-villa-expose-slots-broken-system.html) - **Anfieldindex.com**
+9. [Report: Chelsea leading the race to sign 23-year-old forward](https://eplindex.com/146462/report-chelsea-leading-the-race-to-sign-23-year-old-forward.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-05-17 16:23:47 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-17 18:22:10 (KST) / (하루 100회 제한 준수 중)*
