@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Richard Hughes steps up interest in 'brilliant' Premier League star](https://www.anfieldwatch.co.uk/liverpool-fc/news/richard-hughes-steps-up-interest-in-brilliant-premier-league-star/) - **Anfieldwatch.co.uk**
-2. [The most pressing issues facing Alonso at Chelsea](https://www.skysports.com/football/news/11668/13544909/xabi-alonso-to-chelsea-transfer-control-style-of-play-and-liverpool-links-key-questions-answered) - **Sky Sports**
-3. [Papers: Everton to make shock move for Gallagher is Spurs are relegated](https://www.skysports.com/football/transfer-paper-talk/12709/13544926/paper-talk) - **Sky Sports**
-4. [Bundesliga side attempting to lure forgotten Italy talent away from Premier League](https://football-italia.net/bundesliga-side-want-forgotten-italy-talent/) - **Football Italia**
-5. [Xabi Alonso reaches total agreement to become Chelsea manager - The Athletic - The New York Times](https://slashdot.org/firehose.pl?op=view&amp;id=183243077) - **Slashdot.org**
-6. [Everton want Chelsea striker Liam Delap and Tottenham Hotspur midfielder Conor Gallagher](https://sportsview.co.uk/2026/05/everton-want-chelsea-striker-liam-delap-and-tottenham-hotspur-midfielder-conor-gallagher?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=everton-want-chelsea-striker-liam-delap-and-tottenham-hotspur-midfielder-conor-gallagher) - **Sportsview.co.uk**
-7. [Target these two under-the-radar pitchers in fantasy baseball trade talks](https://nypost.com/2026/05/16/betting/target-these-two-under-the-radar-pitchers-in-fantasy-baseball-trade-talks/) - **New York Post**
-8. [Your move Richard Hughes: €50m midfielder deal is getting away](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-lamine-camara-monaco-newcastle-your-move-richard-hughes-eur50m-midfielder-deal-is-getting-away/) - **Anfieldwatch.co.uk**
-9. [Heartbreak for Hearts as Celtic crowned Scottish Premiership champion](https://japantoday.com/category/sports/hearts-one-point-away-from-becoming-scottish-champion-and-ending-41-year-rule-by-celtic-and-rangers) - **Japan Today**
-10. [Man City beats Chelsea 1-0 in FA Cup final](https://japantoday.com/category/sports/man-city-faces-crisis-hit-chelsea-in-fa-cup-final-at-wembley) - **Japan Today**
+1. [Agbonlahor says Arsenal target is better than Zubimendi](https://www.justarsenal.com/agbonlahor-says-arsenal-target-is-better-than-zubimendi/415312) - **Just Arsenal News**
+2. [No trophy in turbulent season but Alonso arrival offers Chelsea hope](https://www.bbc.com/sport/football/articles/clyp17plzx9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Premier League 2 Play-Off Final: Brighton U21s 1-0 Manchester United U21s](https://thepeoplesperson.com/2026/05/16/premier-league-2-play-off-final-brighton-u21s-1-0-manchester-united-u21s-310188/) - **The Peoples Person**
+4. [No trophy in turbulent season but Alonso arrival offers Chelsea hope](https://www.bbc.com/sport/football/articles/clyp17plzx9o) - **BBC News**
+5. [Michael Carrick heaps praise on Man United's top transfer target Elliot Anderson as head coach-in-waiting plots summer midfield rebuild](https://www.dailymail.com/sport/football/article-15823373/Michael-Carrick-heaps-praise-Man-Uniteds-transfer-target-Elliot-Anderson-head-coach-waiting-plots-summer-midfield-rebuild.html) - **Dailymail.com**
+6. [Arsenal star insists there is 'no other option' but to finally win the Premier League with the Gunners on the verge of title ahead of Burnley clash](https://www.dailymail.com/sport/football/article-15823457/Arsenal-finally-win-Premier-League.html) - **Dailymail.com**
+7. [Arsenal star insists there is 'no other option' but to finally win the Premier League with the Gunners on the verge of title ahead of Burnley clash](https://www.dailymail.com/sport/football/article-15823457/Arsenal-finally-win-Premier-League.html) - **Dailymail.com**
+8. [Which Premier League games are on TV during the last week of the 2025/26 season? May 2026 schedule, confirmed kick-off times, final day](https://www.101greatgoals.com/football/premier-league/premier-league-games-tv-may-2026-final-week-season/) - **101 Great Goals**
+9. [Nottingham Forest Face Huge Summer As Star Could Stay Amid Changes](https://eplindex.com/146493/nottingham-forest-face-huge-summer-as-star-could-stay-amid-changes.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-05-18 06:10:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-18 07:10:21 (KST) / (하루 100회 제한 준수 중)*
