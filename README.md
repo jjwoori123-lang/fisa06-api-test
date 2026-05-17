@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arteta knows goal difference could play a key role in title run-in](https://www.justarsenal.com/arteta-knows-goal-difference-could-play-a-key-role-in-title-run-in/415282) - **Just Arsenal News**
-2. [From chaos to champions: How O’Neill saved Celtic’s season](https://www.skysports.com/football/news/11095/13544428/celtic-crowned-scottish-premiership-champions-how-martin-oneill-turned-chaos-to-celebration-with-final-day-hearts-win) - **Sky Sports**
-3. [Report: Tottenham Hotspur interested in shock move for Real Madrid star](https://eplindex.com/146476/report-tottenham-hotspur-interested-in-shock-move-for-real-madrid-star.html) - **English Premier League Index - Opta Stats**
-4. [Aston Villa 4-2 Liverpool - the fans' verdict](https://www.bbc.com/sport/football/articles/c93x1zk4jjqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Match Preview: Manchester United vs Nottingham Forest](https://thebusbybabe.sbnation.com/latest-news/34769/match-preview-manchester-united-vs-nottingham-forest) - **SB Nation**
-6. [Penalty agony for Newcastle as Sydney FC books place in ALM grand final](https://www.abc.net.au/news/2026-05-16/sydney-fc-progresses-to-alm-grand-final-penalties-newcastle-jets/106688524) - **ABC News (AU)**
-7. [Hischier Out, Quinn In? 3 Devils Trade Targets to Fill Center Void](https://sportsnaut.com/nhl/new-jersey-devils/devils-news-center-trade-targets-oreilly-mctavish-wright-hischier-hughes/) - **Sportsnaut**
-8. [Carragher tears into Liverpool recruitment after Villa defeat](https://www.empireofthekop.com/2026/05/16/carragher-tears-into-liverpool-recruitment-after-villa-defeat/) - **Empire of The Kop**
-9. [Rodri starts as City make five changes for FA Cup final](https://www.mancity.com/news/mens/fa-cup-final-chelsea-may-2026-team-news-tactics-63914526) - **Manchester City FC**
-10. [Confirmed Line-Ups: Chelsea vs Manchester City (FA Cup Final)](https://cityxtra.co.uk/46517/confirmed-line-ups-chelsea-vs-manchester-city-fa-cup-final/) - **Cityxtra.co.uk**
+1. [Former La Masia winger linked with Barcelona return wanted by several clubs](https://barcauniversal.com/former-la-masia-winger-linked-with-barcelona-return-wanted-by-several-clubs/) - **Barcauniversal.com**
+2. [Salah says he wants Liverpool to ‘go back to being the heavy metal attacking team that opponents fear’](https://hayters.com/salah-says-he-wants-liverpool-to-go-back-to-being-the-heavy-metal-attacking-team-that-opponents-fear/) - **Hayters.com**
+3. [Salah urges Liverpool to revive 'heavy metal' football after Villa defeat](https://www.channelnewsasia.com/sport/salah-urges-liverpool-revive-heavy-metal-football-after-villa-defeat-6125881) - **CNA**
+4. [Report – Newcastle United Star Emerge as Top Man Utd Target Amid Serie A Interest](https://cultofcalcio.com/report-newcastle-united-star-emerge-as-top-man-utd-target-amid-serie-a-interest/) - **Cultofcalcio.com**
+5. [FA Cup final 2026 live: Haaland goal disallowed in Chelsea vs Man City as Premier League title contenders apply ‘huge pressure’](https://www.101greatgoals.com/football/chelsea-vs-man-city-haaland-goal-fa-cup-final-2026/) - **101 Great Goals**
+6. [Newcastle Announce Player Exit Before West Ham Game](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/21781/newcastle-announce-player-exit-before-west-ham-game) - **SB Nation**
+7. [Report – Inter Eye Up Audacious Swoop for Man City Stalwart](https://cultofcalcio.com/inter-eye-up-summer-bid-for-man-city-star-phil-foden/) - **Cultofcalcio.com**
+8. [Report: European giants eyeing move for Tottenham Hotspur defender](https://eplindex.com/146481/report-european-giants-eyeing-move-for-tottenham-hotspur-defender.html) - **English Premier League Index - Opta Stats**
+9. [Wild Haaland stat sums up first half of FA Cup final ](https://onefootball.com/en/news/wild-haaland-stat-sums-up-first-half-of-fa-cup-final-42875779) - **Onefootball.com**
+10. [Do FA Cup winners get Champions League place? How qualification for Europe works for English competition](https://www.sportingnews.com/us/soccer/news/fa-cup-winners-champions-league-place-qualification-europe/153424ce43ac76f0042bf88d) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-05-17 23:00:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-18 00:31:46 (KST) / (하루 100회 제한 준수 중)*
