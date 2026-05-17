@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bruno Fernandes Surpasses Cristiano Ronaldo With Latest Manchester United Feat](https://www.foxsports.com/stories/soccer/move-over-cristiano-ronaldo-bruno-fernandes-makes-man-utd-history-with-fifth-player-of-the-year-award-win) - **Fox Sports**
-2. [Heimir Halgrímsson sticks with tried and tested formation for Grenada friendly](https://www.irishtimes.com/sport/soccer/2026/05/16/ireland-to-deploy-same-formation-against-grenada-as-used-in-budapest-and-prague/) - **The Irish Times**
-3. ['We crumbled' - another loss, another unwanted record for leaky Liverpool](https://www.bbc.com/sport/football/articles/c392rp8lwe1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. ['We crumbled' - another loss, another unwanted record for leaky Liverpool](https://www.bbc.com/sport/football/articles/c392rp8lwe1o) - **BBC News**
-5. [Chelsea close to agreement with Alonso on eve of FA Cup final](https://wp.fromthespot.co.uk/28582/chelsea-close-to-agreement-with-alonso-on-eve-of-fa-cup-final/) - **Fromthespot.co.uk**
-6. [Digging Deeper Into Liverpool’s 4-2 Defeat to Aston Villa](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/80482/digging-deeper-into-liverpools-4-2-defeat-to-aston-villa) - **SB Nation**
-7. [Broken Arne Slot has made Liverpool a feeble mess and needs a miracle to win back the fanbase, writes LEWIS STEELE - how long can the Anfield hierarchy ignore the alarm bells?](https://www.dailymail.com/sport/football/article-15820547/arne-slot-liverpool-crisis-fanbase.html) - **Dailymail.com**
-8. ['I'll never walk away', vows under pressure Lynch](https://www.bbc.com/sport/football/articles/c202v8vx0nyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Aston Villa clinches 2026-27 UEFA Champions League place with win over Liverpool](https://www.usatoday.com/story/sports/soccer/2026/05/15/aston-villa-uefa-champions-league-2026-2027-liverpool/90105110007/) - **USA Today**
+1. [Nigerian striker Adetunji switches nationality to Sudan](https://punchng.com/nigerian-striker-adetunji-switches-nationality-to-sudan/) - **The Punch**
+2. [How to Watch the 2026 FA Cup Final: Chelsea vs. Manchester City](http://www.rollingstone.com/product-recommendations/streaming/fa-cup-chelsea-vs-man-city-streaming-how-to-watch-2026-1235562297/) - **Rolling Stone**
+3. [Fulham boss confirms Iwobi return from injury](https://punchng.com/fulham-boss-confirms-iwobi-return-from-injury/) - **The Punch**
+4. [Sunderland, Fulham to battle Saudi clubs for Ejuke](https://punchng.com/sunderland-fulham-to-battle-saudi-clubs-for-ejuke/) - **The Punch**
+5. [Japan confirm 2026 World Cup list led by Takefusa Kubo but without Kaoru Mitoma and Takumi Minamino](https://worldsoccertalk.com/world-cup/japan-confirm-2026-world-cup-list-led-by-takefusa-kubo-but-without-kaoru-mitoma-and-takumi-minamino/) - **Worldsoccertalk.com**
+6. [In better form than Kane - why Watkins is no longer being 'written off'](https://www.bbc.com/sport/football/articles/cq5pjqn4v0go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [In better form than Kane - why Watkins is no longer being 'written off'](https://www.bbc.com/sport/football/articles/cq5pjqn4v0go) - **BBC News**
+8. [Bruno Fernandes Surpasses Cristiano Ronaldo With Latest Manchester United Feat](https://www.foxsports.com/stories/soccer/move-over-cristiano-ronaldo-bruno-fernandes-makes-man-utd-history-with-fifth-player-of-the-year-award-win) - **Fox Sports**
+9. [Heimir Halgrímsson sticks with tried and tested formation for Grenada friendly](https://www.irishtimes.com/sport/soccer/2026/05/16/ireland-to-deploy-same-formation-against-grenada-as-used-in-budapest-and-prague/) - **The Irish Times**
+10. ['We crumbled' - another loss, another unwanted record for leaky Liverpool](https://www.bbc.com/sport/football/articles/c392rp8lwe1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-17 08:11:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-17 09:10:29 (KST) / (하루 100회 제한 준수 중)*
