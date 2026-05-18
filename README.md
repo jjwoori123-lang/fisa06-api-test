@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Gaizka Mendieta explains why Raya can’t start games for Spain](https://www.justarsenal.com/gaizka-mendieta-explains-why-raya-cant-start-games-for-spain/415327) - **Just Arsenal News**
-2. [Read Eddie Howe's pre-match message ahead of West Ham United](https://www.newcastleunited.com/en/news/read-eddie-howes-pre-match-message-ahead-of-west-ham-united) - **Newcastleunited.com**
-3. ['City keep going from strength to strength'](https://www.bbc.com/sport/football/articles/c87q4y9pje3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Manchester United vs Nottingham Forest: How to Watch Live Stream Today – Premier League](https://www.ibtimes.com.au/manchester-united-nottingham-forest-premier-league-showdown-1869029) - **Ibtimes.com.au**
-5. [DC vs RR IPL 2026 live score, toss winner, winning probability, result and highlights from Arun Jaitley Stadium, Delhi](https://www.cricketnews.com/en/cricket/news/dc-vs-rr-ipl-2026-live-score-toss-winner-result-highlights-delhi/2f3555a872c45f9114c48ade) - **Cricketnews.com**
-6. [dpa SPORTS SCHEDULE for SUNDAY, MAY 17, 1200 GMT](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260517-99-451663/) - **Dpa-international.com**
-7. [Culture, squad and physical issues - Alonso has 'tough task' ahead](https://www.bbc.com/sport/football/articles/c7v9814j5j4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [West Ham vs. Newcastle predictions: Odds, best bets, pick for crucial Premier League relegation battle Sunday](https://nypost.com/2026/05/17/betting/west-ham-vs-newcastle-predictions-odds-best-bets-pick-for-crucial-premier-league-relegation-battle-sunday/) - **New York Post**
-9. [Shai Gilgeous-Alexander’s Calmness Helps Thunder’s NBA Title Chances](https://www.forbes.com/sites/markmedina/2026/05/17/shai-gilgeous-alexanders-calmness-helps-thunders-nba-title-chances/) - **Forbes**
-10. [Newcastle vs. West Ham — Team News & Match Preview](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/21761/newcastle-vs-west-ham-team-news-match-preview) - **SB Nation**
+1. [Michael Carrick plays down future talks: ‘Over the coming days, there’ll be clarity in the situation’](https://www.101greatgoals.com/football/premier-league/michael-carrick-plays-down-future-talks-over-the-coming-days-therell-be-clarity-in-the-situation/) - **101 Great Goals**
+2. [Three sporting events to watch this week: Your handy guide to sport on television](https://www.irishtimes.com/sport/2026/05/17/three-sporting-events-to-watch-this-week-your-handy-guide-to-sport-on-television/) - **The Irish Times**
+3. [Antoine Semenyo reveals his old Bournemouth team-mates are ready to rough him up as he prepares for first return to south coast](https://www.dailymail.com/sport/football/article-15825315/Antoine-Semenyo-reveals-old-Bournemouth-team-mates-ready-rough-prepares-return-south-coast.html) - **Dailymail.com**
+4. [Sunderland fight back to stun Everton and boost top-eight hopes](https://www.skysports.com/football/news/11661/13544230/everton-1-3-sunderland-black-cats-stage-second-half-fightback-to-boost-chances-of-european-qualification) - **Sky Sports**
+5. [Arsenal vs Burnley Premier League preview: The home finale](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_34ee7946-f6c0-4e7f-9d3a-e78e43515a4d) - **Yahoo Entertainment**
+6. [Tottenham takes step to beat Arsenal to La Liga star](https://www.justarsenal.com/tottenham-takes-step-to-beat-arsenal-to-la-liga-star/415337) - **Just Arsenal News**
+7. [Calvert-Lewin scores 90+6' winner!](https://www.skysports.com/football/video/12606/13545204/goal-d-calvert-lewin-90-6-leeds-1-0-brighton) - **Sky Sports**
+8. [Carrick plays down future talk after Man United secure third-place finish](https://www.channelnewsasia.com/sport/carrick-plays-down-future-talk-after-man-united-secure-third-place-finish-6126906) - **CNA**
+9. [Touching tribute for late Sunderland supporter on what would be 15th birthday at Everton](https://wp.fromthespot.co.uk/28776/touching-tribute-for-late-sunderland-supporter-on-what-would-be-15th-birthday-at-everton/) - **Fromthespot.co.uk**
 
 
 ---
-*최근 업데이트: 2026-05-18 21:34:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-19 01:05:26 (KST) / (하루 100회 제한 준수 중)*
