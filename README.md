@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Shubman Gill joins David Warner, Sachin Tendulkar, Virat Kohli in elite list of IPL captains after fiery knock against KKR](https://economictimes.indiatimes.com/news/sports/shubman-gill-joins-david-warner-sachin-tendulkar-virat-kohli-in-elite-list-of-ipl-captains-after-fiery-knock-against-kkr/articleshow/131148941.cms) - **The Times of India**
-2. [Manchester United vs Nottingham Forest: Live stream, Time & How to watch](https://thebusbybabe.sbnation.com/latest-news/34772/manchester-united-vs-nottingham-forest-live-stream-time-how-to-watch) - **SB Nation**
-3. [Shark Coast FC draws in USL2 debut in front of record crowd](https://www.news-journalonline.com/story/sports/local/2026/05/17/shark-coast-fc-usl2-new-smyrna-beach-soccer/90127223007/) - **Daytona Beach News-Journal**
-4. [Manchester United vs Nottingham Forest – Match preview and team news](https://thefootballfaithful.com/manchester-united-vs-nottingham-forest-match-preview-and-team-news-2/) - **The Football Faithful**
-5. [Manchester United vs Nottingham Forest – Predicted lineup and team news](https://thefootballfaithful.com/manchester-united-vs-nottingham-forest-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-6. [3 Milan stars who could leave for greener pastures this summer](https://www.getfootballnewsitaly.com/2026/3-milan-stars-who-could-leave-for-greener-pastures-this-summer/) - **Getfootballnewsitaly.com**
-7. [Barcelona vs Real Betis, La Liga: Preview](https://www.barcablaugranes.com/barcelona-la-liga/120607/barcelona-real-betis-la-liga-team-news-match-preview-lineups-prediction) - **Barca Blaugranes**
-8. ['There will only be one': Sunil Narine hailed as greatest mystery spinner after helping KKR beat GT in 200th IPL match](https://www.cricketnews.com/en/cricket/news/only-one-sunil-narine-greatest-mystery-spinner-kkr-beat-gt-200th-ipl-match/7c47b1835e214b7df86091be) - **Cricketnews.com**
-9. ['It doesn't sit right with me that England players are contracted more strongly to the IPL': DAVID GOWER on why Jacob Bethell should come home early to prepare for the Test summer, how Zak Crawley's time was up and England's post-Ashes reboot](https://www.dailymail.com/sport/cricket/article-15824255/It-doesnt-sit-right-England-players-contracted-strongly-IPL-DAVID-GOWER-Jacob-Bethell-come-home-early-prepare-Test-summer-Zak-Crawleys-time-Englands-post-Ashes-reboot.html) - **Dailymail.com**
-10. [Proving Ruben Amorim wrong, no sugar and 'the best decision of my career': Man United insiders reveal how Casemiro went from pariah to pivotal as he prepares for emotional Old Trafford farewell](https://www.dailymail.com/sport/football/article-15820653/Casemiro-Manchester-United-Ruben-Amorim-Old-Trafford.html) - **Dailymail.com**
+1. [Chelsea appoint Xabi Alonso as new manager on four-year deal](https://www.aljazeera.com/sports/2026/5/17/chelsea-appoint-xabi-alonso-as-new-manager-premier-league-club-says) - **Al Jazeera English**
+2. [Chelsea appoint Xabi Alonso as manager](https://www.playmakerstats.com/news/chelsea-appoint-xabi-alonso-as-manager/1127811) - **Playmakerstats.com**
+3. [Premier League Soccer: Stream Man United vs. Nottingham Forest From Anywhere Live](https://www.cnet.com/tech/services-and-software/premier-league-soccer-stream-man-united-vs-nottingham-forest-from-anywhere-live/) - **CNET**
+4. [Xabi Alonso is confirmed as Chelsea's new manager less than 24 hours after disappointing FA Cup final defeat against Man City - as Spaniard signs four-year contract](https://www.dailymail.com/sport/football/article-15824995/Xabi-Alonso-confirmed-Chelseas-new-manager.html) - **Dailymail.com**
+5. [Xabi Alonso appointed Chelsea manager on four-year deal](https://sports.yahoo.com/articles/xabi-alonso-appointed-chelsea-manager-082509210.html) - **Yahoo Entertainment**
+6. [Wolves vs Fulham – Match preview and team news](https://thefootballfaithful.com/wolves-vs-fulham-match-preview-and-team-news/) - **The Football Faithful**
+7. [Barcelona vs Real Betis – Match preview and team news](https://thefootballfaithful.com/barcelona-vs-real-betis-match-preview-and-team-news/) - **The Football Faithful**
+8. [Barcelona vs Real Betis – Predicted lineup and team news](https://thefootballfaithful.com/barcelona-vs-real-betis-predicted-lineup-and-team-news/) - **The Football Faithful**
+9. [Haway The Podcast | MATCHDAY PREVIEW | Everton v SAFC | Last Away Day Of The Season!](https://rokerreport.sbnation.com/haway-the-podcast/137934/haway-the-podcast-matchday-preview-everton-v-safc-last-away-day-of-the-season) - **SB Nation**
+10. [Xabi Alonso appointed new Chelsea manager](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260517-99-451924/) - **Dpa-international.com**
 
 
 ---
-*최근 업데이트: 2026-05-18 13:46:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-18 17:46:21 (KST) / (하루 100회 제한 준수 중)*
