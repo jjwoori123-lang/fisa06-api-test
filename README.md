@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arteta calls on Emirates crowd to carry Arsenal to title](https://www.rte.ie/sport/soccer/2026/0517/1573858-arteta-calls-on-emirates-crowd-to-carry-arsenal-to-title/) - **RTE**
-2. [Pep targeting final day ‘chance’](https://www.mancity.com/news/mens/pep-guardiola-embargo-chelsea-fa-cup-final-press-conference-63914625) - **Manchester City FC**
-3. [Arsenal boss Mikel Arteta issues rallying cry to supporters as they close in on Premier League title - urging them to help take the club to a 'different level'](https://www.dailymail.com/sport/football/article-15825229/Arsenal-boss-Mikel-Arteta-issues-rallying-cry.html) - **Dailymail.com**
-4. [Is Pep Guardiola leaving Manchester City? Record-breaking manager enters potential final week](https://www.sportingnews.com/us/soccer/manchester-city/news/pep-guardiola-leaving-manchester-city-manager-last-week/13d71fc28a1c5efbcb1035f7) - **Sporting News**
-5. [Arteta: "Supporters are our magic player"](http://www.arsenal.com/news/arteta-supporters-are-our-magic-player) - **Arsenal.com**
-6. [Arteta reveals he tried to sign Arsenal star two years before he eventually joined](https://hayters.com/arteta-reveals-he-tried-to-sign-arsenal-star-two-years-before-he-eventually-joined/) - **Hayters.com**
-7. [Guardiola names his ‘biggest title’ with Manchester City](https://hayters.com/guardiola-names-his-biggest-title-with-manchester-city/) - **Hayters.com**
-8. [Manchester United Are Keeping Tabs On This Borussia Dortmund Full-Back: Should Carrick Go For Him?](https://the4thofficial.net/2026/05/manchester-united-are-keeping-tabs-on-this-borussia-dortmund-full-back/) - **The4thofficial.net**
-9. [West Ham on brink of relegation from Premier League](https://japantoday.com/category/sports/fernandes-ties-assist-record-and-another-var-controversy-as-man-united-beat-forest) - **Japan Today**
+1. [How 'poor' West Ham were 'torn apart' by Newcastle](https://www.bbc.com/sport/football/videos/cx214112594o) - **BBC News**
+2. [Should Cunha's goal have been disallowed?](https://www.bbc.com/sport/football/videos/cx21d135v7ro) - **BBC News**
+3. [Match of the Day](https://www.bbc.co.uk/programmes/m002wmj5) - **BBC News**
+4. [Espirito Santo: West Ham players deserved fan jeers](https://www.rte.ie/sport/soccer/2026/0517/1573857-espirito-santo-west-ham-players-deserved-fan-jeers/) - **RTE**
+5. [England pass Six Nations stress test, but rivals will return](https://www.bbc.com/sport/rugby-union/articles/cn0pgpp70yeo) - **BBC News**
+6. [I was working with Arsenal's brilliant young kids like Bukayo Saka until Arsenal sacked me over social media posts... now I'm 63 and working on building sites to get by](https://www.dailymail.com/sport/football/article-15824249/I-working-Arsenals-brilliant-young-kids-like-Bukayo-Saka-Arsenal-sacked-social-media-posts-Im-63-working-building-sites-by.html) - **Dailymail.com**
+7. [Papers: Chelsea showing interest in Rogers](https://www.skysports.com/football/transfer-paper-talk/12709/13545341/morgan-rogers-transfer-news-chelsea-showing-interest-in-aston-villa-star-paper-talk) - **Sky Sports**
+8. [Papers: Chelsea showing interest in Rogers](https://www.skysports.com/football/transfer-paper-talk/12709/13545341/morgan-rogers-transfer-news-chelsea-showing-interest-in-aston-villa-star-paper-talk) - **Sky Sports**
+9. [Revealed: When Chelsea Expects Xabi Alonso To Win The Premier League Title](https://www.foxsports.com/stories/soccer/revealed-when-chelsea-expect-xabi-alonso-to-deliver-premier-league-title-by-with-new-blues-boss-taking-mentality-monsters-inspiration-from-jurgen-klopp) - **Fox Sports**
+10. [How Arsenal used loss vs. Manchester City to fuel their Premier League title charge](https://www.cbssports.com/soccer/news/arsenal-vs-burnley-premier-league-title-charge/) - **CBS Sports**
 
 
 ---
-*최근 업데이트: 2026-05-19 06:40:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-19 08:04:25 (KST) / (하루 100회 제한 준수 중)*
