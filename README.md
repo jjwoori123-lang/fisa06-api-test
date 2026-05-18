@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool Have Set Their Sights On This Bayern Munich Winger: Dream Signing For The Reds?](https://the4thofficial.net/2026/05/liverpool-have-set-their-sights-on-this-bayern-munich-winger-2/) - **The4thofficial.net**
-2. [Arsenal defender explains what the dressing room feels like](https://www.justarsenal.com/arsenal-defender-explains-what-the-dressing-room-feels-like/415342) - **Just Arsenal News**
-3. [Delhi stay alive with win over Rajasthan as Bengaluru thrash Punjab to enter playoffs](https://www.channelnewsasia.com/sport/delhi-stay-alive-win-over-rajasthan-bengaluru-thrash-punjab-enter-playoffs-6127146) - **CNA**
-4. ['I'm really proud of the players' - Howe](https://www.bbc.com/sport/football/videos/c0k2zx5vmd8o) - **BBC News**
-5. [West Ham on brink of relegation after Newcastle flop](https://www.channelnewsasia.com/sport/west-ham-brink-relegation-after-newcastle-flop-6127141) - **CNA**
-6. [Arne Slot himself pushed for surprise Liverpool transfer](https://www.anfieldwatch.co.uk/liverpool-fc/news/arne-slot-himself-pushed-for-surprise-liverpool-transfer/) - **Anfieldwatch.co.uk**
-7. [Bruno Fernandes Ties Thierry Henry, Kevin De Bruyne's EPL Assist Record](https://www.foxsports.com/stories/soccer/bruno-fernandes-matches-thierry-henry-kevin-de-bruyne-record-as-man-utd-captain-registers-20th-premier-league-assist-of-the-season) - **Fox Sports**
-8. [Osula Gets 8.5, Botman With 7.5 | Newcastle United Players Rated In Impressive Win Vs West Ham United](https://the4thofficial.net/2026/05/osula-gets-8-5-botman-with-7-5-newcastle-united-players-rated-in-impressive-win-vs-west-ham-united/) - **The4thofficial.net**
-9. [Sunderland’s Swiss Heartbeat Wants To Join Turkish Giants: Can The Black Cats Afford To Lose Him?](https://the4thofficial.net/2026/05/sunderlands-swiss-heartbeat-wants-to-join-turkish-giants-can-the-black-cats-afford-to-lose-him/) - **The4thofficial.net**
-10. [Osula scores twice as Newcastle edge West Ham to brink of relegation](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260517-99-456905/) - **Dpa-international.com**
+1. [Arteta calls on Emirates crowd to carry Arsenal to title](https://www.rte.ie/sport/soccer/2026/0517/1573858-arteta-calls-on-emirates-crowd-to-carry-arsenal-to-title/) - **RTE**
+2. [Pep targeting final day ‘chance’](https://www.mancity.com/news/mens/pep-guardiola-embargo-chelsea-fa-cup-final-press-conference-63914625) - **Manchester City FC**
+3. [Arsenal boss Mikel Arteta issues rallying cry to supporters as they close in on Premier League title - urging them to help take the club to a 'different level'](https://www.dailymail.com/sport/football/article-15825229/Arsenal-boss-Mikel-Arteta-issues-rallying-cry.html) - **Dailymail.com**
+4. [Is Pep Guardiola leaving Manchester City? Record-breaking manager enters potential final week](https://www.sportingnews.com/us/soccer/manchester-city/news/pep-guardiola-leaving-manchester-city-manager-last-week/13d71fc28a1c5efbcb1035f7) - **Sporting News**
+5. [Arteta: "Supporters are our magic player"](http://www.arsenal.com/news/arteta-supporters-are-our-magic-player) - **Arsenal.com**
+6. [Arteta reveals he tried to sign Arsenal star two years before he eventually joined](https://hayters.com/arteta-reveals-he-tried-to-sign-arsenal-star-two-years-before-he-eventually-joined/) - **Hayters.com**
+7. [Guardiola names his ‘biggest title’ with Manchester City](https://hayters.com/guardiola-names-his-biggest-title-with-manchester-city/) - **Hayters.com**
+8. [Manchester United Are Keeping Tabs On This Borussia Dortmund Full-Back: Should Carrick Go For Him?](https://the4thofficial.net/2026/05/manchester-united-are-keeping-tabs-on-this-borussia-dortmund-full-back/) - **The4thofficial.net**
+9. [West Ham on brink of relegation from Premier League](https://japantoday.com/category/sports/fernandes-ties-assist-record-and-another-var-controversy-as-man-united-beat-forest) - **Japan Today**
 
 
 ---
-*최근 업데이트: 2026-05-19 05:05:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-19 06:40:53 (KST) / (하루 100회 제한 준수 중)*
