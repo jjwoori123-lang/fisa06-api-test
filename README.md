@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Coleman to Coventry would be 'brilliant' - Cawley](https://www.rte.ie/sport/soccer/2026/0518/1573949-coleman-to-coventry-would-be-brilliant-cawley/) - **RTE**
-2. ['The most wonderful day in our club's history'](https://www.bbc.com/news/articles/cx21p8en0wvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Liverpool reveal plans for tributes to Robertson and Salah, much to Rooney’s irritation](https://www.101greatgoals.com/football/premier-league/liverpool-reveal-plans-for-tributes-to-robertson-and-salah-much-to-rooneys-irritation/) - **101 Great Goals**
-4. [Ranking the NFL's Christmas games for the 2026 season](https://theeagleswire.usatoday.com/story/sports/nfl/eagles/2026/05/18/ranking-nfl-christmas-games-2026-schedule-eagles-texans/90130172007/) - **USA Today**
-5. [⛳️ Y! Sports AM: Everybody loves Aaron](https://sports.yahoo.com/articles/y-sports-am-everybody-loves-122053465.html) - **Yahoo Entertainment**
-6. [Arsenal v Burnley Predicted Team And Score Prediction](https://www.justarsenal.com/arsenal-v-burnley-predicted-team-and-score-prediction/415371) - **Just Arsenal News**
-7. [We want to extend title race to Aston Villa – Pep](https://www.mancity.com/news/mens/pep-guardiola-202526-afc-bournemouth-manchester-city-press-conference-63914699) - **Manchester City FC**
-8. [Guardiola on a fit squad, FA Cup win and 'unbelievable' Bournemouth](https://www.bbc.com/sport/football/articles/cn0pkeq8qg7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Collins looking for final European push away to Liverpool](https://www.rte.ie/sport/soccer/2026/0518/1573939-collins-looking-for-final-european-push-away-to-liverpool/) - **RTE**
+1. [RAISE A GUINNESS, "THE WORLD'S CUP," TO SOCCER FANS EVERYWHERE THIS SUMMER](https://www.prnewswire.com/news-releases/raise-a-guinness-the-worlds-cup-to-soccer-fans-everywhere-this-summer-302774971.html) - **PRNewswire**
+2. [PGMO admits handball error on Man Utd goal v Forest](https://www.bbc.com/sport/football/articles/cp3p91xed8go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [PGMO admits handball error on Man Utd goal v Forest](https://www.bbc.com/sport/football/articles/cp3p91xed8go) - **BBC News**
+4. [Nottingham Forest handed apology by refs' chief Howard Webb over Bryan Mbeumo 'handball' controversy during Man United clash](https://www.dailymail.com/sport/football/article-15828349/nottingham-forest-howard-webb-apology-bryan-mbeumo-handball.html) - **Dailymail.com**
+5. [Karim Adeyemi: Man United have trump card in race for Dortmund star](https://thepeoplesperson.com/2026/05/18/karim-adeyemi-man-united-have-trump-card-in-race-for-dortmund-star-310275/) - **The Peoples Person**
+6. [Most wickets as captain in IPL history: Pat Cummins beats Hardik Pandya and closes in on Shane Warne](https://www.cricketnews.com/en/cricket/news/most-wickets-captain-ipl-history/8c629997ff5314cbba7d0d94) - **Cricketnews.com**
+7. [Dembele having treatment for calf strain, say PSG](https://www.bbc.com/sport/football/articles/clypdv3nw4wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Dembele having treatment for calf strain, say PSG](https://www.bbc.com/sport/football/articles/clypdv3nw4wo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-19 21:42:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-20 01:23:09 (KST) / (하루 100회 제한 준수 중)*
