@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Stories, scheduling & spectacle - five takeaways from 2025-26 WSL](https://www.bbc.com/sport/football/articles/c07284m2eypo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Casemiro: Man United star bids farewell to Old Trafford in style](https://thepeoplesperson.com/2026/05/18/casemiro-man-united-star-bids-farewell-to-old-trafford-in-style-310251/) - **The Peoples Person**
-3. [Fantastic star asked straight about potential Liverpool move](https://www.anfieldwatch.co.uk/liverpool-fc/news/fantastic-star-asked-straight-about-potential-liverpool-move/) - **Anfieldwatch.co.uk**
-4. [World Cup worries for USMNT as duo hurt in Premier League action](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c823f805-86db-47c8-9d38-ad9108046170) - **Yahoo Entertainment**
-5. [Arsenal vs Burnley – Predicted lineup and team news](https://thefootballfaithful.com/arsenal-vs-burnley-predicted-lineup-and-team-news/) - **The Football Faithful**
-6. [Burnley XI vs Arsenal – Predicted lineup and team news](https://thefootballfaithful.com/burnley-xi-vs-arsenal-predicted-lineup-and-team-news/) - **The Football Faithful**
-7. [Arsenal vs Burnley – Match preview and team news](https://thefootballfaithful.com/arsenal-vs-burnley-match-preview-and-team-news/) - **The Football Faithful**
-8. [“That’s why they’ve called him manager” – Gary Neville explains Xabi Alonso’s Chelsea role](https://chelsea.news/2026/05/thats-why-theyve-called-him-manager-gary-neville-explains-xabi-alonsos-chelsea-role/) - **Chelsea.news**
-9. [Delhi coach Badani lauds role model Starc](https://www.channelnewsasia.com/sport/delhi-coach-badani-lauds-role-model-starc-6127796) - **CNA**
-10. [Inside the season Chelsea’s WSL dominance ended: Divisions, losing their ‘fear factor’ and what’s next](https://sports.yahoo.com/articles/inside-season-chelsea-wsl-dominance-051604961.html) - **Yahoo Entertainment**
+1. [Manchester United star confirms exit in £38m departure](https://eplindex.com/146534/manchester-united-star-confirms-exit-in-38m-departure.html) - **English Premier League Index - Opta Stats**
+2. [Herbalife and Cristiano Ronaldo Bring Performance Nutrition to Everyday Routines with "Fuel Like Ronaldo" Campaign](https://en.antaranews.com/news/416092/herbalife-and-cristiano-ronaldo-bring-performance-nutrition-to-everyday-routines-with-fuel-like-ronaldo-campaign) - **Antaranews.com**
+3. [Barcelona fear Xabi Alonso will block move for striker target](https://www.football-espana.net/2026/05/18/barcelona-xabi-alonso-block-move) - **Football Espana**
+4. [Alonso eyes £80m midfielder as first Chelsea signing](https://thefootballfaithful.com/alonso-80m-morgan-rgoers-aston-villa-first-chelsea-signing/) - **The Football Faithful**
+5. [Manchester United veteran Tom Heaton in line for 12-month extension](https://sportsview.co.uk/2026/05/manchester-united-veteran-tom-heaton-in-line-for-12-month-extension?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-veteran-tom-heaton-in-line-for-12-month-extension) - **Sportsview.co.uk**
+6. [Fernandes 'proud' to match Premier League assists record](https://sports.yahoo.com/articles/fernandes-proud-match-premier-league-093839981.html) - **Yahoo Entertainment**
+7. [Homegrown star’s contract standoff leaves Liverpool under Inter’s mounting pressure](https://anfieldindex.com/94282/homegrown-stars-contract-standoff-leaves-liverpool-under-inters-mounting-pressure.html) - **Anfieldindex.com**
+8. [Arsenal v Burnley Match Preview: Huge Night in Premier League Title Race](https://www.justarsenal.com/arsenal-v-burnley-match-preview-huge-night-in-premier-league-title-race/415361) - **Just Arsenal News**
+9. [Which Premier League teams can qualify for Europe? How many spots are up for grabs?](https://www.nbcsports.com/soccer/news/which-premier-league-teams-can-qualify-for-europe-how-many-spots-are-up-for-grabs) - **NBCSports.com**
+10. [Manchester City star makes bullish title claim to Arsenal](https://eplindex.com/146533/manchester-city-star-makes-bullish-title-claim-to-arsenal.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-05-19 14:49:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-19 18:51:32 (KST) / (하루 100회 제한 준수 중)*
