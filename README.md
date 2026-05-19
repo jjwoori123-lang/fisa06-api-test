@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mourinho wants Rashford at Real Madrid - Tuesday gossip](https://www.bbc.com/sport/football/articles/c93xwq92513o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Mourinho wants Rashford at Real Madrid - Tuesday gossip](https://www.bbc.com/sport/football/articles/c93xwq92513o) - **BBC News**
-3. [The end of an era at Manchester City is near as Pep Guardiola is reportedly set to step down as manager](https://esteemedkompany.com/2026/05/18/the-end-of-an-era-at-manchester-city-is-near-as-pep-guardiola-is-reportedly-set-to-step-down-as-manager/) - **Esteemedkompany.com**
-4. [Ander Barrenetxea: Man United learn of biggest rival in pursuit of their own Griezmann](https://thepeoplesperson.com/2026/05/18/ander-barrenetxea-man-united-learn-of-biggest-rival-in-pursuit-of-their-own-griezmann-310287/) - **The Peoples Person**
-5. [Victor Wembanyama's family tree: Meet Spurs star's father, basketball-playing mother, siblings and more about French roots](https://www.sportingnews.com/us/nba/news/victor-wembanyama-family-tree-father-mother-siblings/azw9h59wyelqhv7woit8o9po) - **Sporting News**
-6. [Report: Aston Villa ready to pay €20m to sign La Liga star](https://eplindex.com/146552/report-aston-villa-ready-to-pay-e20m-to-sign-la-liga-star.html) - **English Premier League Index - Opta Stats**
-7. [Man City preparing for Guardiola departure](https://www.bbc.com/sport/football/articles/c0k28522472o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Man City preparing for Guardiola departure](https://www.bbc.com/sport/football/articles/c0k28522472o) - **BBC News**
-9. [Leeds United Miss Out On A Bundesliga-Bound Box-To-Box Dynamo: Does Farke Need To Rethink His Midfield Plan?](https://the4thofficial.net/2026/05/leeds-united-miss-out-on-a-bundesliga-bound-box-to-box-dynamo-does-farke-need-to-rethink-his-midfield-plan/) - **The4thofficial.net**
-10. [Journalist casts doubt over Liverpool regular who ‘cannot play Premier League football anymore’](https://www.empireofthekop.com/2026/05/18/journalist-casts-doubt-over-liverpool-regular-cannot-play-premier-league-anymore/) - **Empire of The Kop**
+1. [Arsenal 1-0 Burnley: What Jackson said](https://www.bbc.com/sport/football/articles/ckgpkrvdx55o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. ['He has taken us to the moon and back' but 'all good things come to an end'](https://www.bbc.com/sport/football/articles/cgqpzvzl308o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Xabi Alonso Chooses Chelsea, Antonee Robinson Joins & Is Jose Mourinho Returning to Real Madrid?](https://sports.yahoo.com/soccer/article/xabi-alonso-chooses-chelsea-antonee-robinson-joins--is-jose-mourinho-returning-to-real-madrid-214726750.html) - **Yahoo Entertainment**
+4. [Arsenal on the brink of Premier League title after nervy Burnley win](https://www.channelnewsasia.com/world/arsenal-brink-premier-league-title-after-nervy-burnley-win-6128216) - **CNA**
+5. [Neymar, 34, is handed a stunning Brazil recall by Carlo Ancelotti for World Cup - as TWO Premier League stars are brutally axed](https://www.dailymail.com/sport/football/article-15829019/neymar-brazil-squad-world-cup-2026.html) - **Dailymail.com**
+6. [Manchester City: ‘Game-changer’ Pep Guardiola reports leave Gary Neville in shock](https://www.101greatgoals.com/football/premier-league/guardiola-manchester-city-exit/) - **101 Great Goals**
+7. [Casemiro did not attend post-match press conference for this reason](https://thepeoplesperson.com/2026/05/18/casemiro-did-not-attend-post-match-press-conference-for-this-reason-310247/) - **The Peoples Person**
+8. [Guardiola on verge of Manchester City exit at end of Premier League season](https://www.aljazeera.com/sports/2026/5/18/guardiola-on-verge-of-manchester-city-exit-at-end-of-premier-league-season) - **Al Jazeera English**
+9. [Pep Guardiola leaving Manchester City this summer, per reports](https://www.usatoday.com/story/sports/soccer/epl/2026/05/18/pep-guardiola-leaving-man-city-date-trophies-next-job/90148978007/) - **USA Today**
+10. [Arsenal edge Burnley to move within touching distance of EPL title](https://punchng.com/arsenal-edge-burnley-to-move-within-touching-distance-of-epl-title/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-05-20 05:18:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-20 06:50:19 (KST) / (하루 100회 제한 준수 중)*
