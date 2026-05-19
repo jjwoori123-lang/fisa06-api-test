@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Gerwyn Price proposes intriguing Premier League Darts format change, with royal rumble component](https://www.sportingnews.com/us/darts/news/gerwyn-price-premier-league-darts-format-change-royal-rumble/3ef53f7b3e56736ebd934f7b) - **Sporting News**
-2. [Bruno Fernandes equals Premier League assists record - what do the stats say? - BBC](https://slashdot.org/firehose.pl?op=view&amp;id=183264671) - **Slashdot.org**
-3. [Will Wharton be in England's World Cup squad?](https://www.bbc.com/sport/football/videos/cp8perj6jzro) - **BBC News**
-4. [Who is Laurent Courtois, the new Columbus Crew interim head coach?](https://www.dispatch.com/story/sports/mls/2026/05/17/laurent-courtois-columbus-crew-interim-head-coach-biography/90134567007/) - **Fci Academy**
-5. [How 'poor' West Ham were 'torn apart' by Newcastle](https://www.bbc.com/sport/football/videos/cx214112594o) - **BBC News**
-6. [Should Cunha's goal have been disallowed?](https://www.bbc.com/sport/football/videos/cx21d135v7ro) - **BBC News**
-7. [Match of the Day](https://www.bbc.co.uk/programmes/m002wmj5) - **BBC News**
-8. [Espirito Santo: West Ham players deserved fan jeers](https://www.rte.ie/sport/soccer/2026/0517/1573857-espirito-santo-west-ham-players-deserved-fan-jeers/) - **RTE**
-9. [England pass Six Nations stress test, but rivals will return](https://www.bbc.com/sport/rugby-union/articles/cn0pgpp70yeo) - **BBC News**
-10. [I was working with Arsenal's brilliant young kids like Bukayo Saka until Arsenal sacked me over social media posts... now I'm 63 and working on building sites to get by](https://www.dailymail.com/sport/football/article-15824249/I-working-Arsenals-brilliant-young-kids-like-Bukayo-Saka-Arsenal-sacked-social-media-posts-Im-63-working-building-sites-by.html) - **Dailymail.com**
+1. [Stories, scheduling & spectacle - five takeaways from 2025-26 WSL](https://www.bbc.com/sport/football/articles/c07284m2eypo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Casemiro: Man United star bids farewell to Old Trafford in style](https://thepeoplesperson.com/2026/05/18/casemiro-man-united-star-bids-farewell-to-old-trafford-in-style-310251/) - **The Peoples Person**
+3. [Fantastic star asked straight about potential Liverpool move](https://www.anfieldwatch.co.uk/liverpool-fc/news/fantastic-star-asked-straight-about-potential-liverpool-move/) - **Anfieldwatch.co.uk**
+4. [World Cup worries for USMNT as duo hurt in Premier League action](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c823f805-86db-47c8-9d38-ad9108046170) - **Yahoo Entertainment**
+5. [Arsenal vs Burnley – Predicted lineup and team news](https://thefootballfaithful.com/arsenal-vs-burnley-predicted-lineup-and-team-news/) - **The Football Faithful**
+6. [Burnley XI vs Arsenal – Predicted lineup and team news](https://thefootballfaithful.com/burnley-xi-vs-arsenal-predicted-lineup-and-team-news/) - **The Football Faithful**
+7. [Arsenal vs Burnley – Match preview and team news](https://thefootballfaithful.com/arsenal-vs-burnley-match-preview-and-team-news/) - **The Football Faithful**
+8. [“That’s why they’ve called him manager” – Gary Neville explains Xabi Alonso’s Chelsea role](https://chelsea.news/2026/05/thats-why-theyve-called-him-manager-gary-neville-explains-xabi-alonsos-chelsea-role/) - **Chelsea.news**
+9. [Delhi coach Badani lauds role model Starc](https://www.channelnewsasia.com/sport/delhi-coach-badani-lauds-role-model-starc-6127796) - **CNA**
+10. [Inside the season Chelsea’s WSL dominance ended: Divisions, losing their ‘fear factor’ and what’s next](https://sports.yahoo.com/articles/inside-season-chelsea-wsl-dominance-051604961.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-05-19 10:25:50 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-19 14:49:01 (KST) / (하루 100회 제한 준수 중)*
