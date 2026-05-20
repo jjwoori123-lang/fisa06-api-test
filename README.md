@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['The talent has always been there, he's massively underrated': Insiders reveal how John McGinn went from 'miles off it' to Unai Emery's 'star pupil' with the help of a new diet - and why his Aston Villa team-mates adore 'silent leader'](https://www.dailymail.com/sport/football/article-15827841/Aston-Villa-captain-John-McGinn-Unai-Emery.html) - **Dailymail.com**
-2. [The inside story of Pep Guardiola's decision to quit Man City: Why he's chosen to go now, the holiday where he made up his mind and the clues his reign was coming to an end](https://www.dailymail.com/sport/football/article-15828915/pep-guardiola-manchester-city-exit.html) - **Dailymail.com**
-3. [All you can do is say thank you to Pep Guardiola for everything he gave Manchester City](https://esteemedkompany.com/2026/05/19/all-you-can-do-is-say-thank-you-to-pep-guardiola-for-everything-he-gave-manchester-city/) - **Esteemedkompany.com**
-4. [Arteta: ‘We are one game away from winning the Premier League, with everything that we’ve been through’](https://hayters.com/arteta-we-are-one-game-away-from-winning-the-premier-league-with-everything-that-weve-been-through/) - **Hayters.com**
-5. [“I don’t think this team would eclipse the Invincibles if they won both trophies,” says Arsenal legend](https://wp.fromthespot.co.uk/28883/i-dont-think-this-team-would-eclipse-the-invincibles-if-they-won-both-trophies-says-arsenal-legend/) - **Fromthespot.co.uk**
-6. [Neymar picked for Brazil’s World Cup squad despite doubts on fitness](https://headtopics.com/news/neymar-picked-for-brazil-s-world-cup-squad-despite-doubts-83506543) - **Headtopics.com**
-7. [Why is Pep Guardiola leaving Man City? #sports](https://alltoc.com/sports/why-is-pep-guardiola-leaving-man-city) - **Alltoc.com**
-8. [Tense, tetchy but triumphant - all Arsenal eyes now on Bournemouth](https://www.bbc.com/sport/football/articles/ckgpdxvx2xvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Arsenal edges closer to Premier League title despite more VAR drama](https://www.abc.net.au/news/2026-05-19/football-arsenal-beats-burnley-kai-havertz-var-red-card/106695422) - **ABC News (AU)**
-10. [Tense, tetchy but triumphant - all Arsenal eyes now on Bournemouth](https://www.bbc.com/sport/football/articles/ckgpdxvx2xvo) - **BBC News**
+1. [Rain 'more than double' forecast drenches Gold Coast amid BOM accuracy concerns](https://www.abc.net.au/news/2026-05-19/qld-rainfall-forecast-drenches-weather-bureau-accuracy/106696728) - **ABC News (AU)**
+2. [Tottenham XI vs Chelsea – Predicted lineup and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6cf17621-a028-42b5-8ef4-0f1cc989856d) - **Yahoo Entertainment**
+3. [There is one summer move that Manchester City simply must make](https://esteemedkompany.com/2026/05/19/there-is-one-summer-move-that-manchester-city-simply-must-make/) - **Esteemedkompany.com**
+4. [Bournemouth vs Manchester City – Match preview and team news](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b48db118-c381-4fc0-bffd-322d2006613e) - **Yahoo Entertainment**
+5. [Bournemouth vs Manchester City – Predicted lineup and team news](https://thefootballfaithful.com/bournemouth-vs-manchester-city-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+6. [Chelsea vs Tottenham Hotspur – Match preview and team news](https://thefootballfaithful.com/chelsea-vs-tottenham-hotspur-match-preview-and-team-news-2/) - **The Football Faithful**
+7. [Chelsea vs Tottenham Hotspur – Predicted lineup and team news](https://thefootballfaithful.com/chelsea-vs-tottenham-hotspur-predicted-lineup-and-team-news/) - **The Football Faithful**
+8. [Manchester City Predicted lineup and team news vs Bournemouth](https://thefootballfaithful.com/manchester-city-predicted-lineup-and-team-news-vs-bournemouth/) - **The Football Faithful**
+9. [Chelsea vs. Tottenham Hotspur, Premier League: Preview, team news, how to watch](https://weaintgotnohistory.sbnation.com/premier-league/168779/chelsea-vs-tottenham-hotspur-premier-league-preview-team-news-how-to-watch) - **SB Nation**
+10. [West Ham will have to raise over £100m in player sales if they are relegated from the Premier League](https://footballtoday.com/2026/05/19/west-ham-will-have-to-raise-over-100m-in-player-sales-if-they-are-relegated-from-the-premier-league/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=west-ham-will-have-to-raise-over-100m-in-player-sales-if-they-are-relegated-from-the-premier-league) - **Footballtoday.com**
 
 
 ---
-*최근 업데이트: 2026-05-20 10:27:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-20 14:49:38 (KST) / (하루 100회 제한 준수 중)*
