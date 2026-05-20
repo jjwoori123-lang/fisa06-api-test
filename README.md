@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Patrick Vieira names the current Arsenal team players who can make the invincibles](https://www.justarsenal.com/patrick-vieira-names-the-current-arsenal-team-players-who-can-make-the-invincibles/415414) - **Just Arsenal News**
-2. [I have one more year on my contract, insists Pep Guardiola despite Manchester City exit reports](https://cityxtra.co.uk/46688/i-have-one-more-year-on-my-contract-insists-pep-guardiola-despite-manchester-city-exit-reports/) - **Cityxtra.co.uk**
-3. [Emiliano Martinez reveals how Argentina success can inspire Aston Villa to end 30-year trophy drought in Europa League final](https://www.dailymail.com/sport/football/article-15831489/Emiliano-Martinez-Argentina-success-inspire-Aston-Villa-end-30-year-trophy-drought-Europa-League-final.html) - **Dailymail.com**
-4. [La joya de la Premier que ha rechazado a Portugal: "Quería representar a Francia, lo respetamos"](https://www.marca.com/futbol/premier-league/2026/05/19/joya-premier-rechazado-portugal-queria-representar-francia-respetamos.html) - **Marca**
-5. [Pep Guardiola channels Johan Cruyff to keep Man City's Premier League title hopes alive](https://www.alloutsoccer.com/news/guardiola-cruyff-city-premier-league-1844765) - **Alloutsoccer.com**
-6. [Ruben Amorim could be set for managerial return after Man United exit](https://eplindex.com/146574/ruben-amorim-could-be-set-for-managerial-return-after-man-united-exit.html) - **English Premier League Index - Opta Stats**
-7. [Top Premier League sides keen on Bowen should West Ham drop down](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fab01659-04f0-468d-a187-543b7a831389) - **Yahoo Entertainment**
-8. [Chelsea acknowledge failures in end-of-season programme notes](https://www.bbc.com/sport/football/articles/cj3p8g1dv6do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [As the investigation into ManC finances evolves, what now?](https://untold-arsenal.com/archives/120852) - **Untold-arsenal.com**
+1. [EFL kicks Southampton out of Championship playoff final after spying scandal](https://sports.yahoo.com/soccer/breaking-news/article/efl-kicks-southampton-out-of-championship-playoff-final-after-spying-scandal-183357942.html) - **Yahoo Entertainment**
+2. [Southampton Expelled From Playoff Final For Spying; Middlesbrough Reinstated](https://www.foxsports.com/stories/soccer/southampton-expelled-from-english-seconddivision-playoff-final-for-spying-on-middlesbrough) - **Fox Sports**
+3. [None](https://punchng.com/2146957-2/) - **The Punch**
+4. [Southampton expelled from play-offs with Middlesbrough reinstated](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_149d0043-3880-45be-b49b-364bd1af5ec9) - **Yahoo Entertainment**
+5. [Sooryavanshi, 15, hits 93 as Royals boost play-off chances](https://www.bbc.com/sport/cricket/articles/cjdpr45lvz7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Sooryavanshi, 15, hits 93 as Royals boost play-off chances](https://www.bbc.com/sport/cricket/articles/cjdpr45lvz7o) - **BBC News**
+7. [ Premier League: Southampton kicked out of the play-offs for spying](https://onefootball.com/en/news/premier-league-southampton-kicked-out-of-the-play-offs-for-spying-42892546) - **Onefootball.com**
+8. [Southampton expelled from Championship playoff final amid massive 'Spygate' scandal](https://www.cbssports.com/soccer/news/southampton-expelled-championship-playoff-final-spygate-scandal/) - **CBS Sports**
+9. [Southampton expelled from Championship playoff final for 'spygate'](https://www.usatoday.com/story/sports/soccer/2026/05/19/southampton-spy-scandal-championship-playoff-final/90162275007/) - **USA Today**
 
 
 ---
-*최근 업데이트: 2026-05-21 01:00:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-21 03:34:15 (KST) / (하루 100회 제한 준수 중)*
