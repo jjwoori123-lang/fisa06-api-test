@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [dpa SPORTS SCHEDULE for TUESDAY, MAY 19, 1200 GMT](https://nordot.app/1429441590256632736) - **Nordot.app**
-2. [Chelsea Player of the Season misses out on World Cup ‘dream’](https://thefootballfaithful.com/chelsea-player-of-the-season-pedro-misses-out-on-world-cup-dream/) - **The Football Faithful**
-3. [Arsenal v Man City is not a battle for the purists but there are positives from largely forgettable Premier League season](https://www.101greatgoals.com/football/premier-league/arsenal-v-man-city-is-not-a-battle-for-the-purists-but-there-are-positives-from-largely-forgettable-premier-league-season/) - **101 Great Goals**
-4. [Arteta confirms plans to watch Bournemouth vs Manchester City](https://dailycannon.com/2026/05/arteta-bournemouth-city-watch-plans/) - **Dailycannon.com**
-5. [“Raging” Roy Keane rips into Fernandes over “circus act” assist record chase](https://thepeoplesperson.com/2026/05/19/raging-roy-keane-rips-into-fernandes-over-circus-act-assist-record-chase-310321/) - **The Peoples Person**
-6. [Roker Roundup: Trai Hume linked to… Real Madrid?!](https://rokerreport.sbnation.com/news/138355/roker-roundup-trai-hume-linked-to-real-madrid) - **SB Nation**
-7. [Breitling Unveils the Redesigned Chronomat](https://www.hautetime.com/breitling-unveils-the-redesigned-chronomat/) - **Hautetime.com**
-8. [Pep Guardiola 'eyeing £13.5m property just 100 yards from marital home with his estranged wife' after departing Man City boss 'broke promises' to stay in Manchester](https://www.dailymail.com/sport/football/article-15830301/pep-guardiola-manchester-property-purchase.html) - **Dailymail.com**
-9. [Sciver-Brunt injury gives England World Cup worry](https://www.bbc.com/sport/cricket/articles/cp3p92x33n4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Shaw 'fantastic' but do Man Utd need extra left-back option?](https://www.bbc.com/sport/football/articles/c362z0yw7npo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Patrick Vieira names the current Arsenal team players who can make the invincibles](https://www.justarsenal.com/patrick-vieira-names-the-current-arsenal-team-players-who-can-make-the-invincibles/415414) - **Just Arsenal News**
+2. [I have one more year on my contract, insists Pep Guardiola despite Manchester City exit reports](https://cityxtra.co.uk/46688/i-have-one-more-year-on-my-contract-insists-pep-guardiola-despite-manchester-city-exit-reports/) - **Cityxtra.co.uk**
+3. [Emiliano Martinez reveals how Argentina success can inspire Aston Villa to end 30-year trophy drought in Europa League final](https://www.dailymail.com/sport/football/article-15831489/Emiliano-Martinez-Argentina-success-inspire-Aston-Villa-end-30-year-trophy-drought-Europa-League-final.html) - **Dailymail.com**
+4. [La joya de la Premier que ha rechazado a Portugal: "Quería representar a Francia, lo respetamos"](https://www.marca.com/futbol/premier-league/2026/05/19/joya-premier-rechazado-portugal-queria-representar-francia-respetamos.html) - **Marca**
+5. [Pep Guardiola channels Johan Cruyff to keep Man City's Premier League title hopes alive](https://www.alloutsoccer.com/news/guardiola-cruyff-city-premier-league-1844765) - **Alloutsoccer.com**
+6. [Ruben Amorim could be set for managerial return after Man United exit](https://eplindex.com/146574/ruben-amorim-could-be-set-for-managerial-return-after-man-united-exit.html) - **English Premier League Index - Opta Stats**
+7. [Top Premier League sides keen on Bowen should West Ham drop down](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fab01659-04f0-468d-a187-543b7a831389) - **Yahoo Entertainment**
+8. [Chelsea acknowledge failures in end-of-season programme notes](https://www.bbc.com/sport/football/articles/cj3p8g1dv6do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [As the investigation into ManC finances evolves, what now?](https://untold-arsenal.com/archives/120852) - **Untold-arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-05-20 21:11:20 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-21 01:00:26 (KST) / (하루 100회 제한 준수 중)*
