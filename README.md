@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Rohit Sharma score in today's IPL 2026 match: How many runs did MI star score against KKR at Eden Gardens, Kolkata](https://www.sportingnews.com/in/cricket/news/rohit-sharma-score-today-ipl-2026-mi-kkr-eden-gardens-kolkata/c9b10d1659bc1c034d903de3) - **Sporting News**
-2. [Southampton appeal against Championship play-off removal for spying](https://punchng.com/southampton-appeal-against-championship-play-off-removal-for-spying/) - **The Punch**
-3. [Reported Liverpool target states his preference as Reds involved in six-way transfer tussle](https://www.empireofthekop.com/2026/05/20/liverpool-target-states-his-preference-reds-involved-in-six-way-transfer-tussle/) - **Empire of The Kop**
-4. [Arsenal interested in Bournemouth’s Eli Junior Kroupi; PSG duo also targeted by Premier League champions](https://www.getfootballnewsfrance.com/2026/arsenal-interested-in-bournemouths-eli-junior-kroupi-psg-duo-also-targeted-by-premier-league-champions/) - **Get French Football News**
-5. ['We should be angry' - Haaland](https://www.bbc.com/sport/football/articles/cddpgy6ld8yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Roma ready to sell Ziolkowski for €20m with West Ham and Newcastle United interested](https://football-italia.net/roma-ziolkowski-west-ham-newcastle-united/) - **Football Italia**
-7. [Inter wait for Liverpool decision as Jones sends transfer signals to Serie A winners](https://football-italia.net/inter-liverpool-decision-jones-transfer-signal/) - **Football Italia**
-8. [Wrexham star calls for Championship play-offs to restart](https://www.101greatgoals.com/football/wrexham-star-calls-championship-play-offs-restart/) - **101 Great Goals**
-9. [Mikel Arteta set for bumper new contract that will make him one of world's BEST-paid managers - as Arsenal boss targets £80m Premier League striker after title triumph](https://www.dailymail.com/sport/football/article-15834519/Mikel-Arteta-bumper-new-contrac.html) - **Dailymail.com**
-10. [Brighton, Crystal Palace, and West Ham in for Toulouse’s Charlie Cresswell](https://www.getfootballnewsfrance.com/2026/brighton-crystal-palace-and-west-ham-in-for-toulouses-charlie-cresswell/) - **Get French Football News**
+1. [Lawrence Dallaglio's bankruptcy hell rumbles on: England rugby legend, 53, faces new insolvency hearing over £500,000 tax bill months after selling marital home for £2.4m amid bitter divorce battle](https://www.dailymail.com/sport/rugbyunion/article-15834899/Lawrence-Dallaglio-bankruptcy-hell-rumbles-England-rugby-legend-53-faces-new-insolvency-hearing-500-000-tax-bill-months-selling-marital-home-2-4m-amid-bitter-divorce-battle.html) - **Dailymail.com**
+2. [Silva says it's time for new Man City generation to shine](https://sports.yahoo.com/articles/silva-says-time-man-city-171523168.html) - **Yahoo Entertainment**
+3. [Spygate and Ipswich Town: What was the impact?](https://www.bbc.com/news/articles/cevpnexzw1po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Lewis Hall: Man United target’s stance on Newcastle exit revealed](https://thepeoplesperson.com/2026/05/20/lewis-hall-man-united-targets-stance-on-newcastle-exit-revealed-310387/) - **The Peoples Person**
+5. [Italy’s new delegation chief clarifies ‘it won’t be the U21 team’ in June friendlies](https://football-italia.net/italy-chief-clarifies-it-wont-be-the-u21-team/) - **Football Italia**
+6. ['The first in my lifetime' - Arsenal fans rejoice after shedding 'bottlers' tag](https://www.bbc.com/sport/football/articles/cvgznvwrqjeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Arteta has told Arsenal one player he needs to add to his squad](https://www.justarsenal.com/arteta-has-told-arsenal-one-player-he-needs-to-add-to-his-squad/415489) - **Just Arsenal News**
+8. [Report: Chelsea weighing up move for Bundesliga ace as they eye first Xabi Alonso signing](https://chelsea.news/2026/05/chelsea-bayer-leverkusen-edmond-tapsoba/) - **Chelsea.news**
+9. [Manchester United urged to replace Casemiro with Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f6dcc772-4594-42eb-a04b-de08731d883d) - **Yahoo Entertainment**
+10. ['The first in my lifetime' - Arsenal fans rejoice after shedding 'bottlers' tag](https://www.bbc.com/sport/football/articles/cvgznvwrqjeo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-21 23:24:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-22 02:19:06 (KST) / (하루 100회 제한 준수 중)*
