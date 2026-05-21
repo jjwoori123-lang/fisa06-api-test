@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bayern Munich News: Man City’s Joško Gvardiol could be interested in FC Bayern move; A true, feelgood football story; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/185835/bayern-munich-manchester-city-united-gvardiol-real-madrid-fc-barcelona-chelsea-psg-liverpool-bvb) - **Bavarian Football Works**
-2. [Arsenal win Premier League title for first time in 22 years](https://www.rediff.com/sports/report/arsenal-crowned-english-premier-league-champions-for-first-time-in-22-years/20260520.htm) - **Rediff.com**
-3. [Bavarian Loan Works: Which loanees earned promotion, European spots for their teams?](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/204110/bayern-munich-transfer-news-rumors-loan-watch-promotion-relegation-champions-league-nubel-ibrahimovic-nurnberg-bundesliga) - **Bavarian Football Works**
-4. [World Cup: Portugal name Ronaldo, Bruno for Eagles friendly](https://punchng.com/?p=2147333) - **The Punch**
-5. [Arsenal win Premier League title for first time in 22 years amid huge celebrations - NBC Sports](https://slashdot.org/firehose.pl?op=view&amp;id=183292953) - **Slashdot.org**
-6. [This may be the end of an era for Manchester City but what must happen for them to return to the top?](https://www.cbssports.com/soccer/news/what-manchester-city-need-in-order-to-return-to-the-top/) - **CBS Sports**
-7. [Vikings Get Wildest 2026 Prediction Yet](https://vikingsterritory.com/2026/news/top_news/vikings-wildest-2026-prediction) - **Vikings Territory**
-8. [Arsenal’s Premier League title winners 2025-26: player-by-player ratings - The Guardian](https://slashdot.org/firehose.pl?op=view&amp;id=183292393) - **Slashdot.org**
+1. [What to know about Haiti ahead of the 2026 Men's World Cup](https://www.patriotledger.com/story/sports/pro/2026/05/20/what-you-should-know-about-the-haiti-mens-national-soccer-team/90112460007/) - **The Patriot Ledger**
+2. [A night for 'glory' not 'cash'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_88f4b752-0686-474e-a00f-fd801b425130) - **Yahoo Entertainment**
+3. [Rio Ferdinand reacts as Arsenal win Premier League title, calls out Patrice Evra](https://sportsview.co.uk/2026/05/rio-ferdinand-reacts-as-arsenal-win-premier-league-title-calls-out-patrice-evra?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=rio-ferdinand-reacts-as-arsenal-win-premier-league-title-calls-out-patrice-evra) - **Sportsview.co.uk**
+4. [Salah statement branded ‘knife in the back’ for Arne Slot](https://www.empireofthekop.com/2026/05/20/salah-statement-branded-knife-in-the-back-for-arne-slot/) - **Empire of The Kop**
+5. [‘We made history again’ Arteta sends message to Arsenal fans](https://www.justarsenal.com/we-made-history-again-arteta-sends-message-to-arsenal-fans/415458) - **Just Arsenal News**
+6. [Rumour: Hoffenheim Set Asking Price of €40–50m for Touré](https://liverpooloffside.sbnation.com/liverpool-transfer-news-rumours/80619/liverpool-fc-transfer-rumour-hoffenheim-set-asking-price-of-4050m-for-bazoumana-toure-aston-villa-newcastle-brighton-manchester-united) - **SB Nation**
+7. [‘Wanted to play for them’ – Five-time Premier League winner reveals Barcelona dream and failed transfer talks](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7c577b9e-6831-4bf4-92f4-f34003e53d28) - **Yahoo Entertainment**
+8. [Calafiori reacts as Arsenal win Premier League title: ‘Best birthday ever’ – pictures](https://football-italia.net/calafiori-reacts-arsenal-premier-league-title/) - **Football Italia**
+9. [Report: Liverpool face rivals in move for experienced Premier League attacker](https://anfieldindex.com/94330/report-liverpool-face-rivals-in-move-for-experienced-premier-league-attacker.html) - **Anfieldindex.com**
+10. [Atiku felicitates Arsenal on EPL title triumph](https://punchng.com/atiku-felicitates-arsenal-on-epl-title-triumph/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-05-21 13:02:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-21 17:05:10 (KST) / (하루 100회 제한 준수 중)*
