@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Brentford Player of the Year awards: Thiago and Jensen recognised](https://www.brentfordfc.com/en/news/article/first-team-igor-thiago-mathias-jensen-brentford-player-of-the-year-award-winners-2025-26) - **Brentfordfc.com**
-2. [Villa turn on the style to beat Freiburg in Europa League final](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260520-99-489473/) - **Dpa-international.com**
-3. [Emery joins European greats with fifth major continental cup success](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260520-99-490114/) - **Dpa-international.com**
-4. [How the NFL chooses Super Bowl host cities and why Nashville fit the bill for 2030](https://www.tennessean.com/story/sports/nfl/titans/2026/05/20/super-bowl-requirements-nashville-city-chosen/90176547007/) - **Tennessean**
-5. [Chess, lectures & ignoring noise: Emery masters Europe again](https://www.bbc.com/sport/football/articles/cd0py2x2gx0o) - **BBC News**
-6. [Aston Villa 3-0 Freiburg: Unai Emery's men land the major trophy their stunning progress has deserved - as Europa League triumph gives a new generation a night to remember, writes TOM COLLOMOSSE](https://www.dailymail.com/sport/football/article-15834275/Aston-Villa-3-0-Freiburg-Unai-Emery-Europa-League-TOM-COLLOMOSSE.html) - **Dailymail.com**
-7. [Prince William erupts in celebration as Aston Villa score during Europa League final](https://www.the-independent.com/tv/sport/aston-villa-prince-william-europa-league-b2980750.html) - **The-independent.com**
-8. [Aston Villa win Europa League: What does it mean for the Premier League's Champions League spots?](https://www.cbssports.com/soccer/news/aston-villa-win-europa-league-what-does-it-mean-for-the-premier-league-champions-league/) - **CBS Sports**
-9. [Southampton ‘spygate’ appeal dismissed as EFL confirms Middlesbrough v Hull playoff final](https://www.irishtimes.com/sport/soccer/2026/05/20/southampton-spygate-appeal-dismissed-as-efl-confirms-middlesbrough-v-hull-playoff-final/) - **The Irish Times**
+1. [Emery urges Villa to use Europa triumph to fuel bold new era](https://sports.yahoo.com/articles/emery-urges-villa-europa-triumph-224017930.html) - **Yahoo Entertainment**
+2. [Andre Onana: Trabzonspor’s offer and United’s demands revealed](https://thepeoplesperson.com/2026/05/20/andre-onana-trabzonspors-offer-and-uniteds-demands-revealed-310400/) - **The Peoples Person**
+3. [John McGinn jokes he hopes Prince William 'will have a couple of drinks and get his credit card out' to pay for Aston Villa's Europa League party celebrations - as triumphant captain hails royal's support for the team](https://www.dailymail.com/sport/football/article-15835895/Prince-William-Aston-Villa-Europa-League-John-McGinn-royal-celebrates-Istanbul.html) - **Dailymail.com**
+4. [[TEST] Top 200 v2](https://www.foxsports.com/stories/soccer/test-top-200-v2) - **Fox Sports**
+5. [Orioles linked to Alabama shortstop with a questionable hit tool in latest mock](https://www.sportingnews.com/us/mlb/baltimore-orioles/news/orioles-linked-alabama-shortstop-questionable-hit-tool-mock/28eae02eb9427971ccf312f3) - **Sporting News**
+6. [First Super Cup team confirmed!](https://www.redbullsalzburg.at/en/recent/news/uefa-super-cup-2026) - **Redbullsalzburg.at**
+7. [Aston Villa have new heroes as they win first major trophy for 30 years](https://www.bbc.com/sport/football/articles/cn5p6yeql9po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [McGinn hails ‘proudest night of my career’ as Aston Villa end 30-year wait](https://www.101greatgoals.com/football/europa-league/aston-villa-mcginn-proudest-night/) - **101 Great Goals**
+9. [Arsenal is still open to swap deal to land top attacker](https://www.justarsenal.com/arsenal-is-still-open-to-swap-deal-to-land-top-attacker/415493) - **Just Arsenal News**
+10. [Mikel Arteta could match Simeone as highest-paid coach at $34m with Arsenal reportedly offering new deal](https://worldsoccertalk.com/news/mikel-arteta-could-match-simeone-as-highest-paid-coach-at-34m-with-arsenal-reportedly-offering-new-deal/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-05-22 06:16:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-22 07:44:53 (KST) / (하루 100회 제한 준수 중)*
