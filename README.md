@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Lawrence Dallaglio's bankruptcy hell rumbles on: England rugby legend, 53, faces new insolvency hearing over £500,000 tax bill months after selling marital home for £2.4m amid bitter divorce battle](https://www.dailymail.com/sport/rugbyunion/article-15834899/Lawrence-Dallaglio-bankruptcy-hell-rumbles-England-rugby-legend-53-faces-new-insolvency-hearing-500-000-tax-bill-months-selling-marital-home-2-4m-amid-bitter-divorce-battle.html) - **Dailymail.com**
-2. [Silva says it's time for new Man City generation to shine](https://sports.yahoo.com/articles/silva-says-time-man-city-171523168.html) - **Yahoo Entertainment**
-3. [Spygate and Ipswich Town: What was the impact?](https://www.bbc.com/news/articles/cevpnexzw1po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Lewis Hall: Man United target’s stance on Newcastle exit revealed](https://thepeoplesperson.com/2026/05/20/lewis-hall-man-united-targets-stance-on-newcastle-exit-revealed-310387/) - **The Peoples Person**
-5. [Italy’s new delegation chief clarifies ‘it won’t be the U21 team’ in June friendlies](https://football-italia.net/italy-chief-clarifies-it-wont-be-the-u21-team/) - **Football Italia**
-6. ['The first in my lifetime' - Arsenal fans rejoice after shedding 'bottlers' tag](https://www.bbc.com/sport/football/articles/cvgznvwrqjeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Arteta has told Arsenal one player he needs to add to his squad](https://www.justarsenal.com/arteta-has-told-arsenal-one-player-he-needs-to-add-to-his-squad/415489) - **Just Arsenal News**
-8. [Report: Chelsea weighing up move for Bundesliga ace as they eye first Xabi Alonso signing](https://chelsea.news/2026/05/chelsea-bayer-leverkusen-edmond-tapsoba/) - **Chelsea.news**
-9. [Manchester United urged to replace Casemiro with Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f6dcc772-4594-42eb-a04b-de08731d883d) - **Yahoo Entertainment**
-10. ['The first in my lifetime' - Arsenal fans rejoice after shedding 'bottlers' tag](https://www.bbc.com/sport/football/articles/cvgznvwrqjeo) - **BBC News**
+1. [Chelsea Are Keeping A Keen Eye On This Sunderland Keeper: Good Choice For The Blues?](https://the4thofficial.net/2026/05/chelsea-are-keeping-a-keen-eye-on-this-sunderland-keeper/) - **The4thofficial.net**
+2. [Casemiro closes in on a three-year deal with new club before the Copa](https://onefootball.com/en/news/casemiro-closes-in-on-a-three-year-deal-with-new-club-before-the-copa-42897954) - **Onefootball.com**
+3. [Pep Guardiola proposed as next USMNT coach by American legend Alexi Lalas](https://worldsoccertalk.com/news/pep-guardiola-proposed-as-next-usmnt-coach-by-american-legend-alexi-lalas/) - **Worldsoccertalk.com**
+4. [Everton’s Interest In 25 G/A Star Pushes Price To €25m: What Should The Toffees Actually Do?](https://the4thofficial.net/2026/05/evertons-interest-in-25-g-a-star-pushes-price-to-e25m-what-should-the-toffees-actually-do/) - **The4thofficial.net**
+5. [Bernardo portrait highlights unprecedented success at City](https://www.mancity.com/news/mens/bernardo-silva-city-career-legacy-photo-63914878) - **Manchester City FC**
+6. [Tonali visits childhood club Brescia during Newcastle United day off](https://football-italia.net/tonali-visits-club-brescia-newcastle-united/) - **Football Italia**
+7. [Freiburg vs Aston Villa LIVE updates: Minute-by-minute coverage of the 2025-26 Europa League final](https://worldsoccertalk.com/news/freiburg-vs-aston-villa-live-updates-minute-by-minute-coverage-of-the-2025-26-europa-league-final/) - **Worldsoccertalk.com**
+8. [Joe Hart names three Arsenal stars who proved their doubters wrong](https://www.justarsenal.com/joe-hart-names-three-arsenal-stars-who-proved-their-doubters-wrong/415492) - **Just Arsenal News**
+9. [From The Sports Desk: Knicks mount epic fourth quarter comeback, stun Cavaliers](https://www.nbcnews.com/sports/nba/sports-newsletter-knicks-mount-fourth-quarter-comeback-stun-cavaliers-rcna346102) - **NBC News**
+10. ['The first in my lifetime' - Arsenal fans rejoice after shedding 'bottlers' tag - BBC](https://slashdot.org/firehose.pl?op=view&amp;id=183300595) - **Slashdot.org**
 
 
 ---
-*최근 업데이트: 2026-05-22 02:19:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-22 04:22:23 (KST) / (하루 100회 제한 준수 중)*
