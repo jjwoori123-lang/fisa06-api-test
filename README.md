@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal win Premier League title as Man City held at Bournemouth](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260520-99-478836/) - **Dpa-international.com**
-2. [Head coach to manager? Chelsea's key change puts Alonso in control](https://www.bbc.com/sport/football/videos/c87ql93n77yo) - **BBC News**
-3. [“Unacceptable and embarrassing” – Tottenham’s Maddison rues final day relegation scrap](https://wp.fromthespot.co.uk/28933/unacceptable-and-embarrassing-tottenhams-maddison-rues-final-day-relegation-scrap/) - **Fromthespot.co.uk**
-4. [The crucial split-second call that could deny Spurs safety](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_55a4d891-ea31-47a3-869d-dccf3ad06db4) - **Yahoo Entertainment**
-5. [Going, going, gone...What happens at Man City after Guardiola departs?](https://www.bbc.com/sport/football/videos/cx21d8nvdg5o) - **BBC News**
-6. [The crucial split-second call that could deny Spurs safety](https://www.bbc.com/sport/football/articles/c302je261rno) - **BBC News**
-7. [Arsenal bids farewell to 'bottler' label and Pep Guardiola with Premier League title forged in response to both](https://sports.yahoo.com/soccer/article/arsenal-bids-farewell-to-bottler-label-and-pep-guardiola-with-premier-league-title-forged-in-response-to-both-231106799.html) - **Yahoo Entertainment**
-8. ['I told you': Declan Rice references infamous three-word message as he celebrates Arsenal's Premier League title triumph on social media - as Jurrien Timber shares behind the scenes of training ground party](https://www.dailymail.com/sport/football/article-15832521/I-told-you-Declan-Rice-Arsenal-title-triumph.html) - **Dailymail.com**
-9. ['Exceptional' Arsenal celebrate as Premier League title is secured](https://www.bbc.com/sport/football/videos/cx213wlmldpo) - **BBC News**
-10. [Sir Keir Starmer puts his party issues to one side as the Prime Minister celebrates Arsenal's first Premier League title win in 22 years](https://www.dailymail.com/sport/football/article-15832515/Sir-Keir-Starmer-Prime-Minister-Arsenals-Premier-League.html) - **Dailymail.com**
+1. [Bayern Munich News: Man City’s Joško Gvardiol could be interested in FC Bayern move; A true, feelgood football story; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/185835/bayern-munich-manchester-city-united-gvardiol-real-madrid-fc-barcelona-chelsea-psg-liverpool-bvb) - **Bavarian Football Works**
+2. [Arsenal win Premier League title for first time in 22 years](https://www.rediff.com/sports/report/arsenal-crowned-english-premier-league-champions-for-first-time-in-22-years/20260520.htm) - **Rediff.com**
+3. [Bavarian Loan Works: Which loanees earned promotion, European spots for their teams?](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/204110/bayern-munich-transfer-news-rumors-loan-watch-promotion-relegation-champions-league-nubel-ibrahimovic-nurnberg-bundesliga) - **Bavarian Football Works**
+4. [World Cup: Portugal name Ronaldo, Bruno for Eagles friendly](https://punchng.com/?p=2147333) - **The Punch**
+5. [Arsenal win Premier League title for first time in 22 years amid huge celebrations - NBC Sports](https://slashdot.org/firehose.pl?op=view&amp;id=183292953) - **Slashdot.org**
+6. [This may be the end of an era for Manchester City but what must happen for them to return to the top?](https://www.cbssports.com/soccer/news/what-manchester-city-need-in-order-to-return-to-the-top/) - **CBS Sports**
+7. [Vikings Get Wildest 2026 Prediction Yet](https://vikingsterritory.com/2026/news/top_news/vikings-wildest-2026-prediction) - **Vikings Territory**
+8. [Arsenal’s Premier League title winners 2025-26: player-by-player ratings - The Guardian](https://slashdot.org/firehose.pl?op=view&amp;id=183292393) - **Slashdot.org**
 
 
 ---
-*최근 업데이트: 2026-05-21 08:41:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-21 13:02:18 (KST) / (하루 100회 제한 준수 중)*
