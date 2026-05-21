@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [What to know about Haiti ahead of the 2026 Men's World Cup](https://www.patriotledger.com/story/sports/pro/2026/05/20/what-you-should-know-about-the-haiti-mens-national-soccer-team/90112460007/) - **The Patriot Ledger**
-2. [A night for 'glory' not 'cash'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_88f4b752-0686-474e-a00f-fd801b425130) - **Yahoo Entertainment**
-3. [Rio Ferdinand reacts as Arsenal win Premier League title, calls out Patrice Evra](https://sportsview.co.uk/2026/05/rio-ferdinand-reacts-as-arsenal-win-premier-league-title-calls-out-patrice-evra?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=rio-ferdinand-reacts-as-arsenal-win-premier-league-title-calls-out-patrice-evra) - **Sportsview.co.uk**
-4. [Salah statement branded ‘knife in the back’ for Arne Slot](https://www.empireofthekop.com/2026/05/20/salah-statement-branded-knife-in-the-back-for-arne-slot/) - **Empire of The Kop**
-5. [‘We made history again’ Arteta sends message to Arsenal fans](https://www.justarsenal.com/we-made-history-again-arteta-sends-message-to-arsenal-fans/415458) - **Just Arsenal News**
-6. [Rumour: Hoffenheim Set Asking Price of €40–50m for Touré](https://liverpooloffside.sbnation.com/liverpool-transfer-news-rumours/80619/liverpool-fc-transfer-rumour-hoffenheim-set-asking-price-of-4050m-for-bazoumana-toure-aston-villa-newcastle-brighton-manchester-united) - **SB Nation**
-7. [‘Wanted to play for them’ – Five-time Premier League winner reveals Barcelona dream and failed transfer talks](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7c577b9e-6831-4bf4-92f4-f34003e53d28) - **Yahoo Entertainment**
-8. [Calafiori reacts as Arsenal win Premier League title: ‘Best birthday ever’ – pictures](https://football-italia.net/calafiori-reacts-arsenal-premier-league-title/) - **Football Italia**
-9. [Report: Liverpool face rivals in move for experienced Premier League attacker](https://anfieldindex.com/94330/report-liverpool-face-rivals-in-move-for-experienced-premier-league-attacker.html) - **Anfieldindex.com**
-10. [Atiku felicitates Arsenal on EPL title triumph](https://punchng.com/atiku-felicitates-arsenal-on-epl-title-triumph/) - **The Punch**
+1. [Britain braces for the first heatwave of the year: Temperatures are set to hit 31C as six-day heat health alert is issued for bank holiday and school half-term](https://www.dailymail.com/news/article-15833817/UK-weather-heatwave-temperatures-bank-holiday.html) - **Dailymail.com**
+2. [Why are some many Premier League clubs losing so much money?](https://untold-arsenal.com/archives/120867) - **Untold-arsenal.com**
+3. [£87m INEOS target addresses future speculation for the first time as potential MUFC offer edges closer](https://strettynews.com/2026/05/20/yan-diomande-addresses-rb-leipzig-future-manchester-united-links/) - **Strettynews.com**
+4. [John Stones and Bernardo Silva: Send us your Tributes](https://www.mancity.com/news/mens/john-stones-bernardo-silva-your-tributes-63914870) - **Manchester City FC**
+5. [Yildiz is Juventus’s only guarantee for 2025-26 even without Champions League](https://football-italia.net/yildiz-is-juventus-only-guarantee-for-2025-26/) - **Football Italia**
+6. [Revealed: Enzo Maresca’s work behind-the-scenes since Chelsea exit to succeed Pep Guardiola at Man City](https://cityxtra.co.uk/46712/revealed-enzo-marescas-work-behind-the-scenes-since-chelsea-exit-to-succeed-pep-guardiola-at-man-city/) - **Cityxtra.co.uk**
+7. [Arsenal youngster sets new record with Premier League title win](https://dailycannon.com/2026/05/dowman-youngest-premier-league-winner/) - **Dailycannon.com**
+8. [Arsenal announce 'special parade'](https://www.bbc.com/sport/football/articles/c62xr6q7e9vo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [How Rams owner Stan Kroenke is having one of the greatest ownership runs in sports history](https://www.sportingnews.com/us/nfl/los-angeles-rams/news/how-rams-owner-stan-kroenke-having-one-greatest-ownership-runs-sports-history/2eaa9900b98426704d8b7265) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-05-21 17:05:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-21 20:39:12 (KST) / (하루 100회 제한 준수 중)*
