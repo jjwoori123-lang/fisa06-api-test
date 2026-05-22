@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Nigeria football: A proud history, a broken present](https://punchng.com/nigeria-football-a-proud-history-a-broken-present/) - **The Punch**
-2. [Mounting fears that $1billion extortion case involving this woman and the owner of Aston Villa is part of China's sex warfare honeytrap scheme to seduce powerful Western men](https://www.dailymail.com/news/article-15835577/Mounting-fears-1billion-extortion-case-involving-woman-owner-Aston-Villa-Chinas-sex-warfare-honeytrap-scheme-seduce-powerful-Western-men.html) - **Dailymail.com**
-3. [Mohamed Salah, Omar Marmoush headline Egypt’s 27-man roster for 2026 World Cup](https://worldsoccertalk.com/world-cup/mohamed-salah-omar-marmoush-headline-egypts-27-man-roster-for-2026-world-cup/) - **Worldsoccertalk.com**
-4. [Riyad Mahrez Explains How His 'Dream' Move To Barcelona Collapsed](https://www.foxsports.com/stories/soccer/my-dream-was-to-play-with-lionel-messi-riyad-mahrez-reveals-barcelona-transfer-talks-before-joining-man-city) - **Fox Sports**
-5. [Philadelphia 76ers guard VJ Edgecombe named to All-Rookie First Team](https://sixerswire.usatoday.com/story/sports/nba/sixers/2026/05/20/philadelphia-76ers-guard-vj-edgecombe-named-to-all-rookie-first-team/90177416007/) - **USA Today**
-6. [Oliseh hails Arteta after Arsenal title win](https://punchng.com/oliseh-hails-arteta-after-arsenal-title-win/) - **The Punch**
-7. [Bernardo Silva To Atletico Madrid? Simeone Hopes To Lure Man City Legend To La Liga](https://www.foxsports.com/stories/soccer/bernardo-silva-to-atletico-madrid-diego-simeone-hopes-to-lure-man-city-legend-to-la-liga-after-leaving-premier-league-giants) - **Fox Sports**
-8. [Manchester City look to have run out of patience with a frustrating winger](https://esteemedkompany.com/2026/05/21/manchester-city-look-to-have-run-out-of-patience-with-a-frustrating-winger/) - **Esteemedkompany.com**
-9. [Jadon Sancho: United set to take surprise decision that will shock fans](https://thepeoplesperson.com/2026/05/21/jadon-sancho-united-set-to-take-surprise-decision-that-will-shock-fans-310403/) - **The Peoples Person**
+1. [Will Indians Get To Watch FIFA World Cup?](https://www.rediff.com/sports/column/will-indians-get-to-watch-fifa-world-cup-2026/20260521.htm) - **Rediff.com**
+2. [Aston Villa Outclass Freiburg To Win Europa League](https://www.rediff.com/sports/report/aston-villa-down-freiburg-to-win-europa-league-and-end-30-year-wait-for-silverware/20260521.htm) - **Rediff.com**
+3. [StarHub introduces annual pass for English Premier League games](https://www.channelnewsasia.com/singapore/starhub-annual-pass-english-premier-league-epl-matches-6133591) - **CNA**
+4. [Exclusive claims that Chelsea star has asked for €100m La Liga transfer](https://chelsea.news/2026/05/exclusive-claims-chelsea-star-e100m-transfer/) - **Chelsea.news**
+5. [Former Israeli national soccer captain Bibars Natcho retires from the sport](https://www.jpost.com/israel-news/sports/article-896915) - **The Jerusalem Post**
+6. [Kanu celebrates Arsenal title win](https://punchng.com/kanu-celebrates-arsenal-title-win/) - **The Punch**
+7. [William's band of villains: How Prince celebrated his team's cup victory in the company of some of his oldest friends](https://www.dailymail.com/sport/football/article-15835973/Williams-band-villains-Prince-celebrated-teams-cup-victory-company-oldest-friends.html) - **Dailymail.com**
+8. [PETER VAN ONSELEN: Why NSW Premier Chris Minns has opened an uncomfortable debate for Labor and Anthony Albanese](https://www.dailymail.com/news/article-15835925/pvo-Chris-Minns-albo-bracket-creep.html) - **Dailymail.com**
+9. [JEFF POWELL: Arsenal's tainted title should be marked with an asterisk. No wonder conspiracy theories about the establishment favouring clubs are rife, given the outside help they've had](https://www.dailymail.com/sport/football/article-15834391/Arsenal-title-asterisk-tainted-establishment.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-05-22 09:05:28 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-22 13:38:35 (KST) / (하루 100회 제한 준수 중)*
