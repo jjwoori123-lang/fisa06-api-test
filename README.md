@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bohs to keep Devoy for LOI fixtures ahead of Canada game](https://www.rte.ie/sport/soccer/2026/0521/1574554-bohs-to-keep-devoy-for-loi-fixtures-ahead-of-canada-game/) - **RTE**
-2. [Hull City 'collateral damage' in Spygate - Jakirovic](https://www.bbc.com/sport/football/articles/ckgplw3ynjeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Villa, Arsenal and Spygate](https://shows.acast.com/timesthegame/episodes/villa-arsenal-and-spygate) - **Acast.com**
-4. [Hull City 'collateral damage' in Spygate saga](https://www.bbc.com/sport/football/articles/ckgplw3ynjeo) - **BBC News**
-5. [Report: European club have entered the race to sign Mo Salah after Liverpool exit](https://anfieldindex.com/94356/report-european-club-have-entered-the-race-to-sign-mo-salah-after-liverpool-exit.html) - **Anfieldindex.com**
-6. [Hellberg: It has been a 'weird' and 'crazy' fortnight since start of 'Spygate' scandal](https://www.skysports.com/football/news/11095/13546630/championship-play-off-final-middlesbroughs-kim-hellberg-and-hulls-sergej-jakirovic-discuss-spygate-scandal) - **Sky Sports**
-7. [GT vs CSK IPL 2026 live score, toss winner, winning probability, result and highlights from Narendra Modi Stadium, Ahmedabad](https://www.cricketnews.com/en/cricket/news/gt-vs-csk-ipl-2026-live-score-toss-winner-probability-result-highlights/bfb564d2660cb8b16086b277) - **Cricketnews.com**
-8. [6th Arsenal player called up for World Cup](https://dailycannon.com/2026/05/havertz-germany-world-cup-nagelsmann/) - **Dailycannon.com**
-9. [Man Utd star with 33 starts this season to be dropped for final day vs Brighton to begin World Cup preparations](https://strettynews.com/2026/05/21/casemiro-dropped-brighton-and-hove-albion-manchester-united-inter-miami-brazil/) - **Strettynews.com**
+1. [£1bn boost to PE and school sport to end fitness postcode lottery](https://www.gov.uk/government/news/1bn-boost-to-pe-and-school-sport-to-end-fitness-postcode-lottery) - **Www.gov.uk**
+2. [Maguire 'shocked and gutted' to be left out of England World Cup squad](https://www.skysports.com/football/news/12016/13546713/england-world-cup-squad-man-utd-centre-back-harry-maguire-left-out-by-thomas-tuchel) - **Sky Sports**
+3. [Carrick confirms MLS-bound Casemiro's Old Trafford exit](https://www.rte.ie/sport/soccer/2026/0521/1574588-carrick-confirms-mls-bound-casemiros-old-trafford-exit/) - **RTE**
+4. [2026 Premier League Darts Night 16 Sheffield live results, scores and schedule](https://www.sportingnews.com/us/darts/news/premier-league-darts-night-16-sheffield-live-results-scores-schedule/e1c7292b2ceeed111eebc1b0) - **Sporting News**
+5. [BRYONY GORDON: I'm amazed that something like this MAFS crisis hasn't happened sooner - but there's an uncomfortable truth about reality TV no one wants to say, so I will](https://www.dailymail.com/lifestyle/article-15838189/BRYONY-GORDON-amazed-MAFS-crisis-happened-sooner-dark-truth-reality-TV.html) - **Dailymail.com**
+6. [Sandro Tonali: Man United’s plan for Newcastle talisman unveiled](https://thepeoplesperson.com/2026/05/21/sandro-tonali-man-uniteds-plan-for-newcastle-talisman-unveiled-310427/) - **The Peoples Person**
+7. [Southampton claim spying on Middlesbrough did not change their tactics](https://www.irishtimes.com/sport/soccer/2026/05/21/southampton-claim-spying-on-middlesbrough-did-not-change-their-tactics/) - **The Irish Times**
+8. ['Shocked and gutted' Harry Maguire is AXED from England's World Cup squad as Thomas Tuchel prepares to name 26-man group - with a centre back not picked since last summer in line for a call](https://www.dailymail.com/sport/football/article-15838277/harry-maguire-england-squad-axe-levi-colwill.html) - **Dailymail.com**
+9. [Chris Richards diagnosed with multiple torn ankle ligaments, at risk of missing World Cup](https://sbisoccer.com/2026/05/chris-richards-diagnosed-with-multiple-torn-ankle-ligaments-at-risk-of-missing-world-cup) - **Sbisoccer.com**
 
 
 ---
-*최근 업데이트: 2026-05-22 22:58:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-23 01:32:09 (KST) / (하루 100회 제한 준수 중)*
