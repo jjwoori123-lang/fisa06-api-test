@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['More appetite' to invest in Prem rugby says Gloucester owner](https://www.bbc.com/sport/rugby-union/articles/ce3pkr737xpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Updating the World Cup outlook for FC Cincinnati stars](https://www.cincinnati.com/story/sports/soccer/fc-cincinnati/2026/05/21/updating-the-world-cup-outlook-for-fc-cincinnati-stars/90197120007/) - **The Cincinnati Enquirer**
-3. [Final Newcastle Stance on Nick Woltemade’s Future Revealed Before Season Ending](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/21838/final-newcastle-stance-on-nick-woltemades-future-revealed-before-season-ending) - **SB Nation**
-4. [How Arsenal Took Over London On Tuesday Night](https://www.justarsenal.com/how-arsenal-took-over-london-on-tuesday-night/415580) - **Just Arsenal News**
-5. [USMNT defender Chris Richards' ankle injury is worse than originally feared as 2026 World Cup nears](https://www.cbssports.com/soccer/news/usmnt-defender-chris-richards-ankle-injury-updated-2026-fifa-world-cup/) - **CBS Sports**
-6. [Report: Liverpool ready to ditch move for Bradley Barcola in favour of 17-year-old star](https://anfieldindex.com/94360/report-liverpool-ready-to-ditch-move-for-bradley-barcola-in-favour-of-17-year-old-star.html) - **Anfieldindex.com**
-7. [Gleison Bremer: Man United’s plan for Juventus titan explained](https://thepeoplesperson.com/2026/05/21/gleison-bremer-man-uniteds-plan-for-juventus-titan-explained-310432/) - **The Peoples Person**
-8. [Maguire ‘shocked’ to be omitted from England World Cup squad](https://punchng.com/maguire-shocked-to-be-omitted-from-england-world-cup-squad/) - **The Punch**
-9. [Report Inter turn to Kepa from Arsenal as Martinez understudy](https://football-italia.net/report-inter-turn-kepa-from-arsenal-martinez/) - **Football Italia**
+1. [USMNT Star Chris Richards In Doubt For FIFA World Cup After Suffering Severe Ankle Injury](https://brobible.com/sports/article/usmnt-chris-richards-ankle-injury-world-cup/) - **BroBible**
+2. [Why Phil Foden didn't make England's World Cup squad](https://www.sportingnews.com/us/soccer/manchester-city/news/why-phil-foden-didnt-make-englands-world-cup-squad/f9ceb2e796cbbf84f4a2fb4f) - **Sporting News**
+3. [Will Chris Richards miss the World Cup? Injury news, update as ankle gives USMNT scare ahead of 2026 tournament](https://www.sportingnews.com/us/soccer/news/chris-richards-miss-world-cup-injury-ankle-usmnt-2026/f126148c39c782770c56a48a) - **Sporting News**
+4. [Former US players Lalas and Holden think USSF should contact Guardiola about becoming American coach](https://sports.yahoo.com/articles/former-us-players-lalas-holden-201132426.html) - **Yahoo Entertainment**
+5. [Unai Emery lays down 'demanding' gauntlet to Aston Villa's owners as Spaniard looks to compete for the Premier League title next season](https://www.dailymail.com/sport/football/article-15838865/Unai-Emery-lays-demanding-gauntlet-Aston-Villas-owners-Spaniard-looks-compete-Premier-League-title-season.html) - **Dailymail.com**
+6. [Juventus targeted Reijnders and Brahim Diaz for creativity](https://football-italia.net/juventus-targeted-reijnders-brahim-diaz-create/) - **Football Italia**
+7. [Cristiano Ronaldo lifts 36th career trophy as Lionel Messi’s historic record remains unmatched](https://worldsoccertalk.com/news/cristiano-ronaldo-lifts-36th-career-trophy-as-lionel-messis-historic-record-remains-unmatched/) - **Worldsoccertalk.com**
+8. [Arsenal tipped to retain Premier League title for up to three seasons](https://www.justarsenal.com/arsenal-tipped-to-retain-premier-league-title-for-up-to-three-seasons/415551) - **Just Arsenal News**
+9. [Cristiano Ronaldo wins another title at 41: Full, updated list of his career trophies](https://worldsoccertalk.com/news/cristiano-ronaldo-wins-another-title-at-41-full-updated-list-of-his-career-trophies/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-05-23 03:21:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-23 05:23:40 (KST) / (하루 100회 제한 준수 중)*
