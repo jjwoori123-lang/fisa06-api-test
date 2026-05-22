@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Will Indians Get To Watch FIFA World Cup?](https://www.rediff.com/sports/column/will-indians-get-to-watch-fifa-world-cup-2026/20260521.htm) - **Rediff.com**
-2. [Aston Villa Outclass Freiburg To Win Europa League](https://www.rediff.com/sports/report/aston-villa-down-freiburg-to-win-europa-league-and-end-30-year-wait-for-silverware/20260521.htm) - **Rediff.com**
-3. [StarHub introduces annual pass for English Premier League games](https://www.channelnewsasia.com/singapore/starhub-annual-pass-english-premier-league-epl-matches-6133591) - **CNA**
-4. [Exclusive claims that Chelsea star has asked for €100m La Liga transfer](https://chelsea.news/2026/05/exclusive-claims-chelsea-star-e100m-transfer/) - **Chelsea.news**
-5. [Former Israeli national soccer captain Bibars Natcho retires from the sport](https://www.jpost.com/israel-news/sports/article-896915) - **The Jerusalem Post**
-6. [Kanu celebrates Arsenal title win](https://punchng.com/kanu-celebrates-arsenal-title-win/) - **The Punch**
-7. [William's band of villains: How Prince celebrated his team's cup victory in the company of some of his oldest friends](https://www.dailymail.com/sport/football/article-15835973/Williams-band-villains-Prince-celebrated-teams-cup-victory-company-oldest-friends.html) - **Dailymail.com**
-8. [PETER VAN ONSELEN: Why NSW Premier Chris Minns has opened an uncomfortable debate for Labor and Anthony Albanese](https://www.dailymail.com/news/article-15835925/pvo-Chris-Minns-albo-bracket-creep.html) - **Dailymail.com**
-9. [JEFF POWELL: Arsenal's tainted title should be marked with an asterisk. No wonder conspiracy theories about the establishment favouring clubs are rife, given the outside help they've had](https://www.dailymail.com/sport/football/article-15834391/Arsenal-title-asterisk-tainted-establishment.html) - **Dailymail.com**
+1. [Kane: World Cup squad is as good as England have ever had](https://www.rte.ie/sport/soccer/2026/0521/1574462-kane-world-cup-squad-is-as-good-as-england-have-ever-had/) - **RTE**
+2. [Former Red sends classy Elliott message after Villa win](https://www.empireofthekop.com/2026/05/21/former-red-sends-classy-elliott-message-after-villa-win/) - **Empire of The Kop**
+3. [Manchester United will have to pay £15 million for Leicester City starlet Jeremy Monga](https://sportsview.co.uk/2026/05/manchester-united-will-have-to-pay-15-million-for-leicester-city-starlet-jeremy-monga?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-will-have-to-pay-15-million-for-leicester-city-starlet-jeremy-monga) - **Sportsview.co.uk**
+4. [Alisson still keen on Juventus move as crucial Liverpool talks set to take place](https://www.juvefc.com/alisson-becker-keen-juventus-crucial-liverpool-talks/) - **JuveFC**
+5. [“A bonus for sure” – Gus Poyet shares honest opinion on Chelsea’s appointment of Xabi Alonso](https://chelsea.news/2026/05/gus-poyet-xabi-alonso-chelsea-job/) - **Chelsea.news**
+6. [From 16th to European winners - Emery's Villa revolution](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a0b65758-fbd2-4678-b3d4-db6f38994abd) - **Yahoo Entertainment**
+7. [Watkins names unsung Aston Villa teammate as Europa League final standout](https://thefootballfaithful.com/watkins-names-aston-villa-teammate-lindelof-as-europa-league-final-standout/) - **The Football Faithful**
+8. [Casemiro closing in on new club after Manchester United exit](https://eplindex.com/146648/casemiro-closing-in-on-new-club-after-manchester-united-exit.html) - **English Premier League Index - Opta Stats**
+9. [Watkins says Europa League win ‘indescribable’ feeling](https://thefootballfaithful.com/ollie-watkins-has-hailed-the-feeling-of-winning-the-europa-league-with-aston-vill/) - **The Football Faithful**
+10. [Southampton fans 'deserved better' - Scienza](https://www.bbc.com/sport/football/articles/cm2pxpel902o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-22 13:38:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-22 17:02:21 (KST) / (하루 100회 제한 준수 중)*
