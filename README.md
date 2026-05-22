@@ -1,13 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Maguire 'shocked' to be omitted from England World Cup squad](https://japantoday.com/category/2026-fifa-world-cup/maguire-%27shocked%27-to-be-omitted-from-england-world-cup-squad) - **Japan Today**
-2. [FIFA’s big experiment may have made the World Cup too big for its own good](https://japantoday.com/category/2026-fifa-world-cup/fifa%E2%80%99s-big-experiment-may-have-made-the-world-cup-too-big-for-its-own-good) - **Japan Today**
-3. [Real Madrid Roundup: Valdano Calls for Dressing Room Revolution, Tebas Talks Elections, Pedro León Retires](https://www.managingmadrid.com/latest-news/108030/real-madrid-roundup-valdano-calls-for-dressing-room-revolution-tebas-talks-elections-pedro-leon-retires) - **Managing Madrid**
-4. [Southampton sanctions explained as ruling documents released](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1f495b0b-81c8-4e68-b78c-0d27101ab746) - **Yahoo Entertainment**
-5. [Manchester United told to replace Lisandro Martinez in seismic summer rebuild](https://thepeoplesperson.com/2026/05/21/manchester-united-told-to-replace-lisandro-martinez-in-seismic-summer-rebuild-310439/) - **The Peoples Person**
-6. [Liverpool make formal approach for €40m Cody Gakpo replacement](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-make-formal-approach-for-eur40m-cody-gakpo-replacement-bazoumana-toure/) - **Anfieldwatch.co.uk**
-7. [How the Oklahoma City Thunder became the NBA’s villains](https://www.vox.com/culture/489467/okc-thunder-sga-flopping-fouls-2026-nba-playoffs-spurs) - **Vox**
+1. [Full Details Emerge From Jack Campbell’s New Lions Contract](https://detroitsportsnation.com/jack-campbell-contract-details-lions/ddrysdale/detroit-lions/05/21/2026/486635/) - **Detroit Sports Nation**
+2. [Arsenal Finally Win The Premier League, Stu Holden Joins & USMNT World Cup Dark Horse Debate](https://sports.yahoo.com/soccer/article/arsenal-finally-win-the-premier-league-stu-holden-joins--usmnt-world-cup-dark-horse-debate-230245732.html) - **Yahoo Entertainment**
+3. [Hamilton sheds tear over Arsenal title as drivers swap lap times for football talk](https://www.channelnewsasia.com/sport/hamilton-sheds-tear-over-arsenal-title-drivers-swap-lap-times-football-talk-6135281) - **CNA**
+4. [Casemiro To Miss Man Utd Finale Amid Inter Miami Transfer Links](https://www.foxsports.com/stories/soccer/michael-carrick-confirms-casemiro-wont-be-involved-in-man-utds-final-game-of-season-amid-inter-miami-transfer-links) - **Fox Sports**
+5. [How Palmer and Foden lost ruthless Tuchel's battle for number 10 roles](https://www.bbc.com/sport/football/articles/c1k2g782m1ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [How Palmer and Foden lost ruthless Tuchel's battle for number 10 roles](https://www.bbc.com/sport/football/articles/c1k2g782m1ro) - **BBC News**
+7. [Andy Robertson opens up on his best Liverpool moments ahead of bidding farewell after nine trophy-laden years, why the Reds can return to the top and his plans for the future](https://www.dailymail.com/sport/football/article-15838033/Andy-Robertson-opens-best-Liverpool-moments-ahead-bidding-farewell-nine-trophy-laden-years-Reds-return-plans-future.html) - **Dailymail.com**
+8. [Shocking! Maguire dropped from England's World Cup squad](https://www.rediff.com/sports/report/shock-omission-maguire-dropped-from-englands-world-cup-squad/20260522.htm) - **Rediff.com**
+9. [Apple takes soccer immersive with Real Madrid](https://sixcolors.com/post/2026/05/apple-takes-soccer-immersive-with-real-madrid/) - **sixcolors.com**
 
 
 ---
-*최근 업데이트: 2026-05-23 06:45:47 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-23 08:03:30 (KST) / (하루 100회 제한 준수 중)*
