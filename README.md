@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [€10m Goalkeeper Refuses Leeds United Links: Does Daniel Farke Need Him?](https://the4thofficial.net/2026/05/e10m-goalkeeper-refuses-leeds-united-links-does-daniel-farke-need-him/) - **The4thofficial.net**
-2. [Manager aims a dig at Spurs over one signing while congratulating Arsenal](https://www.justarsenal.com/manager-aims-a-dig-at-spurs-over-one-signing-while-congratulating-arsenal/415620) - **Just Arsenal News**
-3. [Barcelona boss Flick sends heartfelt message to ‘best in the world’ Pep Guardiola](https://getfootballnewsspain.com/barcelona-boss-flick-sends-heartfelt-message-to-best-in-the-world-pep-guardiola/) - **Getfootballnewsspain.com**
-4. [Honours even between Derry City and St Pat's](https://www.bbc.com/sport/football/articles/cn9pe8e1qq7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Honours even between Derry City and St Pat's](https://www.bbc.com/sport/football/articles/cn9pe8e1qq7o) - **BBC News**
-6. [The Greenwich Concours Celebrates 30th Anniversary with Rare Automotive Icons and Coastal Luxury Experiences](https://www.prnewswire.com/news-releases/the-greenwich-concours-celebrates-30th-anniversary-with-rare-automotive-icons-and-coastal-luxury-experiences-302780480.html) - **PRNewswire**
-7. [Kane on Barcelona shortlist - Saturday's gossip](https://www.bbc.com/sport/football/articles/ckgply4m3m0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Kane on Barcelona shortlist - Saturday's gossip](https://www.bbc.com/sport/football/articles/ckgply4m3m0o) - **BBC News**
-9. [Guardiola to step down after glittering decade at Man City](https://japantoday.com/category/sports/guardiola-to-step-down-after-glittering-decade-at-man-city) - **Japan Today**
-10. [Enzo Fernandez reportedly set to depart Chelsea as the Argentine is targeted by a Premier League giant](https://worldsoccertalk.com/news/enzo-fernandez-reportedly-set-to-depart-chelsea-as-the-argentine-is-targeted-by-a-premier-league-giant/) - **Worldsoccertalk.com**
+1. [Russell hails Bit O'Red's 'hunger and togetherness'](https://www.rte.ie/sport/soccer/2026/0522/1574825-russell-hails-bit-oreds-hunger-and-togetherness/) - **RTE**
+2. [The Arsenal Manager Who Took The Gunners Into The First Division](https://www.justarsenal.com/the-arsenal-manager-who-took-the-gunners-into-the-first-division/415446) - **Just Arsenal News**
+3. [$1.5 billion Halifax stadium, entertainment district proposal renews CFL expansion hopes - 3DownNation](https://3downnation.com/2026/05/22/new-1-5-billion-halifax-stadium-proposal-renews-cfl-expansion-hopes/) - **3downnation.com**
+4. [Sunderland v Chelsea: Line-ups, stats and previews as Black Cats and Blues battle for Europe](https://www.101greatgoals.com/match-previews/premier-league-matches/match-preview-for-sunderland-v-chelsea/) - **101 Great Goals**
+5. [What Thomas Tuchel's reasoning for selecting Ivan Toney revealed about his World Cup plan - and why England's spine must perform to achieve their goal, writes IAN LADYMAN](https://www.dailymail.com/sport/football/article-15841441/Thomas-Tuchel-reasoning-Ivan-Toney-revealed-World-Cup-plan-England-spine-perform-IAN-LADYMAN.html) - **Dailymail.com**
+6. [Arne Slot responds to Mohamed Salah's bombshell post and reveals how he will remember departing star - as manager insists he still has backing of Liverpool's dressing room](https://www.dailymail.com/sport/football/article-15840967/Arne-Slot-insists-backing-Liverpool-Salah.html) - **Dailymail.com**
+7. [Manchester City fans give verdict on Pep Guardiola exit and potential Enzo Maresca appointment](https://cityxtra.co.uk/46929/manchester-city-fans-give-verdict-on-pep-guardiola-exit-and-potential-enzo-maresca-appointment/) - **Cityxtra.co.uk**
+8. [Liverpool to appoint new coach in strong show of support for embattled boss Arne Slot](https://www.irishtimes.com/sport/soccer/2026/05/22/liverpool-to-appoint-new-coach-in-strong-show-of-support-for-embattled-boss-arne-slot/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-05-24 06:10:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-24 07:10:17 (KST) / (하루 100회 제한 준수 중)*
