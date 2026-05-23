@@ -1,15 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [De Zerbi confirms injured Spurs star could be ready to start Everton clash](https://hayters.com/de-zerbi-confirms-injured-spurs-star-could-be-ready-to-start-everton-clash/) - **Hayters.com**
-2. [How Klopp and Arteta rivalries shaped Guardiola's Man City](https://www.bbc.com/sport/football/articles/c4gdg6zdx70o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [How Klopp and Arteta rivalries shaped Guardiola's Man City](https://www.bbc.com/sport/football/articles/c4gdg6zdx70o) - **BBC News**
-4. [Do the Rams need another wide receiver?](https://www.turfshowtimes.com/los-angeles-rams-roster/140414/do-the-rams-need-another-wide-receiver) - **Turf Show Times**
-5. [Between-session reliability and sensitivity of force production characteristics across various force-time points during the isometric single-leg long-lever bridge](https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0350197) - **Plos.org**
-6. [Arteta explains why he was not spotted in early title celebrations by Arsenal’s stars](https://www.justarsenal.com/arteta-explains-why-he-was-not-spotted-in-early-title-celebrations-by-arsenals-stars/415600) - **Just Arsenal News**
-7. [Every word of Guardiola's final pre-match press conference](https://www.mancity.com/news/mens/pep-guardiola-final-pre-match-press-conference-63915055) - **Manchester City FC**
-8. [Journalist: 21-year-old forward is on Newcastle United’s radar ahead of Anthony Gordon’s exit](https://eplindex.com/146683/journalist-21-year-old-forward-is-on-newcastle-uniteds-radar-ahead-of-anthony-gordons-exit.html) - **English Premier League Index - Opta Stats**
-9. [Manchester City v Aston Villa: Preview, predicted line-ups & where to watch Pep Guardiola’s farewell](https://www.101greatgoals.com/match-previews/premier-league-matches/manchester-city-v-aston-villa-preview-predicted-line-ups-where-to-watch-pep-guardiolas-farewell/) - **101 Great Goals**
+1. [Boss Silva will decide Fulham future next week](https://www.bbc.com/sport/football/articles/cn0perd9523o) - **BBC News**
+2. [Salah ‘blessed’ by connection with Liverpool fans as farewell beckons](https://www.101greatgoals.com/football/premier-league/salah-connection-liverpool-fans/) - **101 Great Goals**
+3. [PREVIEW | Manchester City vs Aston Villa: team news, lineups, predictions (Premier League 24/05)](https://www.playmakerstats.com/news/preview-manchester-city-vs-aston-villa-team-news-lineups-predictions-premier-league-24-05-/1132770) - **Playmakerstats.com**
+4. [Rio Ngumoha handed England boost after World Cup squad omission](https://www.empireofthekop.com/2026/05/22/rio-ngumoha-handed-england-boost-after-world-cup-squad-omission/) - **Empire of The Kop**
+5. [Silva on European 'frustration,' top-half finish and Newcastle](https://www.bbc.com/sport/football/articles/c2l2rxlq5ryo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [PREVIEW | Liverpool vs Brentford: team news, lineups, predictions (Premier League 24/05)](https://www.playmakerstats.com/news/preview-liverpool-vs-brentford-team-news-lineups-predictions-premier-league-24-05-/1132766) - **Playmakerstats.com**
+7. [Timber 'working and training really hard' to be fit for final](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e32d71cd-5519-45bc-8338-b934dc63a34b) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-05-23 23:05:08 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-24 00:34:48 (KST) / (하루 100회 제한 준수 중)*
