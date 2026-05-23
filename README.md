@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bayern Munich News: FC Bayern eyeing another Newcastle United star?; Bayern in or out on Stones?; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/205233/bayern-munich-newcastle-united-stones-real-madrid-fc-barcelona-liverpool-arsenal-psg-chelsea-bvb) - **Bavarian Football Works**
-2. [Atletico Madrid facing Xabi Alonso obstacle in bid to sign Chelsea defender](https://www.football-espana.net/2026/05/22/atletico-madrid-xabi-alonso-chelsea) - **Football Espana**
-3. [First Eagles invite thrills Rangers’ Oputa](https://punchng.com/first-eagles-invite-thrills-rangers-oputa/) - **The Punch**
-4. [Kwam 1 celebrates Arsenal title with new single](https://punchng.com/kwam-1-celebrates-arsenal-title-with-new-single/) - **The Punch**
-5. [Black Caps v Ireland: Why Rachin Ravindra walked out on Indian Premier League stint to prepare for tests](https://www.nzherald.co.nz/sport/black-caps-v-ireland-why-rachin-ravindra-walked-out-on-indian-premier-league-stint-to-prepare-for-tests/K2BZLYBYO5CT3KYELMCNDGECUA/) - **New Zealand Herald**
-6. [Liberty begin seven-game homestand with a dud in loss to Valkyries](https://nypost.com/2026/05/21/sports/liberty-begin-seven-game-homestand-with-a-dud-in-loss-to-valkyries/) - **New York Post**
-7. [Mourinho needs enemies to thrive — Oliseh](https://punchng.com/mourinho-needs-enemies-to-thrive-oliseh/) - **The Punch**
-8. [Gooners, this one's on Lavazza!](http://www.arsenal.com/news/gooners-ones-lavazza) - **Arsenal.com**
-9. [Aditya Birla Group bets big on IPL boom, says media rights frenzy is far from over](https://economictimes.indiatimes.com/news/sports/aditya-birla-group-bets-big-on-ipl-boom-says-media-rights-frenzy-is-far-from-over/articleshow/131254773.cms) - **The Times of India**
-10. [Aditya Birla Group bets big on IPL boom, says media rights frenzy is far from over](https://economictimes.indiatimes.com/news/sports/aditya-birla-group-bets-big-on-ipl-boom-says-media-rights-frenzy-is-far-from-over/articleshow/131254810.cms) - **The Times of India**
+1. [Valencia v Barcelona: Line-ups, stats and preview](https://www.101greatgoals.com/match-previews/la-liga-matches/valencia-v-barcelona-line-ups-stats-and-preview/) - **101 Great Goals**
+2. [Unprecedented and emotional - can Boro rally from 'Spygate' saga for play-off final?](https://www.skysports.com/football/news/11095/13546584/can-middlesbrough-rally-from-spygate-saga-for-the-championship-play-off-final-against-hull-at-wembley) - **Sky Sports**
+3. [Reporter Notebook: One final hurrah with Guardiola in charge of Man City?](https://www.skysports.com/football/news/11095/13546534/pep-guardiola-is-likely-to-step-down-as-manchester-city-boss-this-weekend-what-to-ask-a-manager-that-has-been-asked-everything) - **Sky Sports**
+4. [How Hull have defied all data and logic this season to reach Wembley](https://www.skysports.com/football/news/11095/13546334/championship-play-off-final-hull-city-have-defied-data-and-logic-this-season-as-they-stand-one-win-away-from-the-premier-league) - **Sky Sports**
+5. [IPL's hidden contributors: Net bowlers fueling batting brilliance](https://economictimes.indiatimes.com/news/sports/ipls-hidden-contributors-net-bowlers-fueling-batting-brilliance/articleshow/131258308.cms) - **The Times of India**
+6. [Aston Villa eye summer move for Rowe who is easily an upgrade on Sancho](https://sportsview.co.uk/2026/05/aston-villa-eye-summer-move-for-rowe-who-is-easily-an-upgrade-on-sancho?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=aston-villa-eye-summer-move-for-rowe-who-is-easily-an-upgrade-on-sancho) - **Sportsview.co.uk**
+7. [Barcelona sporting director Deco addresses rumours of move for Joao Pedro](https://chelsea.news/2026/05/deco-joao-pedro-chelsea-barcelona/) - **Chelsea.news**
+8. [Everton plotting move for Harry Wilson this summer](https://sportsview.co.uk/2026/05/everton-plotting-move-for-harry-wilson-this-summer?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=everton-plotting-move-for-harry-wilson-this-summer) - **Sportsview.co.uk**
+9. [How clubs not winning much are trying to save themselves financially – but finding it difficult](https://untold-arsenal.com/archives/120874) - **Untold-arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-05-23 13:11:50 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-23 16:09:20 (KST) / (하루 100회 제한 준수 중)*
