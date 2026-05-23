@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea Are Eyeing A Move For This Bundesliga Defender: Should The Blues Move In For Him?](https://the4thofficial.net/2026/05/chelsea-are-eyeing-a-move-for-this-bundesliga-defender-should-the-blues-move-in-for-him/) - **The4thofficial.net**
-2. ['Life is football' here but without money Australia's most unique club won't survive](https://www.abc.net.au/news/2026-05-23/willie-rioli-drugs-afl-footy-racism-tiwi-islands-homecoming/106702046) - **ABC News (AU)**
-3. [Luis Enrique doesn’t see Pep Guardiola out for long after Manchester City exit: ‘I don’t believe it’](https://worldsoccertalk.com/news/luis-enrique-doesnt-see-pep-guardiola-out-for-long-after-manchester-city-exit-i-dont-believe-it/) - **Worldsoccertalk.com**
-4. [92% of EU 2026 World Cup Bettors Have Wagered on a Previous Tournament, According to Optimove Insights Report](https://www.globenewswire.com/news-release/2026/05/22/3300338/0/en/92-of-EU-2026-World-Cup-Bettors-Have-Wagered-on-a-Previous-Tournament-According-to-Optimove-Insights-Report.html) - **GlobeNewswire**
-5. [How MLS Discovery Rights complicate Casemiro's Inter Miami move](https://pitchside-us.com/mls-discovery-rights-casemiro-inter-miami-galaxy/) - **Pitchside-us.com**
-6. [Big Money on the Line on Premier League’s Final Day](https://frontofficesports.com/big-money-on-the-line-on-premier-leagues-final-day/) - **Frontofficesports.com**
-7. [Liverpool v Brentford: Line-ups, stats and preview as cloud hangs over Salah farewell](https://www.101greatgoals.com/match-previews/premier-league-matches/liverpool-v-brentford-line-ups-stats-and-preview-as-cloud-hangs-over-salah-farewell/) - **101 Great Goals**
-8. [Espanyol COO confident on multi-club ownership, calls Premier League a ‘backward-looking’ financial system](https://www.football-espana.net/2026/05/22/espanyol-burnley-spiby) - **Football Espana**
-9. [Michael Carrick reveals blueprint for the ideal Man United midfielder](https://thepeoplesperson.com/2026/05/22/michael-carrick-reveals-blueprint-for-the-ideal-man-united-midfielder-310489/) - **The Peoples Person**
+1. [€10m Goalkeeper Refuses Leeds United Links: Does Daniel Farke Need Him?](https://the4thofficial.net/2026/05/e10m-goalkeeper-refuses-leeds-united-links-does-daniel-farke-need-him/) - **The4thofficial.net**
+2. [Manager aims a dig at Spurs over one signing while congratulating Arsenal](https://www.justarsenal.com/manager-aims-a-dig-at-spurs-over-one-signing-while-congratulating-arsenal/415620) - **Just Arsenal News**
+3. [Barcelona boss Flick sends heartfelt message to ‘best in the world’ Pep Guardiola](https://getfootballnewsspain.com/barcelona-boss-flick-sends-heartfelt-message-to-best-in-the-world-pep-guardiola/) - **Getfootballnewsspain.com**
+4. [Honours even between Derry City and St Pat's](https://www.bbc.com/sport/football/articles/cn9pe8e1qq7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Honours even between Derry City and St Pat's](https://www.bbc.com/sport/football/articles/cn9pe8e1qq7o) - **BBC News**
+6. [The Greenwich Concours Celebrates 30th Anniversary with Rare Automotive Icons and Coastal Luxury Experiences](https://www.prnewswire.com/news-releases/the-greenwich-concours-celebrates-30th-anniversary-with-rare-automotive-icons-and-coastal-luxury-experiences-302780480.html) - **PRNewswire**
+7. [Kane on Barcelona shortlist - Saturday's gossip](https://www.bbc.com/sport/football/articles/ckgply4m3m0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Kane on Barcelona shortlist - Saturday's gossip](https://www.bbc.com/sport/football/articles/ckgply4m3m0o) - **BBC News**
+9. [Guardiola to step down after glittering decade at Man City](https://japantoday.com/category/sports/guardiola-to-step-down-after-glittering-decade-at-man-city) - **Japan Today**
+10. [Enzo Fernandez reportedly set to depart Chelsea as the Argentine is targeted by a Premier League giant](https://worldsoccertalk.com/news/enzo-fernandez-reportedly-set-to-depart-chelsea-as-the-argentine-is-targeted-by-a-premier-league-giant/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-05-24 05:12:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-24 06:10:14 (KST) / (하루 100회 제한 준수 중)*
