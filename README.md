@@ -1,13 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Boss Silva will decide Fulham future next week](https://www.bbc.com/sport/football/articles/cn0perd9523o) - **BBC News**
-2. [Salah ‘blessed’ by connection with Liverpool fans as farewell beckons](https://www.101greatgoals.com/football/premier-league/salah-connection-liverpool-fans/) - **101 Great Goals**
-3. [PREVIEW | Manchester City vs Aston Villa: team news, lineups, predictions (Premier League 24/05)](https://www.playmakerstats.com/news/preview-manchester-city-vs-aston-villa-team-news-lineups-predictions-premier-league-24-05-/1132770) - **Playmakerstats.com**
-4. [Rio Ngumoha handed England boost after World Cup squad omission](https://www.empireofthekop.com/2026/05/22/rio-ngumoha-handed-england-boost-after-world-cup-squad-omission/) - **Empire of The Kop**
-5. [Silva on European 'frustration,' top-half finish and Newcastle](https://www.bbc.com/sport/football/articles/c2l2rxlq5ryo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [PREVIEW | Liverpool vs Brentford: team news, lineups, predictions (Premier League 24/05)](https://www.playmakerstats.com/news/preview-liverpool-vs-brentford-team-news-lineups-predictions-premier-league-24-05-/1132766) - **Playmakerstats.com**
-7. [Timber 'working and training really hard' to be fit for final](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e32d71cd-5519-45bc-8338-b934dc63a34b) - **Yahoo Entertainment**
+1. [EPL: Spurs must play with ‘blood, character, spirit’ – De Zerbi](https://punchng.com/epl-spurs-must-play-with-blood-character-spirit-de-zerbi/) - **The Punch**
+2. [Tactical Preview: Man United must expose Brighton’s full-backs to secure the win](https://thepeoplesperson.com/2026/05/22/tactical-preview-man-united-must-expose-brightons-full-backs-to-secure-the-win-310477/) - **The Peoples Person**
+3. [How Khaldoon Al Mubarak and Ferran Soriano have reacted to Pep Guardiola’s Manchester City exit](https://cityxtra.co.uk/46969/how-khaldoon-al-mubarak-and-ferran-soriano-have-reacted-to-pep-guardiolas-manchester-city-exit/) - **Cityxtra.co.uk**
+4. [Three players, one goal: who makes Nagelsmann's starting XI?](https://onefootball.com/en/news/three-players-one-goal-who-makes-nagelsmanns-starting-xi-42907854) - **Onefootball.com**
+5. [Chelsea sacked managers who 'failed to emulate' Guardiola](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c2f08ecf-ec0c-4737-8985-a3cce06792b2) - **Yahoo Entertainment**
+6. [Farke on Stach injury, Longstaff surgery and staying competitive](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4fab06c3-13be-4b2c-948a-d9d6c566e20f) - **Yahoo Entertainment**
+7. [Guardiola says his time at Man City was ‘the experience of my life’](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260522-99-509322/) - **Dpa-international.com**
+8. [Salah says he will always love Liverpool as 9-year story nears an end](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260522-99-509365/) - **Dpa-international.com**
 
 
 ---
-*최근 업데이트: 2026-05-24 00:34:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-24 01:37:50 (KST) / (하루 100회 제한 준수 중)*
