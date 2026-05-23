@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [World Cup 2026: United States gets more brutal injury news days ahead of roster reveal](https://www.masslive.com/sports/2026/05/world-cup-2026-united-states-gets-more-brutal-injury-news-days-ahead-of-roster-reveal.html) - **MassLive.com**
-2. [Game changers: how soccer’s mega-money era was sparked by a little-known Belgian athlete](https://theconversation.com/game-changers-how-soccers-mega-money-era-was-sparked-by-a-little-known-belgian-athlete-262219) - **The Conversation Africa**
-3. [Cristian Romero Criticized For Missing Spurs Match To Watch Game In Argentina](https://www.foxsports.com/stories/soccer/cristian-romero-blasted-for-terrible-decision-to-skip-tottenham-relegation-decider-in-favour-of-watching-game-in-argentina) - **Fox Sports**
-4. [What José Mourinho’s transfer policy during his first stint at Real Madrid may tell us about potential player signings this summer.](https://www.managingmadrid.com/coach/107960/what-jose-mourinhos-transfer-policy-during-his-first-stint-at-real-madrid-may-tell-us-about-potential-player-signings-this-summer) - **Managing Madrid**
-5. [U.S. Soccer boss opens up on Mauricio Pochettino’s future as World Cup nears](https://www.alloutsoccer.com/news/usmnt-pochettino-world-cup-future-1849165) - **Alloutsoccer.com**
-6. [Thomas Tuchel has never been one to lack the courage of his convictions but Harry Maguire's England World Cup snub makes less sense the more you think about it - while Ivan Toney's call-up is a luxury pick, writes IAN LADYMAN](https://www.dailymail.com/sport/football/article-15838019/Thomas-Tuchel-never-one-lack-courage-convictions-Harry-Maguires-England-World-Cup-snub-makes-sense-you-think-Ivan-Toneys-call-luxury-pick-writes-IAN-LADYMAN.html) - **Dailymail.com**
-7. [Raphinha Reveals London 'Red' And 'Blue' Team Offers Before Barcelona Transfer](https://www.foxsports.com/stories/soccer/barcelona-star-raphinha-reveals-he-had-offers-from-blue-team-and-a-red-team-in-london-before-la-liga-transfer) - **Fox Sports**
-8. [Full Details Emerge From Jack Campbell’s New Lions Contract](https://detroitsportsnation.com/jack-campbell-contract-details-lions/ddrysdale/detroit-lions/05/21/2026/486635/) - **Detroit Sports Nation**
-9. [Arsenal Finally Win The Premier League, Stu Holden Joins & USMNT World Cup Dark Horse Debate](https://sports.yahoo.com/soccer/article/arsenal-finally-win-the-premier-league-stu-holden-joins--usmnt-world-cup-dark-horse-debate-230245732.html) - **Yahoo Entertainment**
-10. [Hamilton sheds tear over Arsenal title as drivers swap lap times for football talk](https://www.channelnewsasia.com/sport/hamilton-sheds-tear-over-arsenal-title-drivers-swap-lap-times-football-talk-6135281) - **CNA**
+1. [Bayern Munich News: FC Bayern eyeing another Newcastle United star?; Bayern in or out on Stones?; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/205233/bayern-munich-newcastle-united-stones-real-madrid-fc-barcelona-liverpool-arsenal-psg-chelsea-bvb) - **Bavarian Football Works**
+2. [Atletico Madrid facing Xabi Alonso obstacle in bid to sign Chelsea defender](https://www.football-espana.net/2026/05/22/atletico-madrid-xabi-alonso-chelsea) - **Football Espana**
+3. [First Eagles invite thrills Rangers’ Oputa](https://punchng.com/first-eagles-invite-thrills-rangers-oputa/) - **The Punch**
+4. [Kwam 1 celebrates Arsenal title with new single](https://punchng.com/kwam-1-celebrates-arsenal-title-with-new-single/) - **The Punch**
+5. [Black Caps v Ireland: Why Rachin Ravindra walked out on Indian Premier League stint to prepare for tests](https://www.nzherald.co.nz/sport/black-caps-v-ireland-why-rachin-ravindra-walked-out-on-indian-premier-league-stint-to-prepare-for-tests/K2BZLYBYO5CT3KYELMCNDGECUA/) - **New Zealand Herald**
+6. [Liberty begin seven-game homestand with a dud in loss to Valkyries](https://nypost.com/2026/05/21/sports/liberty-begin-seven-game-homestand-with-a-dud-in-loss-to-valkyries/) - **New York Post**
+7. [Mourinho needs enemies to thrive — Oliseh](https://punchng.com/mourinho-needs-enemies-to-thrive-oliseh/) - **The Punch**
+8. [Gooners, this one's on Lavazza!](http://www.arsenal.com/news/gooners-ones-lavazza) - **Arsenal.com**
+9. [Aditya Birla Group bets big on IPL boom, says media rights frenzy is far from over](https://economictimes.indiatimes.com/news/sports/aditya-birla-group-bets-big-on-ipl-boom-says-media-rights-frenzy-is-far-from-over/articleshow/131254773.cms) - **The Times of India**
+10. [Aditya Birla Group bets big on IPL boom, says media rights frenzy is far from over](https://economictimes.indiatimes.com/news/sports/aditya-birla-group-bets-big-on-ipl-boom-says-media-rights-frenzy-is-far-from-over/articleshow/131254810.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-05-23 09:17:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-23 13:11:50 (KST) / (하루 100회 제한 준수 중)*
