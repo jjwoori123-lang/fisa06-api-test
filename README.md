@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Celtic vs Dunfermline Athletic – Predicted lineup and team news](https://thefootballfaithful.com/celtic-vs-dunfermline-athletic-predicted-lineup-and-team-news/) - **The Football Faithful**
-2. [Bayern Munich vs VFB Stuttgart – Predicted lineup and team news](https://thefootballfaithful.com/bayern-munich-vs-vfb-stuttgart-predicted-lineup-and-team-news/) - **The Football Faithful**
-3. [Celtic vs Dunfermline Athletic – Match preview and team news](https://thefootballfaithful.com/celtic-vs-dunfermline-athletic-match-preview-and-team-news/) - **The Football Faithful**
-4. [Bayern Munich vs VFB Stuttgart – Match preview and team news](https://thefootballfaithful.com/bayern-munich-vs-vfb-stuttgart-match-preview-and-team-news-2/) - **The Football Faithful**
-5. [This season has been a success for Manchester City despite a bitter end](https://esteemedkompany.com/2026/05/23/this-season-has-been-a-success-for-manchester-city-despite-a-bitter-end/) - **Esteemedkompany.com**
-6. [Valencia vs Barcelona, La Liga: Preview](https://www.barcablaugranes.com/barcelona-la-liga/121210/valencia-barcelona-la-liga-team-news-preview-lineups-prediction) - **Barca Blaugranes**
-7. [Arteta on ownership support and pride](http://www.arsenal.com/news/arteta-ownership-support-and-pride) - **Arsenal.com**
-8. [The four biggest questions facing USMNT ahead of World Cup roster reveal](https://nypost.com/2026/05/22/sports/the-four-biggest-questions-facing-usmnt-ahead-of-world-cup-roster-reveal/) - **New York Post**
-9. [THE SALAH FILES, Part 5: Scorched Earth. How Mo Salah set 'fire' to his Liverpool farewell, why he was so furious with Arne Slot, the men who masterminded his exit... and an ominous warning for what comes next](https://www.dailymail.com/sport/football/article-15837967/Mohamed-Salah-Files-Five-Liverpool-Slot-Exit.html) - **Dailymail.com**
-10. [PEP AND MAN CITY - THE UNTOLD DECADE, Part 5: The Great Reinventor. JACK GAUGHAN reveals the reason Guardiola stayed one more year, how close City came to signing Lionel Messi and the epic parting gift the manager leaves behind](https://www.dailymail.com/sport/football/article-15837223/PEP-MAN-CITY-UNTOLD-DECADE-5-Great-Reinventor-JACK-GAUGHAN-reveals-reason-Guardiola-stayed-one-year-close-City-came-signing-Lionel-Messi-epic-parting-gift-manager-leaves-behind.html) - **Dailymail.com**
+1. [“Enough to sanction a sale” – Ben Jacobs shares update on Chelsea’s interest in Morgan Rogers](https://chelsea.news/2026/05/ben-jacobs-chelsea-man-united-morgan-rogers/) - **Chelsea.news**
+2. [Roma in direct contact with West Ham’s Summerville](https://romapress.net/roma-in-direct-contact-with-west-hams-summerville/) - **RomaPress**
+3. [Curtis Jones sends emotional Salah and Robertson message before Liverpool farewell](https://www.empireofthekop.com/2026/05/23/curtis-jones-sends-emotional-salah-and-robertson-message-before-liverpool-farewell/) - **Empire of The Kop**
+4. [Love momos? There’s a league in Australia just for that](https://timesofindia.indiatimes.com/entertainment/momo-premier-league-australias-newest-and-hottest-food-challenge/articleshow/131273856.cms) - **The Times of India**
+5. [How should Chelsea line up against Sunderland in the final match of the season?](https://weaintgotnohistory.sbnation.com/premier-league/168909/how-should-chelsea-line-up-against-sunderland-in-the-final-match-of-the-season) - **SB Nation**
+6. ['If Carrick get's it right hierarchy in Manchester could change'](https://www.bbc.com/sport/football/articles/ce3pgyldz31o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. ['No surprise we're glad to see the back of Guardiola'](https://www.bbc.com/sport/football/articles/c809j3719dyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [PREVIEW: Hull and Middlesbrough face off in controversial play-off final](https://wp.fromthespot.co.uk/28977/preview-hull-and-middlesbrough-face-off-in-controversial-play-off-final/) - **Fromthespot.co.uk**
+9. [Everton Sliding Doors: The moments when it all could have changed](http://www.toffeeweb.com/season/25-26/news/47583.html) - **Toffeeweb**
+10. [Captain Bowen for final-day fling - FPL team of the week](https://www.bbc.com/sport/football/articles/cjepz5lzvqno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-24 13:42:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-24 16:49:50 (KST) / (하루 100회 제한 준수 중)*
