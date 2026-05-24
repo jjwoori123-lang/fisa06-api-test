@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [dpa ADVANCE SPORTS SCHEDULE for SUNDAY, MAY 24](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_11b6149e-0a0d-4302-bdae-741fca2bac36) - **Yahoo Entertainment**
-2. [Keir Starmer urges TNT to reverse decision and make Champions League final free-to-air as Arsenal bid for further glory against PSG](https://www.dailymail.com/sport/football/article-15843361/Keir-Starmer-TNT-reverse-decision-Champions-League-final-free-Arsenal-PSG.html) - **Dailymail.com**
-3. [Liverpool Are Long-Term Admirers Of This Newcastle Talent: Should Slot Go For Him?](https://the4thofficial.net/2026/05/liverpool-are-long-term-admirers-of-this-newcastle-talent/) - **The4thofficial.net**
-4. [Farewell to Salah, Liverpool's 'Egyptian king'](https://www.bbc.com/sport/football/articles/cgkp386p60jo) - **BBC News**
-5. [How did Hull beat Middlesbrough to promote? #sports](https://alltoc.com/sports/how-did-hull-beat-middlesbrough-to-promote) - **Alltoc.com**
-6. [What a difference a year makes for Aston Villa](https://www.bbc.com/sport/football/articles/ckgp31w2rrjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Arsenal to celebrate at end of season with Champions League in mind](https://www.bbc.com/sport/football/articles/c3r2z7wwg59o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Inter Milan adds Arsenal man to their summer shopping list](https://www.justarsenal.com/inter-milan-adds-arsenal-man-to-their-summer-shopping-list/415668) - **Just Arsenal News**
-9. [Aidan Morris, Middlesbrough fall to Hull City in promotion playoff final](https://sbisoccer.com/2026/05/aidan-morris-middlesbrough-fall-to-hull-city-in-promotion-playoff-final) - **Sbisoccer.com**
-10. [Valencia vs Barcelona: Line-ups confirmed as LaLiga champions hope to end season with win](https://www.101greatgoals.com/football/la-liga/valencia-vs-barcelona-line-ups-team-news/) - **101 Great Goals**
+1. [He's just like him! Meet Liverpool's next Steven Gerrard](https://www.anfieldwatch.co.uk/liverpool-fc/news/luca-eden/) - **Anfieldwatch.co.uk**
+2. [‘Nothing stopping us’ – Hull City pull off unlikely Premier League promotion](https://thefootballfaithful.com/hull-city-premier-league-promotion-lewie-coyle/) - **The Football Faithful**
+3. [FULL LIST: Top 10 most expensive football squads in 2025/2026](https://punchng.com/full-list-top-10-most-expensive-football-squads-in-2025-2026/) - **The Punch**
+4. [Tottenham and West Ham fight for survival, and European places up for grabs Premier League final day](https://www.cbssports.com/soccer/news/tottenham-west-ham-survival-european-places-premier-league-final-day/) - **CBS Sports**
+5. [Spurs sweat over Premier League survival as Salah, Guardiola say goodbye](https://economictimes.indiatimes.com/news/sports/spurs-sweat-over-premier-league-survival-as-salah-guardiola-say-goodbye/articleshow/131285161.cms) - **The Times of India**
+6. [World Cup 2026 expansion raises debate: More teams, more games, but is football losing its edge?](https://economictimes.indiatimes.com/news/sports/world-cup-2026-expansion-raises-debate-more-teams-more-games-but-is-football-losing-its-edge/articleshow/131285090.cms) - **The Times of India**
+7. [Heartbreak for Boro after missing three chances to go up](https://www.bbc.com/sport/football/articles/c9v3l8dyzzpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Emotional Hull celebrate 'incredible' promotion to Premier League](https://sports.yahoo.com/articles/emotional-hull-celebrate-incredible-promotion-191140093.html) - **Yahoo Entertainment**
+9. [City to wear 2026/27 Home Kit for Villa clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_de47586c-a361-47c9-9970-26e41acdfa5a) - **Yahoo Entertainment**
+10. [Arsenal Are Keeping A Keen Eye On This Bournemouth Midfielder: Good Fit For Arteta?](https://the4thofficial.net/2026/05/arsenal-are-keeping-a-keen-eye-on-this-bournemouth-midfielder/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-05-25 03:13:38 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-25 04:43:29 (KST) / (하루 100회 제한 준수 중)*
