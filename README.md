@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ederson: Fabrizio Romano reveals the truth behind United’s pursuit](https://thepeoplesperson.com/2026/05/23/ederson-fabrizio-romano-reveals-the-truth-behind-uniteds-pursuit-310497/) - **The Peoples Person**
-2. [Ice baths, almond milk, meditation and a 'house like a hospital': The secrets of Salah's success](https://www.bbc.com/news/articles/cd0p3v7kn1mo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Argentina receive major boost as Emiliano Martinez set to recover in time for 2026 World Cup](https://worldsoccertalk.com/world-cup/argentina-receive-major-boost-as-emiliano-martinez-set-to-recover-in-time-for-2026-world-cup/) - **Worldsoccertalk.com**
-4. [The Live Moment Effect: Genius Sports and MediaScience Study Finds Specific Moments in Live Sports Can Double Unaided Brand Recall](https://en.antaranews.com/news/416752/the-live-moment-effect-genius-sports-and-mediascience-study-finds-specific-moments-in-live-sports-can-double-unaided-brand-recall) - **Antaranews.com**
-5. [‘I haven’t retired yet’: Cristiano Ronaldo’s tense reaction after Al Nassr loss recalled by Argentina icon Crespo](https://worldsoccertalk.com/news/i-havent-retired-yet-cristiano-ronaldos-tense-reaction-after-al-nassr-loss-recalled-by-argentina-icon-crespo/) - **Worldsoccertalk.com**
-6. [Atalanta midfielder Ederson omitted for Fiorentina draw with Manchester United move beckoning](https://sportsview.co.uk/2026/05/atalanta-midfielder-ederson-omitted-for-fiorentina-draw-with-manchester-united-move-close?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=atalanta-midfielder-ederson-omitted-for-fiorentina-draw-with-manchester-united-move-close) - **Sportsview.co.uk**
-7. [Morten Hjulmand available on a cut-price fee, United ready to pounce](https://thepeoplesperson.com/2026/05/22/morten-hjulmand-available-on-a-cut-price-fee-united-ready-to-pounce-310494/) - **The Peoples Person**
-8. [Judges are Starting to Crack Down on Trump's Courtroom Lackeys](https://www.esquire.com/news-politics/politics/a71388737/crack-down-on-trumps-courtroom-lackeys/) - **esquire.com**
-9. [Premier League finale: Arsenal, relegation, Champions League, Salah and Pep](https://www.aljazeera.com/sports/2026/5/22/premier-league-finale-arsenal-relegation-champions-league-salah-and-pep) - **Al Jazeera English**
-10. [Is Enzo Maresca Ready To Replace Pep Guardiola At Manchester City?](https://www.forbes.com/sites/grahamruthven/2026/05/22/is-enzo-maresca-ready-to-replace-pep-guardiola-at-manchester-city/) - **Forbes**
+1. [Celtic vs Dunfermline Athletic – Predicted lineup and team news](https://thefootballfaithful.com/celtic-vs-dunfermline-athletic-predicted-lineup-and-team-news/) - **The Football Faithful**
+2. [Bayern Munich vs VFB Stuttgart – Predicted lineup and team news](https://thefootballfaithful.com/bayern-munich-vs-vfb-stuttgart-predicted-lineup-and-team-news/) - **The Football Faithful**
+3. [Celtic vs Dunfermline Athletic – Match preview and team news](https://thefootballfaithful.com/celtic-vs-dunfermline-athletic-match-preview-and-team-news/) - **The Football Faithful**
+4. [Bayern Munich vs VFB Stuttgart – Match preview and team news](https://thefootballfaithful.com/bayern-munich-vs-vfb-stuttgart-match-preview-and-team-news-2/) - **The Football Faithful**
+5. [This season has been a success for Manchester City despite a bitter end](https://esteemedkompany.com/2026/05/23/this-season-has-been-a-success-for-manchester-city-despite-a-bitter-end/) - **Esteemedkompany.com**
+6. [Valencia vs Barcelona, La Liga: Preview](https://www.barcablaugranes.com/barcelona-la-liga/121210/valencia-barcelona-la-liga-team-news-preview-lineups-prediction) - **Barca Blaugranes**
+7. [Arteta on ownership support and pride](http://www.arsenal.com/news/arteta-ownership-support-and-pride) - **Arsenal.com**
+8. [The four biggest questions facing USMNT ahead of World Cup roster reveal](https://nypost.com/2026/05/22/sports/the-four-biggest-questions-facing-usmnt-ahead-of-world-cup-roster-reveal/) - **New York Post**
+9. [THE SALAH FILES, Part 5: Scorched Earth. How Mo Salah set 'fire' to his Liverpool farewell, why he was so furious with Arne Slot, the men who masterminded his exit... and an ominous warning for what comes next](https://www.dailymail.com/sport/football/article-15837967/Mohamed-Salah-Files-Five-Liverpool-Slot-Exit.html) - **Dailymail.com**
+10. [PEP AND MAN CITY - THE UNTOLD DECADE, Part 5: The Great Reinventor. JACK GAUGHAN reveals the reason Guardiola stayed one more year, how close City came to signing Lionel Messi and the epic parting gift the manager leaves behind](https://www.dailymail.com/sport/football/article-15837223/PEP-MAN-CITY-UNTOLD-DECADE-5-Great-Reinventor-JACK-GAUGHAN-reveals-reason-Guardiola-stayed-one-year-close-City-came-signing-Lionel-Messi-epic-parting-gift-manager-leaves-behind.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-05-24 09:14:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-24 13:42:34 (KST) / (하루 100회 제한 준수 중)*
