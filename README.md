@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Newcastle United have joined the race to sign 22-year-old La Liga forward](https://eplindex.com/146704/report-newcastle-united-have-joined-the-race-to-sign-22-year-old-la-liga-forward.html) - **English Premier League Index - Opta Stats**
-2. [Where are Pep Guardiola's first Man City team now? Running a vineyard, launching a racing career - and returning to the club!](https://www.dailymail.com/sport/football/article-15830621/Pep-Guardiola-Man-City-team.html) - **Dailymail.com**
-3. ['Forget the home form... this is a cup tie'](https://www.bbc.com/sport/football/articles/cjdp9y2z5kdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. ['A disgrace' - fans on Gibbs-White's England omission](https://www.bbc.com/sport/football/articles/cx21lp67793o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Kohli refuses Head handshake after heated Hyderabad-Bengaluru clash in IPL](https://www.aljazeera.com/sports/2026/5/23/kohli-refuses-head-handshake-after-heated-hyderabad-bengaluru-clash-in-ipl) - **Al Jazeera English**
-6. [How to watch WWE Saturday Night’s Main Event 2026 (May 23): Start time, full card, live stream](https://www.sportingnews.com/us/wwe/news/watch-wwe-saturday-nights-main-event-2026-may-23/1441a5caaf37a843cb48796b) - **Sporting News**
-7. [Brentford boss warns Liverpool they need ‘special’ Anfield performance](https://www.empireofthekop.com/2026/05/23/brentford-boss-warns-liverpool-they-need-special-anfield-performance/) - **Empire of The Kop**
-8. [“I think about it every day” Arsenal man keeps flirting with a return to his former club](https://www.justarsenal.com/i-think-about-it-every-day-arsenal-man-keeps-flirting-with-a-return-to-his-former-club/415637) - **Just Arsenal News**
-9. [Juventus to challenge Arsenal for Premier League midfielder](https://www.juvefc.com/juventus-to-challenge-arsenal-for-premier-league-midfielder/) - **JuveFC**
-10. [Cristiano Ronaldo is SNUBBED as Saudi Pro League Player of the Season despite finally winning a major trophy with Al-Nassr - with Chelsea flop picking up the award over £480,000-a-day star](https://www.dailymail.com/sport/football/article-15842747/cristiano-ronaldo-saudi-pro-league-player-season-snub.html) - **Dailymail.com**
+1. [Australian-style intensity: Irfan Pathan on Virat Kohli’s tiff with Travis Head](https://indianexpress.com/article/sports/cricket/virat-kohli-travis-head-tiff-australian-style-intensity-pathan-10704420/) - **The Indian Express**
+2. [LSG vs PBKS Weather Update: Will rain interrupt IPL 2026 clash at Ekana Cricket Stadium in Lucknow tonight?](https://economictimes.indiatimes.com/news/new-updates/lsg-vs-pbks-weather-update-will-rain-interrupt-ipl-2026-clash-at-ekana-cricket-stadium-in-lucknow-tonight/articleshow/131278266.cms) - **The Times of India**
+3. [Saka: They’re not laughing at Arsenal now](https://dailycannon.com/2026/05/saka-not-laughing-arsenal/) - **Dailycannon.com**
+4. [Premier League confirm transfer window dates ahead of summer](https://thefootballfaithful.com/premier-league-transfer-window-dates-2026-27/) - **The Football Faithful**
+5. [Premier League predictions: Expert's best bets for Matchday 38 include Crystal Palace-Arsenal, Spurs-Everton](https://www.cbssports.com/soccer/news/premier-league-predictions-experts-best-bets-for-matchday-38-include-crystal-palace-arsenal-spurs-everton/) - **CBS Sports**
+6. [Sheffield United Facing Crucial Summer as New Financial Rules Tighten Championship Landscape](https://sheffunitedway.co.uk/2026/05/23/sheffield-united-facing-crucial-summer-as-new-financial-rules-tighten-championship-landscape/) - **Sheffunitedway.co.uk**
+7. [How to watch Celtic vs Dunfermline: Free Streams, TV Channels & Preview for Scottish Cup Final 2026](https://www.techradar.com/how-to-watch/football/celtic-vs-dunfermline-free-streams-scottish-cup-final-2026) - **TechRadar**
+8. [“First day of school” Merino talks about his return to training](https://www.justarsenal.com/first-day-of-school-merino-talks-about-his-return-to-training/415636) - **Just Arsenal News**
+9. [How will it all go down on the final day of the 2025-26 season?](https://www.blackwhitereadallover.com/juventus-question-of-the-day/38520/how-will-it-all-go-down-on-the-final-day-of-the-2025-26-season) - **Black & White & Read All Over**
+10. [Not Salah or Robertson: Two Liverpool players tipped for final day success](https://www.empireofthekop.com/2026/05/23/not-salah-or-robertson-two-liverpool-players-tipped-for-final-day-success/) - **Empire of The Kop**
 
 
 ---
-*최근 업데이트: 2026-05-24 18:57:47 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-24 20:22:15 (KST) / (하루 100회 제한 준수 중)*
