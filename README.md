@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle United interested in Aleksander Stankovic as a potential replacement for Sandro Tonali](https://sportsview.co.uk/2026/05/newcastle-united-interested-in-aleksander-stankovic-as-a-potential-replacement-for-sandro-tonali?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-united-interested-in-aleksander-stankovic-as-a-potential-replacement-for-sandro-tonali) - **Sportsview.co.uk**
-2. [Guardiola reveals Hart snub was biggest Man City regret](https://punchng.com/guardiola-reveals-hart-snub-was-biggest-man-city-regret/) - **The Punch**
-3. [“I am expecting” – Chris Sutton gives his prediction for Sunderland vs Chelsea](https://chelsea.news/2026/05/chris-sutton-sunderland-chelsea-prediction/) - **Chelsea.news**
-4. [Nottingham Forest v Bournemouth: Key stats and talking points](https://www.bbc.com/sport/football/articles/c99ljmjzx99o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Man City v Aston Villa: Key stats and talking points](https://www.bbc.com/sport/football/articles/c3623j8e9pjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [West Ham v Leeds: Key stats and talking points](https://www.bbc.com/sport/football/articles/cvgzjx38xj3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Preview: Sunderland vs Chelsea – stats, team news, line-ups](https://sportsview.co.uk/2026/05/preview-sunderland-vs-chelsea-stats-team-news-line-ups?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=preview-sunderland-vs-chelsea-stats-team-news-line-ups) - **Sportsview.co.uk**
-8. [Keith Andrews provides Brentford injury update ahead of Liverpool clash](https://anfieldindex.com/94421/keith-andrews-provides-brentford-injury-update-ahead-of-liverpool-clash.html) - **Anfieldindex.com**
-9. [The Biggest Regret For Pep Guardiola At Manchester City](https://www.rediff.com/sports/report/the-biggest-regret-for-pep-guardiola-at-manchester-city-epl/20260523.htm) - **Rediff.com**
+1. [Fernandes named Premier League Player of the Season](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ac55a5e2-6170-4c55-a1c5-d6a14385f49a) - **Yahoo Entertainment**
+2. [Arsenal star to join up with England for World Cup warm-up camp](https://hayters.com/arsenal-star-to-join-up-with-england-for-world-cup-warm-up-camp/) - **Hayters.com**
+3. [Bruno Fernandes voted Premier League Player of the Season: What's next?](https://www.nbcsports.com/soccer/news/bruno-fernandes-voted-premier-league-player-of-the-season-whats-next) - **NBCSports.com**
+4. [Michael Carrick makes bold claim about Man United’s academy](https://thepeoplesperson.com/2026/05/23/michael-carrick-makes-bold-claim-about-man-uniteds-academy-310516/) - **The Peoples Person**
+5. ['Chelsea could be real dark horses next season if they aren't in Europe'](https://www.bbc.com/sport/football/articles/cg5pn5zy92jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Arsenal target continues to eye a move to Barcelona instead](https://www.justarsenal.com/arsenal-target-continues-to-eye-a-move-to-barcelona-instead/415650) - **Just Arsenal News**
+7. [Wolves star signs new contract despite relegation from Premier League](https://eplindex.com/146713/wolves-star-signs-new-contract-despite-relegation-from-premier-league.html) - **English Premier League Index - Opta Stats**
+8. [Hull City vs Middlesbrough LIVE updates: Minute-by-minute coverage of the Championship playoff final](https://worldsoccertalk.com/news/hull-city-vs-middlesbrough-live-updates-minute-by-minute-coverage-of-the-championship-playoff-final/) - **Worldsoccertalk.com**
+9. [Championship play-off final: Hull face Middlesbrough for Premier League place after Spygate saga](https://www.bbc.com/sport/football/live/cn9p8yrdy9qt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-24 21:44:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-24 23:25:38 (KST) / (하루 100회 제한 준수 중)*
