@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [“Enough to sanction a sale” – Ben Jacobs shares update on Chelsea’s interest in Morgan Rogers](https://chelsea.news/2026/05/ben-jacobs-chelsea-man-united-morgan-rogers/) - **Chelsea.news**
-2. [Roma in direct contact with West Ham’s Summerville](https://romapress.net/roma-in-direct-contact-with-west-hams-summerville/) - **RomaPress**
-3. [Curtis Jones sends emotional Salah and Robertson message before Liverpool farewell](https://www.empireofthekop.com/2026/05/23/curtis-jones-sends-emotional-salah-and-robertson-message-before-liverpool-farewell/) - **Empire of The Kop**
-4. [Love momos? There’s a league in Australia just for that](https://timesofindia.indiatimes.com/entertainment/momo-premier-league-australias-newest-and-hottest-food-challenge/articleshow/131273856.cms) - **The Times of India**
-5. [How should Chelsea line up against Sunderland in the final match of the season?](https://weaintgotnohistory.sbnation.com/premier-league/168909/how-should-chelsea-line-up-against-sunderland-in-the-final-match-of-the-season) - **SB Nation**
-6. ['If Carrick get's it right hierarchy in Manchester could change'](https://www.bbc.com/sport/football/articles/ce3pgyldz31o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. ['No surprise we're glad to see the back of Guardiola'](https://www.bbc.com/sport/football/articles/c809j3719dyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [PREVIEW: Hull and Middlesbrough face off in controversial play-off final](https://wp.fromthespot.co.uk/28977/preview-hull-and-middlesbrough-face-off-in-controversial-play-off-final/) - **Fromthespot.co.uk**
-9. [Everton Sliding Doors: The moments when it all could have changed](http://www.toffeeweb.com/season/25-26/news/47583.html) - **Toffeeweb**
-10. [Captain Bowen for final-day fling - FPL team of the week](https://www.bbc.com/sport/football/articles/cjepz5lzvqno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Report: Newcastle United have joined the race to sign 22-year-old La Liga forward](https://eplindex.com/146704/report-newcastle-united-have-joined-the-race-to-sign-22-year-old-la-liga-forward.html) - **English Premier League Index - Opta Stats**
+2. [Where are Pep Guardiola's first Man City team now? Running a vineyard, launching a racing career - and returning to the club!](https://www.dailymail.com/sport/football/article-15830621/Pep-Guardiola-Man-City-team.html) - **Dailymail.com**
+3. ['Forget the home form... this is a cup tie'](https://www.bbc.com/sport/football/articles/cjdp9y2z5kdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. ['A disgrace' - fans on Gibbs-White's England omission](https://www.bbc.com/sport/football/articles/cx21lp67793o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Kohli refuses Head handshake after heated Hyderabad-Bengaluru clash in IPL](https://www.aljazeera.com/sports/2026/5/23/kohli-refuses-head-handshake-after-heated-hyderabad-bengaluru-clash-in-ipl) - **Al Jazeera English**
+6. [How to watch WWE Saturday Night’s Main Event 2026 (May 23): Start time, full card, live stream](https://www.sportingnews.com/us/wwe/news/watch-wwe-saturday-nights-main-event-2026-may-23/1441a5caaf37a843cb48796b) - **Sporting News**
+7. [Brentford boss warns Liverpool they need ‘special’ Anfield performance](https://www.empireofthekop.com/2026/05/23/brentford-boss-warns-liverpool-they-need-special-anfield-performance/) - **Empire of The Kop**
+8. [“I think about it every day” Arsenal man keeps flirting with a return to his former club](https://www.justarsenal.com/i-think-about-it-every-day-arsenal-man-keeps-flirting-with-a-return-to-his-former-club/415637) - **Just Arsenal News**
+9. [Juventus to challenge Arsenal for Premier League midfielder](https://www.juvefc.com/juventus-to-challenge-arsenal-for-premier-league-midfielder/) - **JuveFC**
+10. [Cristiano Ronaldo is SNUBBED as Saudi Pro League Player of the Season despite finally winning a major trophy with Al-Nassr - with Chelsea flop picking up the award over £480,000-a-day star](https://www.dailymail.com/sport/football/article-15842747/cristiano-ronaldo-saudi-pro-league-player-season-snub.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-05-24 16:49:50 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-24 18:57:47 (KST) / (하루 100회 제한 준수 중)*
