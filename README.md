@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [He's just like him! Meet Liverpool's next Steven Gerrard](https://www.anfieldwatch.co.uk/liverpool-fc/news/luca-eden/) - **Anfieldwatch.co.uk**
-2. [‘Nothing stopping us’ – Hull City pull off unlikely Premier League promotion](https://thefootballfaithful.com/hull-city-premier-league-promotion-lewie-coyle/) - **The Football Faithful**
-3. [FULL LIST: Top 10 most expensive football squads in 2025/2026](https://punchng.com/full-list-top-10-most-expensive-football-squads-in-2025-2026/) - **The Punch**
-4. [Tottenham and West Ham fight for survival, and European places up for grabs Premier League final day](https://www.cbssports.com/soccer/news/tottenham-west-ham-survival-european-places-premier-league-final-day/) - **CBS Sports**
-5. [Spurs sweat over Premier League survival as Salah, Guardiola say goodbye](https://economictimes.indiatimes.com/news/sports/spurs-sweat-over-premier-league-survival-as-salah-guardiola-say-goodbye/articleshow/131285161.cms) - **The Times of India**
-6. [World Cup 2026 expansion raises debate: More teams, more games, but is football losing its edge?](https://economictimes.indiatimes.com/news/sports/world-cup-2026-expansion-raises-debate-more-teams-more-games-but-is-football-losing-its-edge/articleshow/131285090.cms) - **The Times of India**
-7. [Heartbreak for Boro after missing three chances to go up](https://www.bbc.com/sport/football/articles/c9v3l8dyzzpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Emotional Hull celebrate 'incredible' promotion to Premier League](https://sports.yahoo.com/articles/emotional-hull-celebrate-incredible-promotion-191140093.html) - **Yahoo Entertainment**
-9. [City to wear 2026/27 Home Kit for Villa clash](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_de47586c-a361-47c9-9970-26e41acdfa5a) - **Yahoo Entertainment**
-10. [Arsenal Are Keeping A Keen Eye On This Bournemouth Midfielder: Good Fit For Arteta?](https://the4thofficial.net/2026/05/arsenal-are-keeping-a-keen-eye-on-this-bournemouth-midfielder/) - **The4thofficial.net**
+1. [WLOI: Galway stun Athlone late on to hit the summit](https://www.rte.ie/sport/soccer/2026/0523/1574879-wloi-galway-stun-athlone-late-on-to-hit-the-summit/) - **RTE**
+2. [PREVIEW: Sunderland host Chelsea in showdown for European football](https://wp.fromthespot.co.uk/29035/preview-sunderland-host-chelsea-in-showdown-for-european-football/) - **Fromthespot.co.uk**
+3. [Socceroos duo's Premier League dream dashed as Hull beat Middlesbrough](https://www.abc.net.au/news/2026-05-24/hull-city-promoted-to-english-premier-league-in-playoff-final/106714694) - **ABC News (AU)**
+4. [Sandro Tonali: Man United take major step to sign Newcastle star](https://thepeoplesperson.com/2026/05/23/sandro-tonali-man-united-take-major-step-to-sign-newcastle-star-310525/) - **The Peoples Person**
+5. [Manchester United are close to striking a deal for Newcastle United midfield anchor Sandro Tonali](https://sportsview.co.uk/2026/05/manchester-united-are-close-to-striking-a-deal-for-sandro-tonali?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-are-close-to-striking-a-deal-for-sandro-tonali) - **Sportsview.co.uk**
+6. [Hull captain Lewie Coyle dedicates play-off triumph to late father in emotional tribute - before apologising for swearing on Sky Sports](https://www.dailymail.com/sport/football/article-15843585/Hull-captain-Lewie-Coyle-promotion-triumph-late-father-emotional-tribute-apologising-swearing-Sky-Sports.html) - **Dailymail.com**
+7. [England international could join Liverpool with Reds 'keen' on deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/england-international-could-join-liverpool-with-reds-keen-on-deal/) - **Anfieldwatch.co.uk**
+8. [Club Regret €20m Sale As Star Shines For Sunderland: Did The Black Cats Do The Right Thing?](https://the4thofficial.net/2026/05/club-regret-e20m-sale-as-star-shines-for-sunderland-did-the-black-cats-do-the-right-thing/) - **The4thofficial.net**
+9. [Lewis Hall: United on alert after major development at Newcastle](https://thepeoplesperson.com/2026/05/23/lewis-hall-united-on-alert-after-major-development-at-newcastle-310527/) - **The Peoples Person**
+10. [Bruno Fernandes, Nico O'Reilly Earn End Of Season Player Honors](https://www.foxsports.com/stories/soccer/another-award-for-bruno-fernandes-man-utd-midfielder-claims-premier-league-player-of-the-season-as-nico-oreilly-takes-young-player-gong) - **Fox Sports**
 
 
 ---
-*최근 업데이트: 2026-05-25 04:43:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-25 05:59:30 (KST) / (하루 100회 제한 준수 중)*
