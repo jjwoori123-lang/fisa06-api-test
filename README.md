@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Everton at Tottenham: Opposition Analysis | Moyes to Seek a Strong Finish As Criticism Mounts](https://royalbluemersey.sbnation.com/tactical-analysis/80187/everton-at-tottenham-opposition-tactical-analysis-moyes-to-seek-a-strong-finish-as-criticism-mounts) - **SB Nation**
-2. [When was the last time Tottenham played in the Championship?](https://worldsoccertalk.com/news/when-was-the-last-time-tottenham-played-in-the-championship/) - **Worldsoccertalk.com**
-3. [Inside the Kroenke Blueprint that ended Arsenal's title drought: A 'total reset' in 2019, the vital meeting Mikel Arteta was trembling over, Josh Kroenke's cheeky rebuke of Stan and pre-Atletico speech... and what's next including stadium expansion](https://www.dailymail.com/sport/football/article-15842961/Kroenkes-Arsenal-Premier-League-title-Arteta-stadium.html) - **Dailymail.com**
-4. [A 'minor miracle', a Sunderland conspiracy and a bottle of cognac: Those who've survived the agony of a final-day relegation battle reveal how to pull off a Great Escape](https://www.dailymail.com/sport/football/article-15840765/Relegation-final-day-great-escape-miracle-Sunderland-conspiracy-cognac.html) - **Dailymail.com**
-5. [Kun Khalifat rally fans for Wikki visit](https://punchng.com/kun-khalifat-rally-fans-for-wikki-visit/) - **The Punch**
-6. [Remo, Enyimba relegation battle reaches dramatic finale](https://punchng.com/?p=2150249) - **The Punch**
-7. [Kwara keen to extend unbeaten run in Yenagoa](https://punchng.com/kwara-keen-to-extend-unbeaten-run-in-yenagoa/) - **The Punch**
-8. [Pep Guardiola reveals heartwarming message from Sir Alex Ferguson](https://thepeoplesperson.com/2026/05/23/pep-guardiola-reveals-heartwarming-message-from-sir-alex-ferguson-310532/) - **The Peoples Person**
-9. [How Tottenham’s win, draw, or loss vs Everton could affect their Premier League relegation battle](https://worldsoccertalk.com/news/how-tottenhams-win-draw-or-loss-vs-everton-could-affect-their-premier-league-relegation-battle/) - **Worldsoccertalk.com**
-10. [Manuel Ugarte: United deliver brutal update to player’s camp](https://thepeoplesperson.com/2026/05/23/manuel-ugarte-united-deliver-brutal-update-to-players-camp-310530/) - **The Peoples Person**
+1. [EPL: Guardiola backs Man City on 115 financial charges before exit](https://punchng.com/epl-guardiola-backs-man-city-on-115-financial-charges-before-exit/) - **The Punch**
+2. [Transfer bombshell as Liverpool midfielder agrees to £35m move away](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-curtis-jones-inter-milan-bombshell-as-midfielder-agrees-to-ps35m-move-away/) - **Anfieldwatch.co.uk**
+3. [The History of the Indianapolis 500](https://everything-everywhere.com/the-history-of-the-indianapolis-500/) - **Everything-everywhere.com**
+4. [How to watch French Open 2026: FREE Live Streams & TV Channels for Roland-Garros Tennis, Preview](https://www.techradar.com/how-to-watch/tennis/french-open-2026-free-live-streams-roland-garros) - **TechRadar**
+5. [MI vs RR Mumbai Weather Updates: Will rain interrupt the crucial IPL 2026 clash at Wankhede Stadium?](https://economictimes.indiatimes.com/news/new-updates/mi-vs-rr-pitch-report-ipl-2026-mumbai-indians-vs-rajasthan-royals-wankhade-stadium-mumbai-weather-updates-today/articleshow/131289179.cms) - **The Times of India**
+6. [Preview: Tottenham Hotspur vs Everton – stats, team news, line-ups](https://sportsview.co.uk/2026/05/preview-tottenham-hotspur-vs-everton-stats-team-news-line-ups-2?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=preview-tottenham-hotspur-vs-everton-stats-team-news-line-ups-2) - **Sportsview.co.uk**
+7. [Why the stakes are so high for Spurs and West Ham](https://www.bbc.com/sport/football/articles/cpqpyprner9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Why the stakes are so high for Spurs and West Ham](https://www.bbc.com/sport/football/articles/cpqpyprner9o) - **BBC News**
+9. [Mateus Fernandes and Ederson could both arrive this summer](https://thepeoplesperson.com/2026/05/24/mateus-fernandes-and-ederson-could-both-arrive-this-summer-310535/) - **The Peoples Person**
+10. [Manchester City vs Aston Villa – Predicted lineup and team news](https://thefootballfaithful.com/manchester-city-vs-aston-villa-predicted-lineup-and-team-news-2/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-05-25 10:36:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-25 15:09:08 (KST) / (하루 100회 제한 준수 중)*
