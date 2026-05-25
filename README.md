@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [De Zerbi: “I’m happy” after Spurs escape relegation](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/70664/tottenham-hotspur-news-roberto-de-zerbi-press-conference-gallagher-palhinha-bentancur) - **SB Nation**
-2. [Arteta hails Arsenal courage after Premier League title win](https://thefootballfaithful.com/arteta-hails-arsenal-courage-after-premier-league-title-win/) - **The Football Faithful**
-3. [Every Premier League team to have qualified for Europe](https://thefootballfaithful.com/every-premier-league-team-to-have-qualified-for-europe/) - **The Football Faithful**
-4. [Pep: I leave so confident about City looking to the future](https://www.mancity.com/news/mens/pep-guardiola-manchester-city-final-press-conference-reaction-63915248) - **Manchester City FC**
-5. [Arsenal co-chair Josh Kroenke sets sights on Budapest after Premier League triumph](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_965b0e97-1002-4774-abcb-0f9be0cba016) - **Yahoo Entertainment**
-6. [Spurs stay up after De Zerbi arrives in the nick of time](https://www.channelnewsasia.com/sport/spurs-stay-up-after-de-zerbi-arrives-in-nick-time-6139331) - **CNA**
-7. [Four things we learned as Man United crush Brighton 3-0](https://thepeoplesperson.com/2026/05/24/four-things-we-learned-from-brighton-0-3-manchester-united-310558/) - **The Peoples Person**
-8. [‘A moment of deep sadness’ – Espirito Santo on West Ham’s relegation to the Championship](https://hayters.com/a-moment-of-deep-sadness-espirito-santo-on-west-hams-relegation-to-the-championship/) - **Hayters.com**
-9. ['I think I cried more than in my whole life' - Salah](https://www.bbc.com/sport/football/articles/cgjp0p36j83o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Jamie Redknapp accuses Ian Wright of 'going full Salt Bae' as he abandons his work as Sky Sports pundit to celebrate with title-winning Arsenal stars - and wear one of their medals!](https://www.dailymail.com/sport/football/article-15845151/Jamie-Redknapp-Arsenal-Ian-Wright-Salt-Bae-Premier-League.html) - **Dailymail.com**
+1. [Man City 1-2 Aston Villa: Pep Guardiola departs in emotional farewell - BBC](https://slashdot.org/firehose.pl?op=view&amp;id=183381166) - **Slashdot.org**
+2. [Roberto De Zerbi is confident Spurs will be stronger next season](https://hayters.com/roberto-de-zerbi-is-confident-spurs-will-be-stronger-next-season/) - **Hayters.com**
+3. [Manchester United set to earn £191.5m prize money after third-place finish](https://sportsview.co.uk/2026/05/manchester-united-set-to-earn-191-5m-prize-money-after-third-place-finish?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-set-to-earn-191-5m-prize-money-after-third-place-finish) - **Sportsview.co.uk**
+4. [Arteta reflects on 'incredible' level of commitment from his team this season](https://www.bbc.com/sport/football/videos/c4g8vpx16dzo) - **BBC News**
+5. [Casemiro’s Manchester United replacement found as Ederson reportedly agrees a five-year contract with the Red Devils](https://worldsoccertalk.com/news/casemiros-manchester-united-replacement-found-as-ederson-reportedly-agrees-a-five-year-contract-with-the-red-devils/) - **Worldsoccertalk.com**
+6. [Tottenham star hits out at 'unacceptable' season despite avoiding relegation on the final day - labelling the team 'EMBARASSING'](https://www.dailymail.com/sport/football/article-15845143/Tottenham-star-hits-unacceptable-season-despite-avoiding-relegation-final-day-labelling-team-EMBARASSING.html) - **Dailymail.com**
+7. [Premier League finale: West Ham relegated and Spurs stay up as Guardiola, Salah make emotional exits](https://japantoday.com/category/sports/west-ham-and-tottenham-fight-to-avoid-premier-league-relegation-as-guardiola-and-salah-bid-farewell) - **Japan Today**
+8. [‘Tired’ Guardiola struggles to contain his emotions at City farewell](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260524-99-527264/) - **Dpa-international.com**
+9. [Emotional Arteta thrilled by way Arsenal became league champions](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260524-99-527278/) - **Dpa-international.com**
+10. [How Premier League table evolved week-by-week over 38 matchweeks](https://www.skysports.com/football/video/16426/13547736/how-premier-league-table-evolved-week-by-week-over-38-matchweeks-in-2025-2026) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-05-26 05:01:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-26 06:36:49 (KST) / (하루 100회 제한 준수 중)*
