@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Antonio Conte confirms he is leaving Napoli after 2 years in charge, no hint at Italy job](https://sports.yahoo.com/articles/antonio-conte-confirms-leaving-napoli-225454920.html) - **Yahoo Entertainment**
-2. [Nuno: Relegation 'a moment of deep sadness' for West Ham](https://www.rte.ie/sport/soccer/2026/0524/1575057-nuno-relegation-a-moment-of-deep-sadness-for-west-ham/) - **RTE**
-3. [Which IPL team has won most playoff matches? Records, stats for Indian Premier League playoffs](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4412e891-0400-4c6e-827b-dc86c9520493) - **Yahoo Entertainment**
-4. [Christian Pulisic’s AC Milan miss Champions League qualification: Updated 2025–26 Serie A standings after final round](https://worldsoccertalk.com/news/christian-pulisics-ac-milan-miss-champions-league-qualification-updated-2025-26-serie-a-standings-after-final-round/) - **Worldsoccertalk.com**
-5. [Man Utd target West Ham's Fernandes - Monday's gossip](https://www.bbc.com/sport/football/articles/c0r2xpg29dpo) - **BBC News**
-6. [Mokoena, Williams play key roles as Sundowns become champions](https://sports.yahoo.com/articles/mokoena-williams-play-key-roles-215036607.html) - **Yahoo Entertainment**
-7. [From rebuilding to champions: Why Arteta has earned his Arsenal legacy](https://www.justarsenal.com/from-rebuilding-to-champions-why-arteta-has-earned-his-arsenal-legacy/415704) - **Just Arsenal News**
-8. [Arsenal crowned Premier League champions after Palace win](https://punchng.com/arsenal-crowned-premier-league-champions-after-palace-win/) - **The Punch**
-9. [Man City 1-2 Aston Villa: Pep Guardiola departs in emotional farewell - BBC](https://slashdot.org/firehose.pl?op=view&amp;id=183381166) - **Slashdot.org**
+1. [Bournemouth's European dream a 'perfect ending', says departing Iraola](https://www.channelnewsasia.com/sport/bournemouths-european-dream-perfect-ending-says-departing-iraola-6139816) - **CNA**
+2. [A bit of Pep Guardiola in every English football game, from Premiership to Sunday leagues](https://indianexpress.com/article/sports/football/pep-guardiola-legacy-man-city-english-football-revolution-10706320/) - **The Indian Express**
+3. [Did the Giants just end the Lions AFL premiership hopes?](https://www.abc.net.au/news/2026-05-25/did-the-giants-just-end-the-lions-afl-2026-premiership-hopes/106717710) - **ABC News (AU)**
+4. [NFF congratulates title-winning Eagles, Falcons](https://punchng.com/?p=2150834) - **The Punch**
+5. [USMNT roster watch: As World Cup camp opens, optimism comes with a layer of murkiness](https://sports.yahoo.com/soccer/article/usmnt-roster-watch-as-world-cup-camp-opens-optimism-comes-with-a-layer-of-murkiness-021040650.html) - **Yahoo Entertainment**
+6. [Arteta urges Arsenal to make history in Champions League final](https://sports.yahoo.com/articles/arteta-urges-arsenal-history-champions-015515788.html) - **Yahoo Entertainment**
+7. [3SC end 27-year wait for continental ticket](https://punchng.com/3sc-end-27-year-wait-for-continental-ticket/) - **The Punch**
+8. [Arsenal crowned EPL champions with win over Palace](https://thechronicle.com.gh/arsenal-crowned-epl-champions-with-win-over-palace/) - **Thechronicle.com.gh**
+9. [Manchester United win at Brighton as Fernandes sets assists record](https://thechronicle.com.gh/manchester-united-win-at-brighton-as-fernandes-sets-assists-record/) - **Thechronicle.com.gh**
+10. [What next for Spurs after avoiding relegation: The SIX stars who could leave in summer clear-out, the two free agents set to join, the players club chiefs should be targeting - and Roberto De Zerbi's warning to academy graduates](https://www.dailymail.com/sport/football/article-15840325/tottenham-avoiding-relegation.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-05-26 08:45:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-26 12:53:23 (KST) / (하루 100회 제한 준수 중)*
