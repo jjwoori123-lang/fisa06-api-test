@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Rio Ferdinand urges Man United to make stunning Robert Lewandowski call](https://thepeoplesperson.com/2026/05/25/rio-ferdinand-urges-man-united-to-make-stunning-robert-lewandowski-call-310605/) - **The Peoples Person**
-2. [Chelsea Midfielder Is Set To Leave This Summer: Can The Blues Afford To Lose Him?](https://the4thofficial.net/2026/05/chelsea-midfielder-is-set-to-leave-this-summer-can-the-blues-afford-to-lose-him/) - **The4thofficial.net**
-3. [Liverpool In 'Concrete Talks' To Beat Man City To Sign 16-Year Old Midfielder](https://www.foxsports.com/stories/soccer/liverpool-in-concrete-talks-to-beat-man-city-to-major-midfield-transfer) - **Fox Sports**
-4. [Timbers and coach Phil Neville part ways after disappointing start to MLS season](https://sports.yahoo.com/articles/timbers-coach-phil-neville-part-191641665.html) - **Yahoo Entertainment**
-5. [Report: Man United have set their sights on move for Premier League defender](https://eplindex.com/146827/report-man-united-have-set-their-sights-on-move-for-premier-league-defender.html) - **English Premier League Index - Opta Stats**
-6. [Ousmane Dembele, Achraf Hakimi Miss PSG Friendly Before Champions League Final](https://www.foxsports.com/stories/soccer/boost-for-arsenal-ousmane-dembele-achraf-hakimi-both-miss-in-house-psg-friendly-as-injury-fears-grow-ahead-of-champions-league-final) - **Fox Sports**
-7. [PREVIEW | Crystal Palace vs Rayo Vallecano: team news, lineups, predictions (Europa Conference League 27/05)](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1fb3d1fa-5135-4768-95c6-961377d0daab) - **Yahoo Entertainment**
-8. [Arsenal Are Among The Clubs Monitoring The Progress Of This Atletico Madrid Star: Should Arteta Go For Him?](https://the4thofficial.net/2026/05/arsenal-are-among-the-clubs-monitoring-the-progress-of-this-atletico-madrid-star-should-arteta-go-for-him/) - **The4thofficial.net**
-9. [PSG joins Arsenal in the race for relegated Premier League star](https://www.justarsenal.com/psg-joins-arsenal-in-the-race-for-relegated-premier-league-star/415773) - **Just Arsenal News**
-10. [Hugo Viana holds informal Manchester City transfer talks with Chelsea’s Enzo Fernandez](https://cityxtra.co.uk/47130/hugo-viana-hold-informal-manchester-city-transfer-talks-with-chelseas-enzo-fernandez/) - **Cityxtra.co.uk**
+1. [Joshua Zirkzee: Two Italian giants offered the chance to sign United ace](https://thepeoplesperson.com/2026/05/25/joshua-zirkzee-two-italian-giants-offered-the-chance-to-sign-united-ace-310611/) - **The Peoples Person**
+2. [For Mike Brown, the Knicks’ NBA Finals run is far greater than he envisioned](https://www.nydailynews.com/2026/05/25/for-mike-brown-the-knicks-nba-finals-run-is-far-greater-than-he-envisioned/) - **New York Daily News**
+3. [Liverpool legend Michael Owen picks Jarrod Bowen as ‘perfect’ Mohamed Salah’s replacement](https://worldsoccertalk.com/news/liverpool-legend-michael-owen-picks-jarrod-bowen-as-perfect-mohamed-salahs-replacement/) - **Worldsoccertalk.com**
+4. [Pandemonium and despair at Dalymount as Rovers score last-minute winner over Bohs](https://www.irishtimes.com/sport/soccer/2026/05/25/pandemonium-and-despair-at-dalymount-as-rovers-score-last-minute-winner-over-bohs/) - **The Irish Times**
+5. [Roy Keane ramps up his Bruno Fernandes spat with cryptic Instagram post after Manchester United icon was branded as a 'liar' by Red Devils captain](https://www.dailymail.com/sport/football/article-15847513/Roy-Keane-ramps-Bruno-Fernandes-spat-cryptic-Instagram-post-Manchester-United-icon-branded-liar-Red-Devils-captain.html) - **Dailymail.com**
+6. [What is RCB's record in IPL playoffs? Matches, wins, highest scores for Royal Challengers Bengaluru in IPL qualifiers and eliminators](https://www.sportingnews.com/in/cricket/news/rcb-record-ipl-playoffs-matches-wins-qualifiers-eliminators/a0e830f9ff6d49566040e690) - **Sporting News**
+7. [Arteta urges Arsenal to make history in Champions League final](https://japantoday.com/category/sports/arteta-urges-arsenal-to-make-history-in-champions-league-final) - **Japan Today**
+8. [Hoops nab late winner to claim derby spoils at Bohemians](https://www.rte.ie/sport/soccer/2026/0525/1575084-hoops-hit-late-winner-to-claim-derby-points-at-bohemians/) - **RTE**
+9. [Super Netball record broken by 16yo school captain Eva Carneiro](https://www.abc.net.au/news/2026-05-26/2026-super-netball-round-up-round11/106720046) - **ABC News (AU)**
+10. [Dark clouds hang over South Korea for Son's likely World Cup farewell](https://japantoday.com/category/2026-fifa-world-cup/dark-clouds-hang-over-south-korea-for-son%27s-likely-world-cup-farewell) - **Japan Today**
 
 
 ---
-*최근 업데이트: 2026-05-27 04:43:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-27 06:47:22 (KST) / (하루 100회 제한 준수 중)*
