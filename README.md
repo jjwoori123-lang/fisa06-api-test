@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Thierry Henry reacts after Bruno Fernandes smashes his assist record](https://thepeoplesperson.com/2026/05/25/thierry-henry-reacts-after-bruno-fernandes-smashes-his-assist-record-310595/) - **The Peoples Person**
-2. [Worse than Moyes: Liverpool put up 3rd-worst Premier League title defence](https://www.anfieldwatch.co.uk/liverpool-fc/news/worse-than-moyes-liverpool-put-up-3rd-worst-premier-league-title-defence/) - **Anfieldwatch.co.uk**
-3. [Cherries stadium expansion to 'deliver for community'](https://www.bbc.com/news/articles/c8e88w440geo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Oyo APC chieftain lauds 3SC on CAF confederation cup qualification](https://punchng.com/oyo-apc-chieftain-lauds-3sc-on-caf-confederation-cup-qualification/) - **The Punch**
-5. [Canada coach Marsch loads up on defender invites to World Cup camp as star Davies's injury status uncertain](https://www.cbc.ca/sports/soccer/canada-soccer-camp-roster-chris-jones-may-25-9.7210920) - **CBC News**
-6. [Fulham 2-0 Newcastle — Match Report: That’s All, Folks](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_09c32f28-0348-4cc7-bf7a-70207107dc15) - **Yahoo Entertainment**
-7. [10 years with Pep: Pre-order stunning illustrative book – available exclusively to members](https://www.mancity.com/news/mens/pep-guardiola-illustrative-book-63915258) - **Manchester City FC**
-8. [Ian Wright says there is a window for Arsenal to dominate the Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_131513ca-a260-421b-8fc5-064733062eff) - **Yahoo Entertainment**
-9. [Ian Wright says there is a window for Arsenal to dominate the Premier League](https://www.justarsenal.com/ian-wright-says-there-is-a-window-for-arsenal-to-dominate-the-premier-league/415750) - **Just Arsenal News**
-10. [Historic Snub! No Real Madrid Players In Spain World Cup Squad](https://www.rediff.com/sports/report/spain-go-to-fifa-world-cup-without-real-madrid-for-first-time-since-1950/20260525.htm) - **Rediff.com**
+1. [Why Harry Kane Continues To Delay His Bayern Munich Contract Extension](https://www.foxsports.com/stories/soccer/why-harry-kane-continues-to-delay-bayern-munich-contract-extension-after-61-goal-season) - **Fox Sports**
+2. [Report: Spurs reach agreement to sign 29-year-old Premier League star](https://eplindex.com/146805/spurs-reach-agreement-to-sign-29-year-old-premier-league-star.html) - **English Premier League Index - Opta Stats**
+3. [Haaland: There will be much more to come from City!](https://www.mancity.com/news/mens/erling-haaland-trophy-parade-more-to-come-63915326) - **Manchester City FC**
+4. [Lionel Messi To Lazio? Former Barcelona Teammate Reveals His Pitch](https://www.foxsports.com/stories/soccer/lionel-messi-at-lazio-ex-barcelona-forward-pedro-names-players-he-made-transfer-plays-for-with-david-de-gea-also-figuring-on-star-studded-list) - **Fox Sports**
+5. [Journalist: Liverpool have set their sights on move for forward with ‘ridiculous’ numbers](https://anfieldindex.com/94486/journalist-liverpool-have-set-their-sights-on-move-for-forward-with-ridiculous-numbers.html) - **Anfieldindex.com**
+6. ['Brilliant sellers' Bournemouth could experience 'dip' next season](https://www.bbc.com/sport/football/articles/c78qqd9wql4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [David Beckham and Gary Neville look glum in scorching Wembley heat as Salford City sink to a comprehensive defeat in League Two play-off final against Notts County](https://www.dailymail.com/sport/football/article-15847021/David-Beckham-Gary-Neville-look-glum-scorching-Wembley-heat-Salford-City-sink-comprehensive-defeat-League-Two-play-final-against-Notts-County.html) - **Dailymail.com**
+8. [Watch: De Zerbi greets his biggest critic with a handshake after keeping Tottenham Hotspur up](https://football-italia.net/de-zerbi-calls-out-negative-journalist/) - **Football Italia**
+9. [Why does Liverpool's new kit not match?](https://www.bbc.com/sport/football/articles/cd9ppl83j8go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-26 23:16:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-27 02:38:17 (KST) / (하루 100회 제한 준수 중)*
