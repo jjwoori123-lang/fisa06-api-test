@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ref Watch LIVE! Fofana red card and more analysed from PL final day](https://www.skysports.com/football/live-blog/11095/13547810/ref-watch-live-premier-league-scottish-premiership-and-efl-incidents-analysed-by-dermot-gallagher-and-jay-bothroyd) - **Sky Sports**
-2. ['Keep the vultures away' after 'fantastic season' - fans on end of campaign](https://www.bbc.com/sport/football/articles/cx21ej0d4jxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. ['Hearts' Shankland agrees free transfer to Rangers' - gossip](https://www.bbc.com/sport/football/articles/cx2192w7n19o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Chelsea may benefit from missing Europe next season, says Rooney](https://punchng.com/chelsea-may-benefit-from-missing-europe-next-season-says-rooney/) - **The Punch**
-5. [Golden Boot: Premier League Top Scorers for 2025/26](https://thefootballfaithful.com/golden-boot-premier-league-top-scorers-for-2025-26/) - **The Football Faithful**
-6. [Aussie cricket star Travis Head and his wife cop vile abuse after he was snubbed by Indian cricket legend: 'They are attacking my friends and family'](https://www.dailymail.com/sport/cricket/article-15845489/Travis-Head-wife-abuse-Virat-Kohli-Indian-Premier-League-cricket.html) - **Dailymail.com**
-7. ['Hearts' Shankland agrees free transfer to Rangers' - gossip](https://www.bbc.com/sport/football/articles/cx2192w7n19o) - **BBC News**
-8. [Liverpool fans serenaded Caoimhin Kelleher with 3-word chant on his Anfield return](https://www.empireofthekop.com/2026/05/25/liverpool-fans-serenaded-kelleher-with-3-word-chant-on-anfield-return/) - **Empire of The Kop**
-9. [Best photos as Arsenal lift Premier League trophy](https://dailycannon.com/2026/05/best-photos-arsenal-premier-league-trophy/) - **Dailycannon.com**
-10. ['Arsenal rolled their sleeves up'](https://www.bbc.com/sport/football/articles/cy7214r4d6zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Thierry Henry reacts after Bruno Fernandes smashes his assist record](https://thepeoplesperson.com/2026/05/25/thierry-henry-reacts-after-bruno-fernandes-smashes-his-assist-record-310595/) - **The Peoples Person**
+2. [Worse than Moyes: Liverpool put up 3rd-worst Premier League title defence](https://www.anfieldwatch.co.uk/liverpool-fc/news/worse-than-moyes-liverpool-put-up-3rd-worst-premier-league-title-defence/) - **Anfieldwatch.co.uk**
+3. [Cherries stadium expansion to 'deliver for community'](https://www.bbc.com/news/articles/c8e88w440geo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Oyo APC chieftain lauds 3SC on CAF confederation cup qualification](https://punchng.com/oyo-apc-chieftain-lauds-3sc-on-caf-confederation-cup-qualification/) - **The Punch**
+5. [Canada coach Marsch loads up on defender invites to World Cup camp as star Davies's injury status uncertain](https://www.cbc.ca/sports/soccer/canada-soccer-camp-roster-chris-jones-may-25-9.7210920) - **CBC News**
+6. [Fulham 2-0 Newcastle — Match Report: That’s All, Folks](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_09c32f28-0348-4cc7-bf7a-70207107dc15) - **Yahoo Entertainment**
+7. [10 years with Pep: Pre-order stunning illustrative book – available exclusively to members](https://www.mancity.com/news/mens/pep-guardiola-illustrative-book-63915258) - **Manchester City FC**
+8. [Ian Wright says there is a window for Arsenal to dominate the Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_131513ca-a260-421b-8fc5-064733062eff) - **Yahoo Entertainment**
+9. [Ian Wright says there is a window for Arsenal to dominate the Premier League](https://www.justarsenal.com/ian-wright-says-there-is-a-window-for-arsenal-to-dominate-the-premier-league/415750) - **Just Arsenal News**
+10. [Historic Snub! No Real Madrid Players In Spain World Cup Squad](https://www.rediff.com/sports/report/spain-go-to-fifa-world-cup-without-real-madrid-for-first-time-since-1950/20260525.htm) - **Rediff.com**
 
 
 ---
-*최근 업데이트: 2026-05-26 16:53:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-26 23:16:37 (KST) / (하루 100회 제한 준수 중)*
