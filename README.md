@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [5 Takeaways From USA's World Cup Roster Selection](https://www.foxsports.com/stories/soccer/5-takeaways-from-usmnt-world-cup-roster-selection) - **Fox Sports**
-2. [Barcelona line up €20m move for teenager likened to Neymar Junior](https://www.football-espana.net/2026/05/26/barcelona-e20m-move-teenager) - **Football Espana**
-3. [USMNT World Cup roster: Four thoughts as Pochettino names 26-man USA squad](https://www.usatoday.com/story/sports/soccer/usmnt/2026/05/26/usmnt-world-cup-roster-analysis-2026-usa-team-mauricio-pochettino/90256258007/) - **USA Today**
-4. [Mauricio Pochettino’s USMNT World Cup squad is officially revealed](https://sports.yahoo.com/soccer/article/mauricio-pochettinos-usmnt-world-cup-squad-is-officially-revealed-193942199.html) - **Yahoo Entertainment**
-5. [Five biggest USMNT World Cup roster snubs: Who missed out on Pochettino's squad?](https://www.usatoday.com/story/sports/soccer/worldcup/2026/05/26/usmnt-2026-world-cup-roster-snubs/90244610007/) - **USA Today**
-6. [USA's 2026 FIFA World Cup Roster: The 26 Players Ready To Make History](https://www.foxsports.com/stories/soccer/usmnt-world-cup-roster-2026-pulisic-mckennie-weah-adams) - **Fox Sports**
-7. [Bruno Fernandes: United star makes surprise Watford admission](https://thepeoplesperson.com/2026/05/26/bruno-fernandes-united-star-makes-surprise-watford-admission-310648/) - **The Peoples Person**
-8. [Graham Platner runs controversial ad during Red Sox game vowing to ‘reverse the private equity curse’](https://fortune.com/2026/05/26/platner-red-sox-nesn-ad-pulled-private-equity-maine-senate/) - **Fortune**
-9. [Barcelona Eyes Pre-World Cup Talks With Man United Over Marcus Rashford Transfer](https://www.foxsports.com/stories/soccer/marcus-rashford-has-no-future-at-man-united-as-barcelona-plan-fresh-transfer-talks-with-red-devils-before-world-cup) - **Fox Sports**
-10. ['RCB have cracked the IPL formula': Andy Flower and coaching unit hailed as team reaches back-to-back finals](https://www.cricketnews.com/en/cricket/news/rcb-cracked-ipl-formula-andy-flower-coaching-reaches-back-back-finals/64602d47b8d17015002b6b98) - **Cricketnews.com**
+1. [ Mikel Arteta named LMA Manager of the Season](https://onefootball.com/en/news/mikel-arteta-named-lma-manager-of-the-season-42926698) - **Onefootball.com**
+2. [Spurs launch review after season of injury woe](https://www.bbc.com/sport/football/articles/cz0225ly855o) - **BBC News**
+3. [USMNT World Cup roster needed to have “the best balance, right players”](https://sbisoccer.com/2026/05/usmnt-world-cup-roster-needed-to-have-the-best-balance-right-players) - **Sbisoccer.com**
+4. [Luke Littler opens up on surreal Windsor Castle meeting as Prince William hints at attending Ally Pally darts event](https://timesofindia.indiatimes.com/sports/international-sports/luke-littler-opens-up-on-surreal-windsor-castle-meeting-as-prince-william-hints-at-attending-ally-pally-darts-event/articleshow/131337299.cms) - **The Times of India**
+5. [Tottenham set to TEST their stadium and training ground surfaces as part of mass review of last season's injury crisis - as initial findings are revealed](https://www.dailymail.com/sport/football/article-15849405/Spurs-TEST-playing-surfaces-injury-crisis-review.html) - **Dailymail.com**
+6. [Madueke says pressure still on despite Premier League title win](https://www.bbc.com/sport/football/articles/ckgpp60ex92o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Spurs conduct major review to address 'astronomical' injury problems](https://www.skysports.com/football/news/11675/13547360/spurs-conduct-major-review-into-injury-crisis-with-stadiums-retractable-pitch-one-area-investigated) - **Sky Sports**
+8. [Arteta wins Premier League Manager of the Season](http://www.arsenal.com/news/arteta-wins-premier-league-manager-season) - **Arsenal.com**
+9. [Premier League success not enough to satisfy Arsenal’s Noni Madueke](https://hayters.com/noni-madueke-arsenal/) - **Hayters.com**
 
 
 ---
-*최근 업데이트: 2026-05-28 04:47:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-28 06:58:40 (KST) / (하루 100회 제한 준수 중)*
