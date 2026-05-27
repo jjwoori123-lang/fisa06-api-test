@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Is Gardner Minshew the Cardinals answer at quarterback in 2026?](https://burncitysports.com/2026/05/25/gardner-minshew-cardinals-answer-qb/) - **Burncitysports.com**
-2. [Injury rules Spurs' Kudus out of Ghana's World Cup squad](https://www.channelnewsasia.com/sport/injury-rules-spurs-kudus-out-ghanas-world-cup-squad-6141401) - **CNA**
-3. [Seattle Mariners reveal promising Cal Raleigh update amid frustrating 2026 season](https://www.sportingnews.com/us/mlb/seattle-mariners/news/seattle-mariners-reveal-promising-cal-raleigh-update-amid-frustrating-2026-season/83c3f976e496c168aba5fae1) - **Sporting News**
-4. [Looking back at AJ Dybantsa’s best BYU performances](https://www.deseret.com/sports/2026/05/25/aj-dybantsa-best-byu-performances-potential-top-nba-draft-pick/) - **Deseret News**
-5. [Reports: Juventus trying to hijack Tottenham’s deal for Andy Robertson](https://www.blackwhitereadallover.com/juventus-transfer-rumours-news/38586/andy-robertson-juventus-tottenham-hotspur-liverpool-2026-serie-a-summer-transfer-rumors) - **Black & White & Read All Over**
-6. [Former Manchester United star Phil Neville axed as manager of MLS side Portland Timbers after humiliating start to season](https://www.dailymail.com/sport/football/article-15847507/phil-neville-portland-timbers-exit.html) - **Dailymail.com**
-7. [Dele-Bashiru gets fiery Gattuso as new Lazio coach](https://punchng.com/dele-bashiru-gets-fiery-gattuso-as-new-lazio-coach/) - **The Punch**
-8. [Evra tags Osimhen dream United signing](https://punchng.com/evra-tags-osimhen-dream-united-signing/) - **The Punch**
-9. [Remo vow to rebuild after NPFL relegation](https://punchng.com/remo-vow-to-rebuild-after-npfl-relegation/) - **The Punch**
-10. [AFCON qualifiers: Chelle warns Eagles against complacency](https://punchng.com/afcon-qualifiers-chelle-warns-eagles-against-complacency/) - **The Punch**
+1. [Barcelona sporting director in London to make another attempt to sign Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_db68b911-4445-4657-bfb7-2d1fa46b1b01) - **Yahoo Entertainment**
+2. [Liverpool legend could make shock move as big-money offer made](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-legend-could-make-shock-move-as-big-money-offer-made/) - **Anfieldwatch.co.uk**
+3. [Tuesday’s Everton News: Spurs defeat fallout, March and Esteve links](https://royalbluemersey.sbnation.com/everton-news/80236/spurs-defeat-fallout-march-and-esteve-links) - **SB Nation**
+4. [Maria Guardiola’s beautiful tribute to father Pep wins Manchester City fans’ hearts](https://cityxtra.co.uk/47156/maria-guardiolas-beautiful-tribute-to-father-pep-wins-manchester-city-fans-hearts/) - **Cityxtra.co.uk**
+5. [Chelsea issue strong rebuttal to Barcelona amid Deco talks with agent](https://www.football-espana.net/2026/05/26/chelsea-rebuttal-barcelona-deco-talks) - **Football Espana**
+6. [Tottenham set to beat Liverpool in the race to sign Marcos Senesi](https://sportsview.co.uk/2026/05/tottenham-set-to-beat-liverpool-in-the-race-to-sign-marcos-senesi?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-set-to-beat-liverpool-in-the-race-to-sign-marcos-senesi) - **Sportsview.co.uk**
+7. [Kobbie Mainoo: Alonso wants United midfielder to join him at Chelsea](https://thepeoplesperson.com/2026/05/26/kobbie-mainoo-alonso-wants-united-midfielder-to-join-him-at-chelsea-310613/) - **The Peoples Person**
+8. [Sunderland’s Class Of 2025/2026 Are The Immortals](https://rokerreport.sbnation.com/opinion/138926/sunderlands-class-of-2025-2026-are-the-new-immortals) - **SB Nation**
+9. [“One Day, One Game, One Moment”](https://rokerreport.sbnation.com/features/139122/one-day-one-game-one-moment) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-05-27 10:28:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-27 15:00:35 (KST) / (하루 100회 제한 준수 중)*
