@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal receive injury boost ahead of Champions League final](https://dailycannon.com/2026/05/arsenal-madueke-injury-psg-final/) - **Dailycannon.com**
-2. [Rio Ferdinand reveals he's now earning MORE than his £120,000-a-week peak wages at Man United after moving to Dubai and with his investments and podcast portfolio](https://www.dailymail.com/sport/football/article-15851361/rio-ferdinand-media-empire-man-united.html) - **Dailymail.com**
-3. [Apple Bringing Back ‘After the Whistle’ Podcast, Hosted by ‘Ted Lasso’ Star Brendan Hunt and Sports Broadcaster Rebecca Lowe, for World Cup](https://variety.com/2026/digital/news/apple-after-the-whistle-podcast-brendan-hunt-rebecca-lowe-season-3-1236759208/) - **Variety**
-4. [Barcelona make offer to sign Gordon as talks advance](https://www.skysports.com/transfer/news/12691/13547826/anthony-gordon-transfer-news-barcelona-join-bayern-munich-in-race-to-sign-newcastle-winger) - **Sky Sports**
-5. [Barcelona join race to sign Gordon as talks begin](https://www.skysports.com/transfer/news/12691/13547826/anthony-gordon-transfer-news-barcelona-join-bayern-munich-in-the-race-to-sign-newcastle-winger) - **Sky Sports**
-6. [Celtic's Denmark great Schmeichel forced to retire](https://www.rte.ie/sport/soccer/2026/0527/1575474-celtics-denmark-great-schmeichel-forced-to-retire/) - **RTE**
-7. [10 players to watch at the World Cup](https://sports.yahoo.com/articles/10-players-watch-world-cup-095758722.html) - **Yahoo Entertainment**
-8. [Barcelona take the lead in £80m fight to sign Anthony Gordon from Newcastle - as two other options Liverpool are focusing on are named](https://www.dailymail.com/sport/football/article-15851739/Barcelona-Gordon.html) - **Dailymail.com**
-9. [Latest: Exclusive claims Chelsea player has asked to leave in direct meeting with the club](https://chelsea.news/2026/05/exclusive-chelsea-player-asked-to-leave-latest/) - **Chelsea.news**
+1. [Declan Rice sends message to West Ham after relegation](https://dailycannon.com/2026/05/rice-west-ham-relegation-message/) - **Dailycannon.com**
+2. [Ahead of the World Cup, ‘After the Whistle with Brendan Hunt and Rebecca Lowe’ podcast returns](https://macdailynews.com/2026/05/27/ahead-of-the-world-cup-after-the-whistle-with-brendan-hunt-and-rebecca-lowe-podcast-returns/) - **Macdailynews.com**
+3. [A closer look at the 2025-26 Americans Abroad statistics and performances](https://sbisoccer.com/2026/05/a-closer-look-at-the-2025-26-americans-abroad-statistics-and-performances) - **Sbisoccer.com**
+4. [Liverpool full-back Frimpong left out of Netherlands World Cup squad](https://thefootballfaithful.com/liverpool-full-back-frimpong-left-out-of-netherlands-world-cup-squad/) - **The Football Faithful**
+5. [Patrick Vieira explains why this Arsenal team can dominate the league](https://www.justarsenal.com/patrick-vieira-explains-why-this-arsenal-team-can-dominate-the-league/415868) - **Just Arsenal News**
+6. [Italy’s Vicario nominated for Premier League award at Tottenham](https://football-italia.net/vicario-nominated-premier-league-tottenham/) - **Football Italia**
+7. [Homegrown star “key topic” in discussions between Liverpool and Italian giants](https://anfieldindex.com/94539/homegrown-star-key-topic-in-discussions-between-liverpool-and-italian-giants.html) - **Anfieldindex.com**
+8. [U.S. World Cup roster again includes 'Medford Messi' Brenden Aaronson](https://www.courierpostonline.com/story/sports/2026/05/27/us-world-cup-roster-brenden-aaronson-nj-gov-mikie-sherrill/90274804007/) - **Courier Post**
+9. [Premier League dominates Netherlands World Cup squad](https://www.bbc.com/sport/football/articles/cgqpj3xk9e0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Premier League worst XI: The flops of the 2025/26 season](https://www.101greatgoals.com/football/premier-league/the-premier-league-worst-xi-does-you-teams-flop-make-it/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-05-28 19:07:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-28 23:06:56 (KST) / (하루 100회 제한 준수 중)*
