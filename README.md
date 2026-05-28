@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Declan Rice sends message to West Ham after relegation](https://dailycannon.com/2026/05/rice-west-ham-relegation-message/) - **Dailycannon.com**
-2. [Ahead of the World Cup, ‘After the Whistle with Brendan Hunt and Rebecca Lowe’ podcast returns](https://macdailynews.com/2026/05/27/ahead-of-the-world-cup-after-the-whistle-with-brendan-hunt-and-rebecca-lowe-podcast-returns/) - **Macdailynews.com**
-3. [A closer look at the 2025-26 Americans Abroad statistics and performances](https://sbisoccer.com/2026/05/a-closer-look-at-the-2025-26-americans-abroad-statistics-and-performances) - **Sbisoccer.com**
-4. [Liverpool full-back Frimpong left out of Netherlands World Cup squad](https://thefootballfaithful.com/liverpool-full-back-frimpong-left-out-of-netherlands-world-cup-squad/) - **The Football Faithful**
-5. [Patrick Vieira explains why this Arsenal team can dominate the league](https://www.justarsenal.com/patrick-vieira-explains-why-this-arsenal-team-can-dominate-the-league/415868) - **Just Arsenal News**
-6. [Italy’s Vicario nominated for Premier League award at Tottenham](https://football-italia.net/vicario-nominated-premier-league-tottenham/) - **Football Italia**
-7. [Homegrown star “key topic” in discussions between Liverpool and Italian giants](https://anfieldindex.com/94539/homegrown-star-key-topic-in-discussions-between-liverpool-and-italian-giants.html) - **Anfieldindex.com**
-8. [U.S. World Cup roster again includes 'Medford Messi' Brenden Aaronson](https://www.courierpostonline.com/story/sports/2026/05/27/us-world-cup-roster-brenden-aaronson-nj-gov-mikie-sherrill/90274804007/) - **Courier Post**
-9. [Premier League dominates Netherlands World Cup squad](https://www.bbc.com/sport/football/articles/cgqpj3xk9e0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Premier League worst XI: The flops of the 2025/26 season](https://www.101greatgoals.com/football/premier-league/the-premier-league-worst-xi-does-you-teams-flop-make-it/) - **101 Great Goals**
+1. [Barcelona agree €80m deal to sign forward from Premier League club](https://www.football-espana.net/2026/05/27/barcelona-agree-e81m-deal-forward-premier-league) - **Football Espana**
+2. [From Spain: Manchester City initiate contact over transfer for Tottenham defender](https://cityxtra.co.uk/47299/from-spain-manchester-city-initiate-contact-over-transfer-for-tottenham-defender/) - **Cityxtra.co.uk**
+3. [Arsenal striker Gabriel Jesus expected to be sold for around £5m](https://sportsview.co.uk/2026/05/arsenal-striker-gabriel-jesus-expected-to-be-sold-for-around-5m?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-striker-gabriel-jesus-expected-to-be-sold-for-around-5m) - **Sportsview.co.uk**
+4. [Why Putellas to London City would be biggest signing in WSL history](https://www.bbc.com/sport/football/articles/c072yde8vp5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Why Putellas to London City would be biggest signing in WSL history](https://www.bbc.com/sport/football/articles/c072yde8vp5o) - **BBC News**
+6. [As Demand for Immersive Entertainment Experiences Increases, Sandbox VR Opens its Third Location in Las Vegas](https://www.prnewswire.com/news-releases/as-demand-for-immersive-entertainment-experiences-increases-sandbox-vr-opens-its-third-location-in-las-vegas-302783439.html) - **PRNewswire**
+7. [Morrison signs new deal at Liverpool](https://www.bbc.com/sport/football/articles/cj4pgw01wz5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Premier League club make intentions clear amid Florian Wirtz future doubts](https://www.anfieldwatch.co.uk/liverpool-fc/news/premier-league-club-make-intentions-clear-amid-florian-wirtz-future-doubts-chelsea-xabi-alonso/) - **Anfieldwatch.co.uk**
+9. [The Carrick revolution: Man Utd keen to offload three Ten Hag signings](https://strettynews.com/2026/05/27/man-united-manuel-ugarte-andre-onana-joshua-zirkzee/) - **Strettynews.com**
+10. [What Liverpool really think about Juventus pursuit of Alisson Becker](https://www.juvefc.com/what-liverpool-really-think-about-juventus-pursuit-of-alisson-becker/) - **JuveFC**
 
 
 ---
-*최근 업데이트: 2026-05-28 23:06:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-29 02:45:24 (KST) / (하루 100회 제한 준수 중)*
