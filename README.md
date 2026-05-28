@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [‘Top club’ — Bayern Munich’s João Palhinha wants Tottenham Hotspur stay](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/205642/bayern-munich-joao-palhinha-wants-tottenham-hotspur-stay-epl-relegation-sporting-cp) - **Bavarian Football Works**
-2. [David Beckham Just Became the Uk’s First Billionaire Athlete, Then Took the Family to Ibiza.](https://thoughtcatalog.com/january-nelson/2026/05/david-beckham-just-became-the-uks-first-billionaire-athlete-then-took-the-family-to-ibiza/) - **Thoughtcatalog.com**
-3. [Ex-Golden Eaglets player Udoh dies at 21](https://punchng.com/ex-golden-eaglets-player-udoh-dies-at-21/) - **The Punch**
-4. [Surprise NFC Team Named Championship Contender by Top NFL Analyst](https://sports.yahoo.com/articles/surprise-nfc-team-named-championship-004745156.html) - **Yahoo Entertainment**
-5. [Inglis to captain Australia in Pakistan ODIs, Marsh injured](https://www.channelnewsasia.com/sport/inglis-captain-australia-in-pakistan-odis-marsh-injured-6143641) - **CNA**
-6. [Why PSG Winning the Champions League Would Be a Win For Attacking Football](https://psgtalk.com/2026/05/why-psg-winning-the-champions-league-would-be-a-win-for-attacking-football/) - **Psgtalk.com**
-7. [Joel Klatt: 10 Dream SEC-Big Ten College Football Matchups](https://www.foxsports.com/stories/college-football/joel-klatt-10-dream-sec-big-ten-college-football-matchups) - **Fox Sports**
-8. [Southampton mourn 21-year-old former Nigerian winger Udoh](https://punchng.com/southampton-mourn-21-year-old-former-nigerian-winger-udoh/) - **The Punch**
-9. [Seahawks DT Leonard Williams approaches major contract year in 2026](https://seahawkswire.usatoday.com/story/sports/nfl/seahawks/2026/05/26/seahawks-dt-leonard-williams-in-the-final-year-of-his-current-contract/90257595007/) - **USA Today**
-10. [Could Lionel Messi And Cristiano Ronaldo Team Up On Wrexham?: 'Why Not?'](https://www.foxsports.com/stories/soccer/could-lionel-messi-cristiano-ronaldo-team-up-wrexham-why-not) - **Fox Sports**
+1. [Enzo Maresca reportedly believes a Chelsea midfielder can add a different dimension to Manchester City](https://esteemedkompany.com/2026/05/27/enzo-maresca-reportedly-believes-a-chelsea-midfielder-can-add-a-different-dimension-to-manchester-city/) - **Esteemedkompany.com**
+2. [The footballer setting record straight after 46 years](https://www.bbc.com/sport/football/articles/cz02gdm7zleo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Rayo Vallecano XI vs Crystal Palace – Predicted lineup and team news](https://thefootballfaithful.com/rayo-vallecano-xi-vs-crystal-palace-predicted-lineup-and-team-news/) - **The Football Faithful**
+4. [Good things come to those who wait — just ask Harry Kane](https://www.bavarianfootballworks.com/germany-international-soccer/207907/good-things-come-to-those-who-wait-just-ask-harry-kane) - **Bavarian Football Works**
+5. [Crystal Palace vs Rayo Vallecano – Match preview and team news](https://thefootballfaithful.com/crystal-palace-vs-rayo-vallecano-match-preview-and-team-news/) - **The Football Faithful**
+6. [Crystal Palace vs Rayo Vallecano – Predicted lineup and team news](https://thefootballfaithful.com/crystal-palace-vs-rayo-vallecano-predicted-lineup-and-team-news/) - **The Football Faithful**
+7. [Luke O’Nien: The Ultimate Sunderland Ambassador](https://rokerreport.sbnation.com/opinion/139139/luke-onien-the-ultimate-sunderland-ambassador) - **SB Nation**
+8. [IPL Orange Cap winner in 2014 is now a mental health coach: A journey from suicidal thoughts to winning the World Cup alongside MS Dhoni](https://economictimes.indiatimes.com/news/new-updates/ipl-orange-cap-winner-in-2014-is-now-a-mental-health-coach-a-journey-from-suicidal-thoughts-to-winning-the-world-cup-alongside-ms-dhoni/articleshow/131341437.cms) - **The Times of India**
+9. [Lampard lands England's Manager of the Year award](https://www.channelnewsasia.com/sport/lampard-lands-englands-manager-year-award-6144011) - **CNA**
+10. [Ilechukwu to decide Rangers future after Unity Cup](https://punchng.com/ilechukwu-to-decide-rangers-future-after-unity-cup/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-05-28 10:24:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-28 14:53:30 (KST) / (하루 100회 제한 준수 중)*
