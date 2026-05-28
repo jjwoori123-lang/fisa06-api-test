@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Palace's magical night in pictures](https://www.bbc.com/sport/football/articles/c2l2yvx0g58o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Most expensive English football players of all time: Gordon to break top 10 with £69.3m Barcelona transfer](https://www.sportingnews.com/us/soccer/news/most-expensive-english-football-players-transfers/d01b3fb88445220fe14134e8) - **Sporting News**
-3. ['Good guys WIN': Crystal Palace owner Steve Parish aims brutal dig at Nottingham Forest and UEFA as Eagles soar to Conference League glory after being booted out of Europa League](https://www.dailymail.com/sport/football/article-15853753/Crystal-Palace-Steve-Parish-Nottingham-Forest.html) - **Dailymail.com**
-4. [Littler confident ahead of Premier League finals](https://www.rte.ie/sport/darts/2026/0527/1575611-littler-confident-ahead-of-premier-league-finals/) - **RTE**
-5. [Arsenal Must Stay Grounded Ahead Of Huge PSG Final Test](https://www.justarsenal.com/arsenal-must-stay-grounded-ahead-of-huge-psg-final-test/415909) - **Just Arsenal News**
-6. [Palace claim first European trophy with Conference League title](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260527-99-555505/) - **Dpa-international.com**
-7. [EPL: Liverpool’s Robertson set to join Tottenham Hotspur](https://punchng.com/epl-liverpools-robertson-set-to-join-tottenham-hotspur/) - **The Punch**
-8. [Papers: Man Utd concede defeat to Man City in race for Anderson](https://www.skysports.com/football/transfer-paper-talk/12709/13548522/x-paper-talk) - **Sky Sports**
-9. [Arsenal Ready to Make Ruthless £20m Summer Call](https://eplindex.com/146896/arsenal-ready-to-make-ruthless-20m-summer-call.html) - **English Premier League Index - Opta Stats**
-10. [ Milan, Iraola off? Basque set for Crystal Palace ](https://onefootball.com/en/news/milan-iraola-off-basque-set-for-crystal-palace-42931817) - **Onefootball.com**
+1. [Tuchel's biggest mistake? Wharton shines after England omission](https://www.bbc.com/sport/football/articles/cx213ezxpz2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Uganda closes its border with Congo, where suspected cases of rare Ebola type are surging](https://www.pbs.org/newshour/health/uganda-closes-its-border-with-congo-where-suspected-cases-of-rare-ebola-type-are-surging) - **PBS**
+3. [Inside Mexico's World Cup roster 2026: El Tri banking on experience of Ochoa, Jimenez at home tournament](https://www.sportingnews.com/us/soccer/news/mexico-world-cup-roster-2026-squad-players-el-tri/2e52cf6eb6a8bd52735a32c5) - **Sporting News**
+4. [How Palace made magical memories during 12 glorious months of Glasner](https://www.bbc.com/sport/football/articles/c4g5ydnpkqro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Lionel Scaloni backs Argentina’s backup goalkeepers amid Emiliano Martinez injury concerns](https://worldsoccertalk.com/world-cup/lionel-scaloni-backs-argentinas-backup-goalkeepers-amid-emiliano-martinez-injury-concerns/) - **Worldsoccertalk.com**
+6. [How Palace made magical memories during 12 glorious months of Glasner](https://www.bbc.com/sport/football/articles/c4g5ydnpkqro) - **BBC News**
+7. [How the NY Knicks Built an NBA Title Contender From the Outside In](https://sportsnaut.com/nba/how-ny-knicks-built-contender-from-outside-in) - **Sportsnaut**
+8. [Can the U.S. End Nigeria’s Insurgency?](http://foreignpolicy.com/2026/05/27/us-nigeria-joint-strikes-military-insurgency-boko-haram-iswap-security-africa/) - **Foreign Policy**
+9. [2026 Premier League Darts play-off night live results, scores and final table](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e8f17bab-c1bc-4e1c-8fed-03c185047a05) - **Yahoo Entertainment**
+10. [Palace's magical night in pictures](https://www.bbc.com/sport/football/articles/c2l2yvx0g58o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-29 07:20:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-29 08:46:04 (KST) / (하루 100회 제한 준수 중)*
