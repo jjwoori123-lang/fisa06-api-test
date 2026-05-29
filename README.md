@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Opinion: How Arsenal’s Lowest Point Forced The Kroenkes To Change](https://www.justarsenal.com/opinion-how-arsenals-lowest-point-forced-the-kroenkes-to-change/415917) - **Just Arsenal News**
-2. [Konate to leave Liverpool on free transfer](https://www.skysports.com/football/news/11669/13548896/liverpool-transfer-news-ibrahima-konate) - **Sky Sports**
-3. [Bruno Fernandes earns elite spot in ranking of Europe’s best players](https://thepeoplesperson.com/2026/05/28/bruno-fernandes-earns-elite-spot-in-ranking-of-europes-best-players-310749/) - **The Peoples Person**
-4. [Leeds United Target £14m Goalkeeper Who Could Transform Their Season: Right Call For Daniel Farke?](https://the4thofficial.net/2026/05/leeds-united-target-14m-goalkeeper-who-could-transform-their-season-right-call-for-daniel-farke/) - **The4thofficial.net**
-5. [Barcelona plot surprise move for Arsenal star](https://getfootballnewsspain.com/barcelona-plot-surprise-move-for-arsenal-star/) - **Getfootballnewsspain.com**
-6. [Chelsea reportedly set price on Enzo Fernandez amid Manchester City, Real Madrid interest](https://worldsoccertalk.com/news/chelsea-reportedly-set-price-on-enzo-fernandez-amid-manchester-city-real-madrid-interest/) - **Worldsoccertalk.com**
-7. [Leao names two favourite Premier League clubs with Milan exit rumours in full swing](https://football-italia.net/leao-favourite-epl-clubs-milan-exit-rumours/) - **Football Italia**
-8. [Spurs closing in on Senesi move and hopeful of Robertson deal](https://www.skysports.com/football/news/11095/13547838/tottenham-transfers-news-spurs-edging-close-to-signing-marcos-senesi-and-hopeful-of-move-for-andy-robertson) - **Sky Sports**
-9. [Gumball 3000 Kicks Off 27th Annual Rally at Seminole Hard Rock Hotel & Casino Hollywood with a Spectacular Route from Miami to Mexico City](https://www.prnewswire.com/news-releases/gumball-3000-kicks-off-27th-annual-rally-at-seminole-hard-rock-hotel--casino-hollywood-with-a-spectacular-route-from-miami-to-mexico-city-302784965.html) - **PRNewswire**
-10. [Report: Liverpool eyeing move to sign Tottenham Hotspur defender](https://eplindex.com/146924/report-liverpool-eyeing-move-to-sign-tottenham-hotspur-defender.html) - **English Premier League Index - Opta Stats**
+1. [Luke Littler vs. Luke Humphries: All of the stats from a historic Premier League Darts final](https://www.sportingnews.com/us/darts/news/luke-little-humphries-stats-premier-league-darts-final/9c4873387e0b35224da1e9f9) - **Sporting News**
+2. [Wayne Rooney delivers verdict on Man United’s title chances next season](https://thepeoplesperson.com/2026/05/28/wayne-rooney-delivers-verdict-on-man-uniteds-title-chances-next-season-310753/) - **The Peoples Person**
+3. [Lionel Messi set for his final World Cup as Julian Alvarez and Enzo Fernandez headline Argentina’s 2026 squad](https://worldsoccertalk.com/world-cup/lionel-messi-set-for-his-final-world-cup-as-julian-alvarez-and-enzo-fernandez-headline-argentinas-2026-squad/) - **Worldsoccertalk.com**
+4. [How to watch PSG vs Arsenal live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-psg-vs-arsenal-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
+5. [From “Stay Humble” To Champions, Arsenal’s Season In Ten Best And Worst Moments](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_21205d24-9ca2-4b93-8ce6-9b7cbe91f8d4) - **Yahoo Entertainment**
+6. [From “Stay Humble” To Champions, Arsenal’s Season In Ten Best And Worst Moments](https://www.justarsenal.com/from-stay-humble-to-champions-arsenals-season-in-ten-best-and-worst-moments/415967) - **Just Arsenal News**
+7. [Papers: Barcelona weighing up approach for Arsenal defender](https://www.skysports.com/football/transfer-paper-talk/12709/13548854/arsenal-transfer-news-barcelona-weigh-up-approach-for-defender-piero-hincapie-paper-talk) - **Sky Sports**
+8. [SFA chief Ian Maxwell defends decision to hand Steve Clarke new four-year deal BEFORE World Cup](https://www.dailymail.com/sport/football/article-15857129/SFA-chief-Ian-Maxwell-defends-decision-hand-Steve-Clarke-new-four-year-deal-World-Cup.html) - **Dailymail.com**
+9. [Gerwyn Price forced to APOLOGISE to Luke Littler after angering world champion as referee intervenes during tense Premier League clash - as 19-year-old wins £350,000 prize](https://www.dailymail.com/sport/darts/article-15857047/Gerwyn-Price-APOLOGISE-Luke-Littler.html) - **Dailymail.com**
+10. [Tearful Littler bags €400,000 with Premier League glory](https://www.rte.ie/sport/darts/2026/0528/1575816-tearful-littler-bags-400-000-with-premier-league-glory/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-05-30 06:00:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-30 07:44:32 (KST) / (하루 100회 제한 준수 중)*
