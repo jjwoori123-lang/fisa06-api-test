@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea Are Facing Stiff Competition For This Talented Midfielder: One For The Future?](https://the4thofficial.net/2026/05/chelsea-are-facing-stiff-competition-for-this-talented-midfielder-one-for-the-future/) - **The4thofficial.net**
-2. ['You can see why fans are questioning Moyes' position'](https://www.bbc.com/sport/football/articles/c3w2yj6xzyyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Barcelona move for departing Premier League captain could jeopardise Rashford future](https://barcauniversal.com/barcelona-move-for-departing-premier-league-captain-could-jeopardise-rashford-future/) - **Barcauniversal.com**
-4. [Liverpool Are Eyeing A Move For This La Liga Winger: Should Slot Get Him On Board?](https://the4thofficial.net/2026/05/liverpool-are-eyeing-a-move-for-this-la-liga-winger-should-slot-get-him-on-board/) - **The4thofficial.net**
-5. [Brighton must target Conference League - Aspinall](https://www.bbc.com/sport/football/articles/c5y8z0j90jeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Why Arsenal are confident of signing Monga ahead of United](https://thepeoplesperson.com/2026/05/28/why-arsenal-are-confident-of-signing-monga-ahead-of-united-310746/) - **The Peoples Person**
-7. ['My dad emailed every EFL club asking for an opportunity' - O'Nien](https://www.bbc.com/sport/football/articles/c98r2e551nko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Which World Cup teams are most vulnerable to an early exit? The danger facing U.S. and Mexico](https://sports.yahoo.com/soccer/article/which-world-cup-teams-are-most-vulnerable-to-an-early-exit-the-danger-facing-us-and-mexico-180713878.html) - **Yahoo Entertainment**
-9. [Tottenham Hotspur Are Planning To Move In For This Brighton Midfielder: Dream Option For De Zerbi?](https://the4thofficial.net/2026/05/tottenham-hotspur-are-planning-to-move-in-for-this-brighton-midfielder-dream-option-for-de-zerbi/) - **The4thofficial.net**
-10. [Black Caps v Ireland: Nathan Smith takes six wickets as New Zealand make hosts follow-on](https://www.nzherald.co.nz/sport/cricket/black-caps/black-caps-v-ireland-nathan-smith-takes-six-wickets-as-new-zealand-make-hosts-follow-on/WL4BSJCVUNH4PDQZHPTXQPDTV4/) - **New Zealand Herald**
+1. [Opinion: How Arsenal’s Lowest Point Forced The Kroenkes To Change](https://www.justarsenal.com/opinion-how-arsenals-lowest-point-forced-the-kroenkes-to-change/415917) - **Just Arsenal News**
+2. [Konate to leave Liverpool on free transfer](https://www.skysports.com/football/news/11669/13548896/liverpool-transfer-news-ibrahima-konate) - **Sky Sports**
+3. [Bruno Fernandes earns elite spot in ranking of Europe’s best players](https://thepeoplesperson.com/2026/05/28/bruno-fernandes-earns-elite-spot-in-ranking-of-europes-best-players-310749/) - **The Peoples Person**
+4. [Leeds United Target £14m Goalkeeper Who Could Transform Their Season: Right Call For Daniel Farke?](https://the4thofficial.net/2026/05/leeds-united-target-14m-goalkeeper-who-could-transform-their-season-right-call-for-daniel-farke/) - **The4thofficial.net**
+5. [Barcelona plot surprise move for Arsenal star](https://getfootballnewsspain.com/barcelona-plot-surprise-move-for-arsenal-star/) - **Getfootballnewsspain.com**
+6. [Chelsea reportedly set price on Enzo Fernandez amid Manchester City, Real Madrid interest](https://worldsoccertalk.com/news/chelsea-reportedly-set-price-on-enzo-fernandez-amid-manchester-city-real-madrid-interest/) - **Worldsoccertalk.com**
+7. [Leao names two favourite Premier League clubs with Milan exit rumours in full swing](https://football-italia.net/leao-favourite-epl-clubs-milan-exit-rumours/) - **Football Italia**
+8. [Spurs closing in on Senesi move and hopeful of Robertson deal](https://www.skysports.com/football/news/11095/13547838/tottenham-transfers-news-spurs-edging-close-to-signing-marcos-senesi-and-hopeful-of-move-for-andy-robertson) - **Sky Sports**
+9. [Gumball 3000 Kicks Off 27th Annual Rally at Seminole Hard Rock Hotel & Casino Hollywood with a Spectacular Route from Miami to Mexico City](https://www.prnewswire.com/news-releases/gumball-3000-kicks-off-27th-annual-rally-at-seminole-hard-rock-hotel--casino-hollywood-with-a-spectacular-route-from-miami-to-mexico-city-302784965.html) - **PRNewswire**
+10. [Report: Liverpool eyeing move to sign Tottenham Hotspur defender](https://eplindex.com/146924/report-liverpool-eyeing-move-to-sign-tottenham-hotspur-defender.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-05-30 03:36:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-30 06:00:24 (KST) / (하루 100회 제한 준수 중)*
