@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Christos Tzolis: Club Brugge wizard urged to join Man United](https://thepeoplesperson.com/2026/05/29/christos-tzolis-club-brugge-wizard-urged-to-join-man-united-310791/) - **The Peoples Person**
-2. [Report: Newcastle and Tottenham interested in Roma and Italy midfielder Pisilli](https://football-italia.net/report-newcastle-tottenham-pisilli-interest/) - **Football Italia**
-3. [Liverpool star could now stay after news of bombshell decision](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-star-could-now-stay-after-news-of-bombshell-decision/) - **Anfieldwatch.co.uk**
-4. [Champions League glory a 'bigger destination' for Arsenal after finally winning Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_68829bf0-505e-473c-b42d-4dca07f55cda) - **Yahoo Entertainment**
-5. [86% of LATAM Bettors Plan to Wager on 2026 FIFA World Cup, According to Optimove Insights Report](https://www.globenewswire.com/news-release/2026/05/29/3303778/0/en/86-of-LATAM-Bettors-Plan-to-Wager-on-2026-FIFA-World-Cup-According-to-Optimove-Insights-Report.html) - **GlobeNewswire**
-6. [Is Raiders’ Maxx Crosby most valuable non-first-round pick since 2016?](https://raiderswire.usatoday.com/story/sports/nfl/raiders/2026/05/29/is-raiders-maxx-crosby-most-valuable-non-first-round-pick-since-2016/90315454007/) - **USA Today**
-7. [No player left behind: How Arsenal handled a plague of injuries to win a trophy and contend for a second](https://www.cbssports.com/soccer/news/no-player-left-behind-how-arsenal-handled-a-plague-of-injuries-to-win-a-trophy-and-contend-for-a-second/) - **CBS Sports**
-8. [Enrique ‘not surprised’ by Arsenal’s title triumph ahead of Champions League final](https://www.101greatgoals.com/football/champions-league/enrique-not-surprised-arsenals-title-triumph-champions-league-final/) - **101 Great Goals**
-9. [Chelsea told to consider shock move to re-sign legendary forward](https://eplindex.com/146941/chelsea-told-to-consider-shock-move-to-re-sign-legendary-forward.html) - **English Premier League Index - Opta Stats**
-10. [Show HN: Simple news aggregator with source bias meters](https://unbiasthenews.com) - **Unbiasthenews.com**
+1. [Eduardo Camavinga: Man United handed chance to sign Real Madrid star](https://thepeoplesperson.com/2026/05/29/eduardo-camavinga-man-united-handed-chance-to-sign-real-madrid-star-310795/) - **The Peoples Person**
+2. [Barcelona unveil Gordon from Newcastle](https://punchng.com/barcelona-unveil-gordon-from-newcastle/) - **The Punch**
+3. [Deal looked done: Agents in shock after crazy Liverpool u-turn](https://www.anfieldwatch.co.uk/liverpool-fc/news/deal-looked-done-agents-in-shock-after-crazy-liverpool-u-turn/) - **Anfieldwatch.co.uk**
+4. [Everton Have To Pay £20m For Their Targeted Striker: Should David Moyes Agree To This?](https://the4thofficial.net/2026/05/everton-have-to-pay-20m-for-their-targeted-striker/) - **The4thofficial.net**
+5. [PSG vs. Arsenal prediction, odds, time: 2026 UEFA Champions League final picks, best bets from top expert](https://www.cbssports.com/soccer/news/psg-arsenal-prediction-odds-time-2026-uefa-champions-league-final-picks-best-bets-expert/) - **CBS Sports**
+6. [“As it stands…” – Journalist provides update on Liverpool’s potential move for 22-G/A forward](https://anfieldindex.com/94590/as-it-stands-journalist-provides-update-on-liverpools-potential-move-for-22-g-a-forward.html) - **Anfieldindex.com**
+7. [Barcelona sign Anthony Gordon in £69m deal from Newcastle](https://www.101greatgoals.com/football/la-liga/barcelona-sign-anthony-gordon-69m-deal-newcastle/) - **101 Great Goals**
+8. [Barcelona announced the signing of Anthony Gordon from Newcastle United](https://www.nbcsports.com/soccer/news/barcelona-announced-the-signing-of-anthony-gordon-from-newcastle-united) - **NBCSports.com**
+9. [King vs Prince: IPL 2026 final showdown between Virat Kohli and Shubman Gill in Ahmedabad](https://www.cricketnews.com/en/cricket/news/king-vs-prince-ipl-2026-final-virat-kohli-shubman-gill-ahmedabad/8ecd9149edfa9b0fece5c65a) - **Cricketnews.com**
+10. [The Best Bars in Philly to Watch the World Cup](https://www.phillymag.com/restaurants/2026/05/29/world-cup-bars/) - **phillymag.com**
 
 
 ---
-*최근 업데이트: 2026-05-31 03:44:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-31 05:10:22 (KST) / (하루 100회 제한 준수 중)*
