@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Nick Bosa reveals Bosa brothers reunion plans amid 49ers rumors](https://nypost.com/2026/05/28/sports/nick-bosa-reveals-joey-bosa-plans-amid-49ers-rumors/) - **New York Post**
-2. [Nick Bosa reveals Bosa brothers reunion plans amid 49ers rumors](https://nypost.com/2026/05/28/sports/nick-bosa-reveals-joey-bosa-plans-amid-49ers-rumors/?utm_source=yahoo&amp;utm_campaign=nypost&amp;utm_medium=referral) - **New York Post**
-3. [Pep Guardiola 'Keen' On England Role; Former Man City Boss Is FA's 'Dream'](https://www.foxsports.com/stories/soccer/pep-guardiola-keen-on-becoming-england-manager-one-day-with-departing-man-city-icon-still-a-dream-target-for-the-fa) - **Fox Sports**
-4. [Kanu backs Arsenal for UCL victory](https://punchng.com/kanu-backs-arsenal-for-ucl-victory/) - **The Punch**
-5. [Fenerbahçe step up Bassey chase](https://punchng.com/fenerbahce-step-up-bassey-chase/) - **The Punch**
-6. [Handball: HFN unveils 2026 Premier League, 4×4 Champs](https://punchng.com/handball-hfn-unveils-2026-premier-league-4x4-champs/) - **The Punch**
-7. [Josh Kroenke: Mikel Arteta Contract Extension Is Arsenal's 'Utmost Priority'](https://www.foxsports.com/stories/soccer/josh-kroenke-insists-mikel-arteta-contract-extension-is-arsenals-utmost-priority) - **Fox Sports**
-8. [Do the oddsmakers know something about John Stones and Bayern Munich?](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/208627/do-the-oddsmakers-know-something-about-john-stones-and-bayern-munich) - **Bavarian Football Works**
-9. [Emotional Littler underlines greatness after almost quitting Premier League](https://www.bbc.com/sport/darts/articles/cg7pmry8gkgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Emotional Littler underlines greatness after almost quitting Premier League](https://www.bbc.com/sport/darts/articles/cg7pmry8gkgo) - **BBC News**
+1. [Anti-American Mamdani supports who?](https://www.americanthinker.com/blog/2026/05/anti_american_mamdani_supports_who.html) - **Americanthinker.com**
+2. [Our Premier League celebrations take to the skies!](http://www.arsenal.com/news/our-premier-league-celebrations-take-skies) - **Arsenal.com**
+3. [Bayern Munich News: Dušan Vlahović back on FC Bayern’s radar?; João Palhinha willing to take pay cut?; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/208339/bayern-munich-vlahovic-juventus-tottenham-real-madrid-fc-barcelona-manchester-city-united-chelsea-arsenal-psg) - **Bavarian Football Works**
+4. [Dallas finally unleashed Azzi Fudd — the WNBA should be paying attention](https://www.sportingnews.com/us/wnba/news/dallas-finally-unleashed-azzi-fudd-%E2%80%94-wnba-should-be-paying-attention/4c4970743f6d4f5cfff7465c) - **Sporting News**
+5. [Q4 Results Today Live: Asian Paints, IndiGo, NMDC, Glenmark Pharma, Ipca Lab, IREDA, Gujarat Gas, Natco Pharma, Inox Wind, Rubicon Research, BEML, NMDC Steel, JM Financial, Triveni Engg to announce Q4 results to announce Q4 results, Ashok Leyland, Graphite, BDL, Alkem, Physicswallah, Bata in focus](https://www.thehindubusinessline.com/markets/q4-results-today-live-updates-indigo-nmdc-glenmark-pharma-ipca-lab-ireda-gujarat-gas-natco-pharma-inox-wind-beml-jm-financial-triveni-ashok-leyland-graphite-alkem-bdl-results-29-may-2026/article71032951.ece) - **BusinessLine**
+6. [Arsenal's 'utmost priority' is agreeing new contract for Arteta, owners say](https://www.channelnewsasia.com/sport/arsenals-utmost-priority-agreeing-new-contract-arteta-owners-say-6148936) - **CNA**
+7. [Mikel Arteta recalls his time with Luis Enrique at Barcelona ahead of Champions League final](https://worldsoccertalk.com/news/mikel-arteta-recalls-his-time-with-luis-enrique-at-barcelona-ahead-of-champions-league-final/) - **Worldsoccertalk.com**
+8. [Alianza and ai.io partner to expand access to Elite Talent Identification across the U.S. Hispanic Soccer Community](https://www.prnewswire.com/news-releases/alianza-and-aiio-partner-to-expand-access-to-elite-talent-identification-across-the-us-hispanic-soccer-community-302785180.html) - **PRNewswire**
+9. [The PSG loan that 'ignited' Mikel Arteta's desire to be a manager: 'Big brother' Heinze and 'father' Pochettino, rooming with Ronaldinho, creating the best defence even at 18 and why his team-mates thought he wasn't up to it - until they saw him play](https://www.dailymail.com/sport/football/article-15855513/Mikel-Arteta-PSG-Arsenal-Heinze-Pochettino-Ronaldinho.html) - **Dailymail.com**
+10. [The PSG loan that 'ignited' Mikel Arteta's desire to be a manager: 'Big brother' Heinze and 'father' Pochettino, rooming with Ronaldinho, creating the best defence even at 18 and why his team-mates thought he wasn't up to it - until they saw him play](https://www.dailymail.com/sport/football/article-15855513/Mikel-Arteta-PSG-Arsenal-Heinze-Pochettino-Ronaldinho.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-05-30 09:10:31 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-30 13:29:30 (KST) / (하루 100회 제한 준수 중)*
