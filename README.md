@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Black Caps v Ireland result: Blair Tickner takes five as New Zealand claim win inside three days](https://www.nzherald.co.nz/sport/cricket/black-caps/black-caps-v-ireland-result-blair-tickner-takes-five-as-new-zealand-claim-win-inside-three-days/FU5DIVHAEVB7HEI4BI2KJSGFC4/) - **New Zealand Herald**
-2. [NBA-style draft relegation wouldn't be a bad idea for the NFL, because perennially bad teams shouldn't be rewarded](https://sports.yahoo.com/nfl/article/nba-style-draft-relegation-wouldnt-be-a-bad-idea-for-the-nfl-because-perennially-bad-teams-shouldnt-be-rewarded-143653682.html) - **Yahoo Entertainment**
-3. [Newcastle United want Bodo/Glimt forward Mikkel Bro Hansen](https://sportsview.co.uk/2026/05/newcastle-united-want-bodo-glimt-forward-mikkel-bro-hansen?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-united-want-bodo-glimt-forward-mikkel-bro-hansen) - **Sportsview.co.uk**
-4. [Chelsea to bring back outcast Nicolas Jackson, 24, after Bayern Munich loan and give him chance to impress new boss Xabi Alonso...and his contract still has SEVEN years to run](https://www.dailymail.com/sport/football/article-15858867/Chelsea-bring-outcast-Nicolas-Jackson-24-Bayern-Munich-loan-chance-impress-new-boss-Xabi-Alonso-contract-SEVEN-years-run.html) - **Dailymail.com**
-5. [Professional Sports Are Banning Smart Glasses Over Betting Concerns](https://gizmodo.com/professional-sports-are-banning-smart-glasses-over-betting-concerns-2000765024) - **Gizmodo.com**
-6. [Report: Arsenal have joined the race to sign €120m-rated Chelsea star](https://eplindex.com/146932/report-arsenal-have-joined-the-race-to-sign-e120m-rated-chelsea-star.html) - **English Premier League Index - Opta Stats**
-7. [USMNT World Cup roster snub Aidan Morris says he's 'no victim'](https://www.usatoday.com/story/sports/soccer/usmnt/2026/05/29/aidan-morris-usmnt-world-cup-roster-snub-response/90311314007/) - **USA Today**
-8. [How Arsenal can avoid Inter's nightmare mistakes against PSG in Champions League final](https://www.cbssports.com/soccer/news/arsenal-inter-psg-champions-league-final/) - **CBS Sports**
-9. [Arsenal Premier League trophy parade: Confirmed date, route, start time, road closures and what you need to know](https://www.timeout.com/london/news/when-is-the-arsenal-premier-league-trophy-parade-date-route-confirmed-road-closures-and-what-you-need-to-know-052926) - **Time Out**
-10. [Jordan Pickford claims Premier League Save of the Season award](http://www.toffeeweb.com/season/25-26/news/47603.html) - **Toffeeweb**
+1. [Eze fires shots at Spurs after Arsenal title win](https://dailycannon.com/2026/05/eze-spurs-arsenal-title/) - **Dailycannon.com**
+2. [Ruben Dias’s Manchester City future in doubt upon Pep Guardiola exit as agent receives instructions](https://cityxtra.co.uk/47370/ruben-dias-attracts-major-transfer-interest-with-manchester-city-future-in-doubt/) - **Cityxtra.co.uk**
+3. [Stream our Champions Parade live on website & app](http://www.arsenal.com/news/stream-our-champions-parade-live-website-app) - **Arsenal.com**
+4. [PSG crave another Champions League high after last year's breakthrough](https://www.channelnewsasia.com/sport/psg-crave-another-champions-league-high-after-last-years-breakthrough-6150356) - **CNA**
+5. [Real Madrid named most valuable club in the world](https://www.101greatgoals.com/football/real-madrid-named-most-valuable-club-in-the-world/) - **101 Great Goals**
+6. [Luis Enrique says PSG and Arsenal have “taken different paths” in styles of play](https://www.getfootballnewsfrance.com/2026/luis-enrique-says-psg-and-arsenal-have-taken-different-paths-in-styles-of-play/) - **Get French Football News**
+7. [Stats: Teams to have won domestic and Euro double](http://www.arsenal.com/news/stats-teams-have-won-domestic-and-euro-double) - **Arsenal.com**
+8. [Make way for the Gunners' glorious girls! The VERY glamorous WAGs who will be cheering on Arsenal at the Champions League final](https://www.dailymail.com/lifestyle/article-15855437/Make-way-Gunners-glorious-girls-glamorous-WAGs-cheering-Arsenal-Champions-League-final.html) - **Dailymail.com**
+9. [Premier League data reveals biggest winners, losers from VAR decisions](https://punchng.com/premier-league-data-reveals-biggest-winners-losers-from-var-decisions/) - **The Punch**
+10. [Arsenal fans ready to sing an old classic in Hungary](https://www.rte.ie/sport/soccer/2026/0529/1575952-arsenal-fans-ready-to-sing-an-old-classic-in-hungary/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-05-30 23:41:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-31 01:06:21 (KST) / (하루 100회 제한 준수 중)*
