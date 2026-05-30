@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Luke Littler vs. Luke Humphries: All of the stats from a historic Premier League Darts final](https://www.sportingnews.com/us/darts/news/luke-little-humphries-stats-premier-league-darts-final/9c4873387e0b35224da1e9f9) - **Sporting News**
-2. [Wayne Rooney delivers verdict on Man United’s title chances next season](https://thepeoplesperson.com/2026/05/28/wayne-rooney-delivers-verdict-on-man-uniteds-title-chances-next-season-310753/) - **The Peoples Person**
-3. [Lionel Messi set for his final World Cup as Julian Alvarez and Enzo Fernandez headline Argentina’s 2026 squad](https://worldsoccertalk.com/world-cup/lionel-messi-set-for-his-final-world-cup-as-julian-alvarez-and-enzo-fernandez-headline-argentinas-2026-squad/) - **Worldsoccertalk.com**
-4. [How to watch PSG vs Arsenal live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-psg-vs-arsenal-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
-5. [From “Stay Humble” To Champions, Arsenal’s Season In Ten Best And Worst Moments](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_21205d24-9ca2-4b93-8ce6-9b7cbe91f8d4) - **Yahoo Entertainment**
-6. [From “Stay Humble” To Champions, Arsenal’s Season In Ten Best And Worst Moments](https://www.justarsenal.com/from-stay-humble-to-champions-arsenals-season-in-ten-best-and-worst-moments/415967) - **Just Arsenal News**
-7. [Papers: Barcelona weighing up approach for Arsenal defender](https://www.skysports.com/football/transfer-paper-talk/12709/13548854/arsenal-transfer-news-barcelona-weigh-up-approach-for-defender-piero-hincapie-paper-talk) - **Sky Sports**
-8. [SFA chief Ian Maxwell defends decision to hand Steve Clarke new four-year deal BEFORE World Cup](https://www.dailymail.com/sport/football/article-15857129/SFA-chief-Ian-Maxwell-defends-decision-hand-Steve-Clarke-new-four-year-deal-World-Cup.html) - **Dailymail.com**
-9. [Gerwyn Price forced to APOLOGISE to Luke Littler after angering world champion as referee intervenes during tense Premier League clash - as 19-year-old wins £350,000 prize](https://www.dailymail.com/sport/darts/article-15857047/Gerwyn-Price-APOLOGISE-Luke-Littler.html) - **Dailymail.com**
-10. [Tearful Littler bags €400,000 with Premier League glory](https://www.rte.ie/sport/darts/2026/0528/1575816-tearful-littler-bags-400-000-with-premier-league-glory/) - **RTE**
+1. [Nick Bosa reveals Bosa brothers reunion plans amid 49ers rumors](https://nypost.com/2026/05/28/sports/nick-bosa-reveals-joey-bosa-plans-amid-49ers-rumors/) - **New York Post**
+2. [Nick Bosa reveals Bosa brothers reunion plans amid 49ers rumors](https://nypost.com/2026/05/28/sports/nick-bosa-reveals-joey-bosa-plans-amid-49ers-rumors/?utm_source=yahoo&amp;utm_campaign=nypost&amp;utm_medium=referral) - **New York Post**
+3. [Pep Guardiola 'Keen' On England Role; Former Man City Boss Is FA's 'Dream'](https://www.foxsports.com/stories/soccer/pep-guardiola-keen-on-becoming-england-manager-one-day-with-departing-man-city-icon-still-a-dream-target-for-the-fa) - **Fox Sports**
+4. [Kanu backs Arsenal for UCL victory](https://punchng.com/kanu-backs-arsenal-for-ucl-victory/) - **The Punch**
+5. [Fenerbahçe step up Bassey chase](https://punchng.com/fenerbahce-step-up-bassey-chase/) - **The Punch**
+6. [Handball: HFN unveils 2026 Premier League, 4×4 Champs](https://punchng.com/handball-hfn-unveils-2026-premier-league-4x4-champs/) - **The Punch**
+7. [Josh Kroenke: Mikel Arteta Contract Extension Is Arsenal's 'Utmost Priority'](https://www.foxsports.com/stories/soccer/josh-kroenke-insists-mikel-arteta-contract-extension-is-arsenals-utmost-priority) - **Fox Sports**
+8. [Do the oddsmakers know something about John Stones and Bayern Munich?](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/208627/do-the-oddsmakers-know-something-about-john-stones-and-bayern-munich) - **Bavarian Football Works**
+9. [Emotional Littler underlines greatness after almost quitting Premier League](https://www.bbc.com/sport/darts/articles/cg7pmry8gkgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Emotional Littler underlines greatness after almost quitting Premier League](https://www.bbc.com/sport/darts/articles/cg7pmry8gkgo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-05-30 07:44:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-30 09:10:31 (KST) / (하루 100회 제한 준수 중)*
