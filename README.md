@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Eduardo Camavinga: Man United handed chance to sign Real Madrid star](https://thepeoplesperson.com/2026/05/29/eduardo-camavinga-man-united-handed-chance-to-sign-real-madrid-star-310795/) - **The Peoples Person**
-2. [Barcelona unveil Gordon from Newcastle](https://punchng.com/barcelona-unveil-gordon-from-newcastle/) - **The Punch**
-3. [Deal looked done: Agents in shock after crazy Liverpool u-turn](https://www.anfieldwatch.co.uk/liverpool-fc/news/deal-looked-done-agents-in-shock-after-crazy-liverpool-u-turn/) - **Anfieldwatch.co.uk**
-4. [Everton Have To Pay £20m For Their Targeted Striker: Should David Moyes Agree To This?](https://the4thofficial.net/2026/05/everton-have-to-pay-20m-for-their-targeted-striker/) - **The4thofficial.net**
-5. [PSG vs. Arsenal prediction, odds, time: 2026 UEFA Champions League final picks, best bets from top expert](https://www.cbssports.com/soccer/news/psg-arsenal-prediction-odds-time-2026-uefa-champions-league-final-picks-best-bets-expert/) - **CBS Sports**
-6. [“As it stands…” – Journalist provides update on Liverpool’s potential move for 22-G/A forward](https://anfieldindex.com/94590/as-it-stands-journalist-provides-update-on-liverpools-potential-move-for-22-g-a-forward.html) - **Anfieldindex.com**
-7. [Barcelona sign Anthony Gordon in £69m deal from Newcastle](https://www.101greatgoals.com/football/la-liga/barcelona-sign-anthony-gordon-69m-deal-newcastle/) - **101 Great Goals**
-8. [Barcelona announced the signing of Anthony Gordon from Newcastle United](https://www.nbcsports.com/soccer/news/barcelona-announced-the-signing-of-anthony-gordon-from-newcastle-united) - **NBCSports.com**
-9. [King vs Prince: IPL 2026 final showdown between Virat Kohli and Shubman Gill in Ahmedabad](https://www.cricketnews.com/en/cricket/news/king-vs-prince-ipl-2026-final-virat-kohli-shubman-gill-ahmedabad/8ecd9149edfa9b0fece5c65a) - **Cricketnews.com**
-10. [The Best Bars in Philly to Watch the World Cup](https://www.phillymag.com/restaurants/2026/05/29/world-cup-bars/) - **phillymag.com**
+1. [Burke screamer decisive as Hoops extend lead at the top](https://www.rte.ie/sport/soccer/2026/0529/1575876-burke-screamer-decisive-as-hoops-extend-lead-at-the-top/) - **RTE**
+2. [Mikel Arteta provides injury update on Jurrien Timber for Champions League Final](https://www.alloutsoccer.com/news/arteta-timber-arsenal-champions-league-1861545) - **Alloutsoccer.com**
+3. [Champions League final preview: PSG v Arsenal](http://www.arsenal.com/news/champions-league-final-preview-psg-v-arsenal) - **Arsenal.com**
+4. [‘There are no favorites’: Luis Enrique does not see his PSG far ahead of Arsenal in the Champions League final](https://worldsoccertalk.com/news/there-are-no-favorites-luis-enrique-does-not-see-his-psg-far-ahead-of-arsenal-in-the-champions-league-final/) - **Worldsoccertalk.com**
+5. [Rafael Leão To Premier League? AC Milan Winger Picks Man United As Favorite Team](https://www.foxsports.com/stories/soccer/rafael-leao-to-the-premier-league-ac-milan-winger-picks-man-utd-as-favourite-team-with-uncertainty-surrounding-san-siro-future) - **Fox Sports**
+6. [Man Utd want AC Milan winger Leao - Saturday's gossip](https://www.bbc.com/sport/football/articles/c2k278gd02qo) - **BBC News**
+7. [Anthony Gordon completes Barcelona move from Newcastle](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260529-99-576966/) - **Dpa-international.com**
+8. [This is Arsenal's chance to become immortal: The key battles Mikel Arteta's men MUST win, how PSG can be beaten and why Gunners are a dangerous opponent for the best club side in the world, writes OLIVER HOLT](https://www.dailymail.com/sport/football/article-15858941/Arsenal-immortal-Mikel-Arteta-PSG.html) - **Dailymail.com**
+9. [Liverpool handed massive Adam Wharton boost as major update emerges](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-handed-massive-adam-wharton-boost-as-major-update-emerges/) - **Anfieldwatch.co.uk**
+10. [Celtic Ready To Sell £10m Player Who Lost His Place: Right Decision From The Scottish Champions?](https://the4thofficial.net/2026/05/celtic-ready-to-sell-10m-player-who-lost-his-place-right-decision-from-the-scottish-champions/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-05-31 05:10:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-31 06:16:46 (KST) / (하루 100회 제한 준수 중)*
