@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Teams to win Premier League and Champions League: How Arsenal can join short list of English double winners](https://www.sportingnews.com/us/soccer/news/teams-win-premier-league-champions-league-list-double-winners/3cdf3a9b0cd24beec40ded15) - **Sporting News**
-2. [Luis Enrique reveals why PSG have MORE motivation than Arsenal to win Champions League ahead of crunch final showdown](https://www.dailymail.com/sport/football/article-15859249/Luis-Enrique-PSG-motivation-Arsenal-Champions-League.html) - **Dailymail.com**
-3. [“Massive opportunity to do something special”: Saka says Arsenal ready to make history in Champions League final](https://www.footballmuse.com/news/massive-opportunity-to-do-something-special-saka-says-arsenal-ready-to-make-history-in-champions-league-final) - **Footballmuse.com**
-4. [Arteta declares Arsenal ready to dethrone PSG of Champions League crown](https://hayters.com/arteta-declares-arsenal-ready-to-dethrone-psg-of-champions-league-crown/) - **Hayters.com**
-5. [Report: Chelsea eyeing swap deal to sign world-class Real Madrid star](https://eplindex.com/146938/report-chelsea-eyeing-swap-deal-to-sign-world-class-real-madrid-star.html) - **English Premier League Index - Opta Stats**
-6. [Saka aims for history in Champions League final](http://www.arsenal.com/news/saka-aims-history-champions-league-final) - **Arsenal.com**
-7. [Arteta claims Arsenal ‘have the opportunity to write a new chapter’ in Champions League final](https://www.101greatgoals.com/football/champions-league/arteta-claims-arsenal-opportunity-write-new-chapter-champions-league-final/) - **101 Great Goals**
-8. [Defender Thomas signs new Coventry deal](https://www.bbc.com/sport/football/articles/cy92wy7g5n1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Psychic who correctly predicted three World Cup winners in a row says country will get first ever win](https://www.ladbible.com/news/sport/world-cup-winner-psychic-football-722455-20260529) - **LADbible**
-10. [Chelsea’s £120m Enzo Fernández stance looks like market control, not a sales pitch](https://www.hitc.com/chelseas-120m-enzo-fernandez-stance-looks-like-market-control-not-a-sales-pitch/) - **HITC - Football, Gaming, Movies, TV, Music**
+1. [Christos Tzolis: Club Brugge wizard urged to join Man United](https://thepeoplesperson.com/2026/05/29/christos-tzolis-club-brugge-wizard-urged-to-join-man-united-310791/) - **The Peoples Person**
+2. [Report: Newcastle and Tottenham interested in Roma and Italy midfielder Pisilli](https://football-italia.net/report-newcastle-tottenham-pisilli-interest/) - **Football Italia**
+3. [Liverpool star could now stay after news of bombshell decision](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-star-could-now-stay-after-news-of-bombshell-decision/) - **Anfieldwatch.co.uk**
+4. [Champions League glory a 'bigger destination' for Arsenal after finally winning Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_68829bf0-505e-473c-b42d-4dca07f55cda) - **Yahoo Entertainment**
+5. [86% of LATAM Bettors Plan to Wager on 2026 FIFA World Cup, According to Optimove Insights Report](https://www.globenewswire.com/news-release/2026/05/29/3303778/0/en/86-of-LATAM-Bettors-Plan-to-Wager-on-2026-FIFA-World-Cup-According-to-Optimove-Insights-Report.html) - **GlobeNewswire**
+6. [Is Raiders’ Maxx Crosby most valuable non-first-round pick since 2016?](https://raiderswire.usatoday.com/story/sports/nfl/raiders/2026/05/29/is-raiders-maxx-crosby-most-valuable-non-first-round-pick-since-2016/90315454007/) - **USA Today**
+7. [No player left behind: How Arsenal handled a plague of injuries to win a trophy and contend for a second](https://www.cbssports.com/soccer/news/no-player-left-behind-how-arsenal-handled-a-plague-of-injuries-to-win-a-trophy-and-contend-for-a-second/) - **CBS Sports**
+8. [Enrique ‘not surprised’ by Arsenal’s title triumph ahead of Champions League final](https://www.101greatgoals.com/football/champions-league/enrique-not-surprised-arsenals-title-triumph-champions-league-final/) - **101 Great Goals**
+9. [Chelsea told to consider shock move to re-sign legendary forward](https://eplindex.com/146941/chelsea-told-to-consider-shock-move-to-re-sign-legendary-forward.html) - **English Premier League Index - Opta Stats**
+10. [Show HN: Simple news aggregator with source bias meters](https://unbiasthenews.com) - **Unbiasthenews.com**
 
 
 ---
-*최근 업데이트: 2026-05-31 02:32:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-31 03:44:55 (KST) / (하루 100회 제한 준수 중)*
