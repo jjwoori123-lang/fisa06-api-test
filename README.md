@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Boston Red Sox Have Major Problems With Communication](https://roundtable.io/sports/mlb/red-sox/opinion/boston-red-sox-have-major-problems-with-communication) - **Roundtable.io**
-2. [UCL final battle splits ex-Eagles legends](https://punchng.com/ucl-final-battle-splits-ex-eagles-legends/) - **The Punch**
-3. [Manchester City Star Shows His Support for PSG Ahead of UCL Final](https://psgworld.io/news/news/manchester-city-star-shows-his-support-for-psg-ahead-of-ucl-final) - **Psgworld.io**
-4. [Revealed: The unseen Arsenal dark arts and why they're far more widespread than you realise - and why they go unpunished](https://www.dailymail.com/sport/football/article-15858111/Arsenal-dark-arts-unpunished.html) - **Dailymail.com**
-5. [Brenden Aaronson skips USMNT World Cup practice — to get married](https://nypost.com/2026/05/29/sports/usmnts-brenden-aaronson-skips-world-cup-training-for-wedding/) - **New York Post**
-6. [Dizzy Gillespie goes WHACK on polarising England star Kevin Pietersen: 'Give me a break ya muppet'](https://www.dailymail.com/sport/cricket/article-15859837/Dizzy-Gillespie-goes-WHACK-polarising-England-star-Kevin-Pietersen-break-ya-muppet.html) - **Dailymail.com**
-7. [Islanders AHL Team Hamilton Hammers Hit Home Run With Jay McKee Hire](https://thehockeynews.com/ahl/latest-news/hamilton-hammer-hit-home-run-with-mckee-hire) - **The Hockey News**
-8. [Tracking down Benjamin Mendy: He once earned £500k a month, had Cheshire mansion sex parties and bragged about bedding 10,000 women. But after being acquitted of eight rapes, we reveal his lonely new life in Poland](https://www.dailymail.com/news/article-15859311/Benjamin-Mendy-Cheshire-mansion-sex-parties-women-acquitted-rapes-lonely-life-Poland.html) - **Dailymail.com**
-9. [Brenden Aaronson's Wedding A Reminder That USA's World Cup Team Is All Grown Up](https://www.foxsports.com/stories/soccer/brenden-aaronson-leaves-usmnt-world-cup-camp-for-his-own-wedding) - **Fox Sports**
-10. [Ex-Premier League champion Raheem Sterling arrested on suspicion of DUI following crash](https://www.alloutsoccer.com/news/raheem-sterling-arrested-dui-crash-1861619) - **Alloutsoccer.com**
+1. [Marcel Desailly urges Xabi Alonso to sign player who can “bring something special into the system”](https://chelsea.news/2026/05/marcel-desailly-darwin-nunez-xabi-alonso-chelsea/) - **Chelsea.news**
+2. [League winners now seriously exploring deal for 69-app Man Utd man after being informed of his price tag by INEOS](https://strettynews.com/2026/05/30/galatasaray-ramping-up-pursuit-manuel-ugarte-manchester-united/) - **Strettynews.com**
+3. [A much-maligned Manchester City midfielder is linked with a move to Spain](https://esteemedkompany.com/2026/05/30/a-much-maligned-manchester-city-midfielder-is-linked-with-a-move-to-spain/) - **Esteemedkompany.com**
+4. [Curacao clash is crucial to get much-needed minutes into the legs of undercooked Scotland trio Aaron Hickey, Billy Gilmour and Ben Gannon-Doak](https://www.dailymail.com/sport/football/article-15859375/Curacao-clash-crucial-needed-minutes-legs-undercooked-Scotland-trio-Aaron-Hickey-Billy-Gilmour-Ben-Gannon-Doak.html) - **Dailymail.com**
+5. [Where to watch PSG vs. Arsenal live stream, TV channel, start time for Champions League final](https://www.sportingnews.com/us/soccer/news/watch-psg-arsenal-live-stream-tv-channel-start-time-champions-league-final/f5763d76f72a705675c36ec8) - **Sporting News**
+6. [Mail Sport detail scenario in which Nicolas Jackson would be prepared to stay at Chelsea](https://chelsea.news/2026/05/nicolas-jackson-xabi-alonso-chelsea-future/) - **Chelsea.news**
+7. [Arsenal made a proposal to initiate negotiations for Julian Alvarez](https://sportsview.co.uk/2026/05/arsenal-made-a-proposal-to-initiate-negotiations-for-julian-alvarez?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-made-a-proposal-to-initiate-negotiations-for-julian-alvarez) - **Sportsview.co.uk**
+8. [Champions League final features rival songs as Arsenal and PSG fans belt out their anthems](https://sports.yahoo.com/articles/champions-league-final-features-rival-053527763.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-05-31 10:49:50 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-05-31 15:22:01 (KST) / (하루 100회 제한 준수 중)*
