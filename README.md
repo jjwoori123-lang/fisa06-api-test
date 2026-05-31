@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bukayo Saka's fiancée Tolami Benson stuns in red as she leads the glamorous WAGs cheering on Arsenal from the stands at the Champions League final](https://www.dailymail.com/news/article-15861019/Bukayo-Sakas-fianc-e-Tolami-Benson-stuns-red-leads-glamorous-WAGs-cheering-Arsenal-stands-Champions-league-final.html) - **Dailymail.com**
-2. [Arteta Seeks Immortality, and We’re Having Big Feelings…](http://www.toffeeweb.com/season/25-26/news/47609.html) - **Toffeeweb**
-3. [Liverpool sack Arne Slot after disastrous Premier League title defence](https://www.aljazeera.com/video/newsfeed/2026/5/30/liverpool-sack-arne-slot-after-disastrous-premier-league-title-defence) - **Al Jazeera English**
-4. [Bruno Fernandes adds another prestigious honour to growing collection](https://thepeoplesperson.com/2026/05/30/bruno-fernandes-adds-another-prestigious-honour-to-growing-collection-310821/) - **The Peoples Person**
-5. [Arsenal's rivals cry foul over TWO big handball let-offs in the Champions League final that led to their opening goal and denied PSG a penalty](https://www.dailymail.com/sport/football/article-15861007/Arsenal-handball-Champions-League-final.html) - **Dailymail.com**
-6. [Redknapp: Player power contributed to Slot exit, but Iraola can handle pressure](https://www.skysports.com/football/news/18932/13549327/arne-slot-sacked-by-liverpool-jamie-redknapp-claims-player-power-contributed-to-dutchmans-dismissal-but-backs-andoni-iraola-to-handle-pressure) - **Sky Sports**
-7. [Liverpool fires Arne Slot, with Andoni Iraola reportedly waiting in the wings](https://www.usatoday.com/story/sports/soccer/2026/05/30/liverpool-fires-arne-slot-andoni-iraola-replacement/90330154007/) - **USA Today**
-8. [Chris Richards now an injury question mark in major USMNT World Cup worry](https://nypost.com/2026/05/30/sports/top-usmnt-defender-chris-richards-now-an-injury-question-mark/) - **New York Post**
-9. [Who is Andoni Iraola? All about ex-Bournemouth boss tipped for Liverpool manager job](https://www.sportingnews.com/us/soccer/liverpool/news/who-andoni-iraola-bournemouth-tipped-liverpool-manager-job/f2e94bb9c59c46882a045543) - **Sporting News**
-10. [Sterling arrested on suspicion of drug-driving](https://www.bbc.com/sport/football/articles/c1l212ez1m0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Liverpool fires Arne Slot after two-year reign with Andoni Iraola waiting in wings](https://www.alloutsoccer.com/news/liverpool-arne-slot-fires-iraola-1862371) - **Alloutsoccer.com**
+2. [Eagles have 3 stars land on PFF's most valuable draft picks ranking](https://theeagleswire.usatoday.com/story/sports/nfl/eagles/2026/05/30/eagles-pff-most-valuable-non-first-round-draft-picks-mailata-hurts-brown/90331334007/) - **USA Today**
+3. [Where is next year's Champions League final? Venue, host city of 2027 UEFA showpiece game](https://www.sportingnews.com/us/soccer/news/champions-league-final-venue-host-city-2027-uefa/18e5b7815ef0cc3c58fca700) - **Sporting News**
+4. [Liverpool want deal for £80m wonderkid forward](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-eli-junior-kroupi-bournemouth-deal-for-ps80m-wonderkid-forward/) - **Anfieldwatch.co.uk**
+5. [GT vs RCB in IPL 2026 Final: Two teams, two T20 philosophies, one championship](https://economictimes.indiatimes.com/news/sports/gt-vs-rcb-in-ipl-2026-final-two-teams-two-t20-philosophies-one-championship/articleshow/131414468.cms) - **The Times of India**
+6. [NZ boosted by Santner's return for England Tests](https://www.bbc.com/sport/cricket/articles/c0q2x1ndvv3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [NZ boosted by Santner's return for England Tests](https://www.bbc.com/sport/cricket/articles/c0q2x1ndvv3o) - **BBC News**
+8. [UEFA Champions League Final: PSG, Arsenal enter extra time](https://www.rediff.com/sports/report/uefa-champions-league-2026-final-psg-arsenal-enter-extra-time/20260530.htm) - **Rediff.com**
+9. [Anthony Gordon rejected a bigger salary offer to join Barcelona](https://getfootballnewsspain.com/anthony-gordon-rejected-a-bigger-salary-offer-to-join-barcelona/) - **Getfootballnewsspain.com**
+10. [Eli Junior Kroupi: Worrying Bayern update complicates Man United’s plan](https://thepeoplesperson.com/2026/05/30/eli-junior-kroupi-worrying-bayern-update-complicates-man-uniteds-plan-310822/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-06-01 02:33:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-01 03:48:35 (KST) / (하루 100회 제한 준수 중)*
