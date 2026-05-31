@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [PSG beat Arsenal to win back-to-back Champions League titles after shootout](https://www.aljazeera.com/sports/2026/5/30/psg-beat-arsenal-to-win-back-to-back-champions-league-titles-after-shootout) - **Al Jazeera English**
-2. [PSG wins back-to-back Champions League titles after shootout victory against Arsenal](https://www.npr.org/2026/05/30/nx-s1-5841380/psg-champions-league-victory-against-arsenal) - **NPR**
-3. [Why Michael Carrick is perfect for United explained by Diogo Dalot](https://thepeoplesperson.com/2026/05/30/why-michael-carrick-is-perfect-for-united-explained-by-diogo-dalot-310825/) - **The Peoples Person**
-4. [Arne Slot fired as Liverpool manager a year after winning Premier League title](https://japantoday.com/category/sports/arne-slot-fired-as-liverpool-manager) - **Japan Today**
-5. [PSG wins back-to-back Champions League titles after penalty shootout victory against Arsenal](https://japantoday.com/category/sports/champions-league-final-psg-and-arsenal-face-off-for-european-club-soccer%27s-greatest-prize) - **Japan Today**
-6. [Xabi Alonso bombshell set to derail Liverpool's transfer plans](https://www.anfieldwatch.co.uk/liverpool-fc/news/xabi-alonso-bombshell-set-to-derail-liverpools-transfer-plans/) - **Anfieldwatch.co.uk**
-7. [‘We deserve it, because PSG were the only team willing to play’ – João Neves aims dig at Arsenal on the back of Champions League title](https://www.getfootballnewsfrance.com/2026/we-deserve-it-because-psg-were-the-only-team-willing-to-play-joao-neves-aims-dig-at-arsenal-on-the-back-of-champions-league-title/) - **Get French Football News**
-8. [Ronaldo's final bid for World Cup glory](https://japantoday.com/category/2026-fifa-world-cup/ronaldo%27s-final-bid-for-world-cup-glory) - **Japan Today**
-9. [Caitlin Clark's turnover problem could be a defining factor in her legendary WNBA career](https://www.foxnews.com/outkick-sports/caitlin-clarks-turnover-problem-could-defining-factor-legendary-wnba-career) - **Fox News**
+1. [Rafael Leao: Man United target drops bombshell statement on AC Milan future](https://thepeoplesperson.com/2026/05/30/rafael-leao-man-united-target-drops-bombshell-statement-on-ac-milan-future-310830/) - **The Peoples Person**
+2. [Why crucial penalty miss was 'cruel blow' for Arsenal standout Gabriel](https://www.bbc.com/sport/football/articles/clypr1lzxvno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Why crucial penalty miss was 'cruel blow' for Arsenal standout Gabriel](https://www.bbc.com/sport/football/articles/clypr1lzxvno) - **BBC News**
+4. [End of an era at San Siro: Rafael Leão announces Milan exit](https://onefootball.com/en/news/end-of-an-era-at-san-siro-rafael-leao-announces-milan-exit-42945396) - **Onefootball.com**
+5. [Arteta feels the pain of Champions League defeat](http://www.arsenal.com/news/arteta-feels-pain-champions-league-defeat) - **Arsenal.com**
+6. [Papers: Liverpool U-turn for Salah now Slot is gone?](https://www.skysports.com/football/news/11669/13549412/liverpool-u-turn-for-mohamed-salah-now-arne-slot-is-gone-paper-talk) - **Sky Sports**
+7. [Arteta demands fast, smart and bold moves to continue Arsenal's progress](https://www.channelnewsasia.com/sport/arteta-demands-fast-smart-and-bold-moves-continue-arsenals-progress-6151871) - **CNA**
+8. [Arsenal fall one moment short of the defensive perfection that would have won them the Champions League](https://www.cbssports.com/soccer/news/arsenal-fall-one-moment-short-champions-league-final-psg/) - **CBS Sports**
+9. [Arteta: Champions League loss 'very tough to accept'](https://www.rte.ie/sport/soccer/2026/0530/1576069-arteta-champions-league-loss-very-tough-to-accept/) - **RTE**
+10. [Former M&S Chief Executive hired to spearhead Government drive to help young people into work](https://www.gov.uk/government/news/former-ms-chief-executive-hired-to-spearhead-government-drive-to-help-young-people-into-work) - **Www.gov.uk**
 
 
 ---
-*최근 업데이트: 2026-06-01 06:17:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-01 07:30:07 (KST) / (하루 100회 제한 준수 중)*
