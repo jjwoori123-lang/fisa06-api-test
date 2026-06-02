@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Isaiah Hartenstein Addresses His Future With Thunder After Game 7 Loss](https://www.newsweek.com/sports/nba/isaiah-hartenstein-addresses-his-future-with-thunder-after-game-7-loss-12014798) - **Newsweek**
-2. [Arsenal's Gabriel Breaks Silence On 'Painful' Champions League Final Penalty Miss](https://www.foxsports.com/stories/soccer/gabriel-magalhaes-breaks-silence-after-champions-league-final-penalty-miss-with-arsenal-defender-delivering-painful-message) - **Fox Sports**
-3. [Will Vinícius Jr Stay At Real Madrid Under Mourinho? 'Strong Signs' Revealed](https://www.foxsports.com/stories/soccer/will-vinicius-jr-stay-at-real-madrid-under-jose-mourinho-strong-signs-update-on-brazilian-forwards-future-plans-following-champions-league-clash-with-the-special-one) - **Fox Sports**
-4. [Three Real Madrid players pick up Champions League awards](https://www.football-espana.net/2026/06/01/three-real-madrid-players-pick-up-champions-league-awards) - **Football Espana**
-5. [Dua Lipa's new husband Callum Turner 'broke down in tears as he saw her walk down the aisle as the couple married in modest legal ceremony with just eight guests before celebrating with a quiet family dinner'](https://www.dailymail.com/tvshowbiz/article-15862865/Dua-Lipas-husband-Callum-Turner-tears-married-modest-legal-ceremony.html) - **Dailymail.com**
-6. [Arsenal parade: Dozens require rescuing from height, 16 arrests made](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d34b57c1-3041-45e3-965c-5e54e2eec9a7) - **Yahoo Entertainment**
-7. [How to watch Brazil vs Panama - US TV channel, live stream and kickoff time](https://www.alloutsoccer.com/news/how-watch-brazil-vs-panama-1863495) - **Alloutsoccer.com**
-8. [USMNT 3-2 Senegal: Pulisic ends goal drought as Yanks overcome Mane brace in Charlotte friendly](https://www.nbcsports.com/soccer/news/usmnt-vs-senegal-recap-video-highlights-analysis-final-score) - **NBCSports.com**
-9. [France celebrates PSG Champions League triumph](https://punchng.com/france-celebrates-psg-champions-league-triumph/) - **The Punch**
+1. [Ken Early: If Arsenal are unpopular with neutrals, it’s because they waste everyone’s time](https://www.irishtimes.com/sport/soccer/2026/06/01/if-arsenal-are-unpopular-with-neutrals-its-because-they-waste-everyones-time/) - **The Irish Times**
+2. [What Was Your Favourite Sunderland Goal And Game Of The Season?](https://rokerreport.sbnation.com/opinion/139435/what-was-your-favourite-sunderland-goal-and-game-of-the-season) - **SB Nation**
+3. [After Years Of Mockery, Sunderland Finally Taste Regional Glory!](https://rokerreport.sbnation.com/opinion/139737/after-years-of-mockery-sunderland-finally-taste-regional-glory) - **SB Nation**
+4. [Editorial: Worst Thing About Being Back in the Premier League? The Standard of Refereeing](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c2199ed3-b894-45cd-875a-e061fc35f9d3) - **Yahoo Entertainment**
+5. [Leinster still nursing Champions Cup wounds despite reaching URC final four](https://www.irishtimes.com/sport/rugby/2026/06/01/leo-cullen-expects-people-to-come-after-leinster-despite-booking-urc-semi-final-place/) - **The Irish Times**
+6. [Arsenal fans get too high as 75 rescued by fire brigade](https://www.rte.ie/news/world/2026/0601/1576176-arsenal-celebrations/) - **RTE**
+7. [How RCB celebrated their second IPL title: Virat Kohli-Anushka dance, Krunal Pandya's dhol, 'Once Felt Nice' shirts and more](https://www.cricketnews.com/en/cricket/news/how-rcb-celebrated-second-ipl-title-virat-kohli-anushka-dance/57223e1f654dc5f773b47f14) - **Cricketnews.com**
+8. [Vaibhav Sooryavanshi to debut soon in Indian Team? BCCI drops big statement, ends suspense](https://economictimes.indiatimes.com/news/new-updates/vaibhav-sooryavanshi-to-debut-soon-in-indian-team-bcci-drops-big-statement-ends-suspense/articleshow/131433657.cms) - **The Times of India**
+9. [Konate to leave Liverpool after contract not renewed](https://www.channelnewsasia.com/sport/konate-leave-liverpool-after-contract-not-renewed-6153346) - **CNA**
+10. [How Mauricio Pochettino's USMNT vision was on display as Christian Pulisic and squad excel in World Cup prep](https://www.cbssports.com/soccer/news/how-mauricio-pochettinos-usmnt-vision-was-on-display-world-cup-prep/) - **CBS Sports**
 
 
 ---
-*최근 업데이트: 2026-06-02 09:15:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-02 14:02:33 (KST) / (하루 100회 제한 준수 중)*
