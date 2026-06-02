@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Vinicius Junior: Real Madrid’s stance on Man United target’s future](https://thepeoplesperson.com/2026/06/01/vinicius-junior-real-madrids-stance-on-man-united-targets-future-310874/) - **The Peoples Person**
-2. [PhHN Daily: Exploring Flyers Draft Options; Matthews’ Meeting; RFA Trade Cost](https://phillyhockeynow.com/flyers-news-draft-options-matthews-meeting-with-leafs-rfa-trade-cost-mctavish-rumors-helenius-wins-worlds/) - **Phillyhockeynow.com**
-3. [Premier League's record appearance maker Milner retires](https://www.channelnewsasia.com/sport/premier-leagues-record-appearance-maker-milner-retires-6153831) - **CNA**
-4. [Mexican goalkeeper Ochoa set for historic sixth World Cup](https://punchng.com/mexican-goalkeeper-ochoa-set-for-historic-sixth-world-cup/) - **The Punch**
-5. [Aston Villa target Moritz Nicolas has ‘time-limited’ exit clause](https://www.getfootballnewsgermany.com/2026/aston-villa-target-moritz-nicolas-exit-clause/) - **Getfootballnewsgermany.com**
-6. [Lazio Rekindle Interest in Fringe Brighton Defender](https://thelaziali.com/2026/06/01/lazio-rekindle-brighton-diego-coppola/) - **Thelaziali.com**
-7. [James Milner announces his retirement from football after record-breaking 24-season career](https://www.empireofthekop.com/2026/06/01/james-milner-announces-his-retirement-from-football/) - **Empire of The Kop**
-8. [Mexican goalkeeper Ochoa set for historic sixth World Cup](https://sports.yahoo.com/articles/mexican-goalkeeper-ochoa-set-historic-092235306.html) - **Yahoo Entertainment**
-9. [Possible destinations for Jonathan David](https://www.juvefc.com/possible-destinations-for-jonathan-david/) - **JuveFC**
+1. [Six talking points from Keith Andrews' end-of-season review](https://www.brentfordfc.com/en/news/video/interviews-keith-andrews-2025-26-premier-league-season) - **Brentfordfc.com**
+2. [Baseball: After 56-year drought, Dayton Christian baseball finds formula for historic postseason run](https://www.daytondailynews.com/sports/baseball-after-56-year-drought-dayton-christian-baseball-finds-formula-for-historic-postseason-run/article_cd2e437a-63fa-5976-a51e-f5c2c13c1d64.html) - **Dayton Daily News**
+3. [‘Lock in or get locked out’ Declan Rice sends message to Arsenal’s rivals](https://www.justarsenal.com/lock-in-or-get-locked-out-declan-rice-sends-message-to-arsenals-rivals/416178) - **Just Arsenal News**
+4. [France 'very doubtful' to have Arsenal defender in World Cup camp](https://www.sportingnews.com/us/soccer/news/france-very-doubtful-have-arsenal-defender-world-cup-camp/97f960606c1bf00345465a5f) - **Sporting News**
+5. [IPL 2027 mini-auction: Which players should KKR release after seventh-place finish under Ajinkya Rahane?](https://www.cricketnews.com/en/cricket/news/ipl-2027-mini-auction-kkr-player-release/aeb04155df9a5b61fef41b04) - **Cricketnews.com**
+6. [Bruno Fernandes opens up on Man United career – ESPN](https://thepeoplesperson.com/2026/06/01/bruno-fernandes-opens-up-on-man-united-career-espn-310882/) - **The Peoples Person**
+7. [Andoni Iraola looks the right manager to help Liverpool get their swagger back](https://www.irishtimes.com/sport/soccer/2026/06/01/andoni-iraola-looks-the-right-manager-to-help-liverpool-get-their-swagger-back/) - **The Irish Times**
+8. [REPORT: Spurs “expected to make formal move” for Hayden Hackney](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-transfers-rumors/70831/tottenham-hotspur-transfer-news-rumors-middlesbrough-hayden-hackney) - **SB Nation**
+9. [Aston Villa goalkeeper Martinez available but Inter still tempted to promote understudy](https://football-italia.net/martinez-available-but-inter-still-tempted/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-06-02 18:42:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-02 23:05:54 (KST) / (하루 100회 제한 준수 중)*
