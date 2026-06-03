@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [IPL 2026: Virat Kohli drops epic "kikli boys" dance moment with Royal Challengers Bengaluru teammate Bhuvneshwar Kumar](https://economictimes.indiatimes.com/news/sports/ipl-2026-virat-kohli-drops-epic-kikli-boys-dance-moment-with-royal-challengers-bengaluru-teammate-bhuvneshwar-kumar/articleshow/131463478.cms) - **The Times of India**
-2. [NBA star Giannis Antetokounmpo reveals only team he will sign contract extension with if traded](https://www.thebiglead.com/giannis-antetokounmpo-reveals-only-team-he-will-sign-contract-extension-with-if-traded/) - **The Big Lead**
-3. [Southampton backs ‘spygate’ Eckert despite world’s most lucrative game miss](https://www.aljazeera.com/sports/2026/6/2/southampton-back-spygate-eckert-despite-worlds-most-lucrative-game-miss) - **Al Jazeera English**
-4. [Has the World Cup arrived yet? In the US, it depends on who you ask](https://sports.yahoo.com/articles/world-cup-arrived-yet-us-120023544.html) - **Yahoo Entertainment**
-5. [Player’s entourage believes that Arsenal might be interested in a move for him](https://www.justarsenal.com/players-entourage-believes-that-arsenal-might-be-interested-in-a-move-for-him/416215) - **Just Arsenal News**
-6. [Liverpool great Dalglish reveals cancer diagnosis and says 'treatment is going well'](https://sports.yahoo.com/articles/liverpool-great-dalglish-reveals-cancer-113527966.html) - **Yahoo Entertainment**
-7. [Gianluigi Donnarumma breaks silence on Pep Guardiola talks for Italy managerial position](https://cityxtra.co.uk/47507/gianluigi-donnarumma-breaks-silence-on-pep-guardiola-talks-for-italy-managerial-position/) - **Cityxtra.co.uk**
-8. [Southampton owner will not sack apologetic Tonda Eckert despite role in Spygate scandal](https://www.irishtimes.com/sport/soccer/2026/06/02/southampton-owner-will-not-sack-apologetic-tonda-eckert-despite-role-in-spygate-scandal/) - **The Irish Times**
-9. [Benfica on verge of naming Marco Silva as Jose Mourinho’s replacement in major blow for Fulham](https://www.101greatgoals.com/football/premier-league/benfica-on-verge-of-naming-marco-silva-as-jose-mourinhos-replacement-in-major-blow-for-fulham/) - **101 Great Goals**
+1. [Marco Silva leaves Fulham to replace Jose Mourinho at Benfica](https://thefootballfaithful.com/marco-silva-leaves-fulham-to-replace-jose-mourinho-at-benfica/) - **The Football Faithful**
+2. [Morgan Rogers ‘open’ to Arsenal transfer as Villa stance revealed](https://thefootballfaithful.com/morgan-rogers-arsenal-transfer-aston-villa/) - **The Football Faithful**
+3. [Power of Youth Charter gives young people a voice in government](https://www.gov.uk/government/news/power-of-youth-charter-gives-young-people-a-voice-in-government) - **Www.gov.uk**
+4. [Four players could be allowed to leave Arsenal this summer](https://www.justarsenal.com/four-players-could-be-allowed-to-leave-arsenal-this-summer/416235) - **Just Arsenal News**
+5. [River Plate to contact Manchester City over potential loan transfer for midfielder](https://cityxtra.co.uk/47667/river-plate-to-contact-manchester-city-over-potential-loan-transfer-for-midfielder/) - **Cityxtra.co.uk**
+6. [Report: Vinicius Jr’s Real Madrid renewal linked to performances at the 2026 World Cup](https://worldsoccertalk.com/news/report-vinicius-jrs-real-madrid-renewal-linked-to-performances-at-the-2026-world-cup/) - **Worldsoccertalk.com**
+7. [U.S. Soccer is using AI to scout 70 million teenagers. The former consulting CEO running the federation calls it a ‘paradigm shift’ for the sport](https://fortune.com/2026/06/02/us-soccer-using-ai-to-scout-70-million-teenagers-world-cup/) - **Fortune**
+8. ['Change is inevitable' - but who should replace Silva?](https://www.bbc.com/sport/football/articles/c794p2eww2jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Why Modern Football Metrics Can’t Replace the Magic of the Pitch](https://www.playmakerstats.com/news/why-modern-football-metrics-can-t-replace-the-magic-of-the-pitch/1139347) - **Playmakerstats.com**
+10. [Marco Silva leaves Fulham after 5 years coaching Premier League club](https://sports.yahoo.com/articles/marco-silva-leaves-fulham-5-163403815.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-06-03 21:15:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-04 02:21:51 (KST) / (하루 100회 제한 준수 중)*
