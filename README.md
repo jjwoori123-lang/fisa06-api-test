@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [My four-day peregrination in God’s own state](https://punchng.com/my-four-day-peregrination-in-gods-own-state/) - **The Punch**
-2. [2026 World Cup will have record number of MLS players. See the list.](https://www.usatoday.com/story/sports/soccer/worldcup/2026/06/02/mls-players-2026-world-cup/90379029007/) - **USA Today**
-3. [World Cup 2026 squads by the numbers: Clubs and leagues most represented, youngest players and more](https://www.cbssports.com/soccer/news/world-cup-2026-squads-by-the-numbers-leagues-oldest-youngest-players-countries/) - **CBS Sports**
-4. [Ayden Heaven tops all Man United players in standout stat](https://thepeoplesperson.com/2026/06/02/ayden-heaven-tops-all-man-united-players-in-standout-stat-310961/) - **The Peoples Person**
-5. [World Cup 2026 squads by the number: Clubs and leagues most represented, youngest players and more](https://www.cbssports.com/soccer/news/world-cup-2026-squads-by-the-number-leagues-oldest-youngest-players-countries/) - **CBS Sports**
-6. [For the Knicks, all roads to a title run through Victor Wembanyama: ‘He’s pretty incredible’](https://www.nydailynews.com/2026/06/02/knicks-spurs-victor-wembanyama-nba-finals-game-1-mike-brown-josh-hart/) - **New York Daily News**
-7. [UK warns top football clubs against deals with foreign crypto providers](https://www.politico.eu/article/uk-warns-top-football-clubs-against-deals-with-foreign-crypto-providers/) - **POLITICO.eu**
-8. [Liverpool legend Sir Kenny Dalglish shares cancer diagnosis after accidental reveal](https://nypost.com/2026/06/02/sports/liverpool-legend-sir-kenny-dalglish-shares-cancer-diagnosis/) - **New York Post**
-9. [Radek Vitek: Andy Mitten issues major transfer update on Man United star](https://thepeoplesperson.com/2026/06/02/radek-vitek-andy-mitten-issues-major-transfer-update-on-man-united-star-310960/) - **The Peoples Person**
-10. [Report: Manchester United set to complete major €45m deal](https://eplindex.com/147043/report-manchester-united-set-to-complete-major-e45m-deal.html) - **English Premier League Index - Opta Stats**
+1. [Arsenal’s Best Players From 2025/26 Premier League Title-Winning Season](https://sports.yahoo.com/articles/arsenal-best-players-2025-26-065019658.html) - **Yahoo Entertainment**
+2. [Aston Villa stand firm against Arsenal and other interest for star](https://eplindex.com/147045/villa-stand-firm-against-arsenal-and-other-interest-for-star.html) - **English Premier League Index - Opta Stats**
+3. [Tarik Subal urged to show ‘self-respect’ in potential Dodgers trade, but fans need to get real](https://www.sportingnews.com/us/mlb/los-angeles-dodgers/news/tarik-subal-urged-show-self-respect-potential-dodgers-trade/8bc2cc9cdfc03fa36cf35ca2) - **Sporting News**
+4. [Spain, France and Argentina Emerge as Top Contenders for 2026 World Cup Glory](https://www.ibtimes.com.au/spain-france-argentina-2026-world-cup-favourites-1870017) - **Ibtimes.com.au**
+5. [Los Angeles Dodgers Should Trade For Cy Young Winner, Tarik Skubal](https://www.forbes.com/sites/berniepleskoff/2026/06/03/los-angeles-dodgers-should-trade-for-cy-young-winning-tarik-skubal/) - **Forbes**
+6. [#34 渡邉 飛勇選手 契約合意(新規)のご報告](https://prtimes.jp/main/html/rd/p/000000411.000037407.html) - **Prtimes.jp**
+7. [Barcelona defender likely to renew contract despite interest from Premier League, Serie A](https://barcauniversal.com/barcelona-defender-likely-to-renew-contract-despite-interest-from-premier-league-serie-a/) - **Barcauniversal.com**
+8. [UK Exchange newsletter: English football — in a league of its own?](https://www.cnbc.com/2026/06/03/premier-league-arsenal-finances-ownership-challenges.html) - **CNBC**
+9. [Could a change of role be what an England international needs at Manchester City?](https://esteemedkompany.com/2026/06/03/could-a-change-of-role-be-what-an-england-international-needs-at-manchester-city/) - **Esteemedkompany.com**
 
 
 ---
-*최근 업데이트: 2026-06-04 11:00:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-04 15:51:58 (KST) / (하루 100회 제한 준수 중)*
