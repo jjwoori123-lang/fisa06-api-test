@@ -1,13 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Eli Junior Kroupi: Man United’s plan for Bournemouth starlet explained](https://thepeoplesperson.com/2026/06/03/eli-junior-kroupi-man-uniteds-plan-for-bournemouth-starlet-explained-310997/) - **The Peoples Person**
-2. [Barrett: 'It's not about me, it's about everyone'](https://www.rte.ie/sport/soccer/2026/0603/1576604-barrett-its-not-about-me-its-about-everyone/) - **RTE**
-3. [Premier League superstar turns to super agent to make Real Madrid dream come true](https://madriduniversal.com/premier-league-superstar-turns-to-super-agent-to-make-real-madrid-dream-come-true/) - **Madriduniversal.com**
-4. [What is the Best VPN for Streaming](https://www.addictivetips.com/vpn/best-for-streaming/) - **Addictivetips.com**
-5. [Palestra: Atalanta hope for Man City-Newcastle bidding war as Inter weigh swap deal](https://football-italia.net/palestra-man-city-newcastle-bid-war-inter-swap/) - **Football Italia**
-6. [Pen to paper: Liverpool send Man City running after sealing vital contract for star Iraola will love](https://www.empireofthekop.com/2026/06/03/pen-to-paper-liverpool-send-man-city-running-after-sealing-vital-contract-for-star-iraola-will-love/) - **Empire of The Kop**
-7. [Just in: Manchester United now willing to negotiate new formula for Rashford’s Barcelona move](https://barcauniversal.com/just-in-manchester-united-now-willing-to-negotiate-new-formula-for-rashfords-barcelona-move/) - **Barcauniversal.com**
+1. [Why do managers struggle after stepping up to 'big-six' clubs?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ed059c4d-6e80-4f4e-9830-682eb7745914) - **Yahoo Entertainment**
+2. [Why do managers struggle after stepping up to 'big-six' clubs?](https://www.bbc.com/sport/football/articles/cwy20xpr0pvo) - **BBC News**
+3. [Leeds Could Pull Off Statement Signing as Barcelona Open Door to Exit](https://eplindex.com/147067/leeds-could-pull-off-statement-signing-as-barcelona-open-door-to-exit.html) - **English Premier League Index - Opta Stats**
+4. [Should Aston Villa cash in on Rogers and buy Foden?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4519d62e-e055-4d71-a2b0-99c3a29308a2) - **Yahoo Entertainment**
+5. [Tottenham poised to raid Brighton for partnership amid squad overhaul](https://www.sportingnews.com/us/soccer/tottenham-hotspur/news/tottenham-poised-raid-brighton-partnership-amid-squad-overhaul/3785a83bdbb5cb13db3ebdba) - **Sporting News**
+6. [NWSL taps Washington DC's Audi Field to host 2026 Championship](https://www.usatoday.com/story/sports/soccer/nwsl/2026/06/03/nwsl-championship-2026-location-washington-dc/90385843007/) - **USA Today**
+7. [What are USMNT's chances at 2026 World Cup? History favors the host nation](https://www.nbcsports.com/soccer/news/what-are-usmnts-chances-at-2026-world-cup-history-favors-the-host-nation) - **NBCSports.com**
+8. [FC Cincinnati hosts English club Burnley FC July 10](https://www.cincinnati.com/story/sports/soccer/fc-cincinnati/2026/06/03/fc-cincinnati-hosts-english-club-burnley-tql-stadium/90384818007/) - **The Cincinnati Enquirer**
+9. [Climate change is increasing the risk of slower games and reduced player performance at nearly every 2026 World Cup match](https://www.prnewswire.com/news-releases/climate-change-is-increasing-the-risk-of-slower-games-and-reduced-player-performance-at-nearly-every-2026-world-cup-match-302789927.html) - **PRNewswire**
+10. [Report Calafiori wanted by Mourinho at Real Madrid after Arsenal victory](https://football-italia.net/calafiori-mourinho-real-madrid-arsenal-victory/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-06-04 22:48:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-05 01:55:08 (KST) / (하루 100회 제한 준수 중)*
