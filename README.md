@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [FULL LIST: Top seven African players to watch at 2026 World Cup](https://punchng.com/full-list-top-seven-african-players-to-watch-at-2026-world-cup/) - **The Punch**
-2. [Mateus Fernandes: West Ham block United approach over price](https://thepeoplesperson.com/2026/06/03/mateus-fernandes-west-ham-block-united-approach-over-price-311009/) - **The Peoples Person**
-3. [Liverpool Are Eyeing A Move For This Real Madrid Defender: Good Choice For The Reds?](https://the4thofficial.net/2026/06/liverpool-are-eyeing-a-move-for-this-real-madrid-defender/) - **The4thofficial.net**
-4. [Will This World Cup Feature The Greatest Managerial Lineup In History?](https://www.foxsports.com/stories/soccer/the-greatest-managerial-line-up-in-world-cup-history-carlo-ancelotti-thomas-tuchel-mauricio-pochettino-and-more-set-to-do-battle-in-2026) - **Fox Sports**
-5. [Andoni Iraola Will Reportedly Sign as Liverpool’s New Head Coach On Thursday](https://liverpooloffside.sbnation.com/liverpool-fc-transfer-news/81047/andoni-iraola-will-reportedly-sign-as-liverpools-new-head-coach-on-thursday) - **SB Nation**
-6. [World Cup 2026 picks, odds, predictions: Top props, best bets for United States by proven soccer expert](https://www.cbssports.com/soccer/news/usmnt-world-cup-2026-picks-odds-futures-predictions-props-best-bets/) - **CBS Sports**
-7. [USMNT's Chris Richards training individually, injury status still unclear for World Cup opener](https://www.cbssports.com/soccer/news/usmnts-chris-richards-training-individually-injury-status-still-unclear-for-world-cup-opener/) - **CBS Sports**
-8. [Update On Tottenham Hotspur And Their Pursuit Of This Manchester City Winger: Good Signing For De Zerbi?](https://the4thofficial.net/2026/06/update-on-tottenham-hotspur-and-their-pursuit-of-this-manchester-city-winger/) - **The4thofficial.net**
-9. [Who is the favourite to win the Golden Boot at the 2026 World Cup?](https://wp.fromthespot.co.uk/29238/who-is-the-favourite-to-win-the-golden-boot-at-the-2026-world-cup/) - **Fromthespot.co.uk**
-10. [Ibrahima Konate on battle with depression after deaths of Diogo Jota and his father](https://www.alloutsoccer.com/news/konate-depression-jota-father-deaths-1868492) - **Alloutsoccer.com**
+1. [Abandoned Liverpool star finally ready to make comeback](https://www.anfieldwatch.co.uk/liverpool-fc/news/abandoned-liverpool-star-finally-ready-to-make-comeback/) - **Anfieldwatch.co.uk**
+2. [Jose Mourinho appointed Real Madrid manager again - but only if Florentino Perez wins president election - with ex-Premier League defender set to join](https://www.dailymail.com/sport/football/article-15872083/Jose-Mourinho-Real-Madrid-manager-Florentino-Perez.html) - **Dailymail.com**
+3. [Aston Villa Plot Free Transfer For Versatile Defender: Right Move For Emery?](https://the4thofficial.net/2026/06/aston-villa-plot-free-transfer-for-versatile-defender-right-move-for-emery/) - **The4thofficial.net**
+4. [AC Milan chase Summerville - Thursday's gossip](https://www.bbc.com/sport/football/articles/cvgz2wvw3ydo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Premier League 2025/26 Season Report Cards: Leeds To Wolves (Part Two)](https://www.justarsenal.com/premier-league-2025-26-season-report-cards-leeds-to-wolves-part-two/416275) - **Just Arsenal News**
+6. [From Denmark: Manchester City rival Premier League clubs for Bodo/Glimt starlet](https://cityxtra.co.uk/47597/from-denmark-manchester-city-rival-premier-league-clubs-for-bodo-glimt-starlet/) - **Cityxtra.co.uk**
+7. [Premier League 2025/26 Season Report Cards: Leeds To Wolves (Part Two)](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_87abfdf0-5095-4d89-963b-26f822c5b525) - **Yahoo Entertainment**
+8. [AC Milan chase Summerville - Thursday's gossip](https://www.bbc.com/sport/football/articles/cvgz2wvw3ydo) - **BBC News**
+9. [Chelsea and Man City in battle over compensation for Enzo Maresca with Blues believing his sudden exit was a key factor to their woeful season - as he looks set to replace Pep Guardiola](https://www.dailymail.com/sport/football/article-15872081/Chelsea-Man-City-battle-compensation-Enzo-Maresca-Blues-believing-sudden-exit-key-factor-woeful-season-looks-set-replace-Pep-Guardiola.html) - **Dailymail.com**
+10. [Sunderland Are In Talks To Land This Ligue 1 Midfielder: What Will He Add To Le Bris’ Side?](https://the4thofficial.net/2026/06/sunderland-are-in-talks-to-land-this-ligue-1-midfielder/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-06-05 04:23:20 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-05 06:16:57 (KST) / (하루 100회 제한 준수 중)*
