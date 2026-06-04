@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal’s Best Players From 2025/26 Premier League Title-Winning Season](https://sports.yahoo.com/articles/arsenal-best-players-2025-26-065019658.html) - **Yahoo Entertainment**
-2. [Aston Villa stand firm against Arsenal and other interest for star](https://eplindex.com/147045/villa-stand-firm-against-arsenal-and-other-interest-for-star.html) - **English Premier League Index - Opta Stats**
-3. [Tarik Subal urged to show ‘self-respect’ in potential Dodgers trade, but fans need to get real](https://www.sportingnews.com/us/mlb/los-angeles-dodgers/news/tarik-subal-urged-show-self-respect-potential-dodgers-trade/8bc2cc9cdfc03fa36cf35ca2) - **Sporting News**
-4. [Spain, France and Argentina Emerge as Top Contenders for 2026 World Cup Glory](https://www.ibtimes.com.au/spain-france-argentina-2026-world-cup-favourites-1870017) - **Ibtimes.com.au**
-5. [Los Angeles Dodgers Should Trade For Cy Young Winner, Tarik Skubal](https://www.forbes.com/sites/berniepleskoff/2026/06/03/los-angeles-dodgers-should-trade-for-cy-young-winning-tarik-skubal/) - **Forbes**
-6. [#34 渡邉 飛勇選手 契約合意(新規)のご報告](https://prtimes.jp/main/html/rd/p/000000411.000037407.html) - **Prtimes.jp**
-7. [Barcelona defender likely to renew contract despite interest from Premier League, Serie A](https://barcauniversal.com/barcelona-defender-likely-to-renew-contract-despite-interest-from-premier-league-serie-a/) - **Barcauniversal.com**
-8. [UK Exchange newsletter: English football — in a league of its own?](https://www.cnbc.com/2026/06/03/premier-league-arsenal-finances-ownership-challenges.html) - **CNBC**
-9. [Could a change of role be what an England international needs at Manchester City?](https://esteemedkompany.com/2026/06/03/could-a-change-of-role-be-what-an-england-international-needs-at-manchester-city/) - **Esteemedkompany.com**
+1. [Napoli sign Hojlund from Man United after loan spell](https://www.channelnewsasia.com/sport/napoli-sign-hojlund-man-united-after-loan-spell-6159571) - **CNA**
+2. [Noni Madueke fires shots at Arsenal’s rivals](https://dailycannon.com/2026/06/madueke-fires-shots-arsenal-rivals/) - **Dailycannon.com**
+3. [Newcastle United make €35m offer for Real Madrid target](https://siempremadrid.com/newcastle-united-make-e35m-offer-for-real-madrid-target/) - **Siempremadrid.com**
+4. [Chelsea linked to Juventus defender amid potential Cucurella exit](https://www.sportingnews.com/us/soccer/chelsea/news/chelsea-linked-juventus-defender-amid-potential-cucurella-exit/6ff4b7432781296b92bc0f85) - **Sporting News**
+5. [MM 6.3: Maryland men’s soccer announces 2026 schedule](https://www.testudotimes.com/maryland-news/91579/mm-6-3-maryland-mens-soccer-announces-2026-schedule) - **Testudo Times**
+6. [Five wonderkids who could break onto the global stage at World Cup 2026](https://www.hitc.com/five-wonderkids-who-could-break-onto-the-global-stage-at-world-cup-2026/) - **HITC - Football, Gaming, Movies, TV, Music**
+7. [20 year old Newcastle United midfielder has now signed for FC Groningen in permanent deal](https://www.themag.co.uk/2026/06/20-year-old-newcastle-united-midfielder-has-now-signed-for-fc-groningen-in-permanent-deal-travis-hernes/) - **The Mag**
+8. [Cherries to appeal academy decision](https://www.bbc.com/sport/football/articles/cvgz21vjq71o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Postman who sold 'dodgy Fire Sticks' to illegally stream football is jailed for THREE YEARS after pocketing £200k - and trying to hide customers' details](https://www.dailymail.com/sport/football/article-15870093/fire-stick-three-year-sentence.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-06-04 15:51:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-04 19:39:15 (KST) / (하루 100회 제한 준수 중)*
