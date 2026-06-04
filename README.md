@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Why do managers struggle after stepping up to 'big-six' clubs?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ed059c4d-6e80-4f4e-9830-682eb7745914) - **Yahoo Entertainment**
-2. [Why do managers struggle after stepping up to 'big-six' clubs?](https://www.bbc.com/sport/football/articles/cwy20xpr0pvo) - **BBC News**
-3. [Leeds Could Pull Off Statement Signing as Barcelona Open Door to Exit](https://eplindex.com/147067/leeds-could-pull-off-statement-signing-as-barcelona-open-door-to-exit.html) - **English Premier League Index - Opta Stats**
-4. [Should Aston Villa cash in on Rogers and buy Foden?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_4519d62e-e055-4d71-a2b0-99c3a29308a2) - **Yahoo Entertainment**
-5. [Tottenham poised to raid Brighton for partnership amid squad overhaul](https://www.sportingnews.com/us/soccer/tottenham-hotspur/news/tottenham-poised-raid-brighton-partnership-amid-squad-overhaul/3785a83bdbb5cb13db3ebdba) - **Sporting News**
-6. [NWSL taps Washington DC's Audi Field to host 2026 Championship](https://www.usatoday.com/story/sports/soccer/nwsl/2026/06/03/nwsl-championship-2026-location-washington-dc/90385843007/) - **USA Today**
-7. [What are USMNT's chances at 2026 World Cup? History favors the host nation](https://www.nbcsports.com/soccer/news/what-are-usmnts-chances-at-2026-world-cup-history-favors-the-host-nation) - **NBCSports.com**
-8. [FC Cincinnati hosts English club Burnley FC July 10](https://www.cincinnati.com/story/sports/soccer/fc-cincinnati/2026/06/03/fc-cincinnati-hosts-english-club-burnley-tql-stadium/90384818007/) - **The Cincinnati Enquirer**
-9. [Climate change is increasing the risk of slower games and reduced player performance at nearly every 2026 World Cup match](https://www.prnewswire.com/news-releases/climate-change-is-increasing-the-risk-of-slower-games-and-reduced-player-performance-at-nearly-every-2026-world-cup-match-302789927.html) - **PRNewswire**
-10. [Report Calafiori wanted by Mourinho at Real Madrid after Arsenal victory](https://football-italia.net/calafiori-mourinho-real-madrid-arsenal-victory/) - **Football Italia**
+1. [FULL LIST: Top seven African players to watch at 2026 World Cup](https://punchng.com/full-list-top-seven-african-players-to-watch-at-2026-world-cup/) - **The Punch**
+2. [Mateus Fernandes: West Ham block United approach over price](https://thepeoplesperson.com/2026/06/03/mateus-fernandes-west-ham-block-united-approach-over-price-311009/) - **The Peoples Person**
+3. [Liverpool Are Eyeing A Move For This Real Madrid Defender: Good Choice For The Reds?](https://the4thofficial.net/2026/06/liverpool-are-eyeing-a-move-for-this-real-madrid-defender/) - **The4thofficial.net**
+4. [Will This World Cup Feature The Greatest Managerial Lineup In History?](https://www.foxsports.com/stories/soccer/the-greatest-managerial-line-up-in-world-cup-history-carlo-ancelotti-thomas-tuchel-mauricio-pochettino-and-more-set-to-do-battle-in-2026) - **Fox Sports**
+5. [Andoni Iraola Will Reportedly Sign as Liverpool’s New Head Coach On Thursday](https://liverpooloffside.sbnation.com/liverpool-fc-transfer-news/81047/andoni-iraola-will-reportedly-sign-as-liverpools-new-head-coach-on-thursday) - **SB Nation**
+6. [World Cup 2026 picks, odds, predictions: Top props, best bets for United States by proven soccer expert](https://www.cbssports.com/soccer/news/usmnt-world-cup-2026-picks-odds-futures-predictions-props-best-bets/) - **CBS Sports**
+7. [USMNT's Chris Richards training individually, injury status still unclear for World Cup opener](https://www.cbssports.com/soccer/news/usmnts-chris-richards-training-individually-injury-status-still-unclear-for-world-cup-opener/) - **CBS Sports**
+8. [Update On Tottenham Hotspur And Their Pursuit Of This Manchester City Winger: Good Signing For De Zerbi?](https://the4thofficial.net/2026/06/update-on-tottenham-hotspur-and-their-pursuit-of-this-manchester-city-winger/) - **The4thofficial.net**
+9. [Who is the favourite to win the Golden Boot at the 2026 World Cup?](https://wp.fromthespot.co.uk/29238/who-is-the-favourite-to-win-the-golden-boot-at-the-2026-world-cup/) - **Fromthespot.co.uk**
+10. [Ibrahima Konate on battle with depression after deaths of Diogo Jota and his father](https://www.alloutsoccer.com/news/konate-depression-jota-father-deaths-1868492) - **Alloutsoccer.com**
 
 
 ---
-*최근 업데이트: 2026-06-05 01:55:08 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-05 04:23:20 (KST) / (하루 100회 제한 준수 중)*
