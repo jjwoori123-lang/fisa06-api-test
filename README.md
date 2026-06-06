@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Thomas Tuchel admits England must protect 'key player' Harry Kane at the World Cup - but insists 32-year-old captain is in the 'best shape' of his career](https://www.dailymail.com/sport/football/article-15878249/Thomas-Tuchel-England-protect-Harry-Kane.html) - **Dailymail.com**
-2. [World Cup 2026 Group K: Preview, prediction, players to watch, fixtures and TV schedule](https://www.101greatgoals.com/football/world-cup-news/group-k-preview-prediction-fixtures-tv-schedule/) - **101 Great Goals**
-3. [Arsenal Are In Advanced Talks To Sign This Leicester City Winger: One For The Future?](https://the4thofficial.net/2026/06/arsenal-are-in-advanced-talks-to-sign-this-leicester-city-winger/) - **The4thofficial.net**
-4. [Kane fitness, pitch concerns and transfers - what we learned from Tuchel](https://www.skysports.com/football/news/11095/13551266/thomas-tuchel-england-manager-discusses-harry-kanes-fitness-player-transfers-and-tampa-bay-pitch-concerns-ahead-of-new-zealand-friendly) - **Sky Sports**
-5. [José Mourinho wants relegated Premier League star at Real Madrid](https://getfootballnewsspain.com/jose-mourinho-wants-relegated-premier-league-star-at-real-madrid/) - **Getfootballnewsspain.com**
-6. [Grading The Best Deals Of The 2026 Summer Transfer Window So Far](https://www.foxsports.com/stories/soccer/grading-best-deals-2026-summer-transfer-window-so-far) - **Fox Sports**
-7. [Chelsea Are Among The Clubs Hoping To Land This Juventus Forward: Good Option For Alonso?](https://the4thofficial.net/2026/06/chelsea-are-among-the-clubs-hoping-to-land-this-juventus-forward-good-option-for-alonso/) - **The4thofficial.net**
-8. [Shearer says defence and Kane key as England chase World Cup victory](https://www.channelnewsasia.com/sport/shearer-says-defence-and-kane-key-england-chase-world-cup-victory-6165516) - **CNA**
-9. [Vincent Kompany ‘would love to sign’ £80m Arsenal, Man Utd target](https://cfbayerninsider.com/2026/06/bayern-munich-transfer-news-vincent-kompany-morgan-rogers/) - **Cfbayerninsider.com**
+1. [Corporate Fallout: Disney Braces for Another Brutal New Round of Layoffs Following Multi-Billion-Dollar Deal](https://insidethemagic.net/2026/06/espn-disney-planning-another-round-of-layoffs-following-massive-nfl-deal-rl1/) - **Inside the Magic**
+2. [Will transfers be a distraction for England at World Cup?](https://www.bbc.com/sport/football/articles/crlpglx66z9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Will transfers be a distraction for England at World Cup?](https://www.bbc.com/sport/football/articles/crlpglx66z9o) - **BBC News**
+4. [Aston Villa, Spurs and Newcastle Battle for €50m Ligue 1 Star: Right Choice For Emery?](https://the4thofficial.net/2026/06/aston-villa-spurs-and-newcastle-battle-for-e50m-ligue-1-star-right-choice-for-emery/) - **The4thofficial.net**
+5. [WFi 2026 World Cup Winner Predictions](https://worldfootballindex.com/2026/06/wfi-2026-world-cup-winner-predictions/) - **World Football Index**
+6. [How much is each World Cup player being paid? Full salaries revealed as FIFA publishes eye-watering figures](https://www.dailymail.com/sport/football/article-15878091/world-cup-player-salaries-fifa.html) - **Dailymail.com**
+7. [Riquelme: Klopp will be first choice for Real Madrid job if I win election](https://www.skysports.com/football/news/11095/13551282/jurgen-klopp-real-madrid-presidential-candidate-enrique-riquelme-says-former-liverpool-boss-will-be-his-first-choice-head-coach-choice-if-elected) - **Sky Sports**
+8. [Most expensive footballers revealed: Lamine Yamal is worth TWICE as much as Kylian Mbappe, the Bournemouth talent with a £86m price tag - and which two shock England stars are valued higher than Jude Bellingham?](https://www.dailymail.com/sport/football/article-15878085/Most-expensive-footballers-Lamine-Yamal-Kylian-Mbappe.html) - **Dailymail.com**
+9. [Tottenham Hotspur Have Launched A Move For This Brighton Defender: Good Choice For De Zerbi?](https://the4thofficial.net/2026/06/tottenham-hotspur-have-launched-a-move-for-this-brighton-defender/) - **The4thofficial.net**
+10. [Germany fear losing Lennart Karl for the 2026 World Cup due to injury: Who could replace him?](https://worldsoccertalk.com/world-cup/germany-fear-losing-lennart-karl-for-the-2026-world-cup-due-to-injury-who-could-replace-him/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-06-07 05:11:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-07 06:31:24 (KST) / (하루 100회 제한 준수 중)*
