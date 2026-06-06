@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Real Madrid to offer €150M for a ‘Cristiano Ronaldo-level player,’ but not Erling Haaland, reveals Florentino Perez](https://worldsoccertalk.com/news/real-madrid-to-offer-eur150m-for-a-cristiano-ronaldo-level-player-but-not-erling-haaland-reveals-florentino-perez/) - **Worldsoccertalk.com**
-2. [6 Problems New Liverpool Manager Andoni Iraola Must Solve](https://www.foxsports.com/stories/soccer/6-problems-new-liverpool-manager-andoni-iraola-must-solve) - **Fox Sports**
-3. [International friendlies round up: how did the World Cup favourites get on?](https://wp.fromthespot.co.uk/29282/international-friendlies-round-up-how-did-the-world-cup-favourites-get-on/) - **Fromthespot.co.uk**
-4. [Al Ahly part ways with coach Thorup after disappointing season](https://www.channelnewsasia.com/sport/al-ahly-part-ways-coach-thorup-after-disappointing-season-6163441) - **CNA**
-5. [Ruben Amorim earns Omar Berrada’s praise due to key reason](https://thepeoplesperson.com/2026/06/04/ruben-amorim-earns-omar-berradas-praise-due-to-key-reason-311084/) - **The Peoples Person**
-6. [No Phee, no problem?](https://www.swishappeal.com/wnba/80315/minnesota-lynx-best-standings-league-napheesa-collier-cheryl-reeve-olivia-miles-natasha-howard-exceed-expectations-williams-mcbride-coffey) - **Swish Appeal**
-7. [Florentino promises galáctico signing on Cristiano Ronaldo and Kaká level](https://onefootball.com/en/news/florentino-promises-galactico-signing-cristiano-ronaldo-and-kaka-level-42967353) - **Onefootball.com**
-8. [The Day Jens Lehmann Made His Final Arsenal Appearance](https://www.justarsenal.com/the-day-jens-lehmann-made-his-final-arsenal-appearance/416337) - **Just Arsenal News**
-9. [That's awkward! Cole Palmer appears in new star-studded Nike 'rip the script' World Cup advert after being left out of England's squad](https://www.dailymail.com/sport/football/article-15874963/cole-palmer-nike-world-cup-advert.html) - **Dailymail.com**
-10. [‘I loved PSG since I was little,’ says Yan Diomande Liverpool’s reported main target, nearing Luis Enrique’s team](https://worldsoccertalk.com/news/i-loved-psg-since-i-was-little-says-yan-diomande-liverpools-reported-main-target-nearing-luis-enriques-team/) - **Worldsoccertalk.com**
+1. [Everton, Juventus among teams interested in Arsenal striker](https://www.sportingnews.com/us/soccer/everton/news/everton-juventus-among-teams-interested-arsenal-striker/b664317d89761856c07995a7) - **Sporting News**
+2. [Playing for Nigeria a great honour – Azeez](https://punchng.com/playing-for-nigeria-a-great-honour-azeez/) - **The Punch**
+3. [7 facts about the Premier League trophy](http://www.arsenal.com/news/7-facts-about-premier-league-trophy) - **Arsenal.com**
+4. [Facts you didn't know about the Premier League trophy](http://www.arsenal.com/news/facts-you-didnt-know-about-premier-league-trophy) - **Arsenal.com**
+5. ['India ke liye 15 saal khelna hai': Delhi Capitals' 'ziddi boy' Madhav Tiwari chases big India dream | EXCLUSIVE](https://timesofindia.indiatimes.com/sports/cricket/ipl/ipl-2026/india-ke-liye-15-saal-khelna-hai-delhi-capitals-ziddi-boy-madhav-tiwari-chases-big-india-dream-exclusive/articleshow/131519585.cms) - **The Times of India**
+6. [Melbourne Storm boss hails 'positive' talks with Tasmania to bring games south](https://www.abc.net.au/news/2026-06-05/tasmania-nrl-rugby-league-storm-boss-in-talks/106762798) - **ABC News (AU)**
+7. [Why Jordan Henderson's England inclusion is justified: Insiders reveal when star players pined for his return, the problem he solves for Thomas Tuchel and how he's so much more than a cheerleader](https://www.dailymail.com/sport/football/article-15874395/Jordan-Henderson-England-inclusion-justified.html) - **Dailymail.com**
+8. [Liverpool hire ex-Bournemouth boss Andoni Iraola as new manager](https://nypost.com/2026/06/04/sports/liverpool-hire-ex-bournemouth-boss-andoni-iraola-as-new-manager/) - **New York Post**
+9. [Haji Wright nominated for EFL Championship’s PFA Player of the Season award](https://sbisoccer.com/2026/06/haji-wright-nominated-for-efl-championships-pfa-player-of-the-season-award) - **Sbisoccer.com**
+10. [Rokas Pukstas linked with potential Hull City, Premier League move](https://sbisoccer.com/2026/06/rokas-pukstas-linked-with-potential-hull-city-premier-league-move) - **Sbisoccer.com**
 
 
 ---
-*최근 업데이트: 2026-06-06 08:48:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-06 12:48:47 (KST) / (하루 100회 제한 준수 중)*
