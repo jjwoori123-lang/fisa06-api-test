@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The 8 at 8: Friday](https://www.thejournal.ie/8-at-8-friday-5-june-7061385-Jun2026/) - **TheJournal.ie**
-2. [Transfers for an 'extra level' - chairman](https://www.bbc.com/sport/football/articles/cx21282115do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Richard Hughes planning raid for Everton contract rebel forward](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-iliman-ndiaye-richard-hughes-planning-raid-for-everton-contract-rebel-forward/) - **Anfieldwatch.co.uk**
-4. [Alex Scott draws eye-catching parallel between new Liverpool boss Andoni Iraola and Jurgen Klopp](https://sportsview.co.uk/2026/06/alex-scott-draws-eye-catching-parallel-between-new-liverpool-boss-andoni-iraola-and-jurgen-klopp?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=alex-scott-draws-eye-catching-parallel-between-new-liverpool-boss-andoni-iraola-and-jurgen-klopp) - **Sportsview.co.uk**
-5. [Chelsea ponder £21.6 million bid for Zadok Yohanna](https://sportsview.co.uk/2026/06/chelsea-ponder-21-6-million-bid-for-zadok-yohanna?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-ponder-21-6-million-bid-for-zadok-yohanna) - **Sportsview.co.uk**
-6. [Three names emerge as main contenders as Real Madrid president announces €150 million signing](https://madriduniversal.com/three-names-emerge-as-main-contenders-as-real-madrid-president-announces-e150-million-signing/) - **Madriduniversal.com**
-7. [A Manchester City enigma is primed for a big role at the club and looms as a big player at the World Cup](https://esteemedkompany.com/2026/06/05/a-manchester-city-enigma-is-primed-for-a-big-role-at-the-club-and-looms-as-a-big-player-at-the-world-cup/) - **Esteemedkompany.com**
-8. [England to kick-off World Cup preparations on a 'DISJOINTED' pitch - with 'plug and play' turf providing an eerie flashback to the build-up to woeful 2014 tournament](https://www.dailymail.com/sport/football/article-15876053/England-World-Cup-preparations-DISJOINTED-pitch-plug-play-eerie-flashback-woeful-2014-tournament.html) - **Dailymail.com**
-9. [Ryan Wilson expects raging Bulls to be hell-bent on settling scores against Glasgow Warriors in a new-age rugby rivalry fans should relish](https://www.dailymail.com/sport/rugbyunion/article-15874969/Ryan-Wilson-expects-raging-Bulls-hell-bent-settling-scores-against-Glasgow-Warriors-new-age-rugby-rivalry-fans-relish.html) - **Dailymail.com**
+1. [Newcastle United and Reims reach agreement for Ewen Jaouen](https://sportsview.co.uk/2026/06/newcastle-united-and-reims-reach-agreement-for-ewen-jaouen?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-united-and-reims-reach-agreement-for-ewen-jaouen) - **Sportsview.co.uk**
+2. [Football regulator faces 'defining test' over potential Derby investment](https://www.bbc.com/sport/football/articles/c20257p2dyyo) - **BBC News**
+3. [West Ham put massive price tag on Mateus Fernandes](https://thefootballfaithful.com/manchester-united-transfer-news-west-ham-price-tag-mateus-fernandes/) - **The Football Faithful**
+4. [How to watch Mensik vs Zverev: FREE Live Streams & TV Channels for French Open 2026 semi-final](https://www.techradar.com/how-to-watch/tennis/jakub-mensik-vs-alexander-zverev-french-open-2026-semi-final-free) - **TechRadar**
+5. [Miller steps down as Exeter City goalkeeping coach](https://www.bbc.com/sport/football/articles/cp8p8y50185o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Romagnoli’s Heir: Brighton Wantaway & Rising Argentine Defender on Lazio’s Shortlist](https://thelaziali.com/2026/06/05/alessio-romagnoli-diego-coppola-lautaro-rivero-lazio/) - **Thelaziali.com**
+7. [Delhi High Court passes interim injunction order protecting Zee’s broadcasting rights of 2026 FIFA World Cup](https://www.medianama.com/2026/06/223-delhi-high-court-interim-injunction-order-protecting-zees-broadcasting-rights-2026-fifa-world-cup/) - **MediaNama.com**
+8. [Dowman nominated for PFA Young Player of the Year](http://www.arsenal.com/news/dowman-nominated-pfa-young-player-year) - **Arsenal.com**
+9. [Frank Lampard Leads LMA Awards as He Leads Coventry Back to the Premier League After 25-Year Wait](https://worldfootballindex.com/2026/06/frank-lampard-leads-lma-awards-as-he-leads-coventry-back-to-the-premier-league-after-25-year-wait/) - **World Football Index**
+10. [Arsenal trio & Fernandes on PFA men's player of the year shortlist](https://www.bbc.com/sport/football/articles/c4g4gkmmge9o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-06-06 15:54:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-06 18:27:01 (KST) / (하루 100회 제한 준수 중)*
