@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chris Richards ruled out of final World Cup tuneup, casting doubt on U.S. opener](https://sports.yahoo.com/soccer/article/usmnt-chris-richards-ruled-out-of-final-world-cup-tuneup-casting-doubt-on-us-opener-160506354.html) - **Yahoo Entertainment**
-2. [Inside USA Goalkeepers' Healthy Competition To Be The World Cup Starter](https://www.foxsports.com/stories/soccer/usmnt-world-cup-goalkeepers-turner-freese-brady) - **Fox Sports**
-3. [Why did the IRFU make Andy Farrell their longest-tenured coach?](https://www.irishtimes.com/sport/rugby/2026/06/05/why-did-the-irfu-make-andy-farrell-their-longest-tenured-coach/) - **The Irish Times**
-4. [Sky Sports News favourite Georgie Thompson returns to screens - 10 years on from quitting TV and disappearing from public life with her Olympic hero husband](https://www.dailymail.com/sport/football/article-15876243/Sky-Sports-News-favourite-Georgie-Thompson-returns.html) - **Dailymail.com**
-5. [Mentality and goalscorers - fans on changes for next season](https://www.bbc.com/sport/football/articles/c5y7yxxd3dzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [A manager and a striker - fans on changes for next season](https://www.bbc.com/sport/football/articles/c8939xvlqd4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Squad depth and early moves - fans on what must change this summer](https://www.bbc.com/sport/football/articles/cx212n7k5z8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Discipline and player trading strategy - fans on what must change this summer](https://www.bbc.com/sport/football/articles/cgrpr02ed2wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Man City chair Al Mubarak will ‘say everything’ after verdict on finances](https://www.aljazeera.com/sports/2026/6/5/man-city-chair-al-mubarak-will-say-everything-after-verdict-on-finances) - **Al Jazeera English**
-10. [Hammers will never go to next level while selling best players - Dyer](https://www.bbc.com/sport/football/articles/cx212802gdlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Man United CEO Omar Berrada discusses transfer 'template' with 'clear plan' in place](https://www.alloutsoccer.com/news/manchester-united-ceo-transfer-template-1872059) - **Alloutsoccer.com**
+2. [Newcastle closely following PSG’s Pierre Mounguengue](https://sportsview.co.uk/2026/06/newcastle-closely-following-psgs-pierre-mounguengue?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-closely-following-psgs-pierre-mounguengue) - **Sportsview.co.uk**
+3. [Saints not under pressure to sell - Solak](https://www.bbc.com/sport/football/articles/c4g8gkre4exo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Liverpool is pushing to beat Arsenal to sign two attackers](https://www.justarsenal.com/liverpool-is-pushing-to-beat-arsenal-to-sign-two-attackers/416419) - **Just Arsenal News**
+5. [Everton begin negotiations for Championship Player of the Year](https://royalbluemersey.sbnation.com/english-premier-league-transfers-news-rumors/80438/everton-begin-talks-negotiations-hayden-hackneychampionship-player-of-the-year-middlesborough-transfer) - **SB Nation**
+6. [Liverpool’s New Era Could Spark a Brutal Summer Clearout](https://anfieldindex.com/94778/liverpools-new-era-could-spark-a-brutal-summer-clearout.html) - **Anfieldindex.com**
+7. [Spurs Secure Elite Premier League Experience in Smart Summer Move](https://eplindex.com/147129/spurs-secure-elite-premier-league-experience-in-smart-summer-move.html) - **English Premier League Index - Opta Stats**
+8. [Chris Richards to miss USMNT-Germany, remains unknown for World Cup](https://sbisoccer.com/2026/06/chris-richards-to-miss-usmnt-germany-remains-unknown-for-world-cup) - **Sbisoccer.com**
+9. [USA v Germany: International friendly line-ups, stats and preview, TV channel, live online stream and prediction for 2026 FIFA World Cup warm-up match](https://www.101greatgoals.com/match-previews/world-cup-matches/usa-v-germany-line-ups-stats-tv-channel-live-online-stream/) - **101 Great Goals**
+10. [Sacked Spurs boss Frank swaps touchline troubles for punditry and Tour de France](https://www.channelnewsasia.com/sport/sacked-spurs-boss-frank-swaps-touchline-troubles-punditry-and-tour-de-france-6165216) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-06-07 01:08:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-07 02:36:21 (KST) / (하루 100회 제한 준수 중)*
