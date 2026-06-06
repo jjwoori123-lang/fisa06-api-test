@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [AK Monthly Recap: May 2026](https://www.adventurouskate.com/ak-monthly-recap-may-2026/) - **Adventurouskate.com**
-2. [Bayern offer to extend Arijon Ibrahimovic's contract](https://bulinews.com/bayern-offer-extend-arijon-ibrahimovic-contract) - **Bulinews.com**
-3. [What Will Ederson Offer Manchester United?](https://www.forbes.com/sites/grahamruthven/2026/06/05/what-will-ederson-offer-manchester-united/) - **Forbes**
-4. [Kevin McHale Says Larry Bird Would Dominate Luka Doncic in Today's NBA With Superior Physicality](https://www.ibtimes.com.au/kevin-mchale-larry-bird-vs-luka-doncic-1870184) - **Ibtimes.com.au**
-5. [Group including Taiwanese financier worth £7BILLION and a former DJ claim they have bought 24.99 per cent of Daniel Levy's stake in Tottenham](https://www.dailymail.com/sport/football/article-15877079/taiwanese-billionaire-levy-tottenham-stake.html) - **Dailymail.com**
-6. [Dolby Vision and Dolby Atmos to Power Telemundo's FIFA World Cup 2026™ Coverage on Peacock, a Streaming First](https://www.prnewswire.com/news-releases/dolby-vision-and-dolby-atmos-to-power-telemundos-fifa-world-cup-2026-coverage-on-peacock-a-streaming-first-302792732.html) - **PRNewswire**
-7. [Canada hope hosting Ireland will help improve World Cup fortunes](https://www.irishtimes.com/sport/soccer/2026/06/05/canada-hope-hosting-ireland-will-help-improve-world-cup-fortunes/) - **The Irish Times**
-8. [Newcastle United gets serious about signing Arsenal youngster](https://www.justarsenal.com/newcastle-united-gets-serious-about-signing-arsenal-youngster/416398) - **Just Arsenal News**
-9. [World Cup preview: Group I – Can France reach another final?](https://hayters.com/world-cup-preview-group-i-can-france-reach-another-final/) - **Hayters.com**
-10. [Tottenham sign former Liverpool defender Robertson on free transfer](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260605-99-640389/) - **Dpa-international.com**
+1. [Chris Richards ruled out of final World Cup tuneup, casting doubt on U.S. opener](https://sports.yahoo.com/soccer/article/usmnt-chris-richards-ruled-out-of-final-world-cup-tuneup-casting-doubt-on-us-opener-160506354.html) - **Yahoo Entertainment**
+2. [Inside USA Goalkeepers' Healthy Competition To Be The World Cup Starter](https://www.foxsports.com/stories/soccer/usmnt-world-cup-goalkeepers-turner-freese-brady) - **Fox Sports**
+3. [Why did the IRFU make Andy Farrell their longest-tenured coach?](https://www.irishtimes.com/sport/rugby/2026/06/05/why-did-the-irfu-make-andy-farrell-their-longest-tenured-coach/) - **The Irish Times**
+4. [Sky Sports News favourite Georgie Thompson returns to screens - 10 years on from quitting TV and disappearing from public life with her Olympic hero husband](https://www.dailymail.com/sport/football/article-15876243/Sky-Sports-News-favourite-Georgie-Thompson-returns.html) - **Dailymail.com**
+5. [Mentality and goalscorers - fans on changes for next season](https://www.bbc.com/sport/football/articles/c5y7yxxd3dzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [A manager and a striker - fans on changes for next season](https://www.bbc.com/sport/football/articles/c8939xvlqd4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Squad depth and early moves - fans on what must change this summer](https://www.bbc.com/sport/football/articles/cx212n7k5z8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Discipline and player trading strategy - fans on what must change this summer](https://www.bbc.com/sport/football/articles/cgrpr02ed2wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Man City chair Al Mubarak will ‘say everything’ after verdict on finances](https://www.aljazeera.com/sports/2026/6/5/man-city-chair-al-mubarak-will-say-everything-after-verdict-on-finances) - **Al Jazeera English**
+10. [Hammers will never go to next level while selling best players - Dyer](https://www.bbc.com/sport/football/articles/cx212802gdlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-06-06 23:43:39 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-07 01:08:25 (KST) / (하루 100회 제한 준수 중)*
