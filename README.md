@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [‘Minds have changed’: Bayern in ‘contact’ with £56.2m Real Madrid target](https://cfbayerninsider.com/2026/06/bayern-munich-contact-nathaniel-brown/) - **Cfbayerninsider.com**
-2. [The key factor that will decide Barcelona’s pursuit for Premier League defender](https://barcauniversal.com/the-key-factor-that-will-decide-barcelonas-pursuit-for-premier-league-defender/) - **Barcauniversal.com**
-3. [FIFA World Cup 2026 Group Guide: Germany, Netherlands lead intriguing Groups E and F](https://economictimes.indiatimes.com/news/sports/fifa-world-cup-2026-group-guide-germany-netherlands-lead-intriguing-groups-e-and-f/articleshow/131539383.cms) - **The Times of India**
-4. [I want a new challenge outside Serie A, says AC Milan’s Leão](https://punchng.com/i-want-a-new-challenge-outside-serie-a-says-ac-milans-leao/) - **The Punch**
-5. [Newcastle will allow Nick Pope leave this summer and have held talks with Ipswich Town](https://sportsview.co.uk/2026/06/newcastle-will-allow-nick-pope-leave-this-summer-and-have-held-talks-with-ipswich-town?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-will-allow-nick-pope-leave-this-summer-and-have-held-talks-with-ipswich-town) - **Sportsview.co.uk**
-6. [USA star Chris Richards' World Cup status in doubt as frustrated Mauricio Pochettino reveals crucial 'decision' looms](https://www.dailymail.com/sport/football/article-15877945/chris-richards-world-cup-doubt-mauricio-pochettino-usmnt.html) - **Dailymail.com**
-7. [Everton News Catch-Up](http://www.toffeeweb.com/season/25-26/news/47621.html) - **Toffeeweb**
-8. [Hartlepool sign former West Ham striker Hugill](https://www.bbc.com/sport/football/articles/c5y9y9vzdwyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [FIFA to use new VAR technology at World Cup](https://dailycannon.com/2026/06/fifa-new-var-technology-world-cup/) - **Dailycannon.com**
-10. [Tottenham Hotspur Identify This Fulham Winger As A Target: What Will He Add To De Zerbi’s Side?](https://the4thofficial.net/2026/06/tottenham-hotspur-identify-this-fulham-winger-as-a-target/) - **The4thofficial.net**
+1. [Thomas Tuchel admits England must protect 'key player' Harry Kane at the World Cup - but insists 32-year-old captain is in the 'best shape' of his career](https://www.dailymail.com/sport/football/article-15878249/Thomas-Tuchel-England-protect-Harry-Kane.html) - **Dailymail.com**
+2. [World Cup 2026 Group K: Preview, prediction, players to watch, fixtures and TV schedule](https://www.101greatgoals.com/football/world-cup-news/group-k-preview-prediction-fixtures-tv-schedule/) - **101 Great Goals**
+3. [Arsenal Are In Advanced Talks To Sign This Leicester City Winger: One For The Future?](https://the4thofficial.net/2026/06/arsenal-are-in-advanced-talks-to-sign-this-leicester-city-winger/) - **The4thofficial.net**
+4. [Kane fitness, pitch concerns and transfers - what we learned from Tuchel](https://www.skysports.com/football/news/11095/13551266/thomas-tuchel-england-manager-discusses-harry-kanes-fitness-player-transfers-and-tampa-bay-pitch-concerns-ahead-of-new-zealand-friendly) - **Sky Sports**
+5. [José Mourinho wants relegated Premier League star at Real Madrid](https://getfootballnewsspain.com/jose-mourinho-wants-relegated-premier-league-star-at-real-madrid/) - **Getfootballnewsspain.com**
+6. [Grading The Best Deals Of The 2026 Summer Transfer Window So Far](https://www.foxsports.com/stories/soccer/grading-best-deals-2026-summer-transfer-window-so-far) - **Fox Sports**
+7. [Chelsea Are Among The Clubs Hoping To Land This Juventus Forward: Good Option For Alonso?](https://the4thofficial.net/2026/06/chelsea-are-among-the-clubs-hoping-to-land-this-juventus-forward-good-option-for-alonso/) - **The4thofficial.net**
+8. [Shearer says defence and Kane key as England chase World Cup victory](https://www.channelnewsasia.com/sport/shearer-says-defence-and-kane-key-england-chase-world-cup-victory-6165516) - **CNA**
+9. [Vincent Kompany ‘would love to sign’ £80m Arsenal, Man Utd target](https://cfbayerninsider.com/2026/06/bayern-munich-transfer-news-vincent-kompany-morgan-rogers/) - **Cfbayerninsider.com**
 
 
 ---
-*최근 업데이트: 2026-06-07 03:51:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-07 05:11:23 (KST) / (하루 100회 제한 준수 중)*
