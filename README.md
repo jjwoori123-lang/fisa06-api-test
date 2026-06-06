@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle United and Reims reach agreement for Ewen Jaouen](https://sportsview.co.uk/2026/06/newcastle-united-and-reims-reach-agreement-for-ewen-jaouen?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-united-and-reims-reach-agreement-for-ewen-jaouen) - **Sportsview.co.uk**
-2. [Football regulator faces 'defining test' over potential Derby investment](https://www.bbc.com/sport/football/articles/c20257p2dyyo) - **BBC News**
-3. [West Ham put massive price tag on Mateus Fernandes](https://thefootballfaithful.com/manchester-united-transfer-news-west-ham-price-tag-mateus-fernandes/) - **The Football Faithful**
-4. [How to watch Mensik vs Zverev: FREE Live Streams & TV Channels for French Open 2026 semi-final](https://www.techradar.com/how-to-watch/tennis/jakub-mensik-vs-alexander-zverev-french-open-2026-semi-final-free) - **TechRadar**
-5. [Miller steps down as Exeter City goalkeeping coach](https://www.bbc.com/sport/football/articles/cp8p8y50185o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Romagnoli’s Heir: Brighton Wantaway & Rising Argentine Defender on Lazio’s Shortlist](https://thelaziali.com/2026/06/05/alessio-romagnoli-diego-coppola-lautaro-rivero-lazio/) - **Thelaziali.com**
-7. [Delhi High Court passes interim injunction order protecting Zee’s broadcasting rights of 2026 FIFA World Cup](https://www.medianama.com/2026/06/223-delhi-high-court-interim-injunction-order-protecting-zees-broadcasting-rights-2026-fifa-world-cup/) - **MediaNama.com**
-8. [Dowman nominated for PFA Young Player of the Year](http://www.arsenal.com/news/dowman-nominated-pfa-young-player-year) - **Arsenal.com**
-9. [Frank Lampard Leads LMA Awards as He Leads Coventry Back to the Premier League After 25-Year Wait](https://worldfootballindex.com/2026/06/frank-lampard-leads-lma-awards-as-he-leads-coventry-back-to-the-premier-league-after-25-year-wait/) - **World Football Index**
-10. [Arsenal trio & Fernandes on PFA men's player of the year shortlist](https://www.bbc.com/sport/football/articles/c4g4gkmmge9o) - **BBC News**
+1. [Potter's Zlatan texts, overcoming failure & finding joy in Sweden](https://www.bbc.com/sport/football/articles/c4g4443l9kdo) - **BBC News**
+2. ['One-buyer market' may slightly reduce Anderson fee - Storey](https://www.bbc.com/sport/football/articles/c5y9yenzk0jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Former Premier League star James Rodriguez 'snubs 17-year-old daughter of his country's president' to spark Colombia World Cup departure storm over players' 'jerk' behaviour](https://www.dailymail.com/sport/football/article-15876127/James-Rodriguez-accused-snubbing-Colombian-president-daughter-World-Cup-send-off.html) - **Dailymail.com**
+4. ['I've lived failure, I've studied it... that's life': Revitalised and refreshed after his West Ham nightmare, Graham Potter is ready to lead Sweden into a World Cup - backed by sunburned fans hoping for another memorable summer to rival USA 94](https://www.dailymail.com/sport/football/article-15851993/Ive-lived-failure-Ive-studied-thats-life-Revitalised-refreshed-West-Ham-nightmare-Graham-Potter-ready-lead-Sweden-World-Cup-backed-sunburned-fans-hoping-memorable-summer-rival-USA-94.html) - **Dailymail.com**
+5. [Ranking all 16 Big 12 football stadiums from worst to first](https://coloradobuffaloeswire.usatoday.com/story/sports/college/buffaloes/football/2026/06/05/big-12-football-stadium-ranking-worst-first-2026-season/90390800007/) - **USA Today**
+6. [SN 140: The Best XI United States men's national team players of all time](https://www.sportingnews.com/us/soccer/news/sn-140-best-xi-united-states-mens-national-team-players-all-time/466f5a19b45c8e7864b7e242) - **Sporting News**
+7. [Potter finding joy with Sweden after Chelsea and West Ham woe](https://www.skysports.com/football/news/11095/13550178/graham-potter-interview-finding-joy-with-sweden-after-chelsea-west-ham-woe-and-unlocking-viktor-gyokeres-and-alexander-isak-at-world-cup) - **Sky Sports**
+8. [West Ham United activate £1million option to sign Keiber Lamadrid](https://sportsview.co.uk/2026/06/west-ham-united-activate-1million-option-to-sign-keiber-lamadrid?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=west-ham-united-activate-1million-option-to-sign-keiber-lamadrid) - **Sportsview.co.uk**
 
 
 ---
-*최근 업데이트: 2026-06-06 18:27:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-06 20:08:57 (KST) / (하루 100회 제한 준수 중)*
