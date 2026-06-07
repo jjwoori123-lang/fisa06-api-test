@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [WNBA fans are all talking about one game on Saturday night](https://www.sportingnews.com/us/wnba/indiana-fever/news/wnba-fans-are-all-talking-about-one-game-saturday-night/438a261a6904eb1673715488) - **Sporting News**
-2. [Vaibhav Sooryavanshi, 15-year-old sensation, called up to India’s T20 squad](https://www.aljazeera.com/sports/2026/6/6/vaibhav-sooryavanshi-ipl-india-t20-team-call-up-england-ireland-asian-games) - **Al Jazeera English**
-3. [Arne Slot's next potential job revealed after Liverpool exit](https://www.anfieldwatch.co.uk/liverpool-fc/news/arne-slots-next-potential-job-revealed-after-liverpool-exit/) - **Anfieldwatch.co.uk**
-4. [How to watch Andreeva vs Chwalińska: FREE live streams of French Open 2026 Women's Final](https://www.techradar.com/how-to-watch/tennis/andreeva-vs-chwalinska-free-live-streams-french-open-2026-womens-final) - **TechRadar**
-5. [Federico Chiesa Reportedly To Open Talks With New Manager Iraola](https://liverpooloffside.sbnation.com/liverpool-fc-news-coverage/81110/federico-chiesa-reportedly-to-open-talks-with-new-manager-iraola) - **SB Nation**
-6. [England take on Kiwis in first American World Cup warm-up run-out](http://www.toffeeweb.com/season/25-26/news/47622.html) - **Toffeeweb**
-7. [Turkish club sets its sight on signing Arsenal forward](https://www.justarsenal.com/turkish-club-sets-its-sight-on-signing-arsenal-forward/416412) - **Just Arsenal News**
-8. [Sandro Tonali: Man United’s plan for Newcastle maestro unveiled](https://thepeoplesperson.com/2026/06/06/sandro-tonali-man-uniteds-plan-for-newcastle-maestro-unveiled-311144/) - **The Peoples Person**
-9. [Official – Inter Activate Buyback Clause To Re-Sign Stankovic Until 2031](https://sempreinter.com/2026/06/06/inter-activate-buyback-resign-stankovic-2031/) - **SempreInter**
-10. [Milan in no rush over decision making as Glasner remains favourite](https://football-italia.net/milan-in-no-rush-over-decision-making/) - **Football Italia**
+1. [EXCLUSIVE | ‘Arsenal won’t want to unbalance squad’ – Philippe Senderos reflects on aftermath of Champions League final](https://www.getfootballnewsfrance.com/2026/exclusive-arsenal-wont-want-to-unbalance-squad-philippe-senderos-reflects-on-aftermath-of-champions-league-final/) - **Get French Football News**
+2. [Frankfurt to battle Tottenham in pursuit of Saint-Étienne gem N'Guessan](https://bulinews.com/frankfurt-battle-tottenham-pursuit-saint-etienne-gem-guessan) - **Bulinews.com**
+3. [What Will Xabi Alonso Change At Chelsea?](https://www.forbes.com/sites/grahamruthven/2026/06/06/what-will-xabi-alonso-change-at-chelsea/) - **Forbes**
+4. [Tuchel Backs Harry Kane in Top Form as England Launch World Cup Warmup Campaign](https://www.ibtimes.com.au/harry-kane-peak-form-england-world-cup-preparation-1870241) - **Ibtimes.com.au**
+5. [Manchester City determined to beat Arsenal to La Liga attacker](https://www.justarsenal.com/manchester-city-determined-to-beat-arsenal-to-la-liga-attacker/416414) - **Just Arsenal News**
+6. [BREAKING: Sullivan leaves joint-chair role at West Ham after 16 years](https://wp.fromthespot.co.uk/29311/breaking-sullivan-leaves-joint-chair-role-at-west-ham/) - **Fromthespot.co.uk**
+7. [Roma receive Premier League inquiries for Manu Kone](https://romapress.net/roma-receive-premier-league-inquiries-for-manu-kone/) - **RomaPress**
+8. [Real Madrid’s 2026 Presidential Election: What do Florentino Pérez and Enrique Riquelme stand for?](https://www.managingmadrid.com/general/108581/real-madrids-2026-presidential-election-what-do-florentino-perez-and-enrique-riquelme-stand-for) - **Managing Madrid**
+9. [Manchester City believe Barcelona defensive target will renew contract – report](https://barcauniversal.com/manchester-city-believe-barcelona-defensive-target-will-renew-contract-report/) - **Barcauniversal.com**
 
 
 ---
-*최근 업데이트: 2026-06-07 19:55:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-07 21:22:05 (KST) / (하루 100회 제한 준수 중)*
