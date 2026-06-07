@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [EXCLUSIVE | ‘Arsenal won’t want to unbalance squad’ – Philippe Senderos reflects on aftermath of Champions League final](https://www.getfootballnewsfrance.com/2026/exclusive-arsenal-wont-want-to-unbalance-squad-philippe-senderos-reflects-on-aftermath-of-champions-league-final/) - **Get French Football News**
-2. [Frankfurt to battle Tottenham in pursuit of Saint-Étienne gem N'Guessan](https://bulinews.com/frankfurt-battle-tottenham-pursuit-saint-etienne-gem-guessan) - **Bulinews.com**
-3. [What Will Xabi Alonso Change At Chelsea?](https://www.forbes.com/sites/grahamruthven/2026/06/06/what-will-xabi-alonso-change-at-chelsea/) - **Forbes**
-4. [Tuchel Backs Harry Kane in Top Form as England Launch World Cup Warmup Campaign](https://www.ibtimes.com.au/harry-kane-peak-form-england-world-cup-preparation-1870241) - **Ibtimes.com.au**
-5. [Manchester City determined to beat Arsenal to La Liga attacker](https://www.justarsenal.com/manchester-city-determined-to-beat-arsenal-to-la-liga-attacker/416414) - **Just Arsenal News**
-6. [BREAKING: Sullivan leaves joint-chair role at West Ham after 16 years](https://wp.fromthespot.co.uk/29311/breaking-sullivan-leaves-joint-chair-role-at-west-ham/) - **Fromthespot.co.uk**
-7. [Roma receive Premier League inquiries for Manu Kone](https://romapress.net/roma-receive-premier-league-inquiries-for-manu-kone/) - **RomaPress**
-8. [Real Madrid’s 2026 Presidential Election: What do Florentino Pérez and Enrique Riquelme stand for?](https://www.managingmadrid.com/general/108581/real-madrids-2026-presidential-election-what-do-florentino-perez-and-enrique-riquelme-stand-for) - **Managing Madrid**
-9. [Manchester City believe Barcelona defensive target will renew contract – report](https://barcauniversal.com/manchester-city-believe-barcelona-defensive-target-will-renew-contract-report/) - **Barcauniversal.com**
+1. [Liverpool set to join the race for relegated star](https://anfieldindex.com/94798/liverpool-set-to-join-the-race-for-relegated-star.html) - **Anfieldindex.com**
+2. [Alejandro Blade: Barcelona star responds to Man United interest](https://thepeoplesperson.com/2026/06/06/alejandro-blade-barcelona-star-responds-to-man-united-interest-311157/) - **The Peoples Person**
+3. [Why the Timberwolves Can’t Afford to Sell Low on Rudy Gobert](https://sports.yahoo.com/articles/why-timberwolves-t-afford-sell-140058247.html) - **Yahoo Entertainment**
+4. [Ederson backed to succeed at Man Utd by AC Milan star](https://thefootballfaithful.com/ederson-man-utd-ac-milan/) - **The Football Faithful**
+5. [West Ham co-owner David Sullivan steps down with immediate effect](https://hayters.com/david-sullivan-west-ham/) - **Hayters.com**
+6. [When Were Sheffield United Last in the Premier League?](https://sheffunitedway.co.uk/2026/06/06/when-were-sheffield-united-last-in-the-premier-league/) - **Sheffunitedway.co.uk**
+7. [Liverpool ruled out of the race to sign Premier League star](https://anfieldindex.com/94796/liverpool-ruled-out-of-the-race-to-sign-premier-league-star.html) - **Anfieldindex.com**
+8. [This Brilliant Celtics – Raptors Trade Sends High-Reward 2023 Lottery Prospect To Boston](https://sports.yahoo.com/articles/brilliant-celtics-raptors-trade-sends-131503116.html) - **Yahoo Entertainment**
+9. [City’s World Cup years: 2014](https://www.mancity.com/news/mens/2014-world-cup-years-63916339) - **Manchester City FC**
+10. [5 days to the World Cup: Cristiano Ronaldo, Wayne Rooney and the infamous wink](https://sports.yahoo.com/soccer/article/5-days-to-the-world-cup-cristiano-ronaldo-wayne-rooney-and-the-infamous-wink-155300001.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-06-07 21:22:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-07 23:31:35 (KST) / (하루 100회 제한 준수 중)*
