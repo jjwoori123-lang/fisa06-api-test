@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Paraguay loses star player Julio Enciso one week before World Cup match vs. USMNT](https://nypost.com/2026/06/06/sports/paraguay-loses-star-player-julio-enciso-one-week-before-world-cup/) - **New York Post**
-2. [Bayern Munich News: Michael Olise is untouchable at FC Bayern; Arsenal getting closer to Morgan Rogers move?; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/211299/bayern-munich-olise-real-madrid-arsenal-fc-barcelona-liverpool-psg-chelsea-bvb) - **Bavarian Football Works**
-3. [Bucs still get to face Myles Garrett in 2026, just later in the year](https://bucswire.usatoday.com/story/sports/nfl/buccaneers/2026/06/05/the-bucs-still-have-to-worry-about-myles-garrett-after-being-traded/90381432007/) - **USA Today**
-4. [Paraguay star Julio Enciso injured one week before USMNT World Cup clash](https://www.usatoday.com/story/sports/soccer/worldcup/2026/06/05/julio-enciso-injury-paraguay-star-world-cup-usmnt/90430271007/) - **USA Today**
-5. [Jacob Bethell's freak dismissal exposes Lord's ongoing pitch farce as 150th Test on legendary ground is overshadowed: RICHARD GIBSON](https://www.dailymail.com/sport/cricket/article-15878241/jacob-bethell-freak-dismissal-lords-pitch-farce.html) - **Dailymail.com**
-6. ['We're going to blow away anything we've achieved so far': Exeter's 'addicted' boss ROB BAXTER on why he signed new Chiefs deal, how his side will tackle Sarries, the club's US cash injection and why rugby is like milking a herd of cows](https://www.dailymail.com/sport/rugbyunion/article-15873775/rob-baxter-exeter-chiefs-saracens-investment.html) - **Dailymail.com**
-7. [Sabrina Ionescu gets Caitlin Clark’s Fever dilemma during injury aftermath: ‘People know’](https://nypost.com/2026/06/05/sports/sabrina-ionescu-gets-caitlin-clarks-fever-dilemma-during-injury-aftermath/) - **New York Post**
-8. [Socceroos legend Mark Bosnich hospitalised after World Cup promotion goes horribly wrong](https://www.dailymail.com/sport/football/article-15878547/Socceroos-legend-Mark-Bosnich-hospitalised-World-Cup-promotion-goes-horribly-wrong.html) - **Dailymail.com**
-9. [Paul Pogba gives his completely honest take on Michael Carrick’s United stay](https://thepeoplesperson.com/2026/06/06/paul-pogba-gives-his-completely-honest-take-on-michael-carricks-united-stay-311131/) - **The Peoples Person**
+1. [Teenage sensation Sooryavanshi called up to India's T20I squad, Iyer named captain](https://www.channelnewsasia.com/sport/teenage-sensation-sooryavanshi-called-up-indias-t20i-squad-iyer-named-captain-6166256) - **CNA**
+2. [Chiesa hints at Liverpool’s Jones exit: ‘He asked me how life is in Italy – Inter are right to think about him’](https://football-italia.net/chiesa-liverpool-exit-jones-inter-juventus/) - **Football Italia**
+3. [Messi Injury Update: Scaloni Offers Messi Fitness Update as Argentina Prepares World Cup Title Defense](https://www.ibtimes.com.au/messi-recovery-argentina-world-cup-friendlies-1870232) - **Ibtimes.com.au**
+4. [He's the one, Liverpool finally enter race for incredible English star](https://www.anfieldwatch.co.uk/liverpool-fc/news/hes-the-one-liverpool-finally-enter-race-for-incredible-english-star/) - **Anfieldwatch.co.uk**
+5. [Can Quick Commerce Platforms Be Liable for Betting Ads? ED Tests Zepto’s Defence](https://www.medianama.com/2026/06/223-ed-probe-zepto-parimatch-betting-ads/) - **MediaNama.com**
+6. [Looking back on Anelka’s City career](https://www.mancity.com/news/mens/nicolas-anelka-city-career-recap-63916171) - **Manchester City FC**
+7. [World Cup 2026 rosters, ranked: The strongest squads among title favourites at 2026 finals](https://www.sportingnews.com/us/soccer/news/world-cup-2026-rosters-ranked-strongest-squads-favourites-2026/83318c81646b01d307c76467) - **Sporting News**
+8. [BBC or ITV: Who will win the World Cup ratings war?](https://www.101greatgoals.com/football/world-cup-news/bbc-itv-pundits-commentators-world-cup-ratings-war-england/) - **101 Great Goals**
+9. [Report: Liverpool ready to move for 22-year-old Premier League midfielder](https://anfieldindex.com/94789/report-liverpool-ready-to-move-for-22-year-old-premier-league-midfielder.html) - **Anfieldindex.com**
+10. [Barcelona ready to loan out academy gem but only on one condition – report](https://barcauniversal.com/barcelona-ready-to-loan-out-academy-gem-but-only-on-one-condition-report/) - **Barcauniversal.com**
 
 
 ---
-*최근 업데이트: 2026-06-07 13:59:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-07 17:27:24 (KST) / (하루 100회 제한 준수 중)*
