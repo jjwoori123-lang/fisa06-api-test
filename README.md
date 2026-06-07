@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool set to join the race for relegated star](https://anfieldindex.com/94798/liverpool-set-to-join-the-race-for-relegated-star.html) - **Anfieldindex.com**
-2. [Alejandro Blade: Barcelona star responds to Man United interest](https://thepeoplesperson.com/2026/06/06/alejandro-blade-barcelona-star-responds-to-man-united-interest-311157/) - **The Peoples Person**
-3. [Why the Timberwolves Can’t Afford to Sell Low on Rudy Gobert](https://sports.yahoo.com/articles/why-timberwolves-t-afford-sell-140058247.html) - **Yahoo Entertainment**
-4. [Ederson backed to succeed at Man Utd by AC Milan star](https://thefootballfaithful.com/ederson-man-utd-ac-milan/) - **The Football Faithful**
-5. [West Ham co-owner David Sullivan steps down with immediate effect](https://hayters.com/david-sullivan-west-ham/) - **Hayters.com**
-6. [When Were Sheffield United Last in the Premier League?](https://sheffunitedway.co.uk/2026/06/06/when-were-sheffield-united-last-in-the-premier-league/) - **Sheffunitedway.co.uk**
-7. [Liverpool ruled out of the race to sign Premier League star](https://anfieldindex.com/94796/liverpool-ruled-out-of-the-race-to-sign-premier-league-star.html) - **Anfieldindex.com**
-8. [This Brilliant Celtics – Raptors Trade Sends High-Reward 2023 Lottery Prospect To Boston](https://sports.yahoo.com/articles/brilliant-celtics-raptors-trade-sends-131503116.html) - **Yahoo Entertainment**
-9. [City’s World Cup years: 2014](https://www.mancity.com/news/mens/2014-world-cup-years-63916339) - **Manchester City FC**
-10. [5 days to the World Cup: Cristiano Ronaldo, Wayne Rooney and the infamous wink](https://sports.yahoo.com/soccer/article/5-days-to-the-world-cup-cristiano-ronaldo-wayne-rooney-and-the-infamous-wink-155300001.html) - **Yahoo Entertainment**
+1. [Arsenal approach PSG defender Mbemba](https://www.bbc.com/sport/football/articles/c4g8g4lz8r0o) - **BBC News**
+2. [Report: Forest are in the race to sign Bundesliga forward](https://eplindex.com/147142/report-forest-are-in-the-race-to-sign-bundesliga-forward.html) - **English Premier League Index - Opta Stats**
+3. [Replacing Suryakumar as T20I captain a "tough decision" but "in interest of team," says BCCI chief selector Ajit Agarkar](https://economictimes.indiatimes.com/news/sports/replacing-suryakumar-as-t20i-captain-a-tough-decision-but-in-interest-of-team-says-bcci-chief-selector-ajit-agarkar/articleshow/131554446.cms) - **The Times of India**
+4. [Fabregas on Como strategy and difficulty of Serie A: ‘Impossible to understand’](https://football-italia.net/fabregas-on-como-strategy-difficulty-serie-a/) - **Football Italia**
+5. [Who could replace Bernardo Silva at Manchester City?](https://cityxtra.co.uk/46646/__trashed-2/) - **Cityxtra.co.uk**
+6. [Liverpool wonderkid ready to 'launch' his career with Anfield exit](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7544da6e-efe7-4a10-a7ef-cef3634b4f67) - **Yahoo Entertainment**
+7. [How to watch USA vs Germany: Free Streams & TV Guide for World Cup 2026 warm-up](https://www.techradar.com/how-to-watch/football/usa-vs-germany-free) - **TechRadar**
+8. [Could Arsenal finally sell a player for more than £35m?](https://www.justarsenal.com/could-arsenal-finally-sell-a-player-for-more-than-35m/416465) - **Just Arsenal News**
+9. [Ederson: Don Hutchison’s bold verdict on Manchester United target](https://thepeoplesperson.com/2026/06/06/ederson-don-hutchisons-bold-verdict-on-manchester-united-target-311155/) - **The Peoples Person**
+10. [Liverpool set to join the race for relegated star](https://anfieldindex.com/94798/liverpool-set-to-join-the-race-for-relegated-star.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-06-07 23:31:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-08 00:56:33 (KST) / (하루 100회 제한 준수 중)*
