@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Khvicha Kvaratskhelia Is Real Madrid's Target, Not Vitinha: Report](https://psgworld.io/news/transfers/khvicha-kvaratskhelia-is-real-madrids-target-not-vitinha-report) - **Psgworld.io**
-2. [Politics of Donald Trump and Gianni Infantino dominate event with flood the zone defence](https://www.irishtimes.com/sport/soccer/2026/06/06/politics-of-donald-trump-and-gianni-infantino-dominate-event-with-flood-the-zone-defence/) - **The Irish Times**
-3. [Thanks, Dennis, And Good Luck For The Future!](https://rokerreport.sbnation.com/opinion/140372/thanks-dennis-and-good-luck-for-the-future) - **SB Nation**
-4. [Harsh Goenka reveals Vaibhav Sooryavanshi’s unexpected pre-match ritual and it's not meditation or music](https://economictimes.indiatimes.com/news/new-updates/harsh-goenka-reveals-vaibhav-sooryavanshis-pre-match-ritual-chhota-bheem-cartoons-help-him-stay-calm-and-focussed/articleshow/131561998.cms) - **The Times of India**
-5. [Sooryavanshi, 15, to travel with parents on India cricket tours](https://economictimes.indiatimes.com/news/sports/sooryavanshi-15-to-travel-with-parents-on-india-cricket-tours/articleshow/131561932.cms) - **The Times of India**
-6. [Fifa World Cup: Why encouraging England display will boost All Whites’ belief ahead of tournament – Michael Burgess](https://www.nzherald.co.nz/sport/football/football-world-cup/fifa-world-cup-why-encouraging-england-display-will-boost-all-whites-belief-ahead-of-tournament-michael-burgess/premium/HUIO4DYZRJDHZPHIZ5A2DYRTTE/) - **New Zealand Herald**
-7. [Revealed: Khvicha Kvaratskhelia Played Injured in PSG-Arsenal Final](https://psgworld.io/news/news/revealed-khvicha-kvaratskhelia-played-injured-in-psg-arsenal-final) - **Psgworld.io**
-8. [Renato Marin Could Leave PSG on Loan](https://psgworld.io/news/news/renato-marin-could-leave-psg-on-loan) - **Psgworld.io**
-9. [This is unbearable. I'm dizzy, disorientated, a kilogram lighter and my legs are like lead. How hard will it be playing in 'dangerous' 40°C heat at the World Cup? I found out the hard way - now I know why experts think players won't even last a half](https://www.dailymail.com/sport/football/article-15868061/World-Cup-heat-40-degrees.html) - **Dailymail.com**
-10. [How Tasmania's planned new stadium could trigger deal for Hobart Hurricanes](https://www.abc.net.au/news/2026-06-07/cricket-australia-tasmania-bbl-big-money-hobart-stadium/106767824) - **ABC News (AU)**
+1. [Liverpool star to be subject of record £73.5m bid](https://anfieldindex.com/94809/liverpool-star-to-be-subject-of-record-73-5m-bid.html) - **Anfieldindex.com**
+2. [Danny Dyer hits out at Thomas Tuchel's 'ridiculous' decision not to bring son-in-law Jarrod Bowen to the World Cup - and admits 'confident' family were booking flights to the US](https://www.dailymail.com/sport/football/article-15880521/Danny-Dyer-Jarrod-Bowen-England-World-Cup.html) - **Dailymail.com**
+3. [World Cup 2026: 5️⃣ big absentees from this summer's tournament](https://onefootball.com/en/news/world-cup-2026-5-big-absentees-from-this-summers-tournament-42976664) - **Onefootball.com**
+4. [It Almost Happened: Ousmane Dembele Joins Leicester](https://sports.yahoo.com/articles/almost-happened-ousmane-dembele-joins-093658228.html) - **Yahoo Entertainment**
+5. [Pep Guardiola 'strikes up close friendship' with glamorous TV presenter, 43, as she sends farewell 'love you' message after Man City exit](https://www.dailymail.com/sport/football/article-15880475/Glamorous-TV-presenter-43-sends-farewell-love-you-message-Pep-Guardiola-close-friendship-record-breaking-Man-City-boss-revealed.html) - **Dailymail.com**
+6. [Arsenal target gives insight into the positions he can play for them](https://www.justarsenal.com/arsenal-target-gives-insight-into-the-positions-he-can-play-for-them/416495) - **Just Arsenal News**
+7. [Arne Slot gives answer after Premier League club approach](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-fulham-arne-slot-gives-answer-after-premier-league-club-approach/) - **Anfieldwatch.co.uk**
+8. [Transfer rumour roundup: Liverpool shut door on Bayern’s Rio Ngumoha pursuit; Everton push ahead for Hackney](https://www.footballmuse.com/features/transfer-rumour-roundup-liverpool-shut-door-on-bayerns-rio-ngumoha-pursuit-everton-push-ahead-for-hackney) - **Footballmuse.com**
+9. [Arsenal plot new moves and Brighton hijack Chelsea deal – transfer round-up](https://hayters.com/arsenal-plot-new-moves-and-brighton-hijack-chelsea-deal-transfer-round-up/) - **Hayters.com**
+10. [Bournemouth player makes exciting Liverpool prediction for next season with Iraola now in charge](https://www.empireofthekop.com/2026/06/07/tyler-adams-liverpool-title-prediction-iraola/) - **Empire of The Kop**
 
 
 ---
-*최근 업데이트: 2026-06-08 14:06:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-08 18:57:48 (KST) / (하루 100회 제한 준수 중)*
