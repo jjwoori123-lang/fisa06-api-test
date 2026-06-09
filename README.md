@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [3 reasons Jets' David Bailey should be Defensive Rookie of the Year favorite](https://jetswire.usatoday.com/story/sports/nfl/jets/2026/06/08/reasons-new-york-jets-david-bailey-defensive-rookie-year-nfl/90458929007/) - **USA Today**
-2. [Back after decades: these countries celebrate World Cup returns](https://onefootball.com/en/news/back-after-decades-these-countries-celebrate-world-cup-returns-42982636) - **Onefootball.com**
-3. [Arsenal abruptly sack respected head doctor Zafar Iqbal](https://sportsview.co.uk/2026/06/arsenal-abruptly-sack-respected-head-doctor-zafar-iqbal?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-abruptly-sack-respected-head-doctor-zafar-iqbal) - **Sportsview.co.uk**
-4. [Odd timing of FIFA matches may keep bars, restaurants from joining party](https://economictimes.indiatimes.com/industry/media/entertainment/odd-timing-of-fifa-matches-may-keep-bars-restaurants-from-joining-party/articleshow/131596117.cms) - **The Times of India**
-5. [Leeds United Consider Best Fee For Hull City’s 15-Goal Striker: Should They Go After Him?](https://the4thofficial.net/2026/06/leeds-united-consider-best-fee-for-hull-citys-15-goal-striker-should-they-go-after-him/) - **The4thofficial.net**
-6. [Richard Hughes puts four names on his centre-back shortlist](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-vuskovic-beukema-inacio-murillo-richard-hughes-puts-four-names-on-his-centre-back-shortlist/) - **Anfieldwatch.co.uk**
-7. [48 teams, extreme heat and a final half-time show - your guide to World Cup 2026](https://www.thejournal.ie/world-cup-2026-guide-everything-you-need-to-know-7063861-Jun2026/) - **TheJournal.ie**
-8. [World Cup 2026 picks, odds, predictions: Top props, best bets for United States by proven soccer expert](https://www.cbssports.com/soccer/news/world-cup-2026-picks-odds-predictions-usmnt-props-best-bets-futures/) - **CBS Sports**
-9. [2026 World Cup Odds: Which Player Will Lead the Tournament in Assists?](https://www.foxsports.com/stories/soccer/2026-world-cup-odds-who-will-have-most-assists) - **Fox Sports**
-10. [Van Dijk opens up on fitness, recovery and life at the top](https://anfieldindex.com/94838/van-dijk-opens-up-on-fitness-recovery-and-life-at-the-top.html) - **Anfieldindex.com**
+1. [Iran's World Cup team 'plots' against America as regime commander declares tournament a 'battlefield'](https://www.dailymail.com/news/article-15883903/Irans-World-Cup-team-plots-against-America-regime-commander-declares-tournament-battlefield.html) - **Dailymail.com**
+2. [Real Madrid eyeing deals for Arsenal & Man City stars](https://getfootballnewsspain.com/real-madrid-eyeing-deals-for-arsenal-man-city-stars/) - **Getfootballnewsspain.com**
+3. [Real Madrid make their move for £277k per week Liverpool midfielder](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-ryan-gravenberch-real-madrid-make-their-move-for-ps277k-per-week-midfielder/) - **Anfieldwatch.co.uk**
+4. [Arsenal Cannot Afford To Rely On Gyökeres Alone Next Season](https://www.justarsenal.com/arsenal-cannot-afford-to-rely-on-gyokeres-alone-next-season/416608) - **Just Arsenal News**
+5. [Palace hold initial talks with Lens manager Sage](https://www.bbc.com/sport/football/articles/c20ypg5vyveo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Palace hold initial talks with Lens manager Sage](https://www.bbc.com/sport/football/articles/c20ypg5vyveo) - **BBC News**
+7. [Manchester City Are Locked In A Three-Way Battle For This Newcastle United Midfielder: Is He Worth The Fight?](https://the4thofficial.net/2026/06/manchester-city-are-locked-in-a-three-way-battle-for-this-newcastle-united-midfielder/) - **The4thofficial.net**
+8. [Sullivan facing further scrutiny following investigation by BBC and The Times](https://www.skysports.com/football/news/11095/13552124/david-sullivan-former-west-ham-chairman-facing-further-scrutiny-following-investigation-by-bbc-and-the-times) - **Sky Sports**
+9. [Wolves in talks to re-sign Mexico striker Jimenez](https://www.bbc.com/sport/football/articles/c70yz917vkko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [The Heat’s trade talks for Giannis will show whether Pat Riley still has the juice](https://ftw.usatoday.com/story/sports/nba/2026/06/08/heat-giannis-trade-pat-riley-legacy-success-failure/90460081007/) - **USA Today**
 
 
 ---
-*최근 업데이트: 2026-06-10 04:37:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-10 06:23:17 (KST) / (하루 100회 제한 준수 중)*
