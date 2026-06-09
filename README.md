@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester City add Aston Villa and England sensation to summer shopping list](https://cityxtra.co.uk/47942/manchester-city-add-aston-villa-and-england-sensation-to-summer-shopping-list/) - **Cityxtra.co.uk**
-2. [Nunez wants Premier League move amid Liverpool return links](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a46403e1-c82e-4bc6-8888-469ed0d13dc1) - **Yahoo Entertainment**
-3. [Newcastle place price tag on Sandro Tonali amid transfer interest](https://thefootballfaithful.com/newcastle-place-price-tag-on-sandro-tonali-amid-transfer-interest/) - **The Football Faithful**
-4. [Be part of our celebration book](http://www.arsenal.com/news/be-part-our-celebration-book) - **Arsenal.com**
-5. [Declan Rice named England's World Cup vice-captain by Thomas Tuchel after stellar season with Arsenal](https://www.dailymail.com/sport/football/article-15882135/Declan-Rice-named-Englands-World-Cup-vice-captain-Thomas-Tuchel-stellar-season-Arsenal.html) - **Dailymail.com**
-6. [Aymeric Laporte admits strong sense of nostalgia for six-year Manchester City career](https://footballtoday.com/2026/06/08/aymeric-laporte-admits-strong-sense-of-nostalgia-for-six-year-manchester-city-career/) - **Footballtoday.com**
-7. [Report: How Darwin Nunez feels about Liverpool return as he seeks to rip up Al-Hilal contract](https://www.empireofthekop.com/2026/06/08/how-nunez-feels-about-liverpool-return-as-he-seeks-to-leave-al-hilal/) - **Empire of The Kop**
-8. [Sheffield United Set For Coaching Shake-up As Former Manchester United Man Linked With Move to Bramall Lane](https://sheffunitedway.co.uk/2026/06/08/sheffield-united-set-for-coaching-shake-up-as-former-manchester-united-man-linked-with-move-to-bramall-lane/) - **Sheffunitedway.co.uk**
-9. [Group of death? Scotland eye progression on World Cup return](https://www.skysports.com/football/news/36621/13551871/scotland-at-world-cup-2026-steve-clarkes-side-look-to-progress-beyond-the-group-stage-for-first-time) - **Sky Sports**
-10. [Man Utd move stalled and Spurs turned down twice – transfer round-up](https://hayters.com/man-utd-move-stalled-and-spurs-turned-down-twice-transfer-round-up/) - **Hayters.com**
+1. [Will Arsenal buy Eli Junior Kroupi?](https://dailycannon.com/2026/06/arsenal-junior-kroupi/) - **Dailycannon.com**
+2. [Incoming Real Madrid boss Jose Mourinho wants to keep Manchester United target Aurelien Tchouameni](https://sportsview.co.uk/2026/06/incoming-real-madrid-boss-jose-mourinho-wants-to-keep-manchester-united-target-aurelien-tchouameni?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=incoming-real-madrid-boss-jose-mourinho-wants-to-keep-manchester-united-target-aurelien-tchouameni) - **Sportsview.co.uk**
+3. [Elliot Anderson Form Makes Him a Cherished Midfielder in England](https://sports.yahoo.com/articles/elliot-anderson-form-makes-him-113656688.html) - **Yahoo Entertainment**
+4. [Arsenal and Liverpool baulk at PSG’s Barcola demands](https://thefootballfaithful.com/arsenal-and-liverpool-baulk-at-psgs-barcola-demands/) - **The Football Faithful**
+5. [Etta Eyong ‘prioritising’ Premier League transfer](https://thefootballfaithful.com/etta-eyong-prioritising-premier-league-transfer/) - **The Football Faithful**
+6. [Jamie Carragher says England will STRUGGLE at the World Cup, as he names his big fear for the Three Lions - and says Jude Bellingham won't start](https://www.dailymail.com/sport/football/article-15882533/Jamie-Carragher-England-STRUGGLE-World-Cup.html) - **Dailymail.com**
+7. [Barcelona homegrown talent not considering summer exit despite losing starting spot](https://barcauniversal.com/barcelona-homegrown-talent-not-considering-summer-exit-despite-losing-starting-spot/) - **Barcauniversal.com**
+8. [Loan Watch: 2025/26 season review](http://www.arsenal.com/news/loan-watch-202526-season-review) - **Arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-06-09 17:31:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-09 20:42:54 (KST) / (하루 100회 제한 준수 중)*
