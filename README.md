@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [EPL: Maresca deal stalls as Chelsea demand compensation from Man City](https://punchng.com/epl-maresca-deal-stalls-as-chelsea-demand-compensation-from-man-city/) - **The Punch**
-2. [Julian Alvarez's agent addresses transfer rumors amidst Real Madrid and Arsenal links](https://www.alloutsoccer.com/news/alvarez-transfer-atletico-real-arsenal-1876237) - **Alloutsoccer.com**
-3. [How MTN One TV plans to distribute digital entertainment across Africa amid established competitors](https://www.bigcapitalintel.com/2026/06/mtn-one-tv-competitive-landscape.html) - **Bigcapitalintel.com**
-4. [The American sports nerd's advanced guide to understanding soccer ahead of the FIFA 2026 World Cup](https://www.cbssports.com/soccer/news/fifa-2026-world-cup-expected-goals-analytics-soccer-nerd/) - **CBS Sports**
-5. [Revealed: David Sullivan’s Sunday Sport sold sexualised images of 15-year-old girls - AOL](https://www.aol.co.uk/entertainment/revealed-david-sullivan-sunday-sport-150922207.html) - **AOL Travel UK**
-6. [Journalist states Liverpool star exit unlikely despite reports](https://anfieldindex.com/94836/journalist-states-liverpool-star-exit-unlikely-despite-reports.html) - **Anfieldindex.com**
-7. [Jose Mourinho demands two further elite defensive signings in the summer](https://madriduniversal.com/jose-mourinho-demands-two-further-elite-defensive-signings-in-the-summer/) - **Madriduniversal.com**
-8. [Report: Spurs ace’s future clouded with doubt as Serie A ginats come calling](https://eplindex.com/147174/report-spurs-aces-future-clouded-with-doubt-as-serie-a-ginats-come-calling.html) - **English Premier League Index - Opta Stats**
-9. [Bruno Fernandes: Man United star reveals secret to brilliant form](https://thepeoplesperson.com/2026/06/08/bruno-fernandes-man-united-star-reveals-secret-to-brilliant-form-311223/) - **The Peoples Person**
-10. [Prime Video purchase Man City footage of Pep Guardiola’s final acts in multi-million deal for new documentary](https://cityxtra.co.uk/47995/prime-video-purchase-man-city-footage-of-pep-guardiolas-final-acts-in-multi-million-deal-for-new-documentary/) - **Cityxtra.co.uk**
+1. [3 reasons Jets' David Bailey should be Defensive Rookie of the Year favorite](https://jetswire.usatoday.com/story/sports/nfl/jets/2026/06/08/reasons-new-york-jets-david-bailey-defensive-rookie-year-nfl/90458929007/) - **USA Today**
+2. [Back after decades: these countries celebrate World Cup returns](https://onefootball.com/en/news/back-after-decades-these-countries-celebrate-world-cup-returns-42982636) - **Onefootball.com**
+3. [Arsenal abruptly sack respected head doctor Zafar Iqbal](https://sportsview.co.uk/2026/06/arsenal-abruptly-sack-respected-head-doctor-zafar-iqbal?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-abruptly-sack-respected-head-doctor-zafar-iqbal) - **Sportsview.co.uk**
+4. [Odd timing of FIFA matches may keep bars, restaurants from joining party](https://economictimes.indiatimes.com/industry/media/entertainment/odd-timing-of-fifa-matches-may-keep-bars-restaurants-from-joining-party/articleshow/131596117.cms) - **The Times of India**
+5. [Leeds United Consider Best Fee For Hull City’s 15-Goal Striker: Should They Go After Him?](https://the4thofficial.net/2026/06/leeds-united-consider-best-fee-for-hull-citys-15-goal-striker-should-they-go-after-him/) - **The4thofficial.net**
+6. [Richard Hughes puts four names on his centre-back shortlist](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-vuskovic-beukema-inacio-murillo-richard-hughes-puts-four-names-on-his-centre-back-shortlist/) - **Anfieldwatch.co.uk**
+7. [48 teams, extreme heat and a final half-time show - your guide to World Cup 2026](https://www.thejournal.ie/world-cup-2026-guide-everything-you-need-to-know-7063861-Jun2026/) - **TheJournal.ie**
+8. [World Cup 2026 picks, odds, predictions: Top props, best bets for United States by proven soccer expert](https://www.cbssports.com/soccer/news/world-cup-2026-picks-odds-predictions-usmnt-props-best-bets-futures/) - **CBS Sports**
+9. [2026 World Cup Odds: Which Player Will Lead the Tournament in Assists?](https://www.foxsports.com/stories/soccer/2026-world-cup-odds-who-will-have-most-assists) - **Fox Sports**
+10. [Van Dijk opens up on fitness, recovery and life at the top](https://anfieldindex.com/94838/van-dijk-opens-up-on-fitness-recovery-and-life-at-the-top.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-06-10 02:26:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-10 04:37:02 (KST) / (하루 100회 제한 준수 중)*
