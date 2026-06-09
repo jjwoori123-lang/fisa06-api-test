@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Iran's World Cup team 'plots' against America as regime commander declares tournament a 'battlefield'](https://www.dailymail.com/news/article-15883903/Irans-World-Cup-team-plots-against-America-regime-commander-declares-tournament-battlefield.html) - **Dailymail.com**
-2. [Real Madrid eyeing deals for Arsenal & Man City stars](https://getfootballnewsspain.com/real-madrid-eyeing-deals-for-arsenal-man-city-stars/) - **Getfootballnewsspain.com**
-3. [Real Madrid make their move for £277k per week Liverpool midfielder](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-ryan-gravenberch-real-madrid-make-their-move-for-ps277k-per-week-midfielder/) - **Anfieldwatch.co.uk**
-4. [Arsenal Cannot Afford To Rely On Gyökeres Alone Next Season](https://www.justarsenal.com/arsenal-cannot-afford-to-rely-on-gyokeres-alone-next-season/416608) - **Just Arsenal News**
-5. [Palace hold initial talks with Lens manager Sage](https://www.bbc.com/sport/football/articles/c20ypg5vyveo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Palace hold initial talks with Lens manager Sage](https://www.bbc.com/sport/football/articles/c20ypg5vyveo) - **BBC News**
-7. [Manchester City Are Locked In A Three-Way Battle For This Newcastle United Midfielder: Is He Worth The Fight?](https://the4thofficial.net/2026/06/manchester-city-are-locked-in-a-three-way-battle-for-this-newcastle-united-midfielder/) - **The4thofficial.net**
-8. [Sullivan facing further scrutiny following investigation by BBC and The Times](https://www.skysports.com/football/news/11095/13552124/david-sullivan-former-west-ham-chairman-facing-further-scrutiny-following-investigation-by-bbc-and-the-times) - **Sky Sports**
-9. [Wolves in talks to re-sign Mexico striker Jimenez](https://www.bbc.com/sport/football/articles/c70yz917vkko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [The Heat’s trade talks for Giannis will show whether Pat Riley still has the juice](https://ftw.usatoday.com/story/sports/nba/2026/06/08/heat-giannis-trade-pat-riley-legacy-success-failure/90460081007/) - **USA Today**
+1. [USA's Previous World Cup Problem At A Key Position Should Be An Strength](https://www.foxsports.com/stories/soccer/usmnt-strikers-world-cup-balogun-pepi-wright) - **Fox Sports**
+2. [USMNT gets encouraging Chris Richards update ahead of World Cup opener](https://nypost.com/2026/06/08/sports/usmnt-gets-chris-richards-update-ahead-of-2026-world-cup/) - **New York Post**
+3. [Julián Alvarez's Agent Responds To Real Madrid, Barcelona Transfer Rumors](https://www.foxsports.com/stories/soccer/julian-alvarezs-agent-breaks-silence-on-sensational-real-madrid-transfer-links-as-race-to-sign-atletico-madrid-forward-heats-up) - **Fox Sports**
+4. [Wolves send delegation to Mexico to convince Raul Jimenez to return to Molineux as World Cup star, 35, leaves Fulham](https://www.dailymail.com/sport/football/article-15884131/Wolves-send-delegation-Mexico-convince-Raul-Jimenez-return-Molineux-World-Cup-star-35-leaves-Fulham.html) - **Dailymail.com**
+5. [Jurrien Timber ruled out of Netherlands’ World Cup squad due to injury despite featuring in UCL final](https://worldsoccertalk.com/world-cup/jurrien-timber-ruled-out-of-netherlands-world-cup-squad-due-to-injury-despite-featuring-in-ucl-final/) - **Worldsoccertalk.com**
+6. [Papers: Man Utd confident of beating Man City to Anderson signature](https://www.skysports.com/football/transfer-paper-talk/12709/13552149/elliot-anderson-future-man-utd-confident-of-beating-man-city-to-nottm-forest-and-england-midfielder-this-summer) - **Sky Sports**
+7. [Who Was Arsenal’s Best Attacker This Season? Our Ratings Out Of 10](https://www.justarsenal.com/who-was-arsenals-best-attacker-this-season-our-ratings-out-of-10/416611) - **Just Arsenal News**
+8. [Enzo Fernández Talks With La T y La M: ‘Music Is Life, and in Soccer It Helps You Stay Focused’](https://www.billboard.com/music/features/world-cup-2026-argentina-enzo-fernandez-la-t-y-la-m-1236262595/) - **Billboard**
+9. [Who Was Arsenal’s Best Attacker This Season? Our Ratings Out Of 10](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d9067c10-9e4c-40f0-b04e-1970c3591932) - **Yahoo Entertainment**
+10. [Report: Marc Cucurella may leave Chelsea for €50M, prioritizing a return to Barcelona over Atlético Madrid](https://worldsoccertalk.com/news/report-marc-cucurella-may-leave-chelsea-for-eur50m-prioritizing-a-return-to-barcelona-over-atletico-madrid/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-06-10 06:23:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-10 08:03:30 (KST) / (하루 100회 제한 준수 중)*
