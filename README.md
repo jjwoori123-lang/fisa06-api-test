@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Is Hume ready for Europe?](https://www.bbc.com/sport/football/articles/c992v9evvz2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [“I’m losing my mind” – Aymeric Laporte laments officiating for Manchester City’s European woes over the years](https://cityxtra.co.uk/48029/im-losing-my-mind-aymeric-laporte-laments-officiating-for-manchester-citys-european-woes-over-the-years/) - **Cityxtra.co.uk**
-3. [Who are the Manchester United stars competing at the World Cup?](https://wp.fromthespot.co.uk/29487/who-are-the-manchester-united-stars-competing-at-the-world-cup-2/) - **Fromthespot.co.uk**
-4. [Is soccer taking over America … or are Americans taking over football?](https://theconversation.com/is-soccer-taking-over-america-or-are-americans-taking-over-football-280778) - **The Conversation Africa**
-5. [Best Dallas, Houston, Texas bars to watch World Cup 2026 games](https://www.usatoday.com/story/sports/soccer/worldcup/2026/06/09/world-cup-2026-texas-bars-offer-cheaper-game-day-viewing/90461971007/) - **USA Today**
-6. [Bournemouth prepared to asked for a huge fee to sell Arsenal target](https://www.justarsenal.com/bournemouth-prepared-to-asked-for-a-huge-fee-to-sell-arsenal-target/416665) - **Just Arsenal News**
-7. [The 'crazy' reason Djed Spence has to wear a mask for England at the World Cup](https://www.hitc.com/the-crazy-reason-djed-spence-has-to-wear-a-mask-for-england-at-the-world-cup/) - **HITC - Football, Gaming, Movies, TV, Music**
-8. [Milan target free transfer for Christensen but Barcelona agreement complicates deal](https://football-italia.net/report-milan-eye-free-transfer-christensen/) - **Football Italia**
-9. [It's Shearer versus Keano and Lineker against Wrighty... forget the exhausting TV battle grinding out 104 matches and get ready for the gripping first war of the World Cup pods](https://www.dailymail.com/sport/football/article-15886397/Its-Shearer-versus-Keano-Lineker-against-Wrighty-forget-exhausting-TV-battle-grinding-104-matches-ready-gripping-war-World-Cup-pods.html) - **Dailymail.com**
-10. [Carlos Baleba: How Brighton star has responded to United’s interest](https://thepeoplesperson.com/2026/06/09/carlos-baleba-how-brighton-star-has-responded-to-uniteds-interest-311285/) - **The Peoples Person**
+1. [Rangers and Leeds United transfer talks escalate as Joe Gelhardt deal hits pause](https://cryptobriefing.com/rangers-leeds-gelhardt-transfer-paused/) - **Crypto Briefing**
+2. [The 2026 World Cup will define careers. These are the 26 players to watch](https://sports.yahoo.com/soccer/article/the-2026-world-cup-will-define-careers-these-are-the-26-players-to-watch-194925272.html) - **Yahoo Entertainment**
+3. [Fiorentina and Bologna eye Burnley winger Luca Koleosho for Serie A return](https://cryptobriefing.com/fiorentina-bologna-koleosho-serie-a/) - **Crypto Briefing**
+4. [Manchester United Are In Pole Position To Sign This Newcastle United Midfielder: Should Carrick Get Him On Board?](https://the4thofficial.net/2026/06/manchester-united-are-in-pole-position-to-sign-this-newcastle-united-midfielder-should-carrick-get-him-on-board/) - **The4thofficial.net**
+5. [Are the Nuggets a Desirable Destination for Free Agents?](https://theleadsm.com/are-the-nuggets-a-desirable-destination-for-free-agents/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=are-the-nuggets-a-desirable-destination-for-free-agents) - **Theleadsm.com**
+6. [Journalist: Four Names Linked With Exit Door At Man City](https://eplindex.com/147204/journalist-four-names-linked-with-exit-door-at-man-city.html) - **English Premier League Index - Opta Stats**
+7. [Julián Álvarez battle takes bizarre turn as Atlético Madrid rebuff Real Madrid’s $173 million offer](https://www.alloutsoccer.com/news/alvarez-atletico-real-transfer-offer-1878221) - **Alloutsoccer.com**
+8. [Can Outfielder Joshua Baez Give St. Louis Cardinals Much-Needed Power?](https://www.forbes.com/sites/chuckmurr/2026/06/09/can-outfielder-joshua-baez-give-st-louis-cardinals-much-needed-power/) - **Forbes**
+9. [Source: Brewers agree to seven-year extension with prospect Luis Lara](https://www.jsonline.com/story/sports/mlb/brewers/2026/06/09/source-brewers-agree-to-seven-year-extension-with-prospect-luis-lara/90455745007/) - **Milwaukee Journal Sentinel**
+10. [Source: Brewers agree to seven-year extension with prospect Luis Lara](https://www.jsonline.com/story/sports/mlb/brewers/2026/06/09/source-brewers-agree-to-seven-year-extension-with-prospect-luis-lara/90455745007/) - **Milwaukee Journal Sentinel**
 
 
 ---
-*최근 업데이트: 2026-06-11 02:29:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-11 04:56:17 (KST) / (하루 100회 제한 준수 중)*
