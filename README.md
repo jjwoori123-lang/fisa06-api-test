@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Rangers and Leeds United transfer talks escalate as Joe Gelhardt deal hits pause](https://cryptobriefing.com/rangers-leeds-gelhardt-transfer-paused/) - **Crypto Briefing**
-2. [The 2026 World Cup will define careers. These are the 26 players to watch](https://sports.yahoo.com/soccer/article/the-2026-world-cup-will-define-careers-these-are-the-26-players-to-watch-194925272.html) - **Yahoo Entertainment**
-3. [Fiorentina and Bologna eye Burnley winger Luca Koleosho for Serie A return](https://cryptobriefing.com/fiorentina-bologna-koleosho-serie-a/) - **Crypto Briefing**
-4. [Manchester United Are In Pole Position To Sign This Newcastle United Midfielder: Should Carrick Get Him On Board?](https://the4thofficial.net/2026/06/manchester-united-are-in-pole-position-to-sign-this-newcastle-united-midfielder-should-carrick-get-him-on-board/) - **The4thofficial.net**
-5. [Are the Nuggets a Desirable Destination for Free Agents?](https://theleadsm.com/are-the-nuggets-a-desirable-destination-for-free-agents/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=are-the-nuggets-a-desirable-destination-for-free-agents) - **Theleadsm.com**
-6. [Journalist: Four Names Linked With Exit Door At Man City](https://eplindex.com/147204/journalist-four-names-linked-with-exit-door-at-man-city.html) - **English Premier League Index - Opta Stats**
-7. [Julián Álvarez battle takes bizarre turn as Atlético Madrid rebuff Real Madrid’s $173 million offer](https://www.alloutsoccer.com/news/alvarez-atletico-real-transfer-offer-1878221) - **Alloutsoccer.com**
-8. [Can Outfielder Joshua Baez Give St. Louis Cardinals Much-Needed Power?](https://www.forbes.com/sites/chuckmurr/2026/06/09/can-outfielder-joshua-baez-give-st-louis-cardinals-much-needed-power/) - **Forbes**
-9. [Source: Brewers agree to seven-year extension with prospect Luis Lara](https://www.jsonline.com/story/sports/mlb/brewers/2026/06/09/source-brewers-agree-to-seven-year-extension-with-prospect-luis-lara/90455745007/) - **Milwaukee Journal Sentinel**
-10. [Source: Brewers agree to seven-year extension with prospect Luis Lara](https://www.jsonline.com/story/sports/mlb/brewers/2026/06/09/source-brewers-agree-to-seven-year-extension-with-prospect-luis-lara/90455745007/) - **Milwaukee Journal Sentinel**
+1. [Napheesa Collier Is Dropping A Jordan Heir Series 2 “Minnesota Lynx”](https://sneakernews.com/2026/06/09/jordan-heir-series-2-napheesa-collier-ir0955-400/) - **Sneaker News**
+2. [World Cup Players Who'll Spin The Transfer Rumor Mill All Summer](https://www.foxsports.com/stories/soccer/world-cup-players-transfers-olise-alvarez-leao-gimenez-salah) - **Fox Sports**
+3. [USC Trojans to Host Pair of Corona Centennial Standouts on Recruiting Visits](https://www.si.com/college/usc/football/usc-trojans-host-pair-corona-centennial-standouts-recruiting-visits-malaki-davis-jordan-kirkpatrick) - **Sports Illustrated**
+4. [Behind the Spurs' unsung heroes helping to maximize Victor Wembanyama in the NBA Finals](https://sports.yahoo.com/nba/article/behind-the-spurs-unsung-heroes-helping-to-maximize-victor-wembanyama-in-the-nba-finals-214531073.html) - **Yahoo Entertainment**
+5. [Mateus Fernandes: United see West Ham ace as the next Declan Rice](https://thepeoplesperson.com/2026/06/09/mateus-fernandes-united-see-west-ham-ace-as-the-next-declan-rice-311295/) - **The Peoples Person**
+6. [Prediction markets eye women’s football as England crushes Ukraine 3-0 in World Cup qualifier](https://cryptobriefing.com/prediction-markets-womens-football-england-ukraine/) - **Crypto Briefing**
+7. [BREAKING: Benfica confirm Mourinho to leave for Real Madrid – with ex-Fulham boss Silva hired as replacement](https://www.101greatgoals.com/football/la-liga/breaking-benfica-confirm-mourinho-to-leave-for-real-madrid-with-ex-fulham-boss-silva-hired-as-replacement/) - **101 Great Goals**
+8. [Revealed: The Premier League record-breaking fee Nottingham Forest are demanding for Elliot Anderson amid Manchester City and Man United's interest in star midfielder](https://www.dailymail.com/sport/football/article-15886831/The-Premier-League-record-breaking-fee-Nottingham-Forest-demanding-Elliot-Anderson-amid-Manchester-City-Man-Uniteds-star-midfielder.html) - **Dailymail.com**
+9. [Newcastle Target €40m Spanish Forward As Gordon Replacement](https://eplindex.com/147208/newcastle-target-e40m-spanish-forward-as-gordon-replacement.html) - **English Premier League Index - Opta Stats**
+10. [Rodri takes emotional trip down Spain memory lane amid Man City contract impasse](https://cityxtra.co.uk/48031/rodri-takes-emotional-trip-down-spain-memory-lane-amid-man-city-contract-impasse/) - **Cityxtra.co.uk**
 
 
 ---
-*최근 업데이트: 2026-06-11 04:56:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-11 07:09:27 (KST) / (하루 100회 제한 준수 중)*
