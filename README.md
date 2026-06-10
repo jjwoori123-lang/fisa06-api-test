@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [USA's Previous World Cup Problem At A Key Position Should Be An Strength](https://www.foxsports.com/stories/soccer/usmnt-strikers-world-cup-balogun-pepi-wright) - **Fox Sports**
-2. [USMNT gets encouraging Chris Richards update ahead of World Cup opener](https://nypost.com/2026/06/08/sports/usmnt-gets-chris-richards-update-ahead-of-2026-world-cup/) - **New York Post**
-3. [Julián Alvarez's Agent Responds To Real Madrid, Barcelona Transfer Rumors](https://www.foxsports.com/stories/soccer/julian-alvarezs-agent-breaks-silence-on-sensational-real-madrid-transfer-links-as-race-to-sign-atletico-madrid-forward-heats-up) - **Fox Sports**
-4. [Wolves send delegation to Mexico to convince Raul Jimenez to return to Molineux as World Cup star, 35, leaves Fulham](https://www.dailymail.com/sport/football/article-15884131/Wolves-send-delegation-Mexico-convince-Raul-Jimenez-return-Molineux-World-Cup-star-35-leaves-Fulham.html) - **Dailymail.com**
-5. [Jurrien Timber ruled out of Netherlands’ World Cup squad due to injury despite featuring in UCL final](https://worldsoccertalk.com/world-cup/jurrien-timber-ruled-out-of-netherlands-world-cup-squad-due-to-injury-despite-featuring-in-ucl-final/) - **Worldsoccertalk.com**
-6. [Papers: Man Utd confident of beating Man City to Anderson signature](https://www.skysports.com/football/transfer-paper-talk/12709/13552149/elliot-anderson-future-man-utd-confident-of-beating-man-city-to-nottm-forest-and-england-midfielder-this-summer) - **Sky Sports**
-7. [Who Was Arsenal’s Best Attacker This Season? Our Ratings Out Of 10](https://www.justarsenal.com/who-was-arsenals-best-attacker-this-season-our-ratings-out-of-10/416611) - **Just Arsenal News**
-8. [Enzo Fernández Talks With La T y La M: ‘Music Is Life, and in Soccer It Helps You Stay Focused’](https://www.billboard.com/music/features/world-cup-2026-argentina-enzo-fernandez-la-t-y-la-m-1236262595/) - **Billboard**
-9. [Who Was Arsenal’s Best Attacker This Season? Our Ratings Out Of 10](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d9067c10-9e4c-40f0-b04e-1970c3591932) - **Yahoo Entertainment**
-10. [Report: Marc Cucurella may leave Chelsea for €50M, prioritizing a return to Barcelona over Atlético Madrid](https://worldsoccertalk.com/news/report-marc-cucurella-may-leave-chelsea-for-eur50m-prioritizing-a-return-to-barcelona-over-atletico-madrid/) - **Worldsoccertalk.com**
+1. [Angolan champions chase 3SC keeper Lawal](https://punchng.com/angolan-champions-chase-3sc-keeper-lawal/) - **The Punch**
+2. [Why my teammates call me Mahrez — Yohanna](https://punchng.com/why-my-teammates-call-me-mahrez-yohanna/) - **The Punch**
+3. [Nigeria’s lost stars set to light up 2026 World Cup](https://punchng.com/?p=2161376) - **The Punch**
+4. [Ultimate 2026 World Cup Gambling Guide: Picks, Predictions, Odds, Underdogs to Bet On](https://www.foxsports.com/stories/soccer/ultimate-2026-world-cup-gambling-guide-odds-predictions-picks-underdogs) - **Fox Sports**
+5. [The young stars you HAVEN'T heard of about to light up the World Cup - our expert talent-spotter has picked out 32 top talents, from an Everton target who could haunt England to Uzbekistan's answer to Lionel Messi](https://www.dailymail.com/sport/football/article-15882787/world-cup-young-stars-talent-spotter.html) - **Dailymail.com**
+6. [OPEN THREAD — Vague Promises: 9 Jun. 2026](https://www.managingmadrid.com/general/108664/open-thread-vague-promises-9-jun-2026) - **Managing Madrid**
+7. [Leicester eye Okonkwo](https://punchng.com/leicester-eye-okonkwo/) - **The Punch**
+8. [John McGinn bursting with pride over giant mural in his home town as he reveals the move to MLS that might have changed his career dramatically](https://www.dailymail.com/sport/football/article-15883885/John-McGinn-bursting-pride-giant-mural-home-town-reveals-MLS-changed-career-dramatically.html) - **Dailymail.com**
+9. [USA's Previous World Cup Problem At A Key Position Should Be An Strength](https://www.foxsports.com/stories/soccer/usmnt-strikers-world-cup-balogun-pepi-wright) - **Fox Sports**
+10. [USMNT gets encouraging Chris Richards update ahead of World Cup opener](https://nypost.com/2026/06/08/sports/usmnt-gets-chris-richards-update-ahead-of-2026-world-cup/) - **New York Post**
 
 
 ---
-*최근 업데이트: 2026-06-10 08:03:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-10 10:33:33 (KST) / (하루 100회 제한 준수 중)*
