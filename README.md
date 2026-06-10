@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Angolan champions chase 3SC keeper Lawal](https://punchng.com/angolan-champions-chase-3sc-keeper-lawal/) - **The Punch**
-2. [Why my teammates call me Mahrez — Yohanna](https://punchng.com/why-my-teammates-call-me-mahrez-yohanna/) - **The Punch**
-3. [Nigeria’s lost stars set to light up 2026 World Cup](https://punchng.com/?p=2161376) - **The Punch**
-4. [Ultimate 2026 World Cup Gambling Guide: Picks, Predictions, Odds, Underdogs to Bet On](https://www.foxsports.com/stories/soccer/ultimate-2026-world-cup-gambling-guide-odds-predictions-picks-underdogs) - **Fox Sports**
-5. [The young stars you HAVEN'T heard of about to light up the World Cup - our expert talent-spotter has picked out 32 top talents, from an Everton target who could haunt England to Uzbekistan's answer to Lionel Messi](https://www.dailymail.com/sport/football/article-15882787/world-cup-young-stars-talent-spotter.html) - **Dailymail.com**
-6. [OPEN THREAD — Vague Promises: 9 Jun. 2026](https://www.managingmadrid.com/general/108664/open-thread-vague-promises-9-jun-2026) - **Managing Madrid**
-7. [Leicester eye Okonkwo](https://punchng.com/leicester-eye-okonkwo/) - **The Punch**
-8. [John McGinn bursting with pride over giant mural in his home town as he reveals the move to MLS that might have changed his career dramatically](https://www.dailymail.com/sport/football/article-15883885/John-McGinn-bursting-pride-giant-mural-home-town-reveals-MLS-changed-career-dramatically.html) - **Dailymail.com**
-9. [USA's Previous World Cup Problem At A Key Position Should Be An Strength](https://www.foxsports.com/stories/soccer/usmnt-strikers-world-cup-balogun-pepi-wright) - **Fox Sports**
-10. [USMNT gets encouraging Chris Richards update ahead of World Cup opener](https://nypost.com/2026/06/08/sports/usmnt-gets-chris-richards-update-ahead-of-2026-world-cup/) - **New York Post**
+1. [Tottenham closing in on £60m deal for Man City forward Savinho](https://sportsview.co.uk/2026/06/tottenham-closing-in-on-60m-deal-for-man-city-forward-savinho?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-closing-in-on-60m-deal-for-man-city-forward-savinho) - **Sportsview.co.uk**
+2. [Steve Clarke makes a strong case for the defence ahead of Haiti clash, but will he shake up his centre pairing for Boston opener?](https://www.dailymail.com/sport/football/article-15884347/Steve-Clarke-makes-strong-case-defence-ahead-Haiti-clash-shake-centre-pairing-Boston-opener.html) - **Dailymail.com**
+3. [アシスタントコーチ 2026-27シーズン契約のお知らせ](https://prtimes.jp/main/html/rd/p/000000540.000035222.html) - **Prtimes.jp**
+4. [Arsenal defender closer to joining Real Madrid than Man City ace – report](https://madriduniversal.com/arsenal-defender-closer-to-joining-real-madrid-than-man-city-ace-report/) - **Madriduniversal.com**
+5. [Marcus Rashford: One stumbling block stopping Bayern raid](https://thepeoplesperson.com/2026/06/09/marcus-rashford-one-stumbling-block-stopping-bayern-raid-311258/) - **The Peoples Person**
+6. [Manchester City chairman names ‘most exciting’ emerging talent set for Etihad Stadium breakthrough](https://cityxtra.co.uk/47956/manchester-city-chairman-names-most-exciting-emerging-talent-set-for-etihad-stadium-breakthrough/) - **Cityxtra.co.uk**
+7. [In photos: On the bus at the Arsenal champions parade](https://www.dazeddigital.com/life-culture/article/70420/1/in-photos-community-pride-at-the-arsenal-champions-parade?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=in-photos-on-the-bus-at-the-arsenal-champions-parade) - **Dazed**
+8. [Hayden set to coach Glasgow T20 franchise in ETPL](https://www.bbc.com/sport/cricket/articles/cjeg3lz7pd1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Hayden set to coach Glasgow T20 franchise in ETPL](https://www.bbc.com/sport/cricket/articles/cjeg3lz7pd1o) - **BBC News**
+10. [England's Spence to wear protective mask at World Cup due to broken jaw](https://www.channelnewsasia.com/sport/englands-spence-wear-protective-mask-world-cup-due-broken-jaw-6170651) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-06-10 10:33:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-10 15:05:26 (KST) / (하루 100회 제한 준수 중)*
