@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Welcome Back: 5️⃣ nations making overdue World Cup returns](https://onefootball.com/en/news/welcome-back-5-nations-making-overdue-world-cup-returns-42990171) - **Onefootball.com**
-2. [Manchester United eyeing Lille forward Matias Fernandez Pardo](https://sportsview.co.uk/2026/06/manchester-united-eyeing-lille-forward-matias-fernandez-pardo?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-eyeing-lille-forward-matias-fernandez-pardo) - **Sportsview.co.uk**
-3. [Ndicka draws interest in Premier League](https://romapress.net/ndicka-draws-interest-in-premier-league/) - **RomaPress**
-4. [EPL: Four players set to leave Chelsea, club confirms](https://punchng.com/epl-four-players-set-to-leave-chelsea-club-confirms/) - **The Punch**
-5. ['He is Pope, but he is good with his feet' - Analyst on Jaouen](https://www.bbc.com/sport/football/articles/cx2jdn53wk7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Leeds United in contract talks with trio](https://hayters.com/leeds-united-in-contract-talks-with-trio/) - **Hayters.com**
-7. ['Competitive budget will help fuel Southend promotion'](https://www.bbc.com/news/articles/c862q4z16ygo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Bransgrove steps down as Hampshire chair after 26 years](https://www.bbc.com/sport/cricket/articles/c621406dp6go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Bransgrove steps down as Hampshire chair after 26 years](https://www.bbc.com/sport/cricket/articles/c621406dp6go) - **BBC News**
-10. ['Owls fans might be seeing lots more of their heroes'](https://www.bbc.com/sport/football/articles/cr47l324lreo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Spurs complete Senesi signing after Bournemouth exit](https://www.bbc.com/sport/football/articles/cddl0glz4p7o) - **BBC News**
+2. [Haiti hoping to do their country proud and upset odds at World Cup](https://sports.yahoo.com/articles/haiti-hoping-country-proud-upset-165125638.html) - **Yahoo Entertainment**
+3. [Angus Gunn leaves Nottingham Forest after end-of-season review](https://cryptobriefing.com/angus-gunn-leaves-nottingham-forest/) - **Crypto Briefing**
+4. [Confirmed sale: PSG cash in on academy defender after potential €6m option taken up](https://psgtalk.com/2026/06/noham-kamara-psg-confirmed-sale/) - **Psgtalk.com**
+5. [Mauricio Pochettino's big bet: The USMNT boss has preached vibes over tactics as key to World Cup success](https://www.cbssports.com/soccer/news/mauricio-pochettinos-usmnt-vibes-tactics-world-cup-success/) - **CBS Sports**
+6. [World Cup 2026: England eager to make a flying start against Croatia](https://footballtoday.com/2026/06/10/world-cup-2026-england-croatia/) - **Footballtoday.com**
+7. [Six legends to be inducted into South Jersey Football Coaches Hall of Fame](https://www.courierpostonline.com/story/sports/high-school/football/2026/06/10/south-jersey-football-coaches-hall-of-fame-names-2026-class/90491385007/) - **Courier Post**
+8. [Forget what you’ve heard: Liverpool can still bring Kennet Eichhorn to Anfield](https://www.empireofthekop.com/2026/06/10/forget-what-youve-heard-liverpool-can-still-bring-kennet-eichhorn-to-anfield/) - **Empire of The Kop**
+9. [Ranking the best managers at the FIFA World Cup 2026](https://thefootballfaithful.com/world-cup-2026-ranking-the-best-managers/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-06-11 21:49:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-12 01:55:34 (KST) / (하루 100회 제한 준수 중)*
