@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Kieran McKenna leaves Ipswich after guiding team back to the Premier League](https://sports.yahoo.com/articles/kieran-mckenna-leaves-ipswich-guiding-214221410.html) - **Yahoo Entertainment**
-2. [Nightmares on Saturdays: Ranking every SEC stadium by fear factor](https://aggieswire.usatoday.com/story/sports/college/aggies/football/2026/06/10/texas-aggies-football-sec-stadiums-intimidation-rankings/90485064007/) - **USA Today**
-3. [Everton Have The Budget To Sign This 24-Year-Old Striker: Should The Toffees Spend On Him?](https://the4thofficial.net/2026/06/everton-have-the-budget-to-sign-this-24-year-old-striker-should-the-toffees-spend-on-him/) - **The4thofficial.net**
-4. [Belgium winger Jérémy Doku expected to be available for his team's World Cup opener against Egypt](https://sports.yahoo.com/articles/belgium-winger-j-r-doku-212301349.html) - **Yahoo Entertainment**
-5. [Thomas Tuchel makes first major England decision ahead of World Cup as Jude Bellingham starts](https://www.hitc.com/thomas-tuchel-makes-first-major-england-decision-ahead-of-world-cup-as-jude-bellingham-starts/) - **HITC - Football, Gaming, Movies, TV, Music**
-6. [Our World Cup watchability rankings feature these 10 can't-miss teams](https://www.usatoday.com/story/sports/soccer/worldcup/2026/06/10/world-cup-2026-most-exciting-teams-haaland-messi-mbappe/90492409007/) - **USA Today**
-7. [Have Arsenal Got The Best Owner In Football, In Stan Kroenke?](https://www.justarsenal.com/have-arsenal-got-the-best-owner-in-football-in-stan-kroenke/416745) - **Just Arsenal News**
-8. [Strasbourg manager Gary O’Neil on Ipswich Town shortlist](https://www.getfootballnewsfrance.com/2026/strasbourg-manager-gary-oneil-on-ipswich-town-shortlist/) - **Get French Football News**
-9. [Chris Richards “ready” for USMNT’s World Cup opener](https://sbisoccer.com/2026/06/chris-richards-ready-for-usmnts-world-cup-opener) - **Sbisoccer.com**
-10. [Rashford or Sancho: Who AC Milan are likely to sign to replace Rafael Leao](https://thepeoplesperson.com/2026/06/10/rashford-or-sancho-who-ac-milan-are-likely-to-sign-to-replace-rafael-leao-311344/) - **The Peoples Person**
+1. [International friendlies roundup: Messi and Ronaldo in action before World Cup farewell](https://wp.fromthespot.co.uk/29569/international-friendlies-roundup-messi-and-ronaldo-in-action-before-world-cup-farewell/) - **Fromthespot.co.uk**
+2. [World Cup Match Day 1: Mexico-South Africa, South Korea-Czechia Kick Off Tournament](https://www.foxsports.com/stories/soccer/world-cup-match-day-1-mexico-south-africa-south-korea-czechia) - **Fox Sports**
+3. [England 3-0 Costa Rica: Gordon shines in delayed final warm-up game](https://wp.fromthespot.co.uk/29566/england-3-0-costa-rica-gordon-shines-in-delayed-final-warm-up-game/) - **Fromthespot.co.uk**
+4. [Manchester City have no choice but to go big to sign their top summer transfer target](https://esteemedkompany.com/2026/06/10/manchester-city-have-no-choice-but-to-go-big-to-sign-their-top-summer-transfer-target/) - **Esteemedkompany.com**
+5. [Barcelona’s Anthony Gordon scores twice in England’s 2-0 friendly win over Costa Rica](https://cryptobriefing.com/barcelona-gordon-england-costa-rica-friendly/) - **Crypto Briefing**
+6. [Aston Villa scouting Parma keeper as potential Martinez replacement](https://www.sportingnews.com/us/soccer/aston-villa/news/aston-villa-scouting-parma-keeper-potential-martinez-replacement/e4ba59068174b04440ba0015) - **Sporting News**
+7. [Wolverhampton Wanderers agree to appoint Cesar Peixoto as head coach](https://cryptobriefing.com/wolves-appoint-cesar-peixoto-head-coach/) - **Crypto Briefing**
+8. [Eagles sign A.J. Epenesa and the NBA GOAT’s namesake, cut 3 players](https://www.bleedinggreennation.com/philadelphia-eagles-free-agency/176513/eagles-roster-moves-sign-aj-epensa-michael-jordan-waive-release-zadarius-smith) - **Bleeding Green Nation**
+9. [How USA's Stars Are Helping International Fans Enjoy 'Every Pocket Of America'](https://www.foxsports.com/stories/soccer/how-usmnt-stars-helping-international-fans-enjoy-every-pocket-america) - **Fox Sports**
 
 
 ---
-*최근 업데이트: 2026-06-12 06:48:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-12 08:25:56 (KST) / (하루 100회 제한 준수 중)*
