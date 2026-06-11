@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Benfica appoint Marco Silva as Jose Mourinho’s successor](https://www.playmakerstats.com/news/benfica-appoint-marco-silva-as-jose-mourinho-s-successor/1141775) - **Playmakerstats.com**
-2. [Wolves confirm Raul Jimenez re-signs on free transfer with 2+1 contract](https://cryptobriefing.com/wolves-raul-jimenez-free-transfer-return/) - **Crypto Briefing**
-3. [Mateus Fernandes has made his choice between United and Real Madrid](https://thepeoplesperson.com/2026/06/10/mateus-fernandes-has-made-his-choice-between-united-and-real-madrid-311297/) - **The Peoples Person**
-4. [ICE urged to snatch World Cup writer over abhorrent pro-terrorist material](https://nypost.com/2026/06/09/us-news/ice-urged-to-snatch-world-cup-writer-over-abhorrent-pro-terrorist-material/) - **New York Post**
-5. [Benfica say farewell to Mourinho as Real Madrid return nears](https://sports.yahoo.com/articles/benfica-farewell-mourinho-real-madrid-230044405.html) - **Yahoo Entertainment**
-6. [Vikings star Justin Jefferson tops a PFF list of NFL explosive players](https://vikingswire.usatoday.com/story/sports/nfl/vikings/2026/06/09/vikings-justin-jefferson-pff-most-explosive-players-ranking/90463562007/) - **USA Today**
-7. [Julián Alvarez's Agent Responds To Real Madrid, Barcelona Transfer Speculation](https://www.foxsports.com/stories/soccer/julian-alvarezs-agent-responds-real-madrid-barcelona-transfer-speculation) - **Fox Sports**
-8. [Spurs Make Their Move as Defensive Rebuild Begins](https://eplindex.com/147211/spurs-make-their-move-as-defensive-rebuild-begins.html) - **English Premier League Index - Opta Stats**
-9. [Papers: Baleba discusses Old Trafford move with Man Utd players](https://www.skysports.com/football/transfer-paper-talk/12709/13552509/man-utd-transfer-news-brighton-midfielder-carlos-baleba-discusses-potential-old-trafford-move-with-players) - **Sky Sports**
-10. [Napheesa Collier Is Dropping A Jordan Heir Series 2 “Minnesota Lynx”](https://sneakernews.com/2026/06/09/jordan-heir-series-2-napheesa-collier-ir0955-400/) - **Sneaker News**
+1. [Bayern Munich News: Hiroki Itō told to find a new home; FC Bayern won’t get Arsenal star; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/213575/bayern-munich-ito-arsenal-real-madrid-fc-barcelona-tottenham-manchester-united-city-liverpool-chelsea-arsenal) - **Bavarian Football Works**
+2. [Bad News for Lens Ahead of Super Cup Game vs. PSG](https://psgworld.io/news/news/bad-news-for-lens-ahead-of-super-cup-game-vs-psg) - **Psgworld.io**
+3. [Reports: Juventus agree to personal terms with Emi Martinez on three-year deal](https://www.blackwhitereadallover.com/juventus-transfer-rumours-news/39103/emi-martinez-juventus-aston-villa-2026-serie-a-premier-league-summer-transfer-rumors-personal-terms) - **Black & White & Read All Over**
+4. [Sorry Mbappé and Haaland, Group I's best player is someone else](https://www.newsweek.com/sports/sorry-mbappe-and-haaland-group-is-best-player-is-someone-else-12051957) - **Newsweek**
+5. [World Cup: Enyimba, Remo to benefit from FIFA’s $355m windfall](https://punchng.com/world-cup-enyimba-remo-to-benefit-from-fifas-355m-windfall/) - **The Punch**
+6. [Real Madrid Confirm Club-Record €150m Bid For Julian Alvarez Was Rejected](https://www.foxsports.com/stories/soccer/real-madrid-confirm-club-record-150m-bid-for-julian-alvarez-has-been-rejected-with-the-identity-of-florentino-perezs-mystery-galactico-transfer-target-being-revealed) - **Fox Sports**
+7. [FIFA faces chaos ahead of 2026 World Cup amid entry bans, high ticket prices, and a blockchain gamble](https://cryptobriefing.com/fifa-2026-world-cup-blockchain-chaos/) - **Crypto Briefing**
+8. [Valentin Barco scores stunning goal for Argentina in 5-0 friendly win over Zambia](https://cryptobriefing.com/valentin-barco-argentina-goal-zambia/) - **Crypto Briefing**
+9. [Is Bukayo Saka World Cup-Ready For England? Thomas Tuchel Provides Update](https://www.foxsports.com/stories/soccer/is-bukayo-saka-world-cup-ready-for-england-thomas-tuchel-delivers-take-care-update-on-arsenal-wingers-fitness) - **Fox Sports**
 
 
 ---
-*최근 업데이트: 2026-06-11 08:51:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-11 13:15:01 (KST) / (하루 100회 제한 준수 중)*
