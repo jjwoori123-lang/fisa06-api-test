@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Knicks' 29-point NBA Finals comeback joins '28-3,’ Bills-Oilers among the greatest in sports history](https://sports.yahoo.com/nba/article/knicks-29-point-nba-finals-comeback-joins-28-3-bills-oilers-among-the-greatest-in-sports-history-065007032.html) - **Yahoo Entertainment**
-2. [Juventus, Galatasary and several others queue up to sign West Ham star Soungoutou Magassa](https://sportsview.co.uk/2026/06/juventus-galatasary-and-several-others-queue-up-to-sign-west-ham-star-soungoutou-magassa?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=juventus-galatasary-and-several-others-queue-up-to-sign-west-ham-star-soungoutou-magassa) - **Sportsview.co.uk**
-3. [Okinawa Fans Get First Taste of Japan's Best Women's Softball](https://newsonjapan.com/article/149617.php) - **Newsonjapan.com**
-4. [Wolverhampton Wanderers sack Rob Edwards, appoint Cesar Peixoto as head coach](https://cryptobriefing.com/wolves-sack-edwards-appoint-peixoto/) - **Crypto Briefing**
-5. [Wolves 'set to sack Rob Edwards and line up new boss' - hours after Englishman hailed Raul Jimenez and Kieran Trippier signings in statement early business](https://www.dailymail.com/sport/football/article-15891019/Wolves-set-sack-Rob-Edwards-line-new-boss-hours-Englishman-hailed-Raul-Jimenez-Kieran-Trippier-signings-statement-early-business.html) - **Dailymail.com**
-6. [Arsenal’s Premier League title sparks fresh wave of crypto fan token interest ahead of World Cup](https://cryptobriefing.com/arsenal-premier-league-crypto-fan-token-world-cup/) - **Crypto Briefing**
-7. [Wolves agree deal in principle to appoint Cesar Peixoto as new head coach](https://sportsview.co.uk/2026/06/wolves-agree-deal-in-principle-to-appoint-cesar-peixoto-as-new-head-coach?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=wolves-agree-deal-in-principle-to-appoint-cesar-peixoto-as-new-head-coach) - **Sportsview.co.uk**
-8. [FIFA’s new framework nudges football toward universal release clauses, but a mandate it is not](https://cryptobriefing.com/fifa-release-clauses-player-contracts/) - **Crypto Briefing**
-9. ["I got itchy feet' | Rice raring for World Cup after Arsenal's PL win](https://www.skysports.com/football/video/33758/13552925/england-declan-rice-hungry-for-world-cup-after-arsenals-pl-glory) - **Sky Sports**
-10. [Tuchel: England have 'set tone' for World Cup bid](https://www.skysports.com/football/news/12016/13552929/thomas-tuchel-england-set-tone-for-world-cup-bid-in-convincing-costa-rica-win-says-three-lions-boss) - **Sky Sports**
+1. [How the weather can shape the tactics of a football nation](https://www.bbc.com/sport/articles/cqj10gkn788o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Is Denver hosting 2026 World Cup matches? No, and here's why](https://www.coloradoan.com/story/sports/2026/06/11/why-denver-not-hosting-2026-world-cup-football-matches-colorado-soccer/90493096007/) - **Coloradoan**
+3. [Mexico vs. South Africa odds, picks, prediction, betting preview, start time for 2026 World Cup opener](https://www.cbssports.com/soccer/news/mexico-vs-south-africa-odds-picks-prediction-betting-preview-start-time-for-2026-world-cup-opener/) - **CBS Sports**
+4. [How Soccer Became ‘Un-American’](http://foreignpolicy.com/2026/06/11/soccer-un-american-world-cup/) - **Foreign Policy**
+5. [FIFA’s Versailles Moment](http://foreignpolicy.com/2026/06/11/fifa-2026-world-cup-expensive-betrays-soccer-football-fans-roots/) - **Foreign Policy**
+6. [Anonymous Coaches Weigh in on Top Group of 6 College Football Programs](https://athlonsports.com/college-football/anonymous-coaches-top-group-6-programs) - **Athlon Sports**
+7. [United monitoring Hall as LB option with Fulham's Robinson also a target](https://www.skysports.com/football/news/11667/13552968/manchester-united-transfer-news-lewis-hall-and-antonee-robinson-options-as-left-back-targets-as-back-up-goalkeeper-could-also-join) - **Sky Sports**
+8. [How the weather can shape the tactics of a football nation](https://www.bbc.com/sport/articles/cqj10gkn788o) - **BBC News**
+9. [2026 World Cup picks, odds, predictions: Best bets for Mexico-South Africa, South Korea-Czechia on Thursday](https://www.cbssports.com/soccer/news/2026-world-cup-picks-odds-predictions-best-bets-mexico-south-africa-south-korea-czechia-thursday/) - **CBS Sports**
+10. [The World Cup starts TODAY! Your ultimate guide to England and Scotland's chances, the top games for your diary - and all the chaos and controversy as the planet's biggest sporting tournament kicks off](https://www.dailymail.com/sport/football/article-15858087/World-Cup-watch-England-chances-controversy.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-06-12 15:51:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-12 20:02:51 (KST) / (하루 100회 제한 준수 중)*
