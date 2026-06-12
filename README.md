@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [International friendlies roundup: Messi and Ronaldo in action before World Cup farewell](https://wp.fromthespot.co.uk/29569/international-friendlies-roundup-messi-and-ronaldo-in-action-before-world-cup-farewell/) - **Fromthespot.co.uk**
-2. [World Cup Match Day 1: Mexico-South Africa, South Korea-Czechia Kick Off Tournament](https://www.foxsports.com/stories/soccer/world-cup-match-day-1-mexico-south-africa-south-korea-czechia) - **Fox Sports**
-3. [England 3-0 Costa Rica: Gordon shines in delayed final warm-up game](https://wp.fromthespot.co.uk/29566/england-3-0-costa-rica-gordon-shines-in-delayed-final-warm-up-game/) - **Fromthespot.co.uk**
-4. [Manchester City have no choice but to go big to sign their top summer transfer target](https://esteemedkompany.com/2026/06/10/manchester-city-have-no-choice-but-to-go-big-to-sign-their-top-summer-transfer-target/) - **Esteemedkompany.com**
-5. [Barcelona’s Anthony Gordon scores twice in England’s 2-0 friendly win over Costa Rica](https://cryptobriefing.com/barcelona-gordon-england-costa-rica-friendly/) - **Crypto Briefing**
-6. [Aston Villa scouting Parma keeper as potential Martinez replacement](https://www.sportingnews.com/us/soccer/aston-villa/news/aston-villa-scouting-parma-keeper-potential-martinez-replacement/e4ba59068174b04440ba0015) - **Sporting News**
-7. [Wolverhampton Wanderers agree to appoint Cesar Peixoto as head coach](https://cryptobriefing.com/wolves-appoint-cesar-peixoto-head-coach/) - **Crypto Briefing**
-8. [Eagles sign A.J. Epenesa and the NBA GOAT’s namesake, cut 3 players](https://www.bleedinggreennation.com/philadelphia-eagles-free-agency/176513/eagles-roster-moves-sign-aj-epensa-michael-jordan-waive-release-zadarius-smith) - **Bleeding Green Nation**
-9. [How USA's Stars Are Helping International Fans Enjoy 'Every Pocket Of America'](https://www.foxsports.com/stories/soccer/how-usmnt-stars-helping-international-fans-enjoy-every-pocket-america) - **Fox Sports**
+1. [USMNT finally at full strength — and looking to pass chemistry test: ‘Culture eats strategy for breakfast’](https://nypost.com/2026/06/10/sports/usmnt-finally-at-full-strength-and-looking-to-pass-chemistry-test/) - **New York Post**
+2. [Jahmyr Gibbs vs. Bijan Robinson: Who Should Get Paid More?](https://roundtable.io/sports/nfl/lions/opinion/jahmyr-gibbs-vs-bijan-robinson-who-should-get-paid-more) - **Roundtable.io**
+3. [Lamar Jackson predicts explosive season as Ravens embrace Declan Doyle’s new offense](https://www.sportingnews.com/us/nfl/baltimore-ravens/news/lamar-jackson-predicts-explosive-season-ravens-embrace/e25fa9152b4c4fc1eedc993e) - **Sporting News**
+4. [From Gazza's heroic tears and Geoff Hurst's thunderbolt to Michael Owen's '98 wondergoal and David Beckham's redemptive penalty against Argentina: These are OLIVER HOLT'S 30 most iconic England World Cup moments... but what's No 1?](https://www.dailymail.com/sport/football/article-15888195/Gazza-tears-Geoff-Hurst-Michael-Owen-David-Beckham-OLIVER-HOLT-England-World-Cup.html) - **Dailymail.com**
+5. [Alvaro Arbeloa in talks with Premier League club following Real Madrid exit](https://siempremadrid.com/alvaro-arbeloa-in-talks-with-premier-league-club-following-real-madrid-exit/) - **Siempremadrid.com**
+6. [Messi, Mbappé, Yamal: The top 10 players of the 2026 World Cup](https://www.newsweek.com/sports/messi-mbappe-yamal-the-top-10-players-of-the-2026-world-cup-12057256) - **Newsweek**
+7. [Breaking: SA locks in AFL Gather Round until 2029](https://www.abc.net.au/news/2026-06-11/gather-round-to-stay-in-sa-until-2029/106784476) - **ABC News (AU)**
+8. [Are England now ready to go and win the World Cup?](https://www.skysports.com/football/news/12016/13552812/world-cup-england-win-final-warm-up-against-costa-rica-so-are-they-ready-to-challenge-for-tournament-glory) - **Sky Sports**
+9. [England player ratings: Gordon shines but has Bellingham done enough?](https://www.skysports.com/football/news/12016/13552806/england-player-ratings-anthony-gordon-proves-his-value-but-has-jude-bellingham-done-enough-to-guarantee-world-cup-start) - **Sky Sports**
+10. [Liverpool seeking close to €20m fee for EUROs winner](https://www.sportingnews.com/us/soccer/liverpool/news/liverpool-seeking-close-%E2%82%AC20m-fee-euros-winner/fd4df39a0c3410b33b7a207c) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-06-12 08:25:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-12 10:58:55 (KST) / (하루 100회 제한 준수 중)*
