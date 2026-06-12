@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The 2026 World Cup kicks off in Mexico City](http://www.toffeeweb.com/season/25-26/news/47637.html) - **Toffeeweb**
-2. [When will it ever end?](http://www.toffeeweb.com/season/25-26/news/47638.html) - **Toffeeweb**
-3. [Man City second offer worth £120m for Anderson rejected](https://www.bbc.com/sport/football/articles/cp8r74rr95po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Josh Berry's NASCAR Story Was Never Supposed To Be Easy](https://www.forbes.com/sites/gregengle/2026/06/11/josh-berrys-nascar-story-was-never-supposed-to-be-easy/) - **Forbes**
-5. [Antonee Robinson: Why Man United are targeting Fulham defender](https://thepeoplesperson.com/2026/06/11/antonee-robinson-why-man-united-are-targeting-fulham-defender-311380/) - **The Peoples Person**
-6. [Man City second offer for Anderson rejected](https://www.bbc.com/sport/football/articles/cp8r74rr95po) - **BBC News**
-7. [Why World Cup venues are installing grass fields to replace turf — and the years-long quest to get it right](https://nypost.com/2026/06/11/sports/why-world-cup-2026-venues-installed-grass-fields-to-replace-turf/) - **New York Post**
-8. [Senegal World Cup 2026 Odds, Predictions & Best Bets](https://www.juvefc.com/senegal-world-cup-odds-predictions/) - **JuveFC**
-9. [Czech Republic World Cup 2026 Odds, Predictions & Best Bets](https://www.juvefc.com/czech-republic-world-cup-odds-predictions/) - **JuveFC**
-10. [World Cup rosters 2026: All 48 official national team squads for FIFA men's tournament](https://www.sportingnews.com/us/soccer/news/world-cup-rosters-2026-list-national-team-squads/9d7ae885a5d800ef6b6a3c52) - **Sporting News**
+1. [KKR-owned Arctos eyes investments in Indian cricket](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f43179fa-d0b7-457e-bff6-c026d153a8a6) - **Yahoo Entertainment**
+2. [Puma Opens Nitro Lab Experience in Los Angeles Ahead of World Cup](http://wwd.com/footwear-news/shoe-industry-news/puma-nitro-lab-los-angeles-world-cup-1239007233/) - **WWD**
+3. [I could flip my $300 World Cup lottery tickets for a $1K profit right now. Here's why I'm holding firm.](https://www.businessinsider.com/flip-world-cup-tickets-big-profit-holding-firm-2026-6#article) - **Business Insider**
+4. [Chelsea joins Arsenal in the race for young attacking midfielder](https://www.justarsenal.com/chelsea-joins-arsenal-in-the-race-for-young-attacking-midfielder/416779) - **Just Arsenal News**
+5. [Bernardo Silva advancing in contract talks with Real Madrid, confirms Fabrizio Romano](https://cityxtra.co.uk/48193/bernardo-silva-advancing-in-contract-talks-with-real-madrid-confirms-fabrizio-romano/) - **Cityxtra.co.uk**
+6. [James Pearce reveals the truth behind Darwin Nunez’s potential Liverpool return](https://anfieldindex.com/94920/james-pearce-reveals-the-truth-behind-darwin-nunezs-potential-liverpool-return.html) - **Anfieldindex.com**
+7. [The best football kits we’ll see at FIFA World Cup 2026](https://thefootballfaithful.com/world-cup-2026-best-football-kits/) - **The Football Faithful**
+8. [Kerry's Bolger ready to make most of opportunity](https://www.rte.ie/sport/womens-football/2026/0611/1577994-kerrys-bolger-ready-to-make-most-of-opportunity/) - **RTE**
+9. [Is Son Heung-min married? South Korea's World Cup star relationship status shifting after move to LAFC](https://www.sportingnews.com/us/soccer/news/son-heung-min-married-south-korea-world-cup-star-relationship-status-move-lafc/da857acc84c516c7f6cb8a67) - **Sporting News**
+10. [Fleet bring back 4-time Olympian Susanna Tapani, Torrent keep Julia Gosling](https://www.cbc.ca/sports/hockey/pwhl/pwhl-signings-tapani-gosling-flaherty-gardiner-izzy-daniel-9.7231677) - **CBC News**
 
 
 ---
-*최근 업데이트: 2026-06-12 23:17:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-13 02:17:54 (KST) / (하루 100회 제한 준수 중)*
