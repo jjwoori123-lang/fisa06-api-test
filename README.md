@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool midfielder confirms intention to leave](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-luca-stephenson-midfielder-confirms-intention-to-leave/) - **Anfieldwatch.co.uk**
-2. [Why Mexico striker Raul Jimenez is wearing custom headband at World Cup](https://www.hitc.com/why-mexico-striker-raul-jimenez-is-wearing-custom-headband-at-world-cup/) - **HITC - Football, Gaming, Movies, TV, Music**
-3. [Report: Everton Step Up Midfielder Chase Amid Palace Interest](https://eplindex.com/147269/report-everton-step-up-midfielder-chase-amid-palace-interest.html) - **English Premier League Index - Opta Stats**
-4. [Newcastle United facing huge regret in Manchester City’s Elliot Anderson pursuit](https://cityxtra.co.uk/48175/newcastle-united-facing-huge-regret-in-manchester-citys-elliot-anderson-pursuit/) - **Cityxtra.co.uk**
-5. [Already an international NBA pipeline, Eurocamp could become college basketball's next recruiting frontier](https://www.cbssports.com/college-basketball/news/international-nba-eurocamp-college-basketball-recruiting/) - **CBS Sports**
-6. [Tottenham Hotspur Are Hoping To Land This Paris Saint-Germain Keeper: Should De Zerbi Snap Him Up?](https://the4thofficial.net/2026/06/tottenham-hotspur-are-hoping-to-land-this-paris-saint-germain-keeper/) - **The4thofficial.net**
-7. [Raúl Jiménez scores first World Cup goal for Mexico in 2026](https://cryptobriefing.com/raul-jimenez-first-world-cup-goal-mexico-2026/) - **Crypto Briefing**
-8. [Why does Raul Jimenez wear a headband? The story behind the Mexico star’s signature accessory](https://worldsoccertalk.com/world-cup/why-does-raul-jimenez-wear-a-headband-the-story-behind-the-mexico-stars-signature-accessory/) - **Worldsoccertalk.com**
-9. [Radek Vitek has his Man United fate sealed as INEOS make bold decision](https://thepeoplesperson.com/2026/06/11/radek-vitek-has-his-man-united-fate-sealed-as-ineos-make-bold-decision-311396/) - **The Peoples Person**
-10. [Argentina call up Senesi for World Cup after Balerdi injury](https://www.channelnewsasia.com/sport/argentina-call-up-senesi-world-cup-after-balerdi-injury-6177881) - **CNA**
+1. [Chris Richards injury update: Center back 'available' for USMNT World Cup opener](https://www.usatoday.com/story/sports/soccer/worldcup/2026/06/11/chris-richards-injury-status-update-usmnt-world-cup-opener/90515339007/) - **USA Today**
+2. [From Ibiza to the World Cup! Tottenham star cuts short holiday after receiving late call-up from world champions Argentina](https://www.dailymail.com/sport/football/article-15893461/From-Ibiza-World-Cup-Tottenham-star-cuts-short-holiday-receiving-late-call-world-champions-Argentina.html) - **Dailymail.com**
+3. [With One World Cup Behind Them, Christian Pulisic And The USA Are 'Ready' For Paraguay](https://www.foxsports.com/stories/soccer/one-world-cup-behind-them-christian-pulisic-usa-ready-paraguay) - **Fox Sports**
+4. [The World Cup arrives just in time to remind us why we love soccer](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b7f84c84-36c5-43a5-9484-e43651f03082) - **Yahoo Entertainment**
+5. [PWHL Detroit roster updates: Newest hockey players on expansion squad](https://www.freep.com/story/sports/nhl/red-wings/2026/06/11/pwhl-detroit-roster-updates-newest-hockey-players-on-expansion-squad/90515278007/) - **Detroit Free Press**
+6. [PWHL Detroit roster updates: Newest hockey players on expansion squad](https://www.freep.com/story/sports/nhl/red-wings/2026/06/11/pwhl-detroit-roster-updates-newest-hockey-players-on-expansion-squad/90515278007/) - **Detroit Free Press**
+7. [Which Arsenal Defenders And Goalkeepers From The 2010s Deserve More Credit?](https://www.justarsenal.com/which-arsenal-defenders-and-goalkeepers-from-the-2010s-deserve-more-credit/416629) - **Just Arsenal News**
+8. [How to watch South Korea vs Czechia in USA: 2026 World Cup, Live Stream, TV & Preview](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-south-korea-vs-czechia-in-usa-2026-world-cup-live-stream-tv-preview/) - **Worldsoccertalk.com**
+9. [Arsenal players in 2026 World Cup: Who's representing Premier League champs?](https://www.usatoday.com/story/sports/soccer/worldcup/2026/06/11/arsenal-players-world-cup-2026/90234332007/) - **USA Today**
+10. [How Mexico star Raul Jimenez overcame skull fracture, loss of father to see World Cup goal dream come true](https://www.cbssports.com/soccer/news/how-mexico-star-raul-jimenez-overcame-skull-fracture-loss-of-father-world-cup-2026/) - **CBS Sports**
 
 
 ---
-*최근 업데이트: 2026-06-13 06:18:47 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-13 07:51:35 (KST) / (하루 100회 제한 준수 중)*
