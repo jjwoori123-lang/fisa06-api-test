@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How the weather can shape the tactics of a football nation](https://www.bbc.com/sport/articles/cqj10gkn788o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Is Denver hosting 2026 World Cup matches? No, and here's why](https://www.coloradoan.com/story/sports/2026/06/11/why-denver-not-hosting-2026-world-cup-football-matches-colorado-soccer/90493096007/) - **Coloradoan**
-3. [Mexico vs. South Africa odds, picks, prediction, betting preview, start time for 2026 World Cup opener](https://www.cbssports.com/soccer/news/mexico-vs-south-africa-odds-picks-prediction-betting-preview-start-time-for-2026-world-cup-opener/) - **CBS Sports**
-4. [How Soccer Became ‘Un-American’](http://foreignpolicy.com/2026/06/11/soccer-un-american-world-cup/) - **Foreign Policy**
-5. [FIFA’s Versailles Moment](http://foreignpolicy.com/2026/06/11/fifa-2026-world-cup-expensive-betrays-soccer-football-fans-roots/) - **Foreign Policy**
-6. [Anonymous Coaches Weigh in on Top Group of 6 College Football Programs](https://athlonsports.com/college-football/anonymous-coaches-top-group-6-programs) - **Athlon Sports**
-7. [United monitoring Hall as LB option with Fulham's Robinson also a target](https://www.skysports.com/football/news/11667/13552968/manchester-united-transfer-news-lewis-hall-and-antonee-robinson-options-as-left-back-targets-as-back-up-goalkeeper-could-also-join) - **Sky Sports**
-8. [How the weather can shape the tactics of a football nation](https://www.bbc.com/sport/articles/cqj10gkn788o) - **BBC News**
-9. [2026 World Cup picks, odds, predictions: Best bets for Mexico-South Africa, South Korea-Czechia on Thursday](https://www.cbssports.com/soccer/news/2026-world-cup-picks-odds-predictions-best-bets-mexico-south-africa-south-korea-czechia-thursday/) - **CBS Sports**
-10. [The World Cup starts TODAY! Your ultimate guide to England and Scotland's chances, the top games for your diary - and all the chaos and controversy as the planet's biggest sporting tournament kicks off](https://www.dailymail.com/sport/football/article-15858087/World-Cup-watch-England-chances-controversy.html) - **Dailymail.com**
+1. [The 2026 World Cup kicks off in Mexico City](http://www.toffeeweb.com/season/25-26/news/47637.html) - **Toffeeweb**
+2. [When will it ever end?](http://www.toffeeweb.com/season/25-26/news/47638.html) - **Toffeeweb**
+3. [Man City second offer worth £120m for Anderson rejected](https://www.bbc.com/sport/football/articles/cp8r74rr95po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Josh Berry's NASCAR Story Was Never Supposed To Be Easy](https://www.forbes.com/sites/gregengle/2026/06/11/josh-berrys-nascar-story-was-never-supposed-to-be-easy/) - **Forbes**
+5. [Antonee Robinson: Why Man United are targeting Fulham defender](https://thepeoplesperson.com/2026/06/11/antonee-robinson-why-man-united-are-targeting-fulham-defender-311380/) - **The Peoples Person**
+6. [Man City second offer for Anderson rejected](https://www.bbc.com/sport/football/articles/cp8r74rr95po) - **BBC News**
+7. [Why World Cup venues are installing grass fields to replace turf — and the years-long quest to get it right](https://nypost.com/2026/06/11/sports/why-world-cup-2026-venues-installed-grass-fields-to-replace-turf/) - **New York Post**
+8. [Senegal World Cup 2026 Odds, Predictions & Best Bets](https://www.juvefc.com/senegal-world-cup-odds-predictions/) - **JuveFC**
+9. [Czech Republic World Cup 2026 Odds, Predictions & Best Bets](https://www.juvefc.com/czech-republic-world-cup-odds-predictions/) - **JuveFC**
+10. [World Cup rosters 2026: All 48 official national team squads for FIFA men's tournament](https://www.sportingnews.com/us/soccer/news/world-cup-rosters-2026-list-national-team-squads/9d7ae885a5d800ef6b6a3c52) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-06-12 20:02:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-12 23:17:03 (KST) / (하루 100회 제한 준수 중)*
