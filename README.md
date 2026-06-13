@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [FOX is under fire for the wrong reasons: World Cup Day 1 Winners and Losers](https://www.newsweek.com/sports/fox-is-under-fire-for-the-wrong-reasons-world-cup-day-1-winners-and-losers-12063418) - **Newsweek**
-2. [Off-colour Shelbourne plan to turn over new leaf in derby against Shamrock Rovers](https://www.irishtimes.com/sport/soccer/2026/06/12/off-colour-shelbourne-plan-to-turn-over-new-leaf-in-derby-against-shamrock-rovers/) - **The Irish Times**
-3. [On This Day (12th June 1976): “Oh Tommy Tommy!” Happy Birthday To Sunderland Favourite Thomas Sørensen](https://rokerreport.sbnation.com/features/141193/on-this-day-12th-june-1976-oh-tommy-tommy-happy-birthday-to-sunderland-favourite-thomas-sorensen) - **SB Nation**
-4. [FAO Sunderland’s Top Brass: “Go And Get Geertruida!”](https://rokerreport.sbnation.com/opinion/141023/fao-sunderlands-top-brass-go-and-get-geertruida) - **SB Nation**
-5. [Sunderland And Europe: A Balancing Act?](https://rokerreport.sbnation.com/opinion/140899/sunderland-and-europe-a-balancing-act) - **SB Nation**
-6. [4 Takeaways From South Korea's Comeback Win Over Czechia In Group A](https://www.foxsports.com/stories/soccer/south-korea-vs-czechia-world-cup-group-a-takeaways-june-11) - **Fox Sports**
-7. [How DUDE Wipes turned to unconventional sponsorships after sports inventory prices surged](http://digiday.com/marketing/how-dude-wipes-turned-to-unconventional-sponsorships-after-sports-inventory-prices-surged/) - **Digiday**
-8. [Why These 5 Players Will Be Essential For USA's World Cup Hopes](https://www.foxsports.com/stories/soccer/usmnt-pulisic-adams-richards-mckennie-jedi-5-indispensable-players) - **Fox Sports**
+1. [Mateus Fernandes prioritizes Manchester United over Real Madrid in summer transfer saga](https://cryptobriefing.com/mateus-fernandes-manchester-united-real-madrid/) - **Crypto Briefing**
+2. [Julian Nagelsmann: The coach struggling to speak to Germany](https://www.dw.com/en/julian-nagelsmann-the-coach-struggling-to-speak-to-germany/a-77209578) - **DW (English)**
+3. [Tottenham handed massive boost in Guirassy race as agent denies Fenerbahce transfer agreement](https://sportsview.co.uk/2026/06/tottenham-handed-massive-boost-in-guirassy-race-as-agent-denies-fenerbahce-transfer-agreement?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-handed-massive-boost-in-guirassy-race-as-agent-denies-fenerbahce-transfer-agreement) - **Sportsview.co.uk**
+4. [How the latest football news can shake up the Premier League betting markets](https://www.playmakerstats.com/news/how-the-latest-football-news-can-shake-up-the-premier-league-betting-markets/1144361) - **Playmakerstats.com**
+5. [“They told me that it wouldn’t have any effect” — Moyes insists Everton transfer plans stay on track despite Burnley verdict](http://www.toffeeweb.com/season/25-26/news/47639.html) - **Toffeeweb**
+6. [Soule tempted by Borussia but favors Premier League move](https://romapress.net/soule-tempted-by-borussia-but-favors-premier-league-move/) - **RomaPress**
+7. [Arsenal interested in Roma’s Manu Koné](https://www.getfootballnewsfrance.com/2026/arsenal-interested-in-romas-manu-kone/) - **Get French Football News**
+8. [Matheus Cunha: Kaka shares honest assessment of United ace](https://thepeoplesperson.com/2026/06/12/matheus-cunha-kaka-shares-honest-assessment-of-united-ace-311404/) - **The Peoples Person**
+9. [Eredivisie players at the 2026 World Cup: Strikers](https://getfootballnewsbene.com/eredivisie-players-at-the-2026-world-cup-strikers/) - **Getfootballnewsbene.com**
+10. [The Bayern Insider: Karl transfer stance revealed as Olise and Ngumoha decisions made](https://cfbayerninsider.com/2026/06/the-bayern-insider-karl-transfer-stance-revealed-as-olise-and-ngumoha-decisions-made/) - **Cfbayerninsider.com**
 
 
 ---
-*최근 업데이트: 2026-06-13 14:08:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-13 17:32:49 (KST) / (하루 100회 제한 준수 중)*
