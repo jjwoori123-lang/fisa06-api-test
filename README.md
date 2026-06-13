@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bruno Fernandes in line for another top recognition after latest award nomination](https://thepeoplesperson.com/2026/06/12/bruno-fernandes-in-line-for-another-top-recognition-after-latest-award-nomination-311420/) - **The Peoples Person**
-2. [Manchester City Are Keeping A Keen Eye On This Barcelona Full-Back: What Will He Bring To The Etihad?](https://the4thofficial.net/2026/06/manchester-city-are-keeping-a-keen-eye-on-this-barcelona-full-back/) - **The4thofficial.net**
-3. [Hair pulling now a yellow card offence in Premier League](https://www.rte.ie/sport/soccer/2026/0612/1578193-premier-league-refs-to-issue-yellow-card-for-hair-pulling/) - **RTE**
-4. [All-time starting lineup for Michigan Football players in the NFL](https://www.maizenbrew.com/football/116109/nfl-all-time-michigan-wolverines-roster-tom-brady-charles-woodson-brandon-graham-aidan-hutchinson-desmond-howard) - **Maize n Brew**
-5. [Former Premier League star, accused of rape, to miss World Cup game after being denied entry into Canada](https://www.foxnews.com/sports/former-premier-league-star-accused-rape-miss-world-cup-game-denied-entry-canada) - **Fox News**
-6. [Ghana's Thomas Partey will miss first match after being denied entry into Canada](https://sports.yahoo.com/soccer/article/ghanas-thomas-partey-will-miss-first-match-after-being-denied-entry-into-canada-173947239.html) - **Yahoo Entertainment**
-7. [Chelsea demands £40M for Liam Delap amid Everton interest](https://cryptobriefing.com/chelsea-delap-40m-everton-interest/) - **Crypto Briefing**
-8. [Ruben Amorim: European giants hold talks to appoint former Man United boss](https://thepeoplesperson.com/2026/06/12/ruben-amorim-european-giants-hold-talks-to-appoint-former-man-united-boss-311419/) - **The Peoples Person**
+1. [Liverpool must move early to sign brilliant midfielder – Opinion](https://anfieldindex.com/94940/liverpool-must-move-early-to-sign-brilliant-midfielder-opinion.html) - **Anfieldindex.com**
+2. [Mourinho and Bernardo Silva could free up Nico Paz for Como or Inter](https://football-italia.net/mourinho-bernardo-could-free-paz-como-inter/) - **Football Italia**
+3. [From Azteca to LA, your guide to every World Cup stadium](https://www.abc.net.au/news/2026-06-13/fifa-world-cup-2026-stadiums/106763814) - **ABC News (AU)**
+4. [€20m Liverpool ace in demand as Champions League club seek deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/eur20m-liverpool-ace-in-demand-as-champions-league-club-seek-deal/) - **Anfieldwatch.co.uk**
+5. [England's false World Cup start! Premier League referee Michael Oliver pulls out of match with injury](https://www.dailymail.com/sport/football/article-15896087/Englands-World-Cup-Premier-League-referee.html) - **Dailymail.com**
+6. [USMNT vs. Paraguay odds, prediction, time: 2026 World Cup picks, best bets from expert on 31-13 roll](https://www.cbssports.com/soccer/news/usa-paraguay-odds-score-prediction-line-start-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+7. [Leeds Set to Reward Stability After Premier League Progress](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_fe2a87b8-a514-4622-8471-59ebce30dbe1) - **Yahoo Entertainment**
+8. [USA vs. Paraguay World Cup prediction: Picks, odds, best bets for USMNT opener](https://nypost.com/2026/06/12/betting/usa-vs-paraguay-world-cup-prediction-picks-odds-best-bets-for-usmnt-opener/) - **New York Post**
+9. [USA icon Alexi Lalas stuns viewers with expletive-laden slur at James Corden on live World Cup broadcast](https://www.dailymail.com/sport/football/article-15896061/alexi-lalas-james-corden-world-cup.html) - **Dailymail.com**
+10. [Spotlight on US as it takes its turn as World Cup hosts](https://www.channelnewsasia.com/sport/spotlight-us-it-takes-its-turn-world-cup-hosts-6180176) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-06-14 03:10:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-14 04:56:36 (KST) / (하루 100회 제한 준수 중)*
