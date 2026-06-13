@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How to watch Canada v Bosnia & Herzegovina, team news, predicted line-ups and more](https://hayters.com/how-to-watch-canada-v-bosnia-herzegovina-team-news-predicted-line-ups-and-more/) - **Hayters.com**
-2. [Man United pinpoint exact trigger behind Andre Onana’s nightmare spell](https://thepeoplesperson.com/2026/06/12/man-united-pinpoint-exact-trigger-behind-andre-onanas-nightmare-spell-311416/) - **The Peoples Person**
-3. [Arsenal adds Serie A midfielder to their summer shopping list](https://www.justarsenal.com/arsenal-adds-serie-a-midfielder-to-their-summer-shopping-list/416814) - **Just Arsenal News**
-4. [Report: Fulham are leading the race to sign Serie A defender](https://eplindex.com/147286/report-fulham-are-leading-the-race-to-sign-serie-a-defender.html) - **English Premier League Index - Opta Stats**
-5. [Paul Gorst reveals Liverpool’s plans for £60m defender](https://anfieldindex.com/94932/paul-gorst-reveals-liverpools-plans-for-60m-defender.html) - **Anfieldindex.com**
-6. [David Beckham on Pushing for a Spice Girls Reunion, World Cup Mania and Family Coming First: ‘I Feel Very Lucky’](https://variety.com/2026/sports/features/david-beckham-spice-girls-reunion-world-cup-gay-icon-hollywood-walk-of-fame-1236779430/) - **Variety**
-7. [Team USA World Cup Roster 2026: Led by Christian Pulisic, USMNT Looks to Make Deep Run](https://nesn.com/soccer/news/team-usa-world-cup-roster-2026-christian-pulisic-usmnt/5ae4d35ae494a1a6033b92b4) - **NESN**
-8. [You Really Need to Get a Job, Tijjani](https://www.theplayerstribune.com/tijjani-reijnders-manchester-city-premier-league-soccer-netherlands) - **The Players' Tribune**
-9. [Relaxed Raheem Sterling laughs with Channel 4 star as former England footballer, 31, is seen for first time since being arrested on suspicion of 'drug driving' and crashing Lamborghini into motorway barriers](https://www.dailymail.com/sport/football/article-15895333/Raheem-Sterling-Arrest-Spotted.html) - **Dailymail.com**
+1. [PL referees to issue yellow cards for hair pulling after rule change](https://www.skysports.com/football/news/11095/13553447/premier-league-announce-referee-rule-changes-for-2026-27-season-with-officials-to-award-yellow-cards-for-hair-pulling) - **Sky Sports**
+2. [Eagles Film Review: A.J. Epenesa signing is very sensible](https://www.bleedinggreennation.com/philadelphia-eagles-analysis/176629/eagles-film-review-a-j-epenesa-signing-is-very-sensible) - **Bleeding Green Nation**
+3. [Report: Newcastle United pushing to sign La Liga forward](https://eplindex.com/147282/report-newcastle-united-pushing-to-sign-la-liga-forward.html) - **English Premier League Index - Opta Stats**
+4. [Roma in the race to sign Pulisic at Gasp’s request](https://romapress.net/roma-in-the-race-to-sign-pulisic-at-gasps-request/) - **RomaPress**
+5. [USMNT vs. Paraguay odds, prediction, time: 2026 World Cup picks, best bets from expert on 31-13 roll](https://www.cbssports.com/soccer/news/usa-paraguay-odds-prediction-line-start-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+6. [Official: Roma appoint D’Amico as new sporting director](https://football-italia.net/official-damico-new-roma-sporting-director/) - **Football Italia**
+7. [Tottenham step up interest in Brighton & Hove keeper Bart Verbruggen](https://sportsview.co.uk/2026/06/tottenham-step-up-interest-in-brighton-hove-keeper-bart-verbruggen?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-step-up-interest-in-brighton-hove-keeper-bart-verbruggen) - **Sportsview.co.uk**
+8. [Barcola could leave PSG this summer](https://www.skysports.com/football/news/11820/13553405/bradley-barcola-psg-and-france-winger-could-be-set-for-summer-transfer-after-world-cup) - **Sky Sports**
+9. [Stewart exits Southampton after failure to agree contract](https://www.bbc.com/sport/articles/cp8lnl2mg6ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Everton admire Strasbourg defender Guela Doue](https://sportsview.co.uk/2026/06/everton-admire-strasbourg-defender-guela-doue?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=everton-admire-strasbourg-defender-guela-doue) - **Sportsview.co.uk**
 
 
 ---
-*최근 업데이트: 2026-06-14 00:05:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-14 01:51:47 (KST) / (하루 100회 제한 준수 중)*
