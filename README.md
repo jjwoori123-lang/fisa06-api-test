@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Haiti fans pick up the beat as 52-year World Cup hoodoo ends](https://www.channelnewsasia.com/sport/haiti-fans-pick-up-beat-52-year-world-cup-hoodoo-ends-6181461) - **CNA**
-2. [Raya relaxed despite Spain goalkeeper debate](https://sports.yahoo.com/articles/raya-relaxed-despite-spain-goalkeeper-182844561.html) - **Yahoo Entertainment**
-3. [This Leeds United Player Breaks Silence On His Future: Should Daniel Farke Sell Or Keep Him?](https://the4thofficial.net/2026/06/this-leeds-united-player-breaks-silence-on-his-future-should-daniel-farke-sell-or-keep-him/) - **The4thofficial.net**
-4. [Former Real Madrid boss Arbeloa close to Premier League appointment](https://getfootballnewsspain.com/former-real-madrid-boss-arbeloa-close-to-premier-league-appointment/) - **Getfootballnewsspain.com**
-5. [Robert Lewandowski: Fresh twist in United’s pursuit of Barcelona ace](https://thepeoplesperson.com/2026/06/13/robert-lewandowski-fresh-twist-in-uniteds-pursuit-of-barcelona-ace-311458/) - **The Peoples Person**
-6. [Talks confirmed for stunning €100m Yan Diomande deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-talks-confirmed-for-stunning-eur100m-yan-diomande-deal/) - **Anfieldwatch.co.uk**
-7. [Bangladesh cricket board urges probe after Test player alleges police assault](https://economictimes.indiatimes.com/news/sports/bangladesh-cricket-board-urges-probe-after-test-player-alleges-police-assault/articleshow/131710532.cms) - **The Times of India**
-8. [Report: Man United ready to offer £375,000-per-week to midfielder](https://eplindex.com/147310/report-man-united-ready-to-offer-375000-per-week-to-midfielder.html) - **English Premier League Index - Opta Stats**
-9. [Spencer Strider hits IL after scary velocity dip in big Braves concern: ‘Doesn’t look great’](https://nypost.com/2026/06/13/sports/spencer-strider-hits-il-after-scary-velocity-dip-in-big-braves-concern-doesnt-look-great/) - **New York Post**
+1. [Sunderland Are Among The Clubs Hoping To Land This Celtic Midfielder: Good Option For Le Bris?](https://the4thofficial.net/2026/06/sunderland-are-among-the-clubs-hoping-to-land-this-celtic-midfielder/) - **The4thofficial.net**
+2. [Liverpool Are Keeping Tabs On This Bundesliga Winger: Should Iraola Move In For Him?](https://the4thofficial.net/2026/06/liverpool-are-keeping-tabs-on-this-bundesliga-winger/) - **The4thofficial.net**
+3. [Chelsea Are Locked In A Three-Way Battle For This Talented Defender: Should Alonso Get Him On Board?](https://the4thofficial.net/2026/06/chelsea-are-locked-in-a-three-way-battle-for-this-talented-defender/) - **The4thofficial.net**
+4. [Arsenal remains behind Man Utd in the race for £80million star](https://www.justarsenal.com/arsenal-remains-behind-man-utd-in-the-race-for-80million-star/416886) - **Just Arsenal News**
+5. [Brazil 2026 World Cup preview: Squad breakdown, key player, and tactical analysis](https://worldsoccertalk.com/world-cup/brazil-2026-world-cup-preview-squad-breakdown-key-player-and-tactical-analysis/) - **Worldsoccertalk.com**
+6. [Manchester United Are Close To Signing This West Ham United Talent: Decent Signing For Carrick?](https://the4thofficial.net/2026/06/manchester-united-are-close-to-signing-this-west-ham-united-talent-decent-signing-for-carrick/) - **The4thofficial.net**
+7. [Xi Lai Gaming defeats G2 Esports to face EDward Gaming at VCT Masters London](https://cryptobriefing.com/xlg-defeats-g2-vct-masters-london/) - **Crypto Briefing**
+8. [Brazil vs. Morocco odds, prediction, time: 2026 World Cup picks, best bets from expert on 31-13 run](https://www.cbssports.com/soccer/news/brazil-morocco-odds-prediction-line-start-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+9. [How to watch Netherlands vs Japan live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-netherlands-vs-japan-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
+10. [Fulham in talks with Arbeloa as they seek Silva’s successor](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260613-99-723890/) - **Dpa-international.com**
 
 
 ---
-*최근 업데이트: 2026-06-15 03:47:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-15 05:20:20 (KST) / (하루 100회 제한 준수 중)*
