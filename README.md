@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Scouting Report: Kerim Alajbegović – Sunderland’s Next Statement Signing?](https://rokerreport.sbnation.com/opinion/141207/scouting-report-kerim-alajbegovic-sunderlands-next-statement-signing) - **SB Nation**
-2. [Mukiele – Right Back or Centre Half? The Big Le Bris Dilemma](https://rokerreport.sbnation.com/opinion/141202/mukiele-right-back-or-centre-half-the-big-le-bris-dilemma) - **SB Nation**
-3. [Europa League Dreams and the Hunt for an Away Ticket](https://rokerreport.sbnation.com/opinion/141222/europa-league-dreams-and-the-hunt-for-an-away-ticket) - **SB Nation**
-4. [USA start World Cup in style - but can they finally join the elite?](https://www.bbc.com/sport/football/articles/c621z2k51rdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [USA start World Cup in style - but can they finally join the elite?](https://www.bbc.com/sport/football/articles/c621z2k51rdo) - **BBC News**
-6. [Mateus Fernandes: PSG begin talks for United’s primary midfield target](https://thepeoplesperson.com/2026/06/13/mateus-fernandes-psg-begin-talks-for-uniteds-primary-midfield-target-311413/) - **The Peoples Person**
-7. [Bayern Munich News: Michael Olise in line for big raise; Liverpool attacker is out of reach; A rad duck; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/214506/bayern-munich-olise-liverpool-real-madrid-psg-chelsea-arsenal-juventus-fc-barcelona-bvb) - **Bavarian Football Works**
-8. [World Cup Day 3 What to Watch: Brazil and Morocco headline a packed Saturday of soccer](https://sports.yahoo.com/soccer/article/world-cup-day-3-what-to-watch-brazil-and-morocco-headline-a-packed-saturday-of-soccer-034253102.html) - **Yahoo Entertainment**
-9. [Brighton linked with £30m million move for Tottenham wonderkid](https://www.sportingnews.com/us/soccer/tottenham-hotspur/news/brighton-linked-%C2%A330m-million-move-tottenham-wonderkid/b64d0beca988f2bcb23767c3) - **Sporting News**
-10. [United States 4-1 Paraguay: record-breaking start for ruthless World Cup co-hosts](https://wp.fromthespot.co.uk/29754/united-states-4-1-paraguay-record-breaking-start-for-ruthless-world-cup-co-hosts/) - **Fromthespot.co.uk**
+1. [Injured ref Oliver to miss World Cup match](https://www.bbc.com/sport/football/articles/cx265n1dy58o) - **BBC News**
+2. [The epic story of how the World Cup became Trump's trophy](https://www.businessinsider.com/how-the-world-cup-became-trumps-trophy-2026-6#article) - **Business Insider**
+3. [Crystal Palace Closing in on New Manager Appointment](https://eplindex.com/147301/crystal-palace-closing-in-on-new-manager-appointment.html) - **English Premier League Index - Opta Stats**
+4. [Fabrizio Romano confirms Liverpool are in the race to sign PSG star](https://anfieldindex.com/94950/fabrizio-romano-confirms-liverpool-are-in-the-race-to-sign-psg-star.html) - **Anfieldindex.com**
+5. [Bazoumana Toure: Liverpool make major move for United target](https://thepeoplesperson.com/2026/06/13/bazoumana-toure-liverpool-make-major-move-for-united-target-311446/) - **The Peoples Person**
+6. [Report: Liverpool take ‘most decisive action’ in transfer race for World Cup winger – not Diomande](https://www.empireofthekop.com/2026/06/13/liverpool-take-most-decisive-action-in-transfer-race-for-world-cup-winger/) - **Empire of The Kop**
+7. [Brazil begin World Cup bid under tempered hopes, as Morocco test opens Group C](https://www.footballmuse.com/features/brazil-begin-world-cup-bid-under-tempered-hopes-as-morocco-test-opens-group-c) - **Footballmuse.com**
+8. [How transfer rumors around Jarrad Branthwaite could ripple through football’s crypto ecosystem](https://cryptobriefing.com/branthwaite-transfer-football-crypto-fan-tokens/) - **Crypto Briefing**
+9. [Atletico Madrid reject chance to sign Barcelona midfielder amid recent links](https://barcauniversal.com/atletico-madrid-reject-chance-to-sign-barcelona-midfielder-amid-recent-links/) - **Barcauniversal.com**
+10. [Wild moment pitch invader tries to get on the field at USA's World Cup opener... only to be slammed by security](https://www.dailymail.com/sport/football/article-15896873/Wild-moment-pitch-invader-tries-field-USAs-World-Cup-opener-slammed-security.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-06-14 14:11:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-14 17:51:07 (KST) / (하루 100회 제한 준수 중)*
