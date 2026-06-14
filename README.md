@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sunderland Are Among The Clubs Hoping To Land This Celtic Midfielder: Good Option For Le Bris?](https://the4thofficial.net/2026/06/sunderland-are-among-the-clubs-hoping-to-land-this-celtic-midfielder/) - **The4thofficial.net**
-2. [Liverpool Are Keeping Tabs On This Bundesliga Winger: Should Iraola Move In For Him?](https://the4thofficial.net/2026/06/liverpool-are-keeping-tabs-on-this-bundesliga-winger/) - **The4thofficial.net**
-3. [Chelsea Are Locked In A Three-Way Battle For This Talented Defender: Should Alonso Get Him On Board?](https://the4thofficial.net/2026/06/chelsea-are-locked-in-a-three-way-battle-for-this-talented-defender/) - **The4thofficial.net**
-4. [Arsenal remains behind Man Utd in the race for £80million star](https://www.justarsenal.com/arsenal-remains-behind-man-utd-in-the-race-for-80million-star/416886) - **Just Arsenal News**
-5. [Brazil 2026 World Cup preview: Squad breakdown, key player, and tactical analysis](https://worldsoccertalk.com/world-cup/brazil-2026-world-cup-preview-squad-breakdown-key-player-and-tactical-analysis/) - **Worldsoccertalk.com**
-6. [Manchester United Are Close To Signing This West Ham United Talent: Decent Signing For Carrick?](https://the4thofficial.net/2026/06/manchester-united-are-close-to-signing-this-west-ham-united-talent-decent-signing-for-carrick/) - **The4thofficial.net**
-7. [Xi Lai Gaming defeats G2 Esports to face EDward Gaming at VCT Masters London](https://cryptobriefing.com/xlg-defeats-g2-vct-masters-london/) - **Crypto Briefing**
-8. [Brazil vs. Morocco odds, prediction, time: 2026 World Cup picks, best bets from expert on 31-13 run](https://www.cbssports.com/soccer/news/brazil-morocco-odds-prediction-line-start-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
-9. [How to watch Netherlands vs Japan live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-netherlands-vs-japan-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
-10. [Fulham in talks with Arbeloa as they seek Silva’s successor](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260613-99-723890/) - **Dpa-international.com**
+1. [Sweden set for Tunisia showdown after rocky road to World Cup](https://www.channelnewsasia.com/sport/sweden-set-tunisia-showdown-after-rocky-road-world-cup-6181626) - **CNA**
+2. [England's Littler & Humphries set up Wales World Cup tie](https://www.bbc.com/sport/darts/articles/c7vyd1qyzp2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [England's Littler & Humphries set up Wales World Cup tie](https://www.bbc.com/sport/darts/articles/c7vyd1qyzp2o) - **BBC News**
+4. [Lisandro Martinez red card incident sparks Premier League rule change](https://thepeoplesperson.com/2026/06/13/lisandro-martinez-red-card-incident-sparks-premier-league-rule-change-311466/) - **The Peoples Person**
+5. [Tottenham Hotspur Remain Confident About Recruiting This Premier League Defender: Should De Zerbi Snap Him Up?](https://the4thofficial.net/2026/06/tottenham-hotspur-remain-confident-about-recruiting-this-brighton-defender-should-de-zerbi-snap-him-up/) - **The4thofficial.net**
+6. [Pundit doesn’t want Madueke to start for England even if Saka is injured](https://www.justarsenal.com/pundit-doesnt-want-madueke-to-start-for-england-even-if-saka-is-injured/416887) - **Just Arsenal News**
+7. [Brazil striker Thiago to start World Cup match against Morocco](https://www.channelnewsasia.com/sport/brazil-striker-thiago-start-world-cup-match-against-morocco-6181586) - **CNA**
+8. [Leeds United Make U-Turn On 28-Year-Old: What’s The Perfect Decision From Farke?](https://the4thofficial.net/2026/06/leeds-united-make-u-turn-on-28-year-old-whats-the-perfect-decision-from-farke/) - **The4thofficial.net**
+9. [Why Richarlison isn't playing for Brazil at the World Cup](https://www.sportingnews.com/us/soccer/news/why-richarlison-isnt-playing-brazil-world-cup/b915e362e6f862a9bd9bf7df) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-06-15 05:20:20 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-15 06:55:27 (KST) / (하루 100회 제한 준수 중)*
