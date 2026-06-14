@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chris 'The Bear' Fallica's Match Day 4 World Cup Best Bets, Picks, Predictions](https://www.foxsports.com/stories/soccer/chris-the-bear-fallicas-match-day-4-world-cup-best-bets-picks-predictions) - **Fox Sports**
-2. [Kretinsky to become West Ham’s largest shareholder, addresses Sullivan allegations](https://cryptobriefing.com/kretinsky-west-ham-largest-shareholder/) - **Crypto Briefing**
-3. [Bruno Fernandes: Sammy McIlroy’s telling claim on United ace](https://thepeoplesperson.com/2026/06/13/bruno-fernandes-sammy-mcilroys-telling-claim-on-united-ace-311454/) - **The Peoples Person**
-4. [How much Arsenal wants for selling Leandro Trossard](https://www.justarsenal.com/how-much-arsenal-wants-for-selling-leandro-trossard/416868) - **Just Arsenal News**
-5. [Guide: Best Nintendo Switch 1 & 2 Football Games](https://www.nintendolife.com/guides/best-nintendo-switch-1-and-2-football-games) - **Nintendo Life**
-6. [Brazil vs. Morocco odds, prediction, time: 2026 World Cup picks, best bets from expert on 31-13 run](https://www.cbssports.com/soccer/news/brazil-morocco-odds-prediction-line-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
-7. [Big Lalas Energy to ulcerative colitis meds: Fox is this World Cup’s very soul in the US](https://sports.yahoo.com/articles/big-lalas-energy-ulcerative-colitis-144712198.html) - **Yahoo Entertainment**
-8. [We don’t need Fifa = and the sooner they are thrown out, the better](https://untold-arsenal.com/archives/121274) - **Untold-arsenal.com**
-9. [Report: Xabi Alonso wants Chelsea to sign £60m Real Madrid star](https://eplindex.com/147307/report-xabi-alonso-wants-chelsea-to-sign-60m-real-madrid-star.html) - **English Premier League Index - Opta Stats**
-10. [Pedro Porro closing in on new long-term Tottenham contract](https://footballtoday.com/2026/06/13/pedro-porro-closing-in-on-new-long-term-tottenham-contract/) - **Footballtoday.com**
+1. [Scorpions pickleball event in Rancho Mirage to include NFL star Terrell Owens](https://www.desertsun.com/story/sports/2026/06/13/scorpions-pickleball-event-in-rancho-mirage-to-include-nfl-star-terrell-owens/90530355007/) - **The Desert Sun**
+2. [Frank Lampard names the one former England player he wishes he could put into this World Cup team](https://www.hitc.com/frank-lampard-names-the-one-former-england-player-he-wishes-he-could-put-into-this-world-cup-team/) - **HITC - Football, Gaming, Movies, TV, Music**
+3. [Arsenal’s main rival for signature of Morgan Rogers revealed](https://www.justarsenal.com/arsenals-main-rival-for-signature-of-morgan-rogers-revealed/416884) - **Just Arsenal News**
+4. [Kylian Mbappé hails new Real Madrid signing](https://getfootballnewsspain.com/kylian-mbappe-hails-new-real-madrid-signing/) - **Getfootballnewsspain.com**
+5. [Dutch Defender Search For ‘Clarity’ Amid Liverpool & Spurs Links](https://anfieldindex.com/94962/dutch-defender-search-for-clarity-amid-liverpool-spurs-links.html) - **Anfieldindex.com**
+6. [Slovan Bratislava name Yaya Touré as new head coach](https://punchng.com/slovan-bratislava-name-yaya-toure-as-new-head-coach/) - **The Punch**
+7. [New rules abound - why VAR diving decision was wrong despite feeling right](https://www.bbc.com/sport/football/articles/c5yze64d362o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [New rules abound - why VAR diving decision was wrong despite feeling right](https://www.bbc.com/sport/football/articles/c5yze64d362o) - **BBC News**
+9. [Arsenal is considering a move for Club Brugge attacker](https://www.justarsenal.com/arsenal-is-considering-a-move-for-club-brugge-attacker/416869) - **Just Arsenal News**
+10. [West Ham Under Pressure to Raise £100m+ — And It Could Benefit United](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ae637cc6-9f91-497b-b13f-afe0f5c5c0b3) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-06-15 00:21:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-15 02:00:52 (KST) / (하루 100회 제한 준수 중)*
