@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Richard Hughes to complete Liverpool's most important deal yet](https://www.anfieldwatch.co.uk/liverpool-fc/news/richard-hughes-to-complete-liverpools-most-important-deal-yet/) - **Anfieldwatch.co.uk**
-2. [Tottenham Hotspur Are In The Running For This Talented Defender: Good Choice For De Zerbi?](https://the4thofficial.net/2026/06/tottenham-hotspur-are-in-the-running-for-this-talented-defender/) - **The4thofficial.net**
-3. [Eberechi Eze reveals he WILL take a World Cup penalty if called upon as 'grateful' Arsenal star vows to keep controversial run-up after Champions League nightmare](https://www.dailymail.com/sport/football/article-15899039/Eberechi-Eze-England-World-Cup-Penalty-Arsenal.html) - **Dailymail.com**
-4. [Chelsea to sell Marc Cucurella to Real Madrid in first challenge for Xabi Alonso](https://www.nbcsports.com/soccer/news/chelsea-to-sell-marc-cucurella-to-real-madrid-in-first-challenge-for-xabi-alonso) - **NBCSports.com**
-5. [Journalist: Tottenham Hotspur facing major battle to sign Premier League ace](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e3396dc4-2348-4b65-84b9-d88d82dc0ee3) - **Yahoo Entertainment**
-6. [Arbeloa, Mourinho, Silva trading places - with agent key to swaps](https://www.bbc.com/sport/football/articles/c7vydyv472go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Manchester United targets Bradley Barcola, plans to open talks soon](https://cryptobriefing.com/manchester-united-bradley-barcola-transfer-talks/) - **Crypto Briefing**
-8. [Reports: Real Madrid agree deal with Chelsea for Spain's Cucurella –](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260614-99-731550/) - **Dpa-international.com**
-9. [Why Jeremie Frimpong isn't playing for Netherlands at the World Cup](https://www.sportingnews.com/us/soccer/news/why-jeremie-frimpong-isnt-playing-netherlands-world-cup/134b5de224d24069730fa31e) - **Sporting News**
-10. [Galatasaray's Virgil van Dijk offer now only days away](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7556065a-244d-4979-9dab-49e27f969bcf) - **Yahoo Entertainment**
+1. [World Cup Match Day 5: Spain, Uruguay, Belgium, Egypt Ready For Spotlight](https://www.foxsports.com/stories/soccer/world-cup-spain-cape-verde-uruguay-saudi-arabia-iran-belgium-egypt-new-zealand) - **Fox Sports**
+2. [Team Vitality secures playoff spot at IEM Atlanta 2026 after bouncing back through lower bracket](https://cryptobriefing.com/team-vitality-playoff-spot-iem-atlanta/) - **Crypto Briefing**
+3. [Liverpool nears double signing of Everton’s Josh Chigwada, Wolves’ Zach Trinder](https://cryptobriefing.com/liverpool-chigwada-trinder-academy-signings/) - **Crypto Briefing**
+4. [Unreal player ready to agree Liverpool deal; he can be a mega star](https://www.anfieldwatch.co.uk/liverpool-fc/news/unreal-player-ready-to-agree-liverpool-deal-he-can-be-a-mega-star/) - **Anfieldwatch.co.uk**
+5. [Ecuador 2026 World Cup preview: Squad breakdown, key player, and tactical analysis](https://worldsoccertalk.com/world-cup/ecuador-2026-world-cup-preview-squad-breakdown-key-player-and-tactical-analysis/) - **Worldsoccertalk.com**
+6. [Fabrizio Romano bombshell: Confirms Liverpool talks with World Cup's breakout star](https://www.anfieldwatch.co.uk/liverpool-fc/news/fabrizio-romano-bombshell-confirms-liverpool-talks-with-world-cups-breakout-star/) - **Anfieldwatch.co.uk**
+7. [Real Madrid secure €60m move for Chelsea defender amid roster overhaul](https://www.sportingnews.com/us/soccer/real-madrid/news/real-madrid-secure-%E2%82%AC60m-move-chelsea-defender-amid-roster-overhaul/815e9e7d2d9168d89822f2b4) - **Sporting News**
+8. [Norway's Odegaard brushes off injury concerns ahead of Iraq opener](https://www.channelnewsasia.com/sport/norways-odegaard-brushes-injury-concerns-ahead-iraq-opener-6182786) - **CNA**
+9. [Manchester City Are Ready To Move In For This EFL Championship Keeper: Should They Go For Him?](https://the4thofficial.net/2026/06/manchester-city-are-ready-to-move-in-for-this-efl-championship-keeper/) - **The4thofficial.net**
+10. [Man City disappointed with partner brand’s upcoming sponsorship deal with Man United](https://cityxtra.co.uk/48272/man-city-disappointed-with-partner-brands-upcoming-sponsorship-deal-with-man-united/) - **Cityxtra.co.uk**
 
 
 ---
-*최근 업데이트: 2026-06-16 03:17:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-16 06:27:09 (KST) / (하루 100회 제한 준수 중)*
