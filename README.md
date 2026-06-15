@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Former defender’s World Cup heroics could trigger unexpected windfall for Barcelona](https://barcauniversal.com/former-defenders-world-cup-heroics-could-trigger-unexpected-windfall-for-barcelona/) - **Barcauniversal.com**
-2. [Huge development as Richard Hughes secures deal for forward](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-joshua-abe-huge-development-as-richard-hughes-secures-deal-for-forward/) - **Anfieldwatch.co.uk**
-3. [Tottenham schedule behind-closed-doors friendly to assess players in transfer window](https://footballtoday.com/2026/06/14/tottenham-schedule-behind-closed-doors-friendly-to-assess-players-in-transfer-window/) - **Footballtoday.com**
-4. [How to Watch Red Sox vs. Rangers Tonight: Channel, Live Stream & Start Time for Sunday MLB Game](https://nesn.com/boston-red-sox/news/watch-red-sox-vs-rangers-channel-stream-start-time-sunday/6f7ef7b5b76f69a1dbdfdcd2) - **NESN**
-5. [PSG Still Interested in Bournemouth's Eli Junior Kroupi Despite Price](https://psgworld.io/news/transfers/psg-still-interested-in-bournemouths-eli-junior-kroupi-despite-price) - **Psgworld.io**
-6. [Richard Hughes is rubbing his eyes: £60m forward deal is too good to be true](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-cody-gakpo-tottenham-richard-hughes-is-rubbing-his-eyes-ps60m-forward-deal-is-too-good-to-be-true/) - **Anfieldwatch.co.uk**
-7. [Brighton Reject £20m Bid From Coventry For Goalkeeper](https://eplindex.com/147316/brighton-reject-20m-bid-from-coventry-for-goalkeeper.html) - **English Premier League Index - Opta Stats**
-8. [Everton 2025-26 Season Review: End of Contract Players](https://royalbluemersey.sbnation.com/everton-2025-26-season-premier-league-fixtures-hill-dickinson-moyes/80566/everton-2025-26-season-review-end-of-contract-players-coleman-keane-gueye-mykolenko) - **SB Nation**
-9. [Bayern Munich's €65 million transfer target to make World Cup debut](https://www.sportingnews.com/us/soccer/news/bayern-munichs-%E2%82%AC65-million-transfer-target-make-world-cup-debut/89590223b96f802ce35c7f70) - **Sporting News**
-10. [Knicks 94, Spurs 90: Scenes from a championship.](https://www.postingandtoasting.com/knicks-scores-results/85041/knicks-94-spurs-90-scenes-from-a-championship) - **Posting and Toasting**
+1. [Brentford challenge Arsenal to sign Leicester teenager Monga](https://thefootballfaithful.com/brentford-challenge-arsenal-to-sign-leicester-teenager-monga/) - **The Football Faithful**
+2. [Arsenal, Liverpool among teams interested in Moroccan wonderkid](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3aa4edf1-956a-4a41-9da9-5cb5a78ed8ba) - **Yahoo Entertainment**
+3. [Belgium v Egypt: Predicted line-ups, where to watch, stats and preview](https://www.101greatgoals.com/match-previews/world-cup-matches/belgium-v-egypt-predicted-line-ups-where-to-watch-stats-preview/) - **101 Great Goals**
+4. [Can Křetínský rescue West Ham after replacing Sullivan as majority shareholder?](https://wp.fromthespot.co.uk/29880/can-kretinsky-rescue-west-ham-after-replacing-sullivan-as-majority-shareholder/) - **Fromthespot.co.uk**
+5. [Real Madrid set for another Barcelona transfer battle as Chelsea star wanted](https://siempremadrid.com/real-madrid-set-for-another-barcelona-transfer-battle-as-chelsea-star-wanted/) - **Siempremadrid.com**
+6. [Why Xavi Simons is missing the 2026 World Cup for the Netherlands](https://worldsoccertalk.com/world-cup/why-xavi-simons-is-missing-the-2026-world-cup-for-the-netherlands/) - **Worldsoccertalk.com**
+7. [De Bruyne: ‘I faced a very different style of playing in Italy compared to England’](https://football-italia.net/de-bruyne-different-style-of-playing-in-italy/) - **Football Italia**
+8. [Real Madrid’s latest Mateus Fernandes stance as Man United step up chase](https://thepeoplesperson.com/2026/06/14/real-madrids-latest-mateus-fernandes-stance-as-man-united-step-up-chase-311480/) - **The Peoples Person**
+9. ['Jose doesn't mess about!': ASHLEY COLE and JOE COLE open up on 'tough love' Mourinho's Real Madrid re-appointment - and share their verdict on if Xabi Alonso can succeed at their old club Chelsea](https://www.dailymail.com/sport/football/article-15897319/Jose-doesnt-mess-ASHLEY-COLE-JOE-COLE-open-tough-love-Mourinhos-Real-Madrid-appointment-share-verdict-Xabi-Alonso-succeed-old-club-Chelsea.html) - **Dailymail.com**
+10. [Germany 2026 World Cup preview: Squad breakdown, key player, and tactical analysis](https://worldsoccertalk.com/world-cup/germany-2026-world-cup-preview-squad-breakdown-key-player-and-tactical-analysis/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-06-15 16:23:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-15 22:37:26 (KST) / (하루 100회 제한 준수 중)*
