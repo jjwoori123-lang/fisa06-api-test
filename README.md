@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Nunez, Jones and Ordonez: Five transfer decisions facing Liverpool](https://anfieldindex.com/94993/nunez-jones-and-ordonez-five-transfer-decisions-facing-liverpool-today.html) - **Anfieldindex.com**
-2. [Iran vs. New Zealand odds, prediction, time: 2026 World Cup picks, best bets from elite expert](https://www.cbssports.com/soccer/news/iran-new-zealand-odds-prediction-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
-3. [Deutscher Cricket Bund (DCB) announces an exciting 2026 season to showcase Germany as the leading European cricket nation, building world-class cricket IP’s](https://www.thehindubusinessline.com/brandhub/pr-release/deutscher-cricket-bund-dcb-announces-an-exciting-2026-season-to-showcase-germany-as-the-leading-european-cricket-nation-building-world-class-cricket-ips/article71103848.ece) - **BusinessLine**
-4. [Will this be the World Cup of Lamine Yamal for Spain? Is Belgium's Jeremy Doku a budding star and more](https://www.cbssports.com/soccer/news/world-cup-lamine-yamal-spain-belgium-jeremy-doku-star/) - **CBS Sports**
-5. [How much Inter would need to pay to lure Camavinga away from Real Madrid](https://football-italia.net/how-much-inter-need-to-pay-for-camavinga/) - **Football Italia**
-6. [The Joy Portraits: Supporters celebrate title win](http://www.arsenal.com/news/joy-portraits-supporters-celebrate-title-win) - **Arsenal.com**
-7. [Manchester United to be featured on Prime Video's 'All or Nothing'](https://www.upi.com/Sports_News/Soccer/2026/06/15/england-Manchester-United-Prime-All-or-Nothing/2511781525168/) - **UPI.com**
-8. [Rejoice! The transfer window is officially open!](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_01c9bf61-ef63-4f72-a6ff-74aecc7994ba) - **Yahoo Entertainment**
-9. [Bhullar Best Indian Golfer At Morocco International Series](https://www.rediff.com/sports/report/bhullar-best-indian-at-international-series-morocco-1/20260615.htm) - **Rediff.com**
-10. [Bhullar Best Indian Golfer At Morocco International Series](https://www.rediff.com/sports/report/bhullar-best-indian-at-international-series-morocco/20260615.htm) - **Rediff.com**
+1. [Rooting for Spain at World Cup 2026? Here's a Guide to All Its Matches](https://www.cnet.com/tech/services-and-software/spain-world-cup-2026-guide-to-all-matches/) - **CNET**
+2. [Rodri taken off shortly after entering as substitute in Club World Cup](https://cryptobriefing.com/rodri-injury-club-world-cup-setback/) - **Crypto Briefing**
+3. [Belgium vs Egypt - World Cup LIVE: Two Premier League greats set to do battle again as Group G gets underway](https://www.dailymail.com/sport/football/article-15901251/Belgium-vs-Egypt-World-Cup-2026-LIVE-Group-G.html) - **Dailymail.com**
+4. [Amorim snubbed Portuguese giants Benfica in favour of Milan move](https://football-italia.net/amorim-snubbed-benfica-milan-move/) - **Football Italia**
+5. [Crystal Palace appoints Pierre Sage as manager, but what does it mean for the CPFC fan token](https://cryptobriefing.com/crystal-palace-pierre-sage-cpfc-fan-token/) - **Crypto Briefing**
+6. [Russell Martin agrees three-year contract with Leicester City](https://cryptobriefing.com/russell-martin-leicester-city-contract/) - **Crypto Briefing**
+7. [From Watch Parties With USWNT Players to Los Angeles Food Tours, Airbnb Hosts World Cup Community Events Across the Country](https://variety.com/2026/shopping/news/airbnb-world-cup-watch-parties-events-book-online-1236780428/) - **Variety**
+8. [Top NBA free-agent small forwards: What will LeBron James do?](https://sports.yahoo.com/nba/article/top-nba-free-agent-small-forwards-what-will-lebron-james-do-174222294.html) - **Yahoo Entertainment**
+9. [Ayyoub Bouaddi: Arsenal and Liverpool strike first for Man United target](https://thepeoplesperson.com/2026/06/15/ayyoub-bouaddi-arsenal-and-liverpool-strike-first-for-man-united-target-311521/) - **The Peoples Person**
+10. [How France Came to Dominate International Football](https://urbanpitch.com/how-france-came-to-dominate-international-football/) - **Urbanpitch.com**
 
 
 ---
-*최근 업데이트: 2026-06-16 21:56:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-17 03:06:12 (KST) / (하루 100회 제한 준수 중)*
