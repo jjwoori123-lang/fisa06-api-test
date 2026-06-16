@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tottenham Hotspur enters race to sign Sandro Tonali amid competition from Man City and Arsenal](https://cryptobriefing.com/tottenham-sandro-tonali-transfer-race/) - **Crypto Briefing**
-2. [Mohamed Salah just did something not done at World Cup since 1966](https://www.newsweek.com/sports/mohamed-salah-just-did-something-not-done-at-world-cup-since-1966-12075906) - **Newsweek**
-3. [VOTE for Who's South Jersey's all-time best baseball player](https://www.courierpostonline.com/story/sports/high-school/baseball/2026/06/15/whos-south-jerseys-all-time-best-baseball-player-vote-now/90358027007/) - **Courier Post**
-4. [England's Saka prepared to push through Achilles pain in World Cup bid](https://www.channelnewsasia.com/sport/englands-saka-prepared-push-through-achilles-pain-in-world-cup-bid-6185611) - **CNA**
-5. [I'll keep gambling with fitness for England - Saka](https://www.bbc.com/sport/football/articles/c75y7x9ev9zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Romelu Lukaku scores within 3 seconds of coming on as substitute](https://cryptobriefing.com/lukaku-three-second-substitute-goal/) - **Crypto Briefing**
-7. [Liverpool closing in on historic transfer that will change everything](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-closing-in-on-historic-transfer-that-will-change-everything/) - **Anfieldwatch.co.uk**
-8. [Paul Pogba makes bold prediction about when Man United will win the league](https://thepeoplesperson.com/2026/06/15/paul-pogba-makes-bold-prediction-about-when-man-united-will-win-the-league-311531/) - **The Peoples Person**
-9. [Ex-Rangers boss Martin appointed as Leicester manager](https://www.bbc.com/sport/football/articles/c0ly1k1e6pro) - **BBC News**
-10. [Vozinha shines in World Cup debut, secures clean sheet against Spain as memecoins flood DEXs](https://cryptobriefing.com/vozinha-world-cup-debut-memecoins/) - **Crypto Briefing**
+1. [Mateus Fernandes: PL rivals launch last-minute hijack attempt](https://thepeoplesperson.com/2026/06/16/mateus-fernandes-pl-rivals-launch-last-minute-hijack-attempt-311535/) - **The Peoples Person**
+2. [Haaland primed for 'big impact' at World Cup, says Norway coach](https://sports.yahoo.com/articles/haaland-primed-big-impact-world-225902406.html) - **Yahoo Entertainment**
+3. [PSG secures new deal with youngster Senny Mayulu amid Chelsea, Bayern interest](https://cryptobriefing.com/psg-mayulu-new-deal-chelsea-bayern/) - **Crypto Briefing**
+4. [Salah, Egypt come close to making World Cup history](https://www.thesportingtribune.com/2026/06/15/worldcup-salah-jun152026) - **Thesportingtribune.com**
+5. [Toby Collyer could be heading back to former club](https://thepeoplesperson.com/2026/06/15/toby-collyer-could-be-heading-back-to-former-club-311533/) - **The Peoples Person**
+6. [ESPN's Jay Williams is right. UFC Freedom 250 was a "better event" than the NBA Finals](https://www.foxnews.com/outkick-sports/espns-jay-williams-right-ufc-freedom-250-better-event-nba-finals-) - **Fox News**
+7. [Iran vs. New Zealand odds, prediction, time: 2026 World Cup picks, best bets from elite expert](https://www.cbssports.com/soccer/news/iran-new-zealand-odds-prediction-line-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+8. [Chelsea enquires about Serie A best defender Marco Palestra’s availability](https://cryptobriefing.com/chelsea-palestra-serie-a-defender-transfer/) - **Crypto Briefing**
+9. [PSG academy product set to sign for Manchester City](https://www.getfootballnewsfrance.com/2026/psg-academy-product-set-to-sign-for-manchester-city/) - **Get French Football News**
+10. [Real Madrid extends Antonio Rüdiger’s contract until June 2027](https://cryptobriefing.com/real-madrid-rudiger-contract-extension-2027/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-06-17 06:22:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-17 08:07:59 (KST) / (하루 100회 제한 준수 중)*
