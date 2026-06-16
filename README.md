@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Jadon Sancho: Besiktas preparing bumper contract offer](https://thepeoplesperson.com/2026/06/15/jadon-sancho-besiktas-preparing-bumper-contract-offer-311494/) - **The Peoples Person**
-2. [Hurricanes claim second Stanley Cup with Game 6 win over Golden Knights](https://www.nbcsportsboston.com/nhl/hurricanes-golden-knights-stanley-cup-game-6/791308/?partner=yahoo) - **Nbcsportsboston.com**
-3. [Hurricanes claim second Stanley Cup with Game 6 win over Golden Knights](https://www.nbcsportsphiladelphia.com/nhl/hurricanes-golden-knights-stanley-cup-game-6/737291/?partner=yahoo) - **Nbcsportsphiladelphia.com**
-4. [Where does Enner Valencia play? Career path for Ecuador striker left English Premier League](https://www.sportingnews.com/us/soccer/news/where-does-enner-valencia-play-career-path-ecuador-striker-left-english-premier-league/908d8927247f01a820a31780) - **Sporting News**
-5. [Netherland 2-2 Japan: Ronald Koeman's side are powerful, well-organised and have strong depth but lack key ingredient to win the World Cup, writes TOM COLLOMOSSE](https://www.dailymail.com/sport/football/article-15899567/Netherlands-2-2-Japan-Ronald-Koeman-World-Cup.html) - **Dailymail.com**
-6. [Japan twice come from behind to draw with Netherlands in World Cup](https://www.bbc.com/sport/football/live/c30ypmd6g35t?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [World Cup 2026: Ivory Coast vs Ecuador confirmed line-ups and full teams](https://www.101greatgoals.com/football/world-cup-news/world-cup-2026-ivory-coast-vs-ecuador-confirmed-line-ups-and-full-teams/) - **101 Great Goals**
-8. [FIFA World Cup opens with Ecuador vs Ivory Coast as crypto makes its tournament debut](https://cryptobriefing.com/world-cup-ecuador-ivory-coast-crypto-debut/) - **Crypto Briefing**
-9. [Mateus Fernandes: Why Liverpool have left the race for Man Utd target](https://thepeoplesperson.com/2026/06/14/mateus-fernandes-why-liverpool-have-left-the-race-for-man-utd-target-311493/) - **The Peoples Person**
-10. [Netherlands v Japan: Three goals in 13 second-half minutes ignite intriguing World Cup clash](https://www.101greatgoals.com/football/world-cup-news/netherlands-v-japan-three-goals-in-13-second-half-minutes-ignite-intriguing-world-cup-clash/) - **101 Great Goals**
+1. [Alvaro Arbeloa agrees Premier League move following Real Madrid exit](https://siempremadrid.com/alvaro-arbeloa-agrees-premier-league-move-following-real-madrid-exit/) - **Siempremadrid.com**
+2. [Widow's Bay Is The From Replacement Every Apple TV User Needs To Watch](https://screenrant.com/widows-bay-from-replacement-apple-tv/) - **Screen Rant**
+3. [Tim Ream showing he’s still got it despite being oldest World Cup player in USMNT history](https://nypost.com/2026/06/14/sports/tim-ream-showing-hes-still-got-it-despite-being-oldest-world-cup-player-in-usmnt-history/) - **New York Post**
+4. [Moises Caicedo posts 92% pass accuracy in World Cup match against Ivory Coast](https://cryptobriefing.com/caicedo-world-cup-ivory-coast-performance/) - **Crypto Briefing**
+5. [ERLING HAALAND EXCLUSIVE - 'People expect big things from me... but I like the pressure': Man City superstar on Norway's 'group of death', his first World Cup memory and his tribute to 'not normal' Pep Guardiola](https://www.dailymail.com/sport/football/article-15892747/erling-haaland-norway-world-cup-guardiola.html) - **Dailymail.com**
+6. [First XV rugby wrap: Auckland Grammar thrash King’s to reclaim Cooper-Greenback Cup](https://www.nzherald.co.nz/sport/rugby/school-rugby/first-xv-rugby-wrap-auckland-grammar-thrash-kings-to-reclaim-cooper-greenback-cup/premium/ENV3VOCNA5BUNCNESSMLTAV6UM/) - **New Zealand Herald**
+7. [How to live stream Sweden vs Tunisia: FIFA World Cup 2026, TV channel](https://www.thebiglead.com/how-to-live-stream-sweden-vs-tunisia-fifa-world-cup-2026-tv-channel-live-stream-watch-free-saturday/) - **The Big Lead**
+8. [Sweden vs. Tunisia odds, prediction, time: 2026 World Cup picks, best bets from expert on 31-13 roll](https://www.cbssports.com/soccer/news/sweden-tunisia-odds-prediction-time-2026-world-cup-picks-soccer-best-bets/) - **CBS Sports**
+9. [World Cup: Captain Skhiri and German-born Khedira start for Tunisia against Sweden](https://bulinews.com/world-cup-captain-skhiri-and-german-born-khedira-start-for-tunisia-against-sweden) - **Bulinews.com**
+10. [Italy's World Cup Hope For 2030? A Familiar Face Set to Return As Manager](https://www.foxsports.com/stories/soccer/former-premier-league-winning-manager-to-take-italy-national-team-job-after-leaving-qatar) - **Fox Sports**
 
 
 ---
-*최근 업데이트: 2026-06-16 08:22:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-16 11:11:57 (KST) / (하루 100회 제한 준수 중)*
