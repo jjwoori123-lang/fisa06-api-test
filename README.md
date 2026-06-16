@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [New Zealand predicted lineup and team news vs Iran](https://thefootballfaithful.com/new-zealand-predicted-lineup-and-team-news-vs-iran/) - **The Football Faithful**
-2. [Iran vs New Zealand – Match preview and team news](https://thefootballfaithful.com/iran-vs-new-zealand-match-preview-and-team-news/) - **The Football Faithful**
-3. [Wow, Liverpool's perfect signing just announced himself to the world](https://www.anfieldwatch.co.uk/liverpool-fc/news/wow-liverpools-perfect-signing-just-announced-himself-to-the-world/) - **Anfieldwatch.co.uk**
-4. [World Cup Day 4: Germany thrash Curacao, Five-star Sweden](https://thefootballfaithful.com/world-cup-day-4-germany-thrash-curacao-five-star-sweden/) - **The Football Faithful**
-5. [Liverpool attend Morocco game to scout Ayyoub Bouaddi; Tottenham join the race for Arsenal target](https://www.getfootballnewsfrance.com/2026/liverpool-attend-morocco-game-to-scout-ayyoub-bouaddi-tottenham-join-the-race-for-arsenal-target/) - **Get French Football News**
-6. [We asked Newcastle fans what is lowest 2026/27 Premier League position that will still count as success](https://www.themag.co.uk/2026/06/we-asked-newcastle-fans-what-is-lowest-2026-27-premier-league-position-that-will-still-count-as-success-newcastle-united/) - **The Mag**
-7. [De Bruyne vs Salah World Cup clash fuels interest in sports fan tokens and prediction markets](https://cryptobriefing.com/de-bruyne-salah-world-cup-fan-tokens/) - **Crypto Briefing**
-8. [De Bruyne vs Salah: Premier League greats set for final World Cup showdown](https://www.skysports.com/football/news/12098/13551896/belgium-vs-egypt-mo-salah-and-kevin-de-bruyne-set-to-lead-their-countries-out-at-world-cup-ahead-of-one-last-battle-between-two-premier-league-icons) - **Sky Sports**
-9. [Senior Premier League executives hold transfer market fear as Elliot Anderson nears record Man City move](https://cityxtra.co.uk/48324/senior-premier-league-executives-hold-transfer-market-fear-as-elliot-anderson-nears-record-man-city-move/) - **Cityxtra.co.uk**
-10. [Summer transfer window open in England and Scotland - all the key dates](https://www.skysports.com/football/news/11095/13546220/summer-transfer-window-2026-dates-when-is-deadline-day-for-premier-league-and-efl-clubs-to-sign-players) - **Sky Sports**
+1. [Nunez, Jones and Ordonez: Five transfer decisions facing Liverpool](https://anfieldindex.com/94993/nunez-jones-and-ordonez-five-transfer-decisions-facing-liverpool-today.html) - **Anfieldindex.com**
+2. [Iran vs. New Zealand odds, prediction, time: 2026 World Cup picks, best bets from elite expert](https://www.cbssports.com/soccer/news/iran-new-zealand-odds-prediction-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+3. [Deutscher Cricket Bund (DCB) announces an exciting 2026 season to showcase Germany as the leading European cricket nation, building world-class cricket IP’s](https://www.thehindubusinessline.com/brandhub/pr-release/deutscher-cricket-bund-dcb-announces-an-exciting-2026-season-to-showcase-germany-as-the-leading-european-cricket-nation-building-world-class-cricket-ips/article71103848.ece) - **BusinessLine**
+4. [Will this be the World Cup of Lamine Yamal for Spain? Is Belgium's Jeremy Doku a budding star and more](https://www.cbssports.com/soccer/news/world-cup-lamine-yamal-spain-belgium-jeremy-doku-star/) - **CBS Sports**
+5. [How much Inter would need to pay to lure Camavinga away from Real Madrid](https://football-italia.net/how-much-inter-need-to-pay-for-camavinga/) - **Football Italia**
+6. [The Joy Portraits: Supporters celebrate title win](http://www.arsenal.com/news/joy-portraits-supporters-celebrate-title-win) - **Arsenal.com**
+7. [Manchester United to be featured on Prime Video's 'All or Nothing'](https://www.upi.com/Sports_News/Soccer/2026/06/15/england-Manchester-United-Prime-All-or-Nothing/2511781525168/) - **UPI.com**
+8. [Rejoice! The transfer window is officially open!](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_01c9bf61-ef63-4f72-a6ff-74aecc7994ba) - **Yahoo Entertainment**
+9. [Bhullar Best Indian Golfer At Morocco International Series](https://www.rediff.com/sports/report/bhullar-best-indian-at-international-series-morocco-1/20260615.htm) - **Rediff.com**
+10. [Bhullar Best Indian Golfer At Morocco International Series](https://www.rediff.com/sports/report/bhullar-best-indian-at-international-series-morocco/20260615.htm) - **Rediff.com**
 
 
 ---
-*최근 업데이트: 2026-06-16 16:45:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-16 21:56:19 (KST) / (하루 100회 제한 준수 중)*
