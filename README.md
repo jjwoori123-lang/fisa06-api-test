@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mateus Fernandes: PL rivals launch last-minute hijack attempt](https://thepeoplesperson.com/2026/06/16/mateus-fernandes-pl-rivals-launch-last-minute-hijack-attempt-311535/) - **The Peoples Person**
-2. [Haaland primed for 'big impact' at World Cup, says Norway coach](https://sports.yahoo.com/articles/haaland-primed-big-impact-world-225902406.html) - **Yahoo Entertainment**
-3. [PSG secures new deal with youngster Senny Mayulu amid Chelsea, Bayern interest](https://cryptobriefing.com/psg-mayulu-new-deal-chelsea-bayern/) - **Crypto Briefing**
-4. [Salah, Egypt come close to making World Cup history](https://www.thesportingtribune.com/2026/06/15/worldcup-salah-jun152026) - **Thesportingtribune.com**
-5. [Toby Collyer could be heading back to former club](https://thepeoplesperson.com/2026/06/15/toby-collyer-could-be-heading-back-to-former-club-311533/) - **The Peoples Person**
-6. [ESPN's Jay Williams is right. UFC Freedom 250 was a "better event" than the NBA Finals](https://www.foxnews.com/outkick-sports/espns-jay-williams-right-ufc-freedom-250-better-event-nba-finals-) - **Fox News**
-7. [Iran vs. New Zealand odds, prediction, time: 2026 World Cup picks, best bets from elite expert](https://www.cbssports.com/soccer/news/iran-new-zealand-odds-prediction-line-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
-8. [Chelsea enquires about Serie A best defender Marco Palestra’s availability](https://cryptobriefing.com/chelsea-palestra-serie-a-defender-transfer/) - **Crypto Briefing**
-9. [PSG academy product set to sign for Manchester City](https://www.getfootballnewsfrance.com/2026/psg-academy-product-set-to-sign-for-manchester-city/) - **Get French Football News**
-10. [Real Madrid extends Antonio Rüdiger’s contract until June 2027](https://cryptobriefing.com/real-madrid-rudiger-contract-extension-2027/) - **Crypto Briefing**
+1. [I Finally Understand America After Watching UFC Freedom 250 at LA’s Most Hi-Tech Sports Bar](https://gizmodo.com/i-finally-understand-america-after-watching-ufc-freedom-250-at-las-most-hi-tech-sports-bar-2000772222) - **Gizmodo.com**
+2. [World Cup Match Day 6: Messi, Mbappé, Haaland Headline Star-Studded Slate](https://www.foxsports.com/stories/soccer/world-cup-france-senegal-norway-iraq-argentina-algeria-austria-jordan) - **Fox Sports**
+3. [How to fill the Saka void, the star whose pace can hurt Croatia and should Rogers beat Bellingham in the battle for No 10? Our experts reveal their England starting XIs to win World Cup opener - and only two of them agree... do you?](https://www.dailymail.com/sport/football/article-15900925/England-starting-XI-team-news-Croatia-World-Cup-experts.html) - **Dailymail.com**
+4. [The inside story of how Thomas Tuchel built England to win the World Cup: From a Munich cafe to Mount Everest, the squad's 'penny-drop' camp in Serbia, why he insists on video-calling players, brutal honesty and the 'shirt full of stars' mission](https://www.dailymail.com/sport/football/article-15889079/Thomas-Tuchel-England-World-Cup-Munich-Everest-Serbia-stars.html) - **Dailymail.com**
+5. [Family Time, BBQ, And The Knicks: USA's Players Relished Rare Days Off](https://www.foxsports.com/stories/soccer/usmnt-world-cup-pulisic-adams-days-off) - **Fox Sports**
+6. [Did Saudi Arabia breach one of FIFA’s new World Cup rules against Uruguay?](https://wp.fromthespot.co.uk/30006/did-saudi-arabia-breach-one-of-fifas-new-world-cup-rule-against-uruguay/) - **Fromthespot.co.uk**
+7. [FIFA World Cup fever fuels cyber scams](https://economictimes.indiatimes.com/tech/technology/fifa-world-cup-fever-fuels-cyber-scams/articleshow/131754145.cms) - **The Times of India**
+8. [As Ramaphosa govt fuels S’Africa’s xenophobic attacks](https://punchng.com/as-ramaphosa-govt-fuels-safricas-xenophobic-attacks/) - **The Punch**
+9. [Lukaku, Salah, Belgium, Egypt, red fans-create smashing Seattle World Cup debut](https://www.thenewstribune.com/sports/article316141017.html) - **Tacoma News Tribune**
+10. [Troy Deeney lays into outgoing Chelsea defender Marc Cucurella after star's £52m exit to Real Madrid is confirmed](https://www.dailymail.com/sport/football/article-15902741/Troy-Deeney-Chelsea-Marc-Cucurella-Real-Madrid.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-06-17 08:07:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-17 10:44:05 (KST) / (하루 100회 제한 준수 중)*
