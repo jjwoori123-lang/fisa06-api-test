@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Kylian Mbappe: World Cup 2026 playing schedule, fixtures, kick off times, where to watch, confirmed news updates and full France squad](https://www.101greatgoals.com/football/world-cup-news/kylian-mbappe-world-cup-2026-playing-schedule-fixtures-results-news-updates/) - **101 Great Goals**
-2. [Tino Livramento’s World Cup participation in doubt after fresh injury setback](https://cryptobriefing.com/livramento-world-cup-injury-doubt/) - **Crypto Briefing**
-3. [Centre-half Forbes joins United after West Ham exit](https://www.bbc.com/sport/articles/cj3gn3g5r1yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Messi, Argentina begin World Cup title defence against Algeria: All to know](https://www.aljazeera.com/sports/2026/6/16/messi-argentina-begin-world-cup-title-defence-against-algeria-all-to-know) - **Al Jazeera English**
-5. [Dortmund put staggering price tag on Felix Nmecha amid links to Real Madrid, Man City and Man United](https://bulinews.com/dortmund-put-staggering-price-tag-felix-nmecha-amid-links-real-madrid-man-city-and-man-united) - **Bulinews.com**
-6. [Brighton confirm the signing of £8m defender](https://eplindex.com/147385/brighton-confirm-the-signing-of-8m-defender.html) - **English Premier League Index - Opta Stats**
-7. [NHL Trade Rumors: Maple Leafs Linked With Stunning Move For All-Star Center](https://www.profootballnetwork.com/nhl/nhl-trade-rumors-maple-leafs-linked-all-star-center-boone-jenner-news-june-2026/?utm_medium=rss&amp;utm_source=nordot) - **Pro Football Network**
-8. [Yan Diomande gives PSG cause for concern with telling Liverpool transfer hint at World Cup](https://www.empireofthekop.com/2026/06/16/288358/) - **Empire of The Kop**
-9. ['Crazy' Nunez return 'might work'](https://www.bbc.com/sport/football/articles/cwydn0ddnk0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Pereira contract talks paused](https://www.bbc.com/sport/football/articles/c0ly1klr0xro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [TNS to face Sabah as Welsh trio await Euro fate](https://www.bbc.com/sport/football/articles/c1wydnrp32xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Kawhi Leonard Trade Rumors Intensify as Clippers Navigate Extension Uncertainty and League Investigation](https://www.ibtimes.com.au/kawhi-leonard-clippers-future-salary-cap-investigation-1870717) - **Ibtimes.com.au**
+3. [Use DraftKings promo code for $200 in bonus bets by targeting Argentina-Algeria, 2026 World Cup on Tuesday](https://www.cbssports.com/betting/news/use-draftkings-promo-code-200-bonus-bets-argentina-algeria-2026-world-cup-tuesday/) - **CBS Sports**
+4. [Carragher 'unsurprised' as Trent snubbed as Livramento replacement](https://www.skysports.com/football/news/33694/13554705/england-world-cup-latest-jamie-carragher-unsurprised-by-trent-alexander-arnold-and-harry-maguire-snub-after-tino-livramento-injury) - **Sky Sports**
+5. [Manchester United inquires about Crysencio Summerville after high data rating](https://cryptobriefing.com/manchester-united-summerville-data-rating/) - **Crypto Briefing**
+6. [Some early ideas for the Phillies’ trade deadline](https://www.thegoodphight.com/phillies-analysis/82830/some-early-ideas-for-the-phillies-trade-deadline) - **Thegoodphight.com**
+7. [2026 World Cup, Matchday 6: Match thread and discussion](https://www.starsandstripesfc.com/usmnt-news/44343/2026-world-cup-matchday-6-match-thread-and-discussion) - **Starsandstripesfc.com**
+8. [Portugal v DR Congo: World Cup 2026 line-ups, stats and preview for Cristiano Ronaldo team, TV channel, live online stream and prediction](https://www.101greatgoals.com/match-previews/world-cup-matches/portugal-v-dr-congo-world-cup-2026-cristiano-ronaldo-line-ups-stats-tv-channel-live-online-stream/) - **101 Great Goals**
+9. [Tan converts £42m of Cardiff debt into equity](https://www.bbc.com/sport/football/articles/cm2rx8n4dp4o) - **BBC News**
+10. [Umbro Is Football’s Original Fashion Brand](https://www.highsnobiety.com/p/umbro-is-footballs-original-fashion-brand/) - **Highsnobiety**
 
 
 ---
-*최근 업데이트: 2026-06-17 20:58:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-18 00:56:28 (KST) / (하루 100회 제한 준수 중)*
