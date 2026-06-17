@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [What we're hearing about latest Giannis Antetokounmpo trade talks](https://www.usatoday.com/story/sports/nba/2026/06/16/giannis-antetokounmpo-trade-rumors-latest-bucks-celtics-heat/90576087007/) - **USA Today**
-2. [Spurs join three-way Tonali fight - Wednesday's gossip](https://www.bbc.com/sport/football/articles/cx2jykw8j42o) - **BBC News**
-3. [Chelsea offering Garnacho on loan to Roma](https://romapress.net/chelsea-offering-garnacho-on-loan-to-roma/) - **RomaPress**
-4. [Ken Early: Big win for the US means Pochettino need fear embarrassment no longer](https://www.irishtimes.com/sport/soccer/2026/06/16/ken-early-world-cup-united-states-team-mauricio-pochettino-soccer-football/) - **The Irish Times**
-5. [Braves share interesting injury update on Spencer Stride, recovery timeline](https://clemsonwire.usatoday.com/story/sports/college/clemson/baseball/2026/06/16/clemson-baseball-spencer-strider-atlanta-braves-injury-update/90578733007/) - **USA Today**
-6. [Iraq vs. Norway odds, prediction, time: 2026 World Cup picks, best bets from elite expert](https://www.cbssports.com/soccer/news/iraq-norway-odds-prediction-time-2026-world-cup-picks-soccer-best-bets/) - **CBS Sports**
-7. [Fanatics Just Signed Its Seventh Exclusive Collectibles Deal of 2026—And It’s Only June](https://news.onmantel.com/fanatics-just-signed-its-seventh-exclusive-collectibles-deal-of-2026-and-its-only-june/) - **Onmantel.com**
-8. [PREVIEW: Norway face Iraq in World Cup group of death](https://wp.fromthespot.co.uk/30080/preview-norway-face-iraq-in-world-cup-group-of-death/) - **Fromthespot.co.uk**
-9. [Tottenham Hotspur agrees £52M deal for Jan Paul van Hecke, putting $SPURS fan token in the spotlight](https://cryptobriefing.com/tottenham-van-hecke-spurs-fan-token/) - **Crypto Briefing**
-10. [England vs. Croatia live stream: How to watch FIFA World Cup, odds, prediction, pick, lineups, channel](https://www.cbssports.com/soccer/news/england-croatia-world-cup-2026-preview-predictions-watch/) - **CBS Sports**
+1. [Paul Scholes flags key concern after All or Nothing documenatary announcement](https://thepeoplesperson.com/2026/06/16/paul-scholes-flags-key-concern-after-all-or-nothing-documenatary-announcement-311592/) - **The Peoples Person**
+2. [A-League referee's 'nonsense' decision denies Mbappe penalty](https://www.abc.net.au/news/2026-06-17/world-cup-kylian-mbappe-no-penalty-from-alireza-faghani/106806564) - **ABC News (AU)**
+3. [Is It OK to Root For Iran’s World Cup Team? Persians Are Divided.](https://slate.com/culture/2026/06/iran-new-zealand-world-cup-ethics-persians-divided.html) - **Slate Magazine**
+4. [World Cup update: Canadian star Davies' status still unclear](https://www.cbc.ca/sports/the-buzzer-newsletter-world-cup-2026-world-cup-update-davies-9.7237842) - **CBC News**
+5. [Boris' dad battles back after major cancer operation: RICHARD EDEN](https://www.dailymail.com/tvshowbiz/article-15905521/Boris-dad-battles-major-cancer-operation-RICHARD-EDEN.html) - **Dailymail.com**
+6. [Washington basketball gets commitment from experienced Croatian F](https://uwhuskieswire.usatoday.com/story/sports/college/huskies/mens-basketball/2026/06/16/boris-tisma-uw-basketball-croatia-kk-zadar-danny-sprinkle-washington-huskies/90580388007/) - **USA Today**
+7. [Norway’s Erling Haaland makes World Cup debut against Iraq as crypto-sports crossover looms large](https://cryptobriefing.com/haaland-world-cup-debut-norway-iraq/) - **Crypto Briefing**
+8. [Bengals' Dexter Lawrence trade earns praise from AFC exec | ESPN](https://www.cincinnati.com/story/sports/nfl/bengals/2026/06/16/bengals-dexter-lawrence-trade-among-nfl-offseason-best/90580290007/) - **The Cincinnati Enquirer**
+9. [4 Takeaways From France's Win Over Senegal As Mbappé Rewrites Record Book](https://www.foxsports.com/stories/soccer/france-senegal-world-cup-4-takeaways) - **Fox Sports**
+10. [Schalke 04 exploring move for Premier League defender](https://bulinews.com/schalke-04-exploring-move-for-premier-league-defender) - **Bulinews.com**
 
 
 ---
-*최근 업데이트: 2026-06-18 05:53:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-18 07:46:15 (KST) / (하루 100회 제한 준수 중)*
