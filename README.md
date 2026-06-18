@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The women behind Harry Kane's men: Inspirational mothers who sacrificed so much for their boys to become World Cup heroes](https://www.dailymail.com/news/article-15906811/inspirational-mothers-sacrifices-boys-World-Cup-heroes.html) - **Dailymail.com**
-2. [Ryan Christie would love to have more tears for souvenirs if Scotland can get the result they need to go where he could never have dreamed](https://www.dailymail.com/sport/football/article-15908947/Ryan-Christie-love-tears-souvenirs-Scotland-result-need-never-dreamed.html) - **Dailymail.com**
-3. [Manchester City Have Set Their Sights On This Bayern Munich Winger: Dream Signing For Them?](https://the4thofficial.net/2026/06/manchester-city-have-set-their-sights-on-this-bayern-munich-winger/) - **The4thofficial.net**
-4. [José Mourinho requests Real Madrid to sign Premier League star](https://getfootballnewsspain.com/jose-mourinho-requests-real-madrid-to-sign-premier-league-star/) - **Getfootballnewsspain.com**
-5. [Why Harry Maguire is missing the 2026 World Cup for England](https://worldsoccertalk.com/world-cup/why-harry-maguire-is-missing-the-2026-world-cup-for-england/) - **Worldsoccertalk.com**
-6. [Barcelona targets €75M Real Sociedad attacker as summer spending spree continues](https://cryptobriefing.com/barcelona-targets-real-sociedad-attacker-75m/) - **Crypto Briefing**
-7. [Manchester United Are Facing Stiff Competition For This Borussia Dortmund Ace: Good Fit For Carrick?](https://the4thofficial.net/2026/06/manchester-united-are-facing-stiff-competition-for-this-borussia-dortmund-ace/) - **The4thofficial.net**
-8. [Vitor Reis engaged in physical training plan as start to Manchester City life beckons](https://cityxtra.co.uk/48460/vitor-reis-engaged-in-physical-training-plan-as-start-to-manchester-city-life-beckons/) - **Cityxtra.co.uk**
-9. [The intentions of Manchester City become clear as they bid to significantly bolster their midfield](https://esteemedkompany.com/2026/06/17/the-intentions-of-manchester-city-become-clear-as-they-bid-to-significantly-bolster-their-midfield/) - **Esteemedkompany.com**
-10. [Report: Spurs reject ‘multiple approaches’ for £20m rated forward](https://eplindex.com/147460/report-spurs-reject-multiple-approaches-for-20m-rated-forward.html) - **English Premier League Index - Opta Stats**
+1. [Fresh Update Emerges on West Ham's Crysencio Summerville to PSG](https://roundtable.io/sports/soccer/ligue-1/paris-st-germain/news/fresh-update-emerges-on-west-hams-crysencio-summerville-to-psg) - **Roundtable.io**
+2. [Manchester United’s Amad Diallo scores dramatic World Cup winner as crypto sits on the sidelines](https://cryptobriefing.com/manchester-united-world-cup-crypto-sponsorship/) - **Crypto Briefing**
+3. [Historic World Cup goal brings rare joy to DR Congo Ebola epicentre](https://sports.yahoo.com/articles/historic-world-cup-goal-brings-231232488.html) - **Yahoo Entertainment**
+4. [Arsenal edging out La Liga giants in race for French midfield star](https://www.sportingnews.com/us/soccer/arsenal/news/arsenal-edging-out-la-liga-giants-race-french-midfield-star/356b3168fe9621d62624778d) - **Sporting News**
+5. [Liverpool hijacks €40M deal for Spanish winger Victor Munoz from under Newcastle’s nose](https://cryptobriefing.com/liverpool-hijacks-munoz-transfer-newcastle/) - **Crypto Briefing**
+6. [Blue Jays Explore Surprising Position Change As Vladimir Guerrero Jr Struggles](https://www.forbes.com/sites/peterchawaga/2026/06/17/blue-jays-explore-surprising-position-change-as-vladimir-guerrero-jr-struggles/) - **Forbes**
+7. [Manchester United signs Harry Kane, aims for Premier League title](https://cryptobriefing.com/manchester-united-harry-kane-fan-tokens/) - **Crypto Briefing**
+8. [World Cup: England beat Croatia 4-2 as Harry Kane scores brace](https://www.irishtimes.com/sport/soccer/2026/06/17/ken-early-england-struggle-with-their-new-personality-under-tuchel-in-win-over-croatia/) - **The Irish Times**
+9. [Spurs join clubs interested in Tonali](https://www.bbc.com/sport/football/articles/cd6ej7njylyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Spurs join clubs interested in Tonali](https://www.bbc.com/sport/football/articles/cd6ej7njylyo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-06-19 06:31:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-19 08:22:59 (KST) / (하루 100회 제한 준수 중)*
