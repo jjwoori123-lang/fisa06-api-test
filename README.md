@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [4 Takeaways From Ghana's Dramatic Win Over Pamana At World Cup](https://www.foxsports.com/stories/soccer/ghana-panama-world-cup-4-takeaways) - **Fox Sports**
-2. [Benjamin Asare shines as Ghana Black Stars goalkeeper at 33](https://cryptobriefing.com/benjamin-asare-ghana-goalkeeper-world-cup/) - **Crypto Briefing**
-3. [Fox’s Kasper Schmeichel hilariously compares England to Dallas Cowboys](https://awfulannouncing.com/soccer/kasper-schmeichel-compares-england-dallas-cowboys.html) - **Awful Announcing**
-4. [England's high-octane start betrays World Cup nerves](https://www.abc.net.au/news/2026-06-18/world-cup-england-croatia-fear-nerves/106811876) - **ABC News (AU)**
-5. [How Folarin Balogun Nearly Missed A Message From Lifelong Mentor Thierry Henry](https://www.foxsports.com/stories/soccer/usmnt-world-cup-folarin-balogun-goals-thierry-henry) - **Fox Sports**
-6. [Colombia vs. Uzbekistan odds, prediction, time: 2026 World Cup picks, best bets from elite expert](https://www.cbssports.com/soccer/news/colombia-uzbekistan-odds-line-prediction-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
-7. [How Thomas Tuchel got England off to a winning start: The Jude Bellingham treatment, the Arsenal set-piece trick, the half-time rant and the clever use of the bench...but why the defence is a cause for concern](https://www.dailymail.com/sport/football/article-15908537/Thomas-Tuchel-England-Jude-Bellingham-Arsenal.html) - **Dailymail.com**
-8. [Kane double fires England past Croatia in World Cup thriller - Al Jazeera](https://slashdot.org/firehose.pl?op=view&amp;id=183951588) - **Slashdot.org**
-9. [WORLD CUP DAY 7: England and Kane deliver in style](https://shows.acast.com/timesthegame/episodes/world-cup-day-7-england-and-kane-deliver-in-style) - **Acast.com**
-10. [Antonee Robinson’s ‘Jedi’ nickname has followed him all the way to World Cup stage](https://nypost.com/2026/06/17/sports/antonee-robinsons-jedi-nickname-has-followed-him-all-the-way-to-world-cup-stage/) - **New York Post**
+1. [Manchester United keen to sign £39m-rated Serie A midfielder](https://footballtoday.com/2026/06/18/manchester-united-keen-to-sign-39m-rated-serie-a-midfielder/) - **Footballtoday.com**
+2. [Why Mexico's Raul Jimenez wears a special headband during World Cup after life-threatening injury](https://www.sportingnews.com/us/soccer/news/raul-jimenez-mexico-headband-world-cup-injury/cf26304e0ab40e64f8c9aefb) - **Sporting News**
+3. [Arsenal will challenge Premier League clubs for Sporting star](https://www.justarsenal.com/arsenal-will-challenge-premier-league-clubs-for-sporting-star/417103) - **Just Arsenal News**
+4. [What are the cyber threats to the 2026 Fifa World Cup?](https://www.computerweekly.com/feature/What-are-the-cyber-threats-to-the-2026-Fifa-World-Cup) - **ComputerWeekly.com**
+5. [Liverpool signs Víctor Muñoz from Osasuna for €40M as Real Madrid declines buyback](https://cryptobriefing.com/liverpool-signs-victor-munoz-osasuna/) - **Crypto Briefing**
+6. [Mourinho asks Real Madrid to keep 2025 summer signing; 26-year-old defender likely to be sacrificed – report](https://madriduniversal.com/mourinho-asks-real-madrid-to-keep-2025-summer-signing-26-year-old-defender-likely-to-be-sacrificed-report/) - **Madriduniversal.com**
+7. [When is IPL 2027 starting? Predicted start date, schedule window and likely number of matches for season 20](https://www.cricketnews.com/en/cricket/news/when-ipl-2027-starting-start-date-schedule-window-season-20-matches-number/d35b554c13069d82c303a0ab) - **Cricketnews.com**
+8. [Bruno Fernandes: Graeme Souness performs U-turn on United ace](https://thepeoplesperson.com/2026/06/18/bruno-fernandes-graeme-souness-performs-u-turn-on-united-ace-311640/) - **The Peoples Person**
+9. [Manchester City set to include ‘more achievable’ bonuses in fresh Elliot Anderson bid](https://cityxtra.co.uk/48573/manchester-city-set-to-include-more-achievable-bonuses-in-fresh-elliot-anderson-bid/) - **Cityxtra.co.uk**
+10. [Thursday’s Everton News: Pickford wins, Grealish trains, Openda linked](https://royalbluemersey.sbnation.com/everton-news/80636/pickford-england-wins-grealish-trains-openda-linked) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-06-19 11:20:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-19 17:18:01 (KST) / (하루 100회 제한 준수 중)*
