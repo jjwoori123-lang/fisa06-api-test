@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Real Madrid will not have buy-back clause for new Liverpool forward](https://siempremadrid.com/real-madrid-will-not-have-buy-back-clause-for-new-liverpool-forward/) - **Siempremadrid.com**
-2. [Palestra closer to Inter after latest meeting in blow to Chelsea and Man City](https://football-italia.net/palestra-closer-inter-meeting-blow-chelsea/) - **Football Italia**
-3. [Rory McIlroy Warns PGA Tour's Two-Track Overhaul Could Turn Marquee Events Into Minor League Golf](https://www.ibtimes.com.au/rory-mcilroy-criticises-pga-tour-restructure-1870843) - **Ibtimes.com.au**
-4. [Mexico vs. Korea Republic odds, picks, prediction, betting preview, time for 2026 World Cup showdown Thursday](https://www.cbssports.com/soccer/news/mexico-vs-korea-republic-odds-picks-prediction-betting-preview-time-for-2026-world-cup-showdown-thursday/) - **CBS Sports**
-5. [What's going on with stoppage time at the World Cup?](https://www.bbc.com/sport/football/articles/cx2de8l2dzmo) - **BBC News**
-6. [Madrid sign Ibrahima Konate on four-year deal](https://punchng.com/madrid-sign-ibrahima-konate-on-four-year-deal/) - **The Punch**
-7. [Arsenal is not afraid to pay a huge fee for teenage forward](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c2f31f6e-db72-451c-8d7c-aa79d0733540) - **Yahoo Entertainment**
-8. [Most shots? Best dribbler? World Cup so far in numbers](https://www.bbc.com/sport/football/articles/cddl26617m4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [When are the Premier League 2026/27 fixtures released? Date, day and time when full football schedule is announced, confirmed start and end dates for new season](https://www.101greatgoals.com/football/premier-league/when-are-premier-league-fixtures-released-date-day-time-2026-27-season/) - **101 Great Goals**
-10. [Most shots? Best dribbler? World Cup so far in numbers](https://www.bbc.com/sport/football/articles/cddl26617m4o) - **BBC News**
+1. [Hooked after an hour - did Vuskovic boost his Spurs chances?](https://www.bbc.com/sport/football/articles/c75y3zy6pk1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Uruguay vs Cape Verde Prediction: World Cup 2026 Preview & Best Bets](https://www.juvefc.com/uruguay-v-cape-verde-predictions/) - **JuveFC**
+3. [Hooked after an hour - did Vuskovic boost his Spurs chances?](https://www.bbc.com/sport/football/articles/c75y3zy6pk1o) - **BBC News**
+4. [RB Leipzig approach Everton over Thierno Barry](https://www.getfootballnewsfrance.com/2026/rb-leipzig-approach-everton-over-thierno-barry/) - **Get French Football News**
+5. [Real Madrid Set For Windfall As Victor Muñoz Completes Liverpool Move](https://www.managingmadrid.com/real-madrid-cf-transfer-talk/109139/real-madrid-set-for-windfall-as-victor-munoz-completes-liverpool-move) - **Managing Madrid**
+6. [From Cape Fear to Margo’s Got Money Troubles – the best Apple TV+ shows to watch](https://www.the-independent.com/arts-entertainment/tv/features/apple-tv-best-shows-watch-now-b2998210.html) - **The-independent.com**
+7. [Raul Jimenez's remarkable journey from the streets of Mexico's Tepeji del Rio to the glory of a home World Cup, overcoming a life-threatening head injury on the way](https://www.dailymail.com/sport/football/article-15904133/Raul-Jimenezs-remarkable-journey-streets-Mexicos.html) - **Dailymail.com**
+8. [FIFA House to Debut in New York City Ahead of FIFA World Cup 2026 Final](https://financialpost.com/pmn/business-wire-news-releases-pmn/fifa-house-to-debut-in-new-york-city-ahead-of-fifa-world-cup-2026-final) - **Financial Post**
+9. [Walsall won't have 700 passes and lose 1-0 - Grant](https://www.bbc.com/sport/football/articles/cql1257rkx1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-06-19 21:27:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-20 00:51:55 (KST) / (하루 100회 제한 준수 중)*
