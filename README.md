@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Hooked after an hour - did Vuskovic boost his Spurs chances?](https://www.bbc.com/sport/football/articles/c75y3zy6pk1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Uruguay vs Cape Verde Prediction: World Cup 2026 Preview & Best Bets](https://www.juvefc.com/uruguay-v-cape-verde-predictions/) - **JuveFC**
-3. [Hooked after an hour - did Vuskovic boost his Spurs chances?](https://www.bbc.com/sport/football/articles/c75y3zy6pk1o) - **BBC News**
-4. [RB Leipzig approach Everton over Thierno Barry](https://www.getfootballnewsfrance.com/2026/rb-leipzig-approach-everton-over-thierno-barry/) - **Get French Football News**
-5. [Real Madrid Set For Windfall As Victor Muñoz Completes Liverpool Move](https://www.managingmadrid.com/real-madrid-cf-transfer-talk/109139/real-madrid-set-for-windfall-as-victor-munoz-completes-liverpool-move) - **Managing Madrid**
-6. [From Cape Fear to Margo’s Got Money Troubles – the best Apple TV+ shows to watch](https://www.the-independent.com/arts-entertainment/tv/features/apple-tv-best-shows-watch-now-b2998210.html) - **The-independent.com**
-7. [Raul Jimenez's remarkable journey from the streets of Mexico's Tepeji del Rio to the glory of a home World Cup, overcoming a life-threatening head injury on the way](https://www.dailymail.com/sport/football/article-15904133/Raul-Jimenezs-remarkable-journey-streets-Mexicos.html) - **Dailymail.com**
-8. [FIFA House to Debut in New York City Ahead of FIFA World Cup 2026 Final](https://financialpost.com/pmn/business-wire-news-releases-pmn/fifa-house-to-debut-in-new-york-city-ahead-of-fifa-world-cup-2026-final) - **Financial Post**
-9. [Walsall won't have 700 passes and lose 1-0 - Grant](https://www.bbc.com/sport/football/articles/cql1257rkx1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Here’s How to Watch Major League Cricket 2026 Live Online](https://variety.com/2025/shopping/news/how-to-watch-major-league-cricket-online-1236062326/) - **Variety**
+2. [Chelsea among the clubs set to challenge Arsenal for Greek star](https://www.justarsenal.com/chelsea-among-the-clubs-set-to-challenge-arsenal-for-greek-star/417139) - **Just Arsenal News**
+3. [This African Soccer Academy Invites Travelers to Join the Team](https://matadornetwork.com/read/lesotho-soccer-tour/) - **Matadornetwork.com**
+4. [Use BetMGM bonus code CBSSPORTS to get $1,500 in bonus bets for South Korea-Mexico, 2026 World Cup on Thursday](https://www.cbssports.com/betting/news/use-betmgm-bonus-code-cbssports-to-get-1500-bonus-bets-south-korea-mexico-2026-world-cup-thursday/) - **CBS Sports**
+5. [Peterborough sign Sunderland midfielder Jones](https://www.bbc.com/sport/football/articles/cwyk7nxljz4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Spike Lee revels in Knicks championship parade after 53-year wait](https://nypost.com/2026/06/18/sports/spike-lee-revels-in-knicks-championship-parade-after-53-year-wait/?utm_source=yahoo&amp;utm_campaign=nypost&amp;utm_medium=referral) - **New York Post**
+7. [Spike Lee revels in Knicks championship parade after 53-year wait](https://nypost.com/2026/06/18/sports/spike-lee-revels-in-knicks-championship-parade-after-53-year-wait/) - **New York Post**
+8. [The Life-Changing Power of Football](https://www.highsnobiety.com/p/adam-friedland-cobi-jones-chris-richards-football-soccer-origin-world-cup/) - **Highsnobiety**
+9. [Everton in advanced talks to re-sign John Stones, whose crypto ties add an unexpected layer](https://cryptobriefing.com/everton-john-stones-crypto-axi/) - **Crypto Briefing**
+10. [Report: Chelsea eyeing Premier League duo as potential targets](https://eplindex.com/147485/report-chelsea-eyeing-premier-league-duo-as-potential-targets.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-06-20 00:51:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-20 03:00:34 (KST) / (하루 100회 제한 준수 중)*
