@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [McKenna will still cost £8m](https://www.bbc.com/sport/football/articles/cj0g9g3179jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [USA vs. Australia prediction, odds, time: 2026 World Cup picks, prop bets by expert on 18-9 run](https://www.cbssports.com/soccer/news/usa-australia-prediction-odds-start-time-2026-world-cup-picks-best-bets-props/) - **CBS Sports**
-3. [Liverpool appoints Andoni Iraola as new head coach, Carragher demands title challenge](https://cryptobriefing.com/liverpool-appoints-iraola-carragher-title-challenge/) - **Crypto Briefing**
-4. [Patrice Evra shows up with a new tattoo in the new It’s All At Stake video](https://hayters.com/patrice-evra-shows-up-with-a-new-tattoo-in-the-new-its-all-at-stake-video/) - **Hayters.com**
-5. [Walters targeting multiple Stoke signings](https://www.bbc.com/sport/football/articles/cj4g2g8x824o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [No Ibrahimovic? No problem as Sweden have Gyökeres and Isak](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260619-99-792926/) - **Dpa-international.com**
-7. [Folarin Balogun odds, picks, player props, predictions: Best bets for USA vs. Australia in 2026 World Cup](https://www.cbssports.com/soccer/news/folarin-balogun-odds-picks-player-props-predictions-best-bets-usa-vs-australia-2026-world-cup/) - **CBS Sports**
-8. [Who are Morocco's players to look out for against Scotland?](https://www.bbc.com/sport/football/articles/c78y69pe266o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Man United Premier League fixtures: Start and run-in for the 2026/27 season](https://www.sportingnews.com/us/soccer/manchester-united/news/man-united-premier-league-fixtures-start-run-202627-season/2c87e50d3e538281131a0969) - **Sporting News**
-10. [Germany teammate praises Havertz for surprising reason](https://dailycannon.com/2026/06/germany-schlotterbeck-havertz-praise/) - **Dailycannon.com**
+1. [Shillong Lajong brings back Bobby Nongbet to steer youth development](https://www.syllad.com/shillong-lajong-brings-back-bobby-nongbet-to-steer-youth-development/) - **Syllad.com**
+2. [Rice retains Arsenal Player of the Season award](http://www.arsenal.com/news/rice-retains-arsenal-player-season-award) - **Arsenal.com**
+3. [Chelsea fixture list for the 2026/27 Premier League season](https://thefootballfaithful.com/chelsea-fixture-list-for-the-2026-27-premier-league-season/) - **The Football Faithful**
+4. [Liverpool fixture list for the 2026/27 Premier League season](https://thefootballfaithful.com/liverpool-fixture-list-for-the-2026-27-premier-league-season/) - **The Football Faithful**
+5. [How to watch Leinster vs Bulls: Live Streams & TV Channels for URC Final 2026](https://www.techradar.com/how-to-watch/rugby/leinster-vs-bulls-live-streams-2025-26-urc-final) - **TechRadar**
+6. [Colston Loveland to represent Bears at Tight End University](https://bearswire.usatoday.com/story/sports/nfl/bears/2026/06/19/bears-colston-loveland-attends-tight-end-university/90619895007/) - **USA Today**
+7. [World Cup players with dual eligibility face a tough choice about which country to represent](https://sports.yahoo.com/articles/world-cup-players-dual-eligibility-152514375.html) - **Yahoo Entertainment**
+8. [Ashton says Town managerial appointment 'imminent'](https://www.bbc.com/news/articles/cly0v0ld8exo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Aldershot captain Hill to leave the club](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8c2dc07d-eef2-45ef-b8d1-6a43be4fa538) - **Yahoo Entertainment**
+10. [Jeremy Monga: Arsenal pull ahead of Man United for Leicester City winger](https://thepeoplesperson.com/2026/06/19/jeremy-monga-arsenal-pull-ahead-of-man-united-for-leicester-city-winger-311691/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-06-20 23:34:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-21 01:04:27 (KST) / (하루 100회 제한 준수 중)*
