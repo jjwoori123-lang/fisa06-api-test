@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mendes Confidence Fuels Fresh Liverpool Sporting Star Links](https://anfieldindex.com/95100/mendes-confidence-fuels-fresh-liverpool-sporting-star-links.html) - **Anfieldindex.com**
-2. [Hitchiking overnight and Klinsmann's dive - your opening day memories](https://www.bbc.com/sport/football/articles/cp3619x3vv7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Campbell's hat-trick and sleeping in the car in Southend - opening-day memories](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0d0460ee-dcc1-4618-b3dc-2d71032ed250) - **Yahoo Entertainment**
-4. [Knighton showboating and Ruud's debut double - opening-day memories](https://www.bbc.com/sport/football/articles/cz759wzzew9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Bielsa-ball and Southall's half-time strop - opening-day memories](https://www.bbc.com/sport/football/articles/cwylqkdxnrlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Ward's debut hat-trick and a Stadium of Light trip - opening-day memories](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ee417081-5bba-4e8c-9232-9a065fe97d61) - **Yahoo Entertainment**
-7. ['Double bicycle-kick' - fans' opening-day memories](https://www.bbc.com/sport/football/articles/ce952g8jmp5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [From Hereford to Old Trafford - fans' memories of opening fixtures](https://www.bbc.com/sport/football/articles/cgk6g1rpprxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Cottee masterclass and 'geriatric' defenders - fans' opening-day memories](https://www.bbc.com/sport/football/articles/c5yzrgw320wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Quinn hat-trick and Mabbutt pelters - your opening-day memories](https://www.bbc.com/sport/football/articles/c0ly0gw663jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Report: Everton forward wanted by Bundesliga side](https://eplindex.com/147503/report-everton-forward-wanted-by-bundesliga-side.html) - **English Premier League Index - Opta Stats**
+2. [Nottingham Forest 2026/27 Premier League fixtures in FULL: Leeds first up for Pereira’s side](https://hayters.com/nottingham-forest-2026-27-premier-league-fixtures-in-full-leeds-first-up-for-pereiras-side/) - **Hayters.com**
+3. [Sunderland 2026/27 Premier League fixtures in FULL with Ipswich up first for Regis Le Bris’ side](https://hayters.com/sunderland-2026-27-premier-league-fixtures-in-full-with-ipswich-up-first-for-regis-le-bris-side/) - **Hayters.com**
+4. [World Cup breakout star Johan Manzambi sparks Premier League transfer talk and renewed interest in sports NFTs](https://cryptobriefing.com/manzambi-world-cup-premier-league-sorare-nft/) - **Crypto Briefing**
+5. [Richards, Robinson among American players to learn Premier League schedules](https://sbisoccer.com/2026/06/richards-robinson-among-american-players-to-learn-premier-league-schedules) - **Sbisoccer.com**
+6. [The heavily jeered $250m goldmine - are hydration break ads here to stay?](https://www.bbc.com/sport/football/articles/cp3xqn9zxdgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Newcastle United 2026/27 Premier League fixtures in FULL with Liverpool first up for Howe’s side](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f19f43ca-0c77-40d6-b338-d2f82e5a8a04) - **Yahoo Entertainment**
+8. [Manchester City fixtures 2026/27: List in full as post-Pep Guardiola era starts at home to Bournemouth](https://www.101greatgoals.com/football/premier-league/manchester-city-fixtures-2026-27-list-in-full-as-post-pep-guardiola-era-starts-at-home-to-bournemouth/) - **101 Great Goals**
+9. [Bruno Fernandes: United captain draws comparison to Barcelona superstar](https://thepeoplesperson.com/2026/06/19/bruno-fernandes-united-captain-draws-comparison-to-barcelona-superstar-311678/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-06-20 16:55:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-20 19:34:53 (KST) / (하루 100회 제한 준수 중)*
