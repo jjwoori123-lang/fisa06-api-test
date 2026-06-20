@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Swansea appoint Palace's Stevens sporting director](https://www.bbc.com/sport/football/articles/c1ey65474jxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Forget your exorbitant signings, Manchester City legend Bernardo Silva could give Real Madrid everything for absolutely nothing](https://cityxtra.co.uk/48265/forget-your-exorbitant-signings-manchester-city-legend-bernardo-silva-could-give-real-madrid-everything-for-absolutely-nothing/) - **Cityxtra.co.uk**
-3. [USA vs. Australia prediction, odds, time: 2026 World Cup picks, prop bets by expert on 18-9 run](https://www.cbssports.com/soccer/news/usa-australia-prediction-odds-start-time-2026-world-cup-picks-expert-best-bets-props/) - **CBS Sports**
-4. [Utah became a rising powerhouse for sports tourism — and shows no signs of slowing down](https://www.deseret.com/sports/2026/06/19/how-utah-became-a-top-sports-destination-in-the-u-s/) - **Deseret News**
-5. [Real reason Scott McTominay had to leave Manchester United finally emerges](https://thepeoplesperson.com/2026/06/19/real-reason-scott-mctominay-had-to-leave-manchester-united-finally-emerges-311688/) - **The Peoples Person**
-6. [Scotland vs Morocco Preview: Scotland Chases World Cup History Against Morocco in Boston Group C Showdown](https://www.ibtimes.com.au/scotland-world-cup-knockout-stage-morocco-1870937) - **Ibtimes.com.au**
-7. [Manchester United express interest in Real Madrid midfielder with €60m price tag – report](https://madriduniversal.com/manchester-united-express-interest-in-real-madrid-midfielder-with-e60m-price-tag-report/) - **Madriduniversal.com**
-8. [Brazil Eyes First Win Against Haiti After Sluggish Morocco Draw in World Cup Group C](https://www.ibtimes.com.au/brazil-seeks-redemption-against-haiti-2026-world-cup-1870935) - **Ibtimes.com.au**
-9. [Leafs acquire Darren Raddysh from Lightning and sign him to an 8-year contract](https://www.nbcsports.com/nhl/news/leafs-acquire-darren-raddysh-from-lightning-and-sign-him-to-an-8-year-contract) - **NBCSports.com**
+1. [Report: Tottenham Hotspur have set their sights on move for Premier League midfielder](https://eplindex.com/147523/report-tottenham-hotspur-have-set-their-sights-on-move-for-premier-league-midfielder.html) - **English Premier League Index - Opta Stats**
+2. [Scotland vs. Morocco odds, prediction, time: 2026 World Cup picks, best bets from expert on 18-9 run](https://www.cbssports.com/soccer/news/scotland-morocco-odds-prediction-line-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+3. [Jeremy Monga has been learning about life at Arsenal through Max Dowman](https://sportsview.co.uk/2026/06/jeremy-monga-has-been-learning-about-life-at-arsenal-through-max-dowman?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=jeremy-monga-has-been-learning-about-life-at-arsenal-through-max-dowman) - **Sportsview.co.uk**
+4. [Speakman set for new sporting director role](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5780cb37-2465-4106-8a36-807cfb1c5e2f) - **Yahoo Entertainment**
+5. [Good news as Liverpool come forward with serious interest in top centre-back](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-micky-van-de-ven-barcelona-tottenham-good-news-serious-interest-in-top-centre-back/) - **Anfieldwatch.co.uk**
+6. [Seahawks star JSN’s breakout in 2025 sign of things to come](https://seahawkswire.usatoday.com/story/sports/nfl/seahawks/2026/06/19/is-seattle-seahawks-wr-jsns-breakout-in-2025-sign-of-things-to-come/90622227007/) - **USA Today**
+7. [Lewis Steele rules out Liverpool move for Premier League star](https://anfieldindex.com/95117/lewis-steele-rules-out-liverpool-move-for-premier-league-star.html) - **Anfieldindex.com**
+8. [Why Mariners' most impactful addition for MLB roster might not be a trade](https://www.sportingnews.com/us/mlb/seattle-mariners/news/why-mariners-most-impactful-addition-roster-might-not-trade/171c5f1916830cd47be6e4fc) - **Sporting News**
+9. [Manchester United Are Keeping Tabs On This Fulham Left-Back: What Will He Add To Carrick’s Side?](https://the4thofficial.net/2026/06/manchester-united-are-keeping-tabs-on-this-fulham-left-back-what-will-he-add-to-carricks-side/) - **The4thofficial.net**
+10. [Ball in PSG’s court after Premier League giants see €100m offer for winger rejected](https://psgtalk.com/2026/06/ball-court-psg-liverpool-rejected-e100m/) - **Psgtalk.com**
 
 
 ---
-*최근 업데이트: 2026-06-21 02:49:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-21 04:41:08 (KST) / (하루 100회 제한 준수 중)*
