@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Real Madrid dealt blow as Tottenham very close to reaching contract agreement with midfield target](https://madriduniversal.com/real-madrid-dealt-blow-as-tottenham-very-close-to-reaching-contract-agreement-with-midfield-target/) - **Madriduniversal.com**
-2. [Tottenham to demand £115m for Micky van de Ven as Barcelona and Liverpool show interest](https://sportsview.co.uk/2026/06/tottenham-to-demand-115m-for-micky-van-de-ven-as-barcelona-and-liverpool-show-interest?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-to-demand-115m-for-micky-van-de-ven-as-barcelona-and-liverpool-show-interest) - **Sportsview.co.uk**
-3. [Brighton submit third £45m bid for Luka Vuskovic, still under Spurs’ valuation](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-transfers-rumors/71430/tottenham-hotspur-transfer-news-rumors-luka-vuskovic-brighton-third-bid) - **SB Nation**
-4. [Alex Freeman incident in USA vs. Australia brings FIFA under fire for World Cup protocols](https://www.hitc.com/alex-freeman-incident-in-usa-vs-australia-brings-fifa-under-fire-for-world-cup-protocols/) - **HITC - Football, Gaming, Movies, TV, Music**
-5. [Tottenham Having ‘Positive Talks’ for Newcastle’s Sandro Tonali Transfer: Breaking](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/22141/newcastles-sandro-tonali-linked-to-unexpected-premier-league-team) - **SB Nation**
-6. [Two Spots Arsenal wants to strengthen this summer](https://www.justarsenal.com/two-spots-arsenal-wants-to-strengthen-this-summer/417207) - **Just Arsenal News**
-7. [Manchester City nears agreement with Chelsea to hire Enzo Maresca](https://cryptobriefing.com/manchester-city-enzo-maresca-chelsea-hire/) - **Crypto Briefing**
-8. [Rishabh Pant set to join Delhi Capitals in IPL 2027 with massive cut in salary of Rs 12 cr](https://economictimes.indiatimes.com/news/sports/rishabh-pant-set-to-join-delhi-capitals-in-ipl-2027-with-massive-cut-in-salary-of-rs-12-cr/articleshow/131877463.cms) - **The Times of India**
-9. [Ivory Coast's Yan Diomande is a must-watch World Cup breakout star; Netherlands attack could doom them, more](https://www.cbssports.com/soccer/news/ivory-coasts-yan-diomande-is-a-must-watch-world-cup-breakout-star-netherlands-attack-could-doom-them-more/) - **CBS Sports**
-10. [Liverpool target breaks silence on transfer speculation after World Cup heroics](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9f31a463-e1c8-4d06-9cf0-ac63b17dc778) - **Yahoo Entertainment**
+1. [Real Madrid legend seals move to Lionel Messi’s Inter Miami](https://getfootballnewsspain.com/real-madrid-legend-seals-move-to-lionel-messis-inter-miami/) - **Getfootballnewsspain.com**
+2. [Arsenal loanee trains alone as transfer talks continue](https://dailycannon.com/2026/06/arsenal-loanee-vieira-trains-alone/) - **Dailycannon.com**
+3. [How to live stream Netherlands vs Sweden: FIFA World Cup 2026, TV channel](https://www.thebiglead.com/how-to-live-stream-netherlands-vs-sweden-fifa-world-cup-2026-tv-channel/) - **The Big Lead**
+4. [Andreas Christensen agrees two-year extension but could still leave Barcelona](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/124082/andreas-christensen-agrees-two-year-extension-but-could-still-leave-barcelona) - **Barca Blaugranes**
+5. [Polymarket Promo Code FOX: Get a $50 Bonus Ahead of Sweden vs. Netherlands, Germany vs. Ivory Coast](https://www.foxsports.com/stories/betting/polymarket-promo-code-fox-get-50-bonus-ahead-sweden-vs-netherlands-germany-vs-ivory-coast) - **Fox Sports**
+6. [Kalshi Promo Code FOXSPORTS: Get a $10 Bonus for Any World Cup Game Today Including Germany vs. Ivory Coast](https://www.foxsports.com/stories/betting/kalshi-promo-code-foxsports-get-10-bonus-any-world-cup-game-today-including-germany-vs-ivory-coast) - **Fox Sports**
+7. [Fowl Play: Chris Richards' Lucky Rubber Chicken Joins USA On World Cup Tour](https://www.foxsports.com/stories/soccer/usmnt-chris-richards-chicken-world-cup-paxo) - **Fox Sports**
+8. [Sweden announces starting XI for World Cup match against Netherlands as Kraken’s crypto sponsorship takes center stage](https://cryptobriefing.com/sweden-world-cup-lineup-netherlands-crypto/) - **Crypto Briefing**
+9. [Familiar face could scupper Liverpool chances of signing 31-G/A attacker](https://www.empireofthekop.com/2026/06/20/liverpool-francisco-trincao-transfer/) - **Empire of The Kop**
+10. [Roma reject Premier League approaches for wing-back Wesley](https://www.getfootballnewsitaly.com/2026/roma-reject-premier-league-approaches-for-wing-back-wesley/) - **Getfootballnewsitaly.com**
 
 
 ---
-*최근 업데이트: 2026-06-21 23:34:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-22 01:19:13 (KST) / (하루 100회 제한 준수 중)*
