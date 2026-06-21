@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Fabrizio Romano provides update on Liverpool midfielder’s future](https://anfieldindex.com/95127/fabrizio-romano-provides-update-on-liverpool-midfielders-future.html) - **Anfieldindex.com**
-2. [Moyes unsure ''if a club like Everton can make big huge strides''](http://www.toffeeweb.com/season/25-26/news/47672.html) - **Toffeeweb**
-3. [Leeds Face Aston Villa and Everton Battle for Premier League Free Transfer](https://eplindex.com/147541/leeds-face-aston-villa-and-everton-battle-for-premier-league-free-transfer.html) - **English Premier League Index - Opta Stats**
-4. [Declan Rice wins Arsenal award again](https://dailycannon.com/2026/06/declan-rice-arsenal-pots/) - **Dailycannon.com**
-5. [Free 2026 World Cup anytime goalscorer picks, odds: Leroy Sane among best bets for Saturday's matches](https://www.cbssports.com/soccer/news/free-2026-world-cup-anytime-goalscorer-picks-odds-leroy-sane-among-best-bets-for-saturdays-matches/) - **CBS Sports**
-6. [Who is Yan Diomande? Meet Ivory Coast's 19-year-old soccer World Cup standout linked to Liverpool](https://www.sportingnews.com/us/soccer/news/yan-diomande-ivory-coast-world-cup-19-soccer-liverpool/d142444a895928dcb8469616) - **Sporting News**
-7. [Lyon’s Ainsley Maitland-Niles a target for Crystal Palace](https://www.getfootballnewsfrance.com/2026/lyons-ainsley-maitland-niles-a-target-for-crystal-palace/) - **Get French Football News**
-8. ['Everything I do is for you' - how tragedy is driving Diomande](https://www.bbc.com/sport/football/articles/ckg04xer94eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Premier League club now set to appoint new manager](https://www.themag.co.uk/2026/06/premier-league-club-now-set-to-appoint-new-manager-ipswich-town-gary-oneill/) - **The Mag**
-10. [Titans Make Jeffery Simmons NFL's Highest-Paid Defensive Tackle With Massive Extension](https://www.ibtimes.com.au/tennessee-titans-jeffery-simmons-contract-extension-1870962) - **Ibtimes.com.au**
+1. [Report: Leeds United considering move for £20m-rated midfielder](https://eplindex.com/147546/report-leeds-united-considering-move-for-20m-rated-midfielder.html) - **English Premier League Index - Opta Stats**
+2. [Michail Antonio to face fresh trial after having Lamborghini driving conviction quashed, as ex-West Ham striker tells court he 'almost died' in Ferrari crash](https://www.dailymail.com/sport/football/article-15915771/Michail-Antonio-driving-conviction-West-Ham-crash.html) - **Dailymail.com**
+3. [Barcelona defender’s new contract contains optional termination clause after one year](https://barcauniversal.com/barcelona-defenders-new-contract-contains-optional-termination-clause-after-one-year/) - **Barcauniversal.com**
+4. [Leeds make move for Gladbach defender](https://bulinews.com/leeds-make-move-for-gladbach-defender) - **Bulinews.com**
+5. [Ronaldinho comes out of retirement to make shock return at age 46](https://thefootballfaithful.com/ronaldinho-comes-out-of-retirement-age-46/) - **The Football Faithful**
+6. [New Liverpool signing dealt World Cup injury setback](https://thefootballfaithful.com/liverpool-victor-munoz-world-cup-injury/) - **The Football Faithful**
+7. [India’s revolution in women’s cricket](https://www.aljazeera.com/video/101-east/2026/6/20/indias-revolution-in-womens-cricket) - **Al Jazeera English**
+8. [What next for McAtee amid Anderson uncertainty?](https://www.bbc.com/sport/football/articles/c20yxg90yv2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [What next for McAtee amid Anderson uncertainty?](https://www.bbc.com/sport/football/articles/c20yxg90yv2o) - **BBC News**
+10. [Real Betis eye €10m move for second Real Madrid player](https://siempremadrid.com/real-betis-eye-e10m-move-for-second-real-madrid-player/) - **Siempremadrid.com**
 
 
 ---
-*최근 업데이트: 2026-06-21 18:28:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-21 21:00:15 (KST) / (하루 100회 제한 준수 중)*
