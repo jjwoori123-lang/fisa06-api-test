@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Don't forget! Sensational attacker is coming to Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/dont-forget-sensational-attacker-is-coming-to-liverpool/) - **Anfieldwatch.co.uk**
-2. [Arsenal Are Eyeing A Move For This Talented Winger: Should Arteta Get Him On Board?](https://the4thofficial.net/2026/06/arsenal-are-eyeing-a-move-for-this-talented-winger/) - **The4thofficial.net**
-3. [Liverpool could finally sign Premier League midfielder this summer](https://anfieldindex.com/95169/liverpool-could-finally-sign-premier-league-midfielder-this-summer.html) - **Anfieldindex.com**
-4. [Chelsea Tipped To Go For This Manchester United Winger: Should Alonso Snap Him Up?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_aa861961-9db4-4767-88ec-be5f300d3d00) - **Yahoo Entertainment**
-5. [Galatasaray make daring play to scupper Man United’s Victor Osimhen interest](https://thepeoplesperson.com/2026/06/21/galatasaray-make-daring-play-to-scupper-man-uniteds-victor-osimhen-interest-311772/) - **The Peoples Person**
-6. [Manchester United Have Set Their Sights On This Fulham Midfielder: Should Carrick Move In For Him?](https://the4thofficial.net/2026/06/manchester-united-have-set-their-sights-on-this-fulham-midfielder/) - **The4thofficial.net**
-7. [Bergvall asks to leave Tottenham](https://www.skysports.com/football/news/11675/13556507/lucas-bergvall-transfer-news-tottenham-midfielder-asks-to-leave-premier-league-club-in-search-for-first-team-football) - **Sky Sports**
-8. [Update On The Future Of This Manchester City Defender: Should They Cash In On Him?](https://the4thofficial.net/2026/06/update-on-the-future-of-this-manchester-city-defender-should-they-cash-in-on-him/) - **The4thofficial.net**
-9. [Tottenham Hotspur Are In The Running To Land This Newcastle United Ace: Good Option For De Zerbi?](https://the4thofficial.net/2026/06/tottenham-hotspur-are-in-the-running-to-land-this-newcastle-united-ace/) - **The4thofficial.net**
+1. [Arsenal Named In Race For Brentford’s 22-Goal Brazilian Striker – Report](https://www.justarsenal.com/arsenal-named-in-race-for-brentfords-22-goal-brazilian-striker-report/417296) - **Just Arsenal News**
+2. [Former Rainbow Warriors hope to continue careers in Las Vegas](https://www.staradvertiser.com/2026/06/21/sports/former-rainbow-warriors-hope-to-continue-careers-in-las-vegas/) - **Honolulu Star-Advertiser**
+3. [Papers: Spurs facing competition for Rashford and Tonali](https://www.skysports.com/football/transfer-paper-talk/12709/13556891/paper-talk-spurs-chasing-marcus-rashford-and-sandro-tonali-in-transfer-market) - **Sky Sports**
+4. [Aston Villa Star Will Jump At Any Offer From PL Champions: What Must Unai Emery’s Club Do?](https://the4thofficial.net/2026/06/aston-villa-star-will-jump-at-any-offer-from-pl-champions-what-must-unai-emerys-club-do/) - **The4thofficial.net**
+5. [Paper Talk: Liverpool knock back Inter's Jones offer](https://www.skysports.com/football/transfer-paper-talk/12709/13556527/paper-talk-liverpool-reject-lb21m-curtis-jones-offer-from-inter-milan-which-falls-considerably-short-of-valuation) - **Sky Sports**
+6. [Shea Charles: Leeds lodge opening bid for Man United midfield target](https://thepeoplesperson.com/2026/06/21/shea-charles-leeds-lodge-opening-bid-for-man-united-midfield-target-311776/) - **The Peoples Person**
+7. [50-goal Liverpool star offered deal to exit Anfield now](https://www.anfieldwatch.co.uk/liverpool-fc/news/50-goal-liverpool-star-offered-deal-to-exit-anfield-now/) - **Anfieldwatch.co.uk**
+8. [PSG Prepare A £43M Bid For West Ham’s In Form Player: What Should Be The Only Option For The Hammers?](https://the4thofficial.net/2026/06/psg-prepare-a-43m-bid-for-west-hams-in-form-player-what-should-be-the-only-option-for-the-hammers/) - **The4thofficial.net**
+9. [Arsenal Facing Fight To Keep Highly-Rated Academy Star](https://www.justarsenal.com/arsenal-facing-fight-to-keep-highly-rated-academy-star/417294) - **Just Arsenal News**
+10. [Leeds United Have Made A £20m+ For Championship Player: Why Farke Needs Him?](https://the4thofficial.net/2026/06/leeds-united-have-made-a-20m-for-championship-player-why-farke-needs-him/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-06-23 04:49:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-23 07:05:33 (KST) / (하루 100회 제한 준수 중)*
