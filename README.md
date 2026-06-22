@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Three sporting events to watch this week: Your handy guide to sport on television](https://www.irishtimes.com/sport/2026/06/21/three-sporting-events-to-watch-this-week-your-handy-guide-to-sport-on-television/) - **The Irish Times**
-2. [Saliba’s Latest Injury Admission Will Worry Arsenal Supporters](https://www.justarsenal.com/salibas-latest-injury-admission-will-worry-arsenal-supporters/417284) - **Just Arsenal News**
-3. [A New Type of Gambling Scandal Is Sweeping Through Sports](https://futurism.com/future-society/new-gambling-scandal-sports) - **Futurism**
-4. [Japan striker Ueda channels frustration to send World Cup warning](https://sports.yahoo.com/articles/japan-striker-ueda-channels-frustration-154604773.html) - **Yahoo Entertainment**
-5. [Exclusive: Stan Collymore cites two realistic ambitions for Iraola in first season at Liverpool](https://www.empireofthekop.com/2026/06/21/collymore-cites-two-realistic-ambitions-for-iraola-in-first-season-at-liverpool/) - **Empire of The Kop**
-6. [Aurelien Tchouameni: Real Madrid make decision on United target’s future](https://thepeoplesperson.com/2026/06/21/aurelien-tchouameni-real-madrid-make-decision-on-united-targets-future-311766/) - **The Peoples Person**
-7. [7 Sports Romance TV Shows & Movies On The Way (#1 Is Heated Rivalry Meets Ted Lasso)](https://screenrant.com/sports-romance-adaptations-in-development-exciting/) - **Screen Rant**
-8. [Saliba 'grits teeth' to play through pain as France chase last 32](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260621-99-810182/) - **Dpa-international.com**
-9. [Maignan tempted by Premier League as Chelsea revive interest in Milan goalkeeper](https://football-italia.net/maignan-tempted-by-premier-league-chelsea/) - **Football Italia**
-10. [Gary Neville urges Man United to sign ‘outstanding’ World Cup star](https://eplindex.com/147570/gary-neville-urges-man-united-to-sign-outstanding-world-cup-star.html) - **English Premier League Index - Opta Stats**
+1. [Don't forget! Sensational attacker is coming to Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/dont-forget-sensational-attacker-is-coming-to-liverpool/) - **Anfieldwatch.co.uk**
+2. [Arsenal Are Eyeing A Move For This Talented Winger: Should Arteta Get Him On Board?](https://the4thofficial.net/2026/06/arsenal-are-eyeing-a-move-for-this-talented-winger/) - **The4thofficial.net**
+3. [Liverpool could finally sign Premier League midfielder this summer](https://anfieldindex.com/95169/liverpool-could-finally-sign-premier-league-midfielder-this-summer.html) - **Anfieldindex.com**
+4. [Chelsea Tipped To Go For This Manchester United Winger: Should Alonso Snap Him Up?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_aa861961-9db4-4767-88ec-be5f300d3d00) - **Yahoo Entertainment**
+5. [Galatasaray make daring play to scupper Man United’s Victor Osimhen interest](https://thepeoplesperson.com/2026/06/21/galatasaray-make-daring-play-to-scupper-man-uniteds-victor-osimhen-interest-311772/) - **The Peoples Person**
+6. [Manchester United Have Set Their Sights On This Fulham Midfielder: Should Carrick Move In For Him?](https://the4thofficial.net/2026/06/manchester-united-have-set-their-sights-on-this-fulham-midfielder/) - **The4thofficial.net**
+7. [Bergvall asks to leave Tottenham](https://www.skysports.com/football/news/11675/13556507/lucas-bergvall-transfer-news-tottenham-midfielder-asks-to-leave-premier-league-club-in-search-for-first-team-football) - **Sky Sports**
+8. [Update On The Future Of This Manchester City Defender: Should They Cash In On Him?](https://the4thofficial.net/2026/06/update-on-the-future-of-this-manchester-city-defender-should-they-cash-in-on-him/) - **The4thofficial.net**
+9. [Tottenham Hotspur Are In The Running To Land This Newcastle United Ace: Good Option For De Zerbi?](https://the4thofficial.net/2026/06/tottenham-hotspur-are-in-the-running-to-land-this-newcastle-united-ace/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-06-23 01:06:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-23 04:49:46 (KST) / (하루 100회 제한 준수 중)*
