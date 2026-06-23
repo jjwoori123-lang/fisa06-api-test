@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Salah inspires Egypt to first-ever World Cup win](https://www.skysports.com/football/news/35849/13553798/world-cup-2026-new-zealand-x-x-egypt) - **Sky Sports**
-2. [It had to be Mo Salah for Egypt](https://www.sportingnews.com/us/soccer/news/mo-salah-egypt/e832782258693f5520490c68) - **Sporting News**
-3. [No pressure to pass the ball to Ronaldo in World Cup: Portugal’s Conceicao](https://www.aljazeera.com/sports/2026/6/22/no-pressure-to-pass-the-ball-to-ronaldo-in-world-cup-portugals-conceicao) - **Al Jazeera English**
-4. [4 former Steelers to be first-time eligible for the HOF in 2027](https://steelerswire.usatoday.com/story/sports/nfl/steelers/2026/06/21/steelers-hall-fame-nfl-ben-roethlisberger-antonio-brown/90638399007/) - **USA Today**
-5. [REPORT: Wild Were One Of Four Teams Brady Tkachuk Would Accept A Trade To](https://thehockeynews.com/nhl/minnesota-wild/latest-news/report-wild-were-one-of-four-teams-brady-tkachuk-would-accept-a-trade-to) - **The Hockey News**
-6. [Deniz Undav: Germany's 2026 World Cup supersub](https://www.dw.com/en/deniz-undav-germanys-2026-world-cup-supersub/a-77650649) - **DW (English)**
-7. [Saka trains with England squad before Ghana match](https://www.bbc.com/sport/football/articles/c8e21d5w0pjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Saka trains with England squad before Ghana match](https://www.bbc.com/sport/football/articles/c8e21d5w0pjo) - **BBC News**
-9. [Mohamed Salah odds, picks, player props, predictions: Best bets for Egypt vs. New Zealand in 2026 World Cup](https://www.cbssports.com/soccer/news/mohamed-salah-odds-picks-player-props-predictions-best-bets-egypt-new-zealand-2026-world-cup/) - **CBS Sports**
-10. [Egypt vs. New Zealand odds, prediction, time: 2026 World Cup picks from expert on 21-9 run](https://www.cbssports.com/soccer/news/egypt-new-zealand-odds-prediction-time-2026-world-cup-picks-soccer-bets/) - **CBS Sports**
+1. [Everton have a tough start to 2026/27 - The Toffees can't afford to be undercooked](http://www.toffeeweb.com/season/25-26/news/47677.html) - **Toffeeweb**
+2. [Real Madrid ‘appreciate’ 27-year-old World Cup winner; deal hinges on sales](https://madriduniversal.com/real-madrid-appreciate-27-year-old-world-cup-winner-deal-hinges-on-sales/) - **Madriduniversal.com**
+3. [Klopp issues five-word advice to Andoni Iraola on how to get Florian Wirtz ‘buzzing’ at Liverpool](https://www.empireofthekop.com/2026/06/22/klopp-issues-five-word-advice-to-iraola-on-how-to-get-wirtz-buzzing/) - **Empire of The Kop**
+4. [Manchester United face European giants in race for Premier League attacker](https://eplindex.com/147575/manchester-united-face-european-giants-in-race-for-premier-league-attacker.html) - **English Premier League Index - Opta Stats**
+5. [Arsenal working on a deal to sign West Ham prodigy Isaac Allen](https://sportsview.co.uk/2026/06/arsenal-working-on-a-deal-to-sign-west-ham-prodigy-isaac-allen?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-working-on-a-deal-to-sign-west-ham-prodigy-isaac-allen) - **Sportsview.co.uk**
+6. [Tuchel's England face defensive questions despite flying start at World Cup](https://sports.yahoo.com/articles/tuchels-england-face-defensive-questions-070525045.html) - **Yahoo Entertainment**
+7. [We have an injury table, but where is the minor niggles table?](https://untold-arsenal.com/archives/121367) - **Untold-arsenal.com**
+8. [Journalist confirms Liverpool won’t let €100m move drag on](https://anfieldindex.com/95174/report-journalist-confirms-liverpool-wont-let-e100m-move-drag-on.html) - **Anfieldindex.com**
+9. [Paul Joyce: Liverpool reject second Inter bid for Curtis Jones; furious over lowball offer](https://www.empireofthekop.com/2026/06/22/liverpool-reject-second-inter-bid-for-curtis-jones/) - **Empire of The Kop**
+10. [Andoni Iraola makes final decision about Liverpool cult-hero](https://www.anfieldwatch.co.uk/liverpool-fc/news/andoni-iraola-makes-final-decision-about-liverpool-cult-hero/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-06-23 12:51:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-23 16:52:06 (KST) / (하루 100회 제한 준수 중)*
