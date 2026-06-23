@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Palestra agent ready for Inter talks, leaving Chelsea and Manchester City behind](https://football-italia.net/palestra-agent-inter-chelsea-manchester-city/) - **Football Italia**
-2. [Aston Villa transfer briefing: How Unai Emery will spend Morgan Rogers money as we reveal staggering asking price for Arsenal target, the wingers on radar including Brazilian at the World Cup and club legend who could be sold to help balance books](https://www.dailymail.com/sport/football/article-15919091/Aston-Villa-transfer-briefing-Unai-Emery-Morgan-Rogers-Arsenal.html) - **Dailymail.com**
-3. [Mourinho reshapes Real Madrid recruitment with Dias and Fernandez targets](https://www.football-espana.net/2026/06/22/mourinho-real-madrid-dias-fernandez-transfers) - **Football Espana**
-4. [Johnston’s 2029 Deal Puts Celtic in the Driving Seat Over Fulham Interest](https://thecelticstar.com/alistair-johnston-celtic-fulham-contact-2029-contract/) - **The Celtic Star**
-5. [Chelsea rules out move for Tottenham’s Lucas Bergvall amid transfer plans](https://cryptobriefing.com/chelsea-rules-out-bergvall-transfer/) - **Crypto Briefing**
-6. [How to watch the World Cup on Peacock for $1](https://www.techradar.com/how-to-watch/football/how-to-watch-the-world-cup-on-peacock-for-usd1) - **TechRadar**
-7. [Report Suzuki focus of Aston Villa and Leeds United bidding war](https://football-italia.net/report-suzuki-aston-villa-leeds-united-bidding/) - **Football Italia**
-8. [MULTIMEDIA UPDATE - "Northeast Super League" Ignites Dalian as the City's First Home Match Makes an Eagerly-Anticipated Debut](https://www.globenewswire.com/news-release/2026/06/22/3315472/0/en/MULTIMEDIA-UPDATE-Northeast-Super-League-Ignites-Dalian-as-the-City-s-First-Home-Match-Makes-an-Eagerly-Anticipated-Debut.html) - **GlobeNewswire**
+1. [Tottenham Hotspur Are Serious Contenders For This Newcastle United Star: Good Fit For De Zerbi?](https://the4thofficial.net/2026/06/tottenham-hotspur-are-serious-contenders-for-this-newcastle-united-star/) - **The4thofficial.net**
+2. [RB Leipzig rejects Liverpool’s €100M bid for 19-year-old winger Yan Diomande](https://cryptobriefing.com/rb-leipzig-rejects-liverpool-bid-diomande/) - **Crypto Briefing**
+3. [Richards, Adams and the other USMNT players who need a rest vs. Turkey](https://sbisoccer.com/2026/06/richards-adams-and-the-other-usmnt-players-that-need-a-rest-vs-turkey) - **Sbisoccer.com**
+4. [Manuel Ugarte: Local media backs ruthless Man United decision on midfielder](https://thepeoplesperson.com/2026/06/22/manuel-ugarte-local-media-backs-ruthless-man-united-decision-on-midfielder-311816/) - **The Peoples Person**
+5. [Man City close in on £17m deal for Maresca as Guardiola successor](https://www.vanguardngr.com/2026/06/man-city-close-in-on-17m-deal-for-maresca-as-guardiola-successor/) - **Vanguard**
+6. [Fabrizio Romano: Liverpool made contact over move for £80m-rated midfielder](https://anfieldindex.com/95195/fabrizio-romano-liverpool-made-contact-over-move-for-80m-rated-midfielder.html) - **Anfieldindex.com**
+7. [David Lynch: Liverpool ready to sell midfielder despite recent reports](https://anfieldindex.com/95192/david-lynch-liverpool-ready-to-sell-midfielder-despite-recent-reports.html) - **Anfieldindex.com**
+8. [Beach hut with no power or running water goes on sale for £200,000 in affluent 'Cheshire-on-Sea' holiday hotspot](https://www.dailymail.com/news/article-15919125/Beach-hut-no-power-running-water-sale.html) - **Dailymail.com**
+9. [Norway vs. Senegal odds, prediction, time: 2026 World Cup picks, best bets by expert on 18-8 roll](https://www.cbssports.com/soccer/news/norway-senegal-odds-prediction-line-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+10. [England Receive Bukayo Saka Boost As Arsenal Star Returns To Full Training](https://www.justarsenal.com/england-receive-bukayo-saka-boost-as-arsenal-star-returns-to-full-training/417398) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-06-24 01:29:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-24 03:28:47 (KST) / (하루 100회 제한 준수 중)*
