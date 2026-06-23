@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea look to add physicality, quality and leadership - who would you go for?](https://www.bbc.com/sport/football/articles/cy4900ypkk9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Jordan vs Algeria – Predicted lineup and team news](https://thefootballfaithful.com/jordan-vs-algeria-predicted-lineup-and-team-news/) - **The Football Faithful**
-3. [Como make enquiry to sign Chelsea centre-back Chalobah](https://thefootballfaithful.com/como-make-enquiry-to-sign-chelsea-centre-back-chalobah/) - **The Football Faithful**
-4. [Mateus Fernandes has made his choice between United and Spurs](https://thepeoplesperson.com/2026/06/22/mateus-fernandes-has-made-his-choice-between-united-and-spurs-311800/) - **The Peoples Person**
-5. [Union Berlin defender has higher release clause for Premier League clubs](https://bulinews.com/union-berlin-defender-has-higher-release-clause-for-premier-league-clubs) - **Bulinews.com**
-6. [Tottenham's next move for Newcastle's Sandro Tonali revealed, the Arsenal factor that could hijack the deal, the midfielder Toon are lining up as replacement and why Man City could join race for Italian's signature](https://www.dailymail.com/sport/football/article-15919371/tottenham-newcastle-sandro-tonali-arsenal-manchester-city-transfer-news.html) - **Dailymail.com**
-7. [Cristiano Ronaldo Is Soccer’s Dying Supernova](http://nymag.com/intelligencer/article/cristiano-ronaldo-is-soccers-dying-supernova.html) - **New York Magazine**
-8. [‘The magic continues’ – supporters of Cape Verde’s Pico Lopes celebrate World Cup odyssey](https://www.irishtimes.com/ireland/dublin/2026/06/22/the-magic-continues-supporters-of-cape-verdes-pico-lopes-celebrate-world-cup-odyssey/) - **The Irish Times**
-9. [Report: €40m fee placed on Liverpool star ahead of potential summer exit](https://anfieldindex.com/95178/report-e40m-fee-placed-on-liverpool-star-ahead-of-potential-summer-exit.html) - **Anfieldindex.com**
+1. [“Henry v Lalas Is the World Cup’s Most Compelling Battle”](https://kottke.org/26/06/henry-v-lalas-is-the-world-cups-most-compelling-battle) - **kottke.org**
+2. [MLB third base power rankings entering week 14](https://www.thebiglead.com/mlb-third-base-power-rankings-entering-week-14/) - **The Big Lead**
+3. [Report Manchester City buy Maresca out of Chelsea contract for €20m](https://football-italia.net/report-manchester-city-buy-maresca-chelsea-20m/) - **Football Italia**
+4. [Chelsea receives £17.2M from Manchester City for Enzo Maresca](https://cryptobriefing.com/chelsea-man-city-maresca-compensation/) - **Crypto Briefing**
+5. [Milan-Cortina chief Malago elected new head of Italian FA](https://sports.yahoo.com/articles/milan-cortina-chief-malago-elected-133657098.html) - **Yahoo Entertainment**
+6. [Norway vs. Senegal odds, prediction, time: 2026 World Cup picks, best bets by expert on 18-8 roll](https://www.cbssports.com/soccer/news/norway-senegal-odds-prediction-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+7. [Real Madrid eye recently-relegated Premier League winger also wanted by Man United, PSG](https://madriduniversal.com/real-madrid-eye-recently-relegated-premier-league-winger-also-wanted-by-man-united-psg/) - **Madriduniversal.com**
+8. [Rumour Mongering: Tottenham Push to Sign Liverpool’s Cody Gakpo](https://liverpooloffside.sbnation.com/liverpool-fc-transfer-news/81408/rumour-mongering-tottenham-push-to-sign-liverpools-cody-gakpo) - **SB Nation**
+9. [Monday Cannon Fodder: World Cup Day 12](https://theshortfuse.sbnation.com/cannon-fodder/37123/monday-cannon-fodder-world-cup-day-12) - **SB Nation**
+10. [Tim Howard says it’s ‘literally impossible’ for USMNT to win World Cup](https://awfulannouncing.com/soccer/tim-howard-literally-impossible-usmnt-win-world-cup.html) - **Awful Announcing**
 
 
 ---
-*최근 업데이트: 2026-06-23 20:19:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-23 22:56:55 (KST) / (하루 100회 제한 준수 중)*
