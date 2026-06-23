@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [“Henry v Lalas Is the World Cup’s Most Compelling Battle”](https://kottke.org/26/06/henry-v-lalas-is-the-world-cups-most-compelling-battle) - **kottke.org**
-2. [MLB third base power rankings entering week 14](https://www.thebiglead.com/mlb-third-base-power-rankings-entering-week-14/) - **The Big Lead**
-3. [Report Manchester City buy Maresca out of Chelsea contract for €20m](https://football-italia.net/report-manchester-city-buy-maresca-chelsea-20m/) - **Football Italia**
-4. [Chelsea receives £17.2M from Manchester City for Enzo Maresca](https://cryptobriefing.com/chelsea-man-city-maresca-compensation/) - **Crypto Briefing**
-5. [Milan-Cortina chief Malago elected new head of Italian FA](https://sports.yahoo.com/articles/milan-cortina-chief-malago-elected-133657098.html) - **Yahoo Entertainment**
-6. [Norway vs. Senegal odds, prediction, time: 2026 World Cup picks, best bets by expert on 18-8 roll](https://www.cbssports.com/soccer/news/norway-senegal-odds-prediction-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
-7. [Real Madrid eye recently-relegated Premier League winger also wanted by Man United, PSG](https://madriduniversal.com/real-madrid-eye-recently-relegated-premier-league-winger-also-wanted-by-man-united-psg/) - **Madriduniversal.com**
-8. [Rumour Mongering: Tottenham Push to Sign Liverpool’s Cody Gakpo](https://liverpooloffside.sbnation.com/liverpool-fc-transfer-news/81408/rumour-mongering-tottenham-push-to-sign-liverpools-cody-gakpo) - **SB Nation**
-9. [Monday Cannon Fodder: World Cup Day 12](https://theshortfuse.sbnation.com/cannon-fodder/37123/monday-cannon-fodder-world-cup-day-12) - **SB Nation**
-10. [Tim Howard says it’s ‘literally impossible’ for USMNT to win World Cup](https://awfulannouncing.com/soccer/tim-howard-literally-impossible-usmnt-win-world-cup.html) - **Awful Announcing**
+1. [Palestra agent ready for Inter talks, leaving Chelsea and Manchester City behind](https://football-italia.net/palestra-agent-inter-chelsea-manchester-city/) - **Football Italia**
+2. [Aston Villa transfer briefing: How Unai Emery will spend Morgan Rogers money as we reveal staggering asking price for Arsenal target, the wingers on radar including Brazilian at the World Cup and club legend who could be sold to help balance books](https://www.dailymail.com/sport/football/article-15919091/Aston-Villa-transfer-briefing-Unai-Emery-Morgan-Rogers-Arsenal.html) - **Dailymail.com**
+3. [Mourinho reshapes Real Madrid recruitment with Dias and Fernandez targets](https://www.football-espana.net/2026/06/22/mourinho-real-madrid-dias-fernandez-transfers) - **Football Espana**
+4. [Johnston’s 2029 Deal Puts Celtic in the Driving Seat Over Fulham Interest](https://thecelticstar.com/alistair-johnston-celtic-fulham-contact-2029-contract/) - **The Celtic Star**
+5. [Chelsea rules out move for Tottenham’s Lucas Bergvall amid transfer plans](https://cryptobriefing.com/chelsea-rules-out-bergvall-transfer/) - **Crypto Briefing**
+6. [How to watch the World Cup on Peacock for $1](https://www.techradar.com/how-to-watch/football/how-to-watch-the-world-cup-on-peacock-for-usd1) - **TechRadar**
+7. [Report Suzuki focus of Aston Villa and Leeds United bidding war](https://football-italia.net/report-suzuki-aston-villa-leeds-united-bidding/) - **Football Italia**
+8. [MULTIMEDIA UPDATE - "Northeast Super League" Ignites Dalian as the City's First Home Match Makes an Eagerly-Anticipated Debut](https://www.globenewswire.com/news-release/2026/06/22/3315472/0/en/MULTIMEDIA-UPDATE-Northeast-Super-League-Ignites-Dalian-as-the-City-s-First-Home-Match-Makes-an-Eagerly-Anticipated-Debut.html) - **GlobeNewswire**
 
 
 ---
-*최근 업데이트: 2026-06-23 22:56:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-24 01:29:51 (KST) / (하루 100회 제한 준수 중)*
