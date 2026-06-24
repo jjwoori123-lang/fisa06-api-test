@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Enzo Maresca poised to be unveiled as Man City manager with announcement date hinted](https://cityxtra.co.uk/48738/manchester-city-poised-to-unveil-enzo-maresca-as-new-manager-with-announcement-date-hinted/) - **Cityxtra.co.uk**
-2. [Swans announce deal with recruitment data specialists](https://www.bbc.com/sport/football/articles/c04yqpk136xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Brentford Under-21s to enter EFL Trophy for 2026/27 season](https://www.brentfordfc.com/en/news/article/brentford-b-team-under-21s-to-enter-efl-trophy-for-2026-27-season) - **Brentfordfc.com**
-4. [Tottenham Make Decision After Newcastle Rejects Sandro Tonali Offer: Report](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/22223/tottenham-make-decision-after-newcastle-rejects-sandro-tonali-offer-report) - **SB Nation**
-5. [Fulham talks with Alvaro Arbeloa continue as former Liverpool star discusses three-year deal to succeed Marco Silva](https://www.dailymail.com/sport/football/article-15922685/Fulham-Alvaro-Arbeloa-Talks.html) - **Dailymail.com**
-6. [Elliot Anderson poised to break British transfer record as Manchester City bid reaches nine figures](https://cryptobriefing.com/elliot-anderson-british-transfer-record/) - **Crypto Briefing**
-7. [Colombia vs. DR Congo odds, prediction, time: 2026 World Cup picks from expert on 21-10 run](https://www.cbssports.com/soccer/news/colombia-dr-congo-odds-prediction-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
-8. [From non-league to the World Cup - the Semenyo story](https://www.bbc.com/sport/football/articles/cp9p9r7gg4eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Arsenal sign Real Betis Head of Rehab](https://dailycannon.com/2026/06/arsenal-eneko-angulo/) - **Dailycannon.com**
-10. [Aurelien Tchouameni: Real Madrid could sell United target against his wishes](https://thepeoplesperson.com/2026/06/23/aurelien-tchouameni-real-madrid-could-sell-united-target-against-his-wishes-311856/) - **The Peoples Person**
+1. [Miller joined by Taylor as named Maccabi Tel Aviv boss](https://www.bbc.com/sport/football/articles/c9q2n7v0reyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Miller joined by Taylor as named Maccabi Tel Aviv boss](https://www.bbc.co.uk/sport/football/articles/c9q2n7v0reyo) - **BBC News**
+3. [Man United have no interest in selling Sesko despite reports of Barcelona interest](https://footballtoday.com/2026/06/23/man-united-have-no-interest-in-selling-sesko-despite-reports-of-barcelona-interest/) - **Footballtoday.com**
+4. [Enquiry made: Liverpool throw their name into the ring for £86m midfielder who’s ‘got everything’](https://www.empireofthekop.com/2026/06/23/liverpool-enquire-about-86m-midfielder-whos-got-everything/) - **Empire of The Kop**
+5. [Bremer's wish, Amorim wants Hjulmand, Inter-Ndicka ‍♂️: transfers](https://onefootball.com/en/news/bremers-wish-amorim-wants-hjulmand-inter-ndicka-transfers-43047532) - **Onefootball.com**
+6. [O'Neil appointed new Ipswich manager](https://www.skysports.com/football/news/11707/13556081/ipswich-town-gary-oneil-appointed-new-tractor-boys-manager-ahead-of-premier-league-return) - **Sky Sports**
+7. [Chelsea get stark shirt sponsorship warning from South African firm as £60m deal in works](https://www.hitc.com/chelsea-get-stark-shirt-sponsorship-warning-from-south-african-firm-as-60m-deal-in-works/) - **HITC - Football, Gaming, Movies, TV, Music**
+8. [Juventus hope Thuram can unlock Kolo Muani from PSG](https://football-italia.net/juventus-hope-thuram-can-unlock-kolo-muani-psg/) - **Football Italia**
+9. [WRU keen for two Welsh sides to join PWR](https://www.bbc.com/sport/rugby-union/articles/cvgeqr29y1qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-06-24 21:08:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-25 00:11:47 (KST) / (하루 100회 제한 준수 중)*
