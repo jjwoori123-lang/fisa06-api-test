@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Maxi Araujo: Manchester United target breaks silence on his future](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b8292222-9b1c-4070-a8ef-c4b4c5600b76) - **Yahoo Entertainment**
-2. [Tottenham target Gleison Bremer does not want to leave Juventus](https://sportsview.co.uk/2026/06/tottenham-target-gleison-bremer-does-not-want-to-leave-juventus?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-target-gleison-bremer-does-not-want-to-leave-juventus) - **Sportsview.co.uk**
-3. [Colombia vs DR Congo – Match preview and team news](https://thefootballfaithful.com/colombia-vs-dr-congo-match-preview-and-team-news/) - **The Football Faithful**
-4. [JJ Gabriel: United’s pre-season plans for wonderkid revealed](https://thepeoplesperson.com/2026/06/23/jj-gabriel-uniteds-pre-season-plans-for-wonderkid-revealed-311843/) - **The Peoples Person**
-5. [Losing Eliezer Mayenda Could Be A Fumble From Sunderland](https://rokerreport.sbnation.com/opinion/142325/losing-eliezer-mayenda-could-be-a-fumble-from-sunderland) - **SB Nation**
-6. [The Unofficial Myers-Briggs For Sunderland Supporters](https://rokerreport.sbnation.com/opinion/142204/the-sunderland-supporter-personality-test) - **SB Nation**
-7. [David de Gea: Fiorentina open to offers for former Man United goalkeeper](https://thepeoplesperson.com/2026/06/23/david-de-gea-fiorentina-open-to-offers-for-former-man-united-goalkeeper-311796/) - **The Peoples Person**
-8. [Manchester United secure land for new 100,000-seater stadium](https://www.channelnewsasia.com/sport/manchester-united-secure-land-new-100000-seater-stadium-6202736) - **CNA**
-9. [The 25 most innovative CMOs of 2026](https://www.businessinsider.com/most-innovative-cmos-power-list-2026-6#article) - **Business Insider**
-10. [Bayern Munich News: FC Bayern scoping Tottenham Hotspur’s Lucas Bergvall?; Harry Kane contract news; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/218926/bayern-munich-news-fc-bayern-scoping-tottenham-hotspurs-lucas-bergvall-harry-kane-contract-news-and-more) - **Bavarian Football Works**
+1. [Midfielder wants Arsenal over Tottenham as Spurs prepare 2nd bid](https://dailycannon.com/2026/06/arsenal-tonli-spurs/) - **Dailycannon.com**
+2. [Bournemouth is considering a summer move for Arsenal star](https://www.justarsenal.com/bournemouth-is-considering-a-summer-move-for-arsenal-star/417377) - **Just Arsenal News**
+3. [Unnamed Hollywood investor linked with €250m sports and entertainment arena in Dublin](https://www.the42.ie/e250m-sports-and-entertainment-arena-dublin-7078794-Jun2026/) - **The42**
+4. [76ers Top 50 players of all time - Where do Embiid, Maxey, Barkley, Wilt rank?](https://www.app.com/story/sports/nba/76ers/2026/06/23/philadelphia-76ers-top-50-greatest-sixers-of-all-time-wilt-chamberlain-julius-erving-charles-barkley/90642158007/) - **Asbury Park Press**
+5. ['How have I not had an opportunity?': John Terry rages at 'borderline offensive' Chelsea for snubbing him as interim manager - and says he was better qualified than Calum McFarlane](https://www.dailymail.com/sport/football/article-15920457/John-Terry-rages-borderline-offensive-Chelsea-snubbing-interim-manager-better-qualified-Calum-McFarlane.html) - **Dailymail.com**
+6. [Exclusive | Auxerre’s Lassine Sinayoko keen on Premier League move](https://www.getfootballnewsfrance.com/2026/exclusive-auxerres-lassine-sinayoko-keen-on-premier-league-move/) - **Get French Football News**
+7. [Egypt vs Iran Prediction: World Cup 2026 Preview & Best Bets](https://thecelticstar.com/egypt-v-iran-predictions/) - **The Celtic Star**
+8. [Arsenal make £100m Villa man number 1 target](https://dailycannon.com/2026/06/arsenal-morgan-rogers/) - **Dailycannon.com**
+9. [Report: Arsenal receive major boost in the race to sign World Cup star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d9fdc0dd-8083-48bc-bf1a-bb16554547bf) - **Yahoo Entertainment**
+10. [Pant returns to Delhi in IPL swap with Kuldeep](https://www.channelnewsasia.com/sport/pant-returns-delhi-in-ipl-swap-kuldeep-6203266) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-06-24 14:48:08 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-24 18:35:42 (KST) / (하루 100회 제한 준수 중)*
