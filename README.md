@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [TST's Final NBA Mock Draft](https://www.thesportingtribune.com/2026/06/22/tst-final-nba-mock-draft) - **Thesportingtribune.com**
-2. [Antonio Valencia apologises amid Ecuador’s World Cup nightmare](https://thepeoplesperson.com/2026/06/22/antonio-valencia-apologises-amid-ecuadors-world-cup-nightmare-311838/) - **The Peoples Person**
-3. [Eduardo Camavinga’s transfer stance as Man United launch enquiry](https://thepeoplesperson.com/2026/06/22/eduardo-camavingas-transfer-stance-as-man-united-launch-enquiry-311834/) - **The Peoples Person**
-4. [Julian Alvarez admits he wants Atletico Madrid exit as transfer speculation intensifies](https://footballtoday.com/2026/06/22/julian-alvarez-admits-he-wants-atletico-madrid-exit-as-transfer-speculation-intensifies/) - **Footballtoday.com**
-5. [‘You need love’: Mammoth coach shares coaching philosophy after signing contract extension](https://www.deseret.com/sports/2026/06/22/andre-tourigny-contract-extension-coaching-philosophy/) - **Deseret News**
-6. [Arsenal’s Road To Budapest: Reliving Our Memorable 2025/26 Champions League Journey](https://www.justarsenal.com/arsenals-road-to-budapest-reliving-our-memorable-2025-26-champions-league-journey/417396) - **Just Arsenal News**
-7. [World Cup what to know: Cristiano Ronaldo aiming to get on track after disappointing start](https://sports.yahoo.com/articles/world-cup-know-cristiano-ronaldo-215531728.html) - **Yahoo Entertainment**
-8. [Crysencio Summerville: Why United want West Ham’s electric winger](https://thepeoplesperson.com/2026/06/22/crysencio-summerville-why-united-want-west-hams-electric-winger-311833/) - **The Peoples Person**
-9. [Thomas Partey rape allegations explained: Ghana midfielder set to face England after being barred from Canada](https://www.sportingnews.com/us/soccer/news/thomas-partey-rape-allegations-ghana-england/02ec26a242ef9455746f1682) - **Sporting News**
+1. [Erling Haaland scores World Cup goal for Norway at MetLife Stadium](https://www.northjersey.com/story/sports/mls/worldcup/2026/06/22/erling-haaland-scores-world-cup-goal-norway-metlife-stadium/90641651007/) - **NorthJersey.com**
+2. [FotMob previews England vs. Ghana World Cup match with predictions and lineups](https://cryptobriefing.com/england-ghana-world-cup-preview-predictions/) - **Crypto Briefing**
+3. ['Fully grown men following a boy and a girl - it was scary, and it was daily': THEO WALCOTT on running from paparazzi as a 16-year-old, his fears for current stars being hounded online and why he shouldn't have gone to 2006 World Cup](https://www.dailymail.com/sport/football/article-15919409/Theo-Walcott-England-paparazzi-World-Cup.html) - **Dailymail.com**
+4. [Ben Rice's All-Star case is becoming impossible for MLB to ignore](https://www.sportingnews.com/us/mlb/new-york-yankees/news/ben-rices-all-star-case-becoming-impossible-mlb-ignore/613e43f21c9f993798042582) - **Sporting News**
+5. [Brittney Griner adds another chapter to Hall of Fame legacy with WNBA blocks record](https://www.sportingnews.com/us/wnba/connecticut-sun/news/brittney-griner-adds-another-chapter-hall-fame-legacy-wnba-blocks-record/4eac05ed0b912749c2c6314f) - **Sporting News**
+6. [George Osborne warned me not to back Brexit. But, ten years on, here's why I was right and he was wrong: ALEX BRUMMER](https://www.dailymail.com/columnists/article-15920993/George-Osborne-warn-Brexit-wrong-ALEX-BRUMMER.html) - **Dailymail.com**
+7. [Jordan vs. Algeria odds, prediction, time: 2026 World Cup picks from expert on 21-10 run](https://www.cbssports.com/soccer/news/jordan-algeria-odds-prediction-line-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+8. [Report: Dylan Larkin Trade Destination Revealed](https://detroitsportsnation.com/dylan-larkin-trade-rumors-dallas-stars-red-wings/ddrysdale/detroit-red-wings/06/22/2026/487694/) - **Detroit Sports Nation**
+9. [Argentina hit with worrisome injury news amid World Cup dominance](https://www.newsweek.com/sports/argentina-hit-with-worrisome-injury-news-amid-world-cup-dominance-12106340) - **Newsweek**
+10. [England 'can beat any opponent' at World Cup, says Rice](https://sports.yahoo.com/articles/england-beat-opponent-world-cup-235545475.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-06-24 08:32:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-24 10:28:59 (KST) / (하루 100회 제한 준수 중)*
