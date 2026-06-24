@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Midfielder wants Arsenal over Tottenham as Spurs prepare 2nd bid](https://dailycannon.com/2026/06/arsenal-tonli-spurs/) - **Dailycannon.com**
-2. [Bournemouth is considering a summer move for Arsenal star](https://www.justarsenal.com/bournemouth-is-considering-a-summer-move-for-arsenal-star/417377) - **Just Arsenal News**
-3. [Unnamed Hollywood investor linked with €250m sports and entertainment arena in Dublin](https://www.the42.ie/e250m-sports-and-entertainment-arena-dublin-7078794-Jun2026/) - **The42**
-4. [76ers Top 50 players of all time - Where do Embiid, Maxey, Barkley, Wilt rank?](https://www.app.com/story/sports/nba/76ers/2026/06/23/philadelphia-76ers-top-50-greatest-sixers-of-all-time-wilt-chamberlain-julius-erving-charles-barkley/90642158007/) - **Asbury Park Press**
-5. ['How have I not had an opportunity?': John Terry rages at 'borderline offensive' Chelsea for snubbing him as interim manager - and says he was better qualified than Calum McFarlane](https://www.dailymail.com/sport/football/article-15920457/John-Terry-rages-borderline-offensive-Chelsea-snubbing-interim-manager-better-qualified-Calum-McFarlane.html) - **Dailymail.com**
-6. [Exclusive | Auxerre’s Lassine Sinayoko keen on Premier League move](https://www.getfootballnewsfrance.com/2026/exclusive-auxerres-lassine-sinayoko-keen-on-premier-league-move/) - **Get French Football News**
-7. [Egypt vs Iran Prediction: World Cup 2026 Preview & Best Bets](https://thecelticstar.com/egypt-v-iran-predictions/) - **The Celtic Star**
-8. [Arsenal make £100m Villa man number 1 target](https://dailycannon.com/2026/06/arsenal-morgan-rogers/) - **Dailycannon.com**
-9. [Report: Arsenal receive major boost in the race to sign World Cup star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_d9fdc0dd-8083-48bc-bf1a-bb16554547bf) - **Yahoo Entertainment**
-10. [Pant returns to Delhi in IPL swap with Kuldeep](https://www.channelnewsasia.com/sport/pant-returns-delhi-in-ipl-swap-kuldeep-6203266) - **CNA**
+1. [Enzo Maresca poised to be unveiled as Man City manager with announcement date hinted](https://cityxtra.co.uk/48738/manchester-city-poised-to-unveil-enzo-maresca-as-new-manager-with-announcement-date-hinted/) - **Cityxtra.co.uk**
+2. [Swans announce deal with recruitment data specialists](https://www.bbc.com/sport/football/articles/c04yqpk136xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Brentford Under-21s to enter EFL Trophy for 2026/27 season](https://www.brentfordfc.com/en/news/article/brentford-b-team-under-21s-to-enter-efl-trophy-for-2026-27-season) - **Brentfordfc.com**
+4. [Tottenham Make Decision After Newcastle Rejects Sandro Tonali Offer: Report](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/22223/tottenham-make-decision-after-newcastle-rejects-sandro-tonali-offer-report) - **SB Nation**
+5. [Fulham talks with Alvaro Arbeloa continue as former Liverpool star discusses three-year deal to succeed Marco Silva](https://www.dailymail.com/sport/football/article-15922685/Fulham-Alvaro-Arbeloa-Talks.html) - **Dailymail.com**
+6. [Elliot Anderson poised to break British transfer record as Manchester City bid reaches nine figures](https://cryptobriefing.com/elliot-anderson-british-transfer-record/) - **Crypto Briefing**
+7. [Colombia vs. DR Congo odds, prediction, time: 2026 World Cup picks from expert on 21-10 run](https://www.cbssports.com/soccer/news/colombia-dr-congo-odds-prediction-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+8. [From non-league to the World Cup - the Semenyo story](https://www.bbc.com/sport/football/articles/cp9p9r7gg4eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Arsenal sign Real Betis Head of Rehab](https://dailycannon.com/2026/06/arsenal-eneko-angulo/) - **Dailycannon.com**
+10. [Aurelien Tchouameni: Real Madrid could sell United target against his wishes](https://thepeoplesperson.com/2026/06/23/aurelien-tchouameni-real-madrid-could-sell-united-target-against-his-wishes-311856/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-06-24 18:35:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-24 21:08:23 (KST) / (하루 100회 제한 준수 중)*
