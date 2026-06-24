@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tottenham close in on deal for goalkeeper Martin Dubravka - with Antonin Kinsky set for No1 role](https://www.dailymail.com/sport/football/article-15923643/Tottenham-close-deal-goalkeeper-Martin-Dubravka.html) - **Dailymail.com**
-2. [Inter Milan face competition from Chelsea for Marco Palestra](https://footballtoday.com/2026/06/23/inter-milan-face-competition-from-chelsea-for-marco-palestra/) - **Footballtoday.com**
-3. [New boss O’Neil wants Ipswich to soar like Brighton in Premier League](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260623-99-833708/) - **Dpa-international.com**
-4. [With the Military Ascendant, Is This the End for Imran Khan?](https://thediplomat.com/2026/06/with-the-military-ascendant-is-this-the-end-for-imran-khan/) - **The Diplomat**
-5. [Liverpool can sign someone even better than Micky van de Ven for less than £60m](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-can-sign-someone-even-better-than-micky-van-de-ven-for-less-than-ps60m/) - **Anfieldwatch.co.uk**
-6. [Inter close on Palestra, but Chelsea and Manchester City still in the fight](https://football-italia.net/inter-close-palestra-chelsea-manchester-city/) - **Football Italia**
-7. [Ipswich name Gary O’Neil as head coach on return to Premier League](https://www.101greatgoals.com/football/premier-league/ipswich-gary-oneil-head-coach-premier-league/) - **101 Great Goals**
-8. [Foley Entertainment Group Announces VGK Founder Bill Foley’s Bid to Bring NBA Franchise to Las Vegas](https://www.globenewswire.com/news-release/2026/06/23/3316322/0/en/Foley-Entertainment-Group-Announces-VGK-Founder-Bill-Foley-s-Bid-to-Bring-NBA-Franchise-to-Las-Vegas.html) - **GlobeNewswire**
-9. [Liverpool journalist reveals Plan-B list as Diomande €130m deal delay contines](https://eplindex.com/147617/liverpool-journalist-reveals-plan-b-list-as-diomande-e130m-deal-delay-contines.html) - **English Premier League Index - Opta Stats**
-10. [Newcastle eyeing stars from Cologne and Lille to bolster their attack... but Liverpool are waiting in the wings AGAIN after hijacking their deal for Victor Munoz](https://www.dailymail.com/sport/football/article-15923585/newcastle-eyeing-stars-transfer-liverpool-hijack.html) - **Dailymail.com**
+1. [Harry Maguire reveals how Man United monitor players over summer](https://thepeoplesperson.com/2026/06/23/harry-maguire-reveals-how-man-united-monitor-players-over-summer-311867/) - **The Peoples Person**
+2. [Journalist: Personal terms no issue as Man United face 4-way battle to sign 21-year-old midfield ace](https://eplindex.com/147621/journalist-personal-terms-no-issue-as-man-united-face-4-way-battle-to-sign-21-year-old-midfield-ace.html) - **English Premier League Index - Opta Stats**
+3. [Diogo Jota's wife shares heartbreaking footage of his wedding speech - filmed just two weeks before Liverpool star died in a car crash aged 28](https://www.dailymail.com/sport/football/article-15923441/Diogo-Jotas-wife-shares-heartbreaking-footage-wedding-speech-filmed-just-two-weeks-Liverpool-star-died-car-crash-aged-28.html) - **Dailymail.com**
+4. [Victor Osimhen: United target provides massive update on future](https://thepeoplesperson.com/2026/06/23/victor-osimhen-united-target-provides-massive-update-on-future-311874/) - **The Peoples Person**
+5. [Who Are the Contenders and Pretenders of the 2026 MLB Season?](https://theleadsm.com/who-are-the-contenders-and-pretenders-of-the-2026-mlb-season/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=who-are-the-contenders-and-pretenders-of-the-2026-mlb-season) - **Theleadsm.com**
+6. [PGA Tour CEO Brian Rolapp unveils sweeping changes to professional golf](https://www.cnbc.com/2026/06/23/pga-tour-changes.html) - **CNBC**
+7. [Manchester United Are Among The Clubs Hoping To Land This Real Madrid Ace: Good Fit For Carrick?](https://the4thofficial.net/2026/06/manchester-united-are-among-the-clubs-hoping-to-land-this-real-madrid-ace/) - **The4thofficial.net**
+8. [Arsenal open club-to-club talks to sign Jeremy Monga](https://footballtoday.com/2026/06/23/arsenal-open-club-to-club-talks-to-sign-jeremy-monga/) - **Footballtoday.com**
+9. [BlueCo-owned Strasbourg taken by surprise by Gary O’Neil’s move to Ipswich Town](https://www.getfootballnewsfrance.com/2026/blueco-owned-strasbourg-taken-by-surprise-by-gary-oneils-move-to-ipswich-town/) - **Get French Football News**
+10. [Bruno Fernandes records first assist in 2026 World Cup campaign](https://cryptobriefing.com/bruno-fernandes-first-assist-2026-world-cup/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-06-25 02:21:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-25 04:15:44 (KST) / (하루 100회 제한 준수 중)*
