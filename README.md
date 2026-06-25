@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [2026 NBA Draft grades: How each team fared in the first round](https://nypost.com/2026/06/23/sports/2026-nba-draft-grades-how-each-team-fared-in-the-first-round/) - **New York Post**
-2. [Fiery American coach Jesse Marsch has led Canada to the cusp of a World Cup breakthrough](https://sports.yahoo.com/articles/fiery-american-coach-jesse-marsch-032756323.html) - **Yahoo Entertainment**
-3. [AJ Dybantsa a beacon of light for Wizards fans, next up in rich D.C. basketball tradition](https://andscape.com/features/aj-dybantsa-a-beacon-of-light-for-wizards-fans-next-up-in-rich-d-c-basketball-tradition/) - **Andscape.com**
-4. [Cristian Martínez dedicates Player of the Match award to Panamanian people after Croatia defeat](https://cryptobriefing.com/cristian-martinez-mvp-award-panama-croatia-world-cup/) - **Crypto Briefing**
-5. [Why custom type is vital for new brands](https://www.creativereview.co.uk/custom-type-vital-new-brands-studio-drama/) - **Creative Review**
-6. [USMNT Star Linked to $50M+ Premier League Move After World Cup](https://biztoc.com/x/dc91c6e8ab9adc0f) - **Biztoc.com**
-7. [Panamá coach Thomas Christiansen praises players after narrow loss to Croatia](https://cryptobriefing.com/panama-christiansen-croatia-world-cup-loss/) - **Crypto Briefing**
-8. [The big calls Thomas Tuchel got wrong in clueless, witless England's bore draw with Ghana: The selection errors, no 'safe-breaker' and the one creative star left at home that he'll wish he hadn't snubbed](https://www.dailymail.com/sport/football/article-15922903/Thomas-Tuchel-England-Ghana-big-calls-witless-errors.html) - **Dailymail.com**
-9. [Sevilla weigh Adams sale amid growing interest](https://punchng.com/sevilla-weigh-adams-sale-amid-growing-interest/) - **The Punch**
-10. [Washington lands franchise cornerstone, drafts AJ Dybantsa with no. 1 pick](https://www.sportingnews.com/us/nba/washington-wizards/news/washington-lands-franchise-cornerstone-drafts-aj-dybantsa/80e146c674382ceab6183e83) - **Sporting News**
+1. [Chelsea express interest in signing 21-year-old Spanish defender partly owned by Real Madrid – Romano](https://madriduniversal.com/chelsea-express-interest-in-signing-21-year-old-spanish-defender-partly-owned-by-real-madrid-romano/) - **Madriduniversal.com**
+2. [Atletico Madrid insist for Manu Kone](https://romapress.net/atletico-madrid-insist-for-manu-kone/) - **RomaPress**
+3. [Papers: Chelsea could sell Gusto to pave way for Palestra deal](https://www.skysports.com/football/news/11095/13557278/paper-talk-x) - **Sky Sports**
+4. [We asked third culture kids what the World Cup means to them](https://www.dazeddigital.com/life-culture/article/70457/1/we-asked-third-culture-kids-what-the-world-cup-means-to-them-2026?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=we-asked-third-culture-kids-what-the-world-cup-means-to-them) - **Dazed**
+5. [Real Madrid yet to reach an agreement with Chelsea mainstay despite media reports](https://madriduniversal.com/real-madrid-yet-to-reach-an-agreement-with-chelsea-mainstay-despite-media-reports/) - **Madriduniversal.com**
+6. [Liverpool target set to sign for Premier League rivals](https://anfieldindex.com/95236/liverpool-target-set-to-sign-for-premier-league-rivals.html) - **Anfieldindex.com**
+7. [10 Key Facts About AJ Dybantsa, the Top Prospect Poised for NBA Stardom](https://www.ibtimes.com.au/aj-dybantsa-rising-basketball-star-2026-nba-draft-prospect-1871225) - **Ibtimes.com.au**
+8. [Newcastle identify El Mala as potential Gordon replacement](https://sportsview.co.uk/2026/06/newcastle-identify-el-mala-as-potential-gordon-replacement?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-identify-el-mala-as-potential-gordon-replacement) - **Sportsview.co.uk**
+9. [Chelsea appreciate Como’s Jacobo Ramon and asked about him](https://sportsview.co.uk/2026/06/chelsea-appreciate-comos-jacobo-ramon-and-asked-about-him?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-appreciate-comos-jacobo-ramon-and-asked-about-him) - **Sportsview.co.uk**
 
 
 ---
-*최근 업데이트: 2026-06-25 12:53:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-25 16:48:43 (KST) / (하루 100회 제한 준수 중)*
