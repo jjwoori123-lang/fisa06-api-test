@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea express interest in signing 21-year-old Spanish defender partly owned by Real Madrid – Romano](https://madriduniversal.com/chelsea-express-interest-in-signing-21-year-old-spanish-defender-partly-owned-by-real-madrid-romano/) - **Madriduniversal.com**
-2. [Atletico Madrid insist for Manu Kone](https://romapress.net/atletico-madrid-insist-for-manu-kone/) - **RomaPress**
-3. [Papers: Chelsea could sell Gusto to pave way for Palestra deal](https://www.skysports.com/football/news/11095/13557278/paper-talk-x) - **Sky Sports**
-4. [We asked third culture kids what the World Cup means to them](https://www.dazeddigital.com/life-culture/article/70457/1/we-asked-third-culture-kids-what-the-world-cup-means-to-them-2026?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=we-asked-third-culture-kids-what-the-world-cup-means-to-them) - **Dazed**
-5. [Real Madrid yet to reach an agreement with Chelsea mainstay despite media reports](https://madriduniversal.com/real-madrid-yet-to-reach-an-agreement-with-chelsea-mainstay-despite-media-reports/) - **Madriduniversal.com**
-6. [Liverpool target set to sign for Premier League rivals](https://anfieldindex.com/95236/liverpool-target-set-to-sign-for-premier-league-rivals.html) - **Anfieldindex.com**
-7. [10 Key Facts About AJ Dybantsa, the Top Prospect Poised for NBA Stardom](https://www.ibtimes.com.au/aj-dybantsa-rising-basketball-star-2026-nba-draft-prospect-1871225) - **Ibtimes.com.au**
-8. [Newcastle identify El Mala as potential Gordon replacement](https://sportsview.co.uk/2026/06/newcastle-identify-el-mala-as-potential-gordon-replacement?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-identify-el-mala-as-potential-gordon-replacement) - **Sportsview.co.uk**
-9. [Chelsea appreciate Como’s Jacobo Ramon and asked about him](https://sportsview.co.uk/2026/06/chelsea-appreciate-comos-jacobo-ramon-and-asked-about-him?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-appreciate-comos-jacobo-ramon-and-asked-about-him) - **Sportsview.co.uk**
+1. [Revealed: The role new Chelsea boss Xabi Alonso played in convincing Marco Palestra to join Blues over Inter Milan: WINDOW WATCH](https://www.dailymail.com/sport/football/article-15925739/window-watch.html) - **Dailymail.com**
+2. [Leeds United agree to sign Harry Wilson as free agent](https://cryptobriefing.com/leeds-united-harry-wilson-free-agent/) - **Crypto Briefing**
+3. [The real reasons Ruben Amorim failed at Manchester United and what Milan must learn](https://football-italia.net/why-milan-coach-ruben-amorim-fail-man-united/) - **Football Italia**
+4. [Tottenham agrees to sign goalkeeper Martin Dubravka as free agent after Premier League stint](https://cryptobriefing.com/tottenham-signs-dubravka-free-transfer/) - **Crypto Briefing**
+5. [How Vaibhav Sooryavanshi, 15, became the great sporting prodigy of this generation](https://economictimes.indiatimes.com/news/sports/how-vaibhav-sooryavanshi-15-became-the-great-sporting-prodigy-of-this-generation/articleshow/131965314.cms) - **The Times of India**
+6. [Man United keeper targeted by Premier League newcomers Hull City - as he refuses to be a back-up](https://www.dailymail.com/sport/football/article-15925609/Man-Utd-Vitek-Hull.html) - **Dailymail.com**
+7. [Ronaldo lights up World Cup stage as Canada stand on the brink of history](https://footballtoday.com/2026/06/24/world-cup-2026-world-cup-cristiano-ronaldo-canada-england/) - **Footballtoday.com**
+8. [Have your say: Is Chelsea the right move for Italy talent Palestra?](https://football-italia.net/is-chelsea-the-right-move-for-palestra/) - **Football Italia**
+9. [Tkachuks on Florida Panthers adds to iconic sibling duos on same team](https://www.palmbeachpost.com/story/sports/nhl/2026/06/24/famous-siblings-pro-sports-matthew-brady-tkachuk/90649171007/) - **Palm Beach Post**
+10. [Andy Burnham Has Three Years to Fix Britain](https://www.theatlantic.com/ideas/2026/06/burnham-uk-reform-manchesterism/687674/) - **The Atlantic**
 
 
 ---
-*최근 업데이트: 2026-06-25 16:48:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-25 19:45:04 (KST) / (하루 100회 제한 준수 중)*
