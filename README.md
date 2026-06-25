@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Should Ghana have been awarded a penalty against England?](https://www.bbc.com/sport/football/articles/cd6e3gvnnzwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Worcester's Ghanaian population out in force on common for World Cup](https://www.telegram.com/story/news/2026/06/23/worcesters-ghanian-population-out-in-force-on-common-for-world-cup/90656776007/) - **Worcester Telegram**
-3. [Rumor Mongering: Bradley Barcola Open to Liverpool Move](https://liverpooloffside.sbnation.com/liverpool-fc-transfer-news/81456/rumor-mongering-bradley-barcola-open-to-liverpool-move) - **SB Nation**
-4. [Colombia vs. DR Congo odds, prediction, time: 2026 World Cup picks from expert on 21-10 run](https://www.cbssports.com/soccer/news/colombia-dr-congo-odds-prediction-line-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
-5. [These ASX tech stocks are crashing. Buy or bail?](https://www.fool.com.au/2026/06/24/these-asx-tech-stocks-are-crashing-buy-or-bail/) - **Motley Fool Australia**
-6. [NSC raises NPFL winner’s prize to N1bn](https://punchng.com/nsc-raises-npfl-winners-prize-to-n1bn/) - **The Punch**
-7. [NHL exploring Texas expansion with potential $3.5 billion fee](https://nypost.com/2026/06/23/sports/nhl-exploring-texas-expansion-to-austin-or-houston-with-3-5-billion-fee/?utm_source=yahoo&amp;utm_campaign=nypost&amp;utm_medium=referral) - **New York Post**
-8. [NHL exploring Texas expansion with potential $3.5 billion fee](https://nypost.com/2026/06/23/sports/nhl-exploring-texas-expansion-to-austin-or-houston-with-3-5-billion-fee/) - **New York Post**
-9. [Report: Mourinho Shapes Real Madrid Squad as Transfer Exits Take Priority](https://eplindex.com/147629/report-mourinho-shapes-real-madrid-squad-as-transfer-exits-take-priority.html) - **English Premier League Index - Opta Stats**
-10. [Chelsea inquires about Como defender Jacobo Ramon in push to bolster backline](https://cryptobriefing.com/chelsea-jacobo-ramon-como-transfer/) - **Crypto Briefing**
+1. [2026 NBA Draft grades: How each team fared in the first round](https://nypost.com/2026/06/23/sports/2026-nba-draft-grades-how-each-team-fared-in-the-first-round/) - **New York Post**
+2. [Fiery American coach Jesse Marsch has led Canada to the cusp of a World Cup breakthrough](https://sports.yahoo.com/articles/fiery-american-coach-jesse-marsch-032756323.html) - **Yahoo Entertainment**
+3. [AJ Dybantsa a beacon of light for Wizards fans, next up in rich D.C. basketball tradition](https://andscape.com/features/aj-dybantsa-a-beacon-of-light-for-wizards-fans-next-up-in-rich-d-c-basketball-tradition/) - **Andscape.com**
+4. [Cristian Martínez dedicates Player of the Match award to Panamanian people after Croatia defeat](https://cryptobriefing.com/cristian-martinez-mvp-award-panama-croatia-world-cup/) - **Crypto Briefing**
+5. [Why custom type is vital for new brands](https://www.creativereview.co.uk/custom-type-vital-new-brands-studio-drama/) - **Creative Review**
+6. [USMNT Star Linked to $50M+ Premier League Move After World Cup](https://biztoc.com/x/dc91c6e8ab9adc0f) - **Biztoc.com**
+7. [Panamá coach Thomas Christiansen praises players after narrow loss to Croatia](https://cryptobriefing.com/panama-christiansen-croatia-world-cup-loss/) - **Crypto Briefing**
+8. [The big calls Thomas Tuchel got wrong in clueless, witless England's bore draw with Ghana: The selection errors, no 'safe-breaker' and the one creative star left at home that he'll wish he hadn't snubbed](https://www.dailymail.com/sport/football/article-15922903/Thomas-Tuchel-England-Ghana-big-calls-witless-errors.html) - **Dailymail.com**
+9. [Sevilla weigh Adams sale amid growing interest](https://punchng.com/sevilla-weigh-adams-sale-amid-growing-interest/) - **The Punch**
+10. [Washington lands franchise cornerstone, drafts AJ Dybantsa with no. 1 pick](https://www.sportingnews.com/us/nba/washington-wizards/news/washington-lands-franchise-cornerstone-drafts-aj-dybantsa/80e146c674382ceab6183e83) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-06-25 08:47:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-25 12:53:35 (KST) / (하루 100회 제한 준수 중)*
