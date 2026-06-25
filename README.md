@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Como send initial bid for Chelsea defender Trevoh Chalobah](https://sportsview.co.uk/2026/06/como-send-initial-bid-for-chelsea-defender-trevoh-chalobah?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=como-send-initial-bid-for-chelsea-defender-trevoh-chalobah) - **Sportsview.co.uk**
-2. [The San Jose Sharks should trade the No. 2 pick](https://theleadsm.com/the-san-jose-sharks-should-trade-the-no-2-pick/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=the-san-jose-sharks-should-trade-the-no-2-pick) - **Theleadsm.com**
-3. [Rio Ferdinand defends Carlos Queiroz’s approach against England](https://thepeoplesperson.com/2026/06/24/rio-ferdinand-defends-carlos-queirozs-approach-against-england-311900/) - **The Peoples Person**
-4. [Newcastle United re-enter race for 1.FC Köln sensation Said El Mala](https://bulinews.com/newcastle-united-enter-race-for-1-koln-sensation-said-mala) - **Bulinews.com**
-5. [Manchester City Are Eager To Re-Sign This Bundesliga Midfielder: Should They Get Him On Board?](https://the4thofficial.net/2026/06/manchester-city-are-eager-to-re-sign-this-bundesliga-midfielder-should-they-get-him-on-board/) - **The4thofficial.net**
-6. [How to watch Scotland vs Brazil in USA: 2026 World Cup, Live Stream, TV & Preview](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-scotland-vs-brazil-in-the-usa-live-stream-and-tv-for-world-cup/) - **Worldsoccertalk.com**
-7. [Soccer is Spiking on eBay. Why the World Cup is Just the Warm-Up.](https://news.onmantel.com/soccer-is-spiking-on-ebay-why-the-world-cup-is-just-the-warm-up/) - **Onmantel.com**
-8. [FOX Sports Renews Concacaf Gold Cup and Becomes New U.S. English-Language Home of Nations League Through 2029](http://www.thefutoncritic.com/news/2026/06/24/fox-sports-renews-concacaf-gold-cup-and-becomes-new-us-english-language-home-of-nations-league-through-2029-823511/20260624fox05/) - **Thefutoncritic.com**
-9. [Villa fans get suspended ban for discriminatory behaviour](https://www.bbc.co.uk/sport/football/articles/cly79e29l3ro) - **BBC News**
-10. [Bruno Fernandes: United skipper makes massive decision on future](https://thepeoplesperson.com/2026/06/24/bruno-fernandes-united-skipper-makes-massive-decision-on-future-311921/) - **The Peoples Person**
+1. [Toulouse set Guillaume Restes asking price amid Aston Villa interest](https://www.getfootballnewsfrance.com/2026/toulouse-set-guillaume-restes-asking-price-amid-aston-villa-interest/) - **Get French Football News**
+2. [Morocco vs. Haiti odds, prediction, time: 2026 World Cup picks, best bets from expert on 21-12 run](https://www.cbssports.com/soccer/news/morocco-haiti-odds-prediction-time-2026-world-cup-picks-soccer-best-bets/) - **CBS Sports**
+3. [Chelsea open talks to sign Maxence Lacroix](https://www.getfootballnewsfrance.com/2026/chelsea-open-talks-to-sign-maxence-lacroix/) - **Get French Football News**
+4. [England monitors Reece James’ minor hamstring injury, FA declines comment](https://cryptobriefing.com/reece-james-hamstring-injury-england/) - **Crypto Briefing**
+5. [Sunderland Are Locked In A Three-Way Battle For This Talented Midfielder: Good Option For Le Bris?](https://the4thofficial.net/2026/06/sunderland-are-locked-in-a-three-way-battle-for-this-talented-midfielder-good-option-for-le-bris/) - **The4thofficial.net**
+6. [Report Hugo Bueno targeted by Fiorentina after good Wolves campaign](https://football-italia.net/report-hugo-bueno-targeted-fiorentina-wolves/) - **Football Italia**
+7. [2026 Travelers Championship betting preview: capitalizing on disrespectful odds at TPC River Highlands](https://www.foxnews.com/outkick-sports/2026-travelers-championship-betting-preview-capitalizing-disrespectful-odds-tpc-river-highlands) - **Fox News**
+8. [Why Puka Nacua was Matthew Stafford's safety net in 2025](https://theramswire.usatoday.com/story/sports/nfl/rams/2026/06/24/why-puka-nacua-was-matthew-staffords-safety-net-in-2025/90681646007/) - **USA Today**
+9. [Marc Cucurella urges Enzo Fernandez to join him at Real Madrid: Former Chelsea star risks the wrath of Blues fanbase with public plea - after £120m midfielder 'liked' ex-team-mate's move to Spain](https://www.dailymail.com/sport/football/article-15927305/marc-cucurella-enzo-fernandez-real-madrid-transfer.html) - **Dailymail.com**
+10. [Leeds United Hold Positive Talks To Sign Winger For Free: The Right Man For Farke?](https://the4thofficial.net/2026/06/leeds-united-hold-positive-talks-to-sign-winger-for-free-the-right-man-for-farke/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-06-26 03:28:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-26 05:34:14 (KST) / (하루 100회 제한 준수 중)*
