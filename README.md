@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Stankovic rejected Tottenham and Brentford to get Inter opportunity](https://football-italia.net/stankovic-rejected-tottenham-brentford-inter/) - **Football Italia**
-2. [Permanent deals benefit Northampton - Hogg](https://www.bbc.com/sport/football/articles/c14y7m5vlx0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Report Savona has Atalanta agreement, now for Nottingham Forest talks](https://football-italia.net/report-savona-atalanta-agree-nottingham-forest/) - **Football Italia**
-4. [The FOUR problems Thomas Tuchel must fix - after England were exposed by Ghana: IAN LADYMAN on who looks skittish and erratic, the snub for the 'specialists' and defensive issues](https://www.dailymail.com/sport/football/article-15925261/thomas-tuchel-england-ghana-problems.html) - **Dailymail.com**
-5. [Our greatest Scottish players](http://www.arsenal.com/news/our-greatest-scottish-players) - **Arsenal.com**
-6. [Liverpool and Newcastle could be on a collision course over two more players after Munoz hijack](https://www.empireofthekop.com/2026/06/24/liverpool-newcastle-collision-course-el-mala-fernandez-pardo/) - **Empire of The Kop**
-7. [Aston Villa’s stance on Morgan Rogers transfer revealed](https://thefootballfaithful.com/aston-villas-stance-on-morgan-rogers-transfer-revealed/) - **The Football Faithful**
-8. [Manchester United line up £35m bid for Bundesliga defender](https://thefootballfaithful.com/manchester-united-line-up-35m-bid-for-bundesliga-defender/) - **The Football Faithful**
-9. [South Africa vs. South Korea odds, prediction, line, time: 2026 World Cup picks, best bets from elite expert](https://www.cbssports.com/soccer/news/south-africa-south-korea-odds-prediction-line-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+1. [Inside Geovany Quenda's 'Road to London' masterplan to hit the ground running at Chelsea: Extra muscle, spending summer 'holiday' training on Blues' schedule and how he'll fit into Xabi Alonso's system](https://www.dailymail.com/sport/football/article-15926653/Geovany-Quenda-Chelsea-Alonso-Road-London.html) - **Dailymail.com**
+2. [Sparks lose star guard Kelsey Plum for at least four weeks with lower left leg injury](https://www.thesportingtribune.com/2026/06/24/sparks-lose-kelsey-plum-for-at-least-four-weeks) - **Thesportingtribune.com**
+3. [Dubravka hoping to 'bring experience' to Tottenham](https://www.bbc.com/sport/football/articles/c4gy5yv4p4zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Jonathan David plans to stay at Juventus despite struggles in debut Serie A season](https://cryptobriefing.com/jonathan-david-staying-juventus-despite-struggles/) - **Crypto Briefing**
+5. [West Brom sign goalkeeper Ingram](https://www.bbc.com/sport/football/articles/cdjkzkgl438o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Safeguarding rules bar 15-year-old Sooryavanshi from Indian dressing room](https://www.channelnewsasia.com/sport/safeguarding-rules-bar-15-year-old-sooryavanshi-indian-dressing-room-6207536) - **CNA**
+7. [Why Ireland will give India's teenage cricket sensation Vaibhav Sooryavanshi the one big problem he has never faced, says the man who played for both countries](https://www.dailymail.com/sport/cricket/article-15926313/Why-Ireland-Indias-teenage-cricket-sensation-Vaibhav-Sooryavanshi-one-big-problem-never-faced-says-man-played-countries.html) - **Dailymail.com**
+8. [Lewis Hall: Why Chelsea target prefers to join Man United](https://thepeoplesperson.com/2026/06/24/lewis-hall-why-chelsea-target-prefers-to-join-man-united-311915/) - **The Peoples Person**
+9. [La Liga giants could target Manchester City star](https://eplindex.com/147645/la-liga-giants-could-target-manchester-city-star.html) - **English Premier League Index - Opta Stats**
+10. [Sorry, America: The World Cup is free to watch in the UK](https://www.techradar.com/how-to-watch/sorry-america-the-world-cup-is-free-to-watch-in-the-uk) - **TechRadar**
 
 
 ---
-*최근 업데이트: 2026-06-25 22:21:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-26 01:07:29 (KST) / (하루 100회 제한 준수 중)*
