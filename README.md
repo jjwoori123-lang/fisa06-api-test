@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Inside Geovany Quenda's 'Road to London' masterplan to hit the ground running at Chelsea: Extra muscle, spending summer 'holiday' training on Blues' schedule and how he'll fit into Xabi Alonso's system](https://www.dailymail.com/sport/football/article-15926653/Geovany-Quenda-Chelsea-Alonso-Road-London.html) - **Dailymail.com**
-2. [Sparks lose star guard Kelsey Plum for at least four weeks with lower left leg injury](https://www.thesportingtribune.com/2026/06/24/sparks-lose-kelsey-plum-for-at-least-four-weeks) - **Thesportingtribune.com**
-3. [Dubravka hoping to 'bring experience' to Tottenham](https://www.bbc.com/sport/football/articles/c4gy5yv4p4zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Jonathan David plans to stay at Juventus despite struggles in debut Serie A season](https://cryptobriefing.com/jonathan-david-staying-juventus-despite-struggles/) - **Crypto Briefing**
-5. [West Brom sign goalkeeper Ingram](https://www.bbc.com/sport/football/articles/cdjkzkgl438o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Safeguarding rules bar 15-year-old Sooryavanshi from Indian dressing room](https://www.channelnewsasia.com/sport/safeguarding-rules-bar-15-year-old-sooryavanshi-indian-dressing-room-6207536) - **CNA**
-7. [Why Ireland will give India's teenage cricket sensation Vaibhav Sooryavanshi the one big problem he has never faced, says the man who played for both countries](https://www.dailymail.com/sport/cricket/article-15926313/Why-Ireland-Indias-teenage-cricket-sensation-Vaibhav-Sooryavanshi-one-big-problem-never-faced-says-man-played-countries.html) - **Dailymail.com**
-8. [Lewis Hall: Why Chelsea target prefers to join Man United](https://thepeoplesperson.com/2026/06/24/lewis-hall-why-chelsea-target-prefers-to-join-man-united-311915/) - **The Peoples Person**
-9. [La Liga giants could target Manchester City star](https://eplindex.com/147645/la-liga-giants-could-target-manchester-city-star.html) - **English Premier League Index - Opta Stats**
-10. [Sorry, America: The World Cup is free to watch in the UK](https://www.techradar.com/how-to-watch/sorry-america-the-world-cup-is-free-to-watch-in-the-uk) - **TechRadar**
+1. [Como send initial bid for Chelsea defender Trevoh Chalobah](https://sportsview.co.uk/2026/06/como-send-initial-bid-for-chelsea-defender-trevoh-chalobah?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=como-send-initial-bid-for-chelsea-defender-trevoh-chalobah) - **Sportsview.co.uk**
+2. [The San Jose Sharks should trade the No. 2 pick](https://theleadsm.com/the-san-jose-sharks-should-trade-the-no-2-pick/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=the-san-jose-sharks-should-trade-the-no-2-pick) - **Theleadsm.com**
+3. [Rio Ferdinand defends Carlos Queiroz’s approach against England](https://thepeoplesperson.com/2026/06/24/rio-ferdinand-defends-carlos-queirozs-approach-against-england-311900/) - **The Peoples Person**
+4. [Newcastle United re-enter race for 1.FC Köln sensation Said El Mala](https://bulinews.com/newcastle-united-enter-race-for-1-koln-sensation-said-mala) - **Bulinews.com**
+5. [Manchester City Are Eager To Re-Sign This Bundesliga Midfielder: Should They Get Him On Board?](https://the4thofficial.net/2026/06/manchester-city-are-eager-to-re-sign-this-bundesliga-midfielder-should-they-get-him-on-board/) - **The4thofficial.net**
+6. [How to watch Scotland vs Brazil in USA: 2026 World Cup, Live Stream, TV & Preview](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-scotland-vs-brazil-in-the-usa-live-stream-and-tv-for-world-cup/) - **Worldsoccertalk.com**
+7. [Soccer is Spiking on eBay. Why the World Cup is Just the Warm-Up.](https://news.onmantel.com/soccer-is-spiking-on-ebay-why-the-world-cup-is-just-the-warm-up/) - **Onmantel.com**
+8. [FOX Sports Renews Concacaf Gold Cup and Becomes New U.S. English-Language Home of Nations League Through 2029](http://www.thefutoncritic.com/news/2026/06/24/fox-sports-renews-concacaf-gold-cup-and-becomes-new-us-english-language-home-of-nations-league-through-2029-823511/20260624fox05/) - **Thefutoncritic.com**
+9. [Villa fans get suspended ban for discriminatory behaviour](https://www.bbc.co.uk/sport/football/articles/cly79e29l3ro) - **BBC News**
+10. [Bruno Fernandes: United skipper makes massive decision on future](https://thepeoplesperson.com/2026/06/24/bruno-fernandes-united-skipper-makes-massive-decision-on-future-311921/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-06-26 01:07:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-26 03:28:01 (KST) / (하루 100회 제한 준수 중)*
