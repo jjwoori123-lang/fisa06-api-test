@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Toulouse set Guillaume Restes asking price amid Aston Villa interest](https://www.getfootballnewsfrance.com/2026/toulouse-set-guillaume-restes-asking-price-amid-aston-villa-interest/) - **Get French Football News**
-2. [Morocco vs. Haiti odds, prediction, time: 2026 World Cup picks, best bets from expert on 21-12 run](https://www.cbssports.com/soccer/news/morocco-haiti-odds-prediction-time-2026-world-cup-picks-soccer-best-bets/) - **CBS Sports**
-3. [Chelsea open talks to sign Maxence Lacroix](https://www.getfootballnewsfrance.com/2026/chelsea-open-talks-to-sign-maxence-lacroix/) - **Get French Football News**
-4. [England monitors Reece James’ minor hamstring injury, FA declines comment](https://cryptobriefing.com/reece-james-hamstring-injury-england/) - **Crypto Briefing**
-5. [Sunderland Are Locked In A Three-Way Battle For This Talented Midfielder: Good Option For Le Bris?](https://the4thofficial.net/2026/06/sunderland-are-locked-in-a-three-way-battle-for-this-talented-midfielder-good-option-for-le-bris/) - **The4thofficial.net**
-6. [Report Hugo Bueno targeted by Fiorentina after good Wolves campaign](https://football-italia.net/report-hugo-bueno-targeted-fiorentina-wolves/) - **Football Italia**
-7. [2026 Travelers Championship betting preview: capitalizing on disrespectful odds at TPC River Highlands](https://www.foxnews.com/outkick-sports/2026-travelers-championship-betting-preview-capitalizing-disrespectful-odds-tpc-river-highlands) - **Fox News**
-8. [Why Puka Nacua was Matthew Stafford's safety net in 2025](https://theramswire.usatoday.com/story/sports/nfl/rams/2026/06/24/why-puka-nacua-was-matthew-staffords-safety-net-in-2025/90681646007/) - **USA Today**
-9. [Marc Cucurella urges Enzo Fernandez to join him at Real Madrid: Former Chelsea star risks the wrath of Blues fanbase with public plea - after £120m midfielder 'liked' ex-team-mate's move to Spain](https://www.dailymail.com/sport/football/article-15927305/marc-cucurella-enzo-fernandez-real-madrid-transfer.html) - **Dailymail.com**
-10. [Leeds United Hold Positive Talks To Sign Winger For Free: The Right Man For Farke?](https://the4thofficial.net/2026/06/leeds-united-hold-positive-talks-to-sign-winger-for-free-the-right-man-for-farke/) - **The4thofficial.net**
+1. [Three clubs that should target Folarin Balogun after the World Cup](https://www.starsandstripesfc.com/usmnt/44576/three-clubs-that-should-target-folarin-balogun-after-the-world-cup) - **Starsandstripesfc.com**
+2. [Lionel Messi Won't Rule Out Playing at 2030 World Cup: 'I'm Living One Day at a Time'](https://www.foxsports.com/stories/soccer/lionel-messi-wont-rule-out-playing-2030-world-cup-im-living-one-day-time) - **Fox Sports**
+3. [Brazil names Matheus Cunha and Casemiro in starting lineup against Scotland](https://cryptobriefing.com/brazil-cunha-casemiro-lineup-scotland-world-cup/) - **Crypto Briefing**
+4. [4 Takeaways From Canada's Group-Stage Finale Loss To Switzerland](https://www.foxsports.com/stories/soccer/world-cup-switzerland-canada-group-b-advance) - **Fox Sports**
+5. [BREAKING: Neymar named in Brazil squad to face Scotland by Carlo Ancelotti](https://wp.fromthespot.co.uk/30572/neymar-in-brazil-squad-to-face-scotland/) - **Fromthespot.co.uk**
+6. [Mateus Fernandes: Game over for United as Spurs prepare mega offer](https://thepeoplesperson.com/2026/06/24/mateus-fernandes-game-over-for-united-as-spurs-prepare-mega-offer-311929/) - **The Peoples Person**
+7. [Everton Are Lining Up For A Move For £30m Arsenal Man: Right Profile For David Moyes?](https://the4thofficial.net/2026/06/everton-are-lining-up-for-a-move-for-30m-arsenal-man-right-profile-for-david-moyes/) - **The4thofficial.net**
+8. [Chelsea open talks to sign Crystal Palace’s Maxence Lacroix](https://footballtoday.com/2026/06/24/chelsea-open-talks-to-sign-crystal-palaces-maxence-lacroix/) - **Footballtoday.com**
+9. [Andoni Iraola ready to take massive Cody Gakpo transfer decision](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-andoni-iraola-ready-to-take-massive-cody-gakpo-decision/) - **Anfieldwatch.co.uk**
+10. [This has Michael Edwards written all over it, genius Liverpool deal is on](https://www.anfieldwatch.co.uk/liverpool-fc/news/this-has-michael-edwards-written-all-over-it-genius-liverpool-deal-is-on/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-06-26 05:34:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-26 07:09:08 (KST) / (하루 100회 제한 준수 중)*
