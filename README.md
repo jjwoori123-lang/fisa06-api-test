@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bayern and Frankfurt settle over €55m payment for Nathaniel Brown](https://bulinews.com/bayern-and-frankfurt-settle-over-55m-payment-for-nathaniel-brown) - **Bulinews.com**
-2. [NBA trade rumors: Jaylen Brown, Kawhi Leonard lead players most likely to be dealt before free agency](https://www.sportingnews.com/us/nba/news/nba-trade-rumors-jaylen-brown-kawhi-leonard-lead-players-most-likely-be-dealt-free-agency/58e290bc5119e85f188f58d3) - **Sporting News**
-3. [Spalletti wants Milinkovic-Savic as Juventus and Napoli searches intertwine](https://football-italia.net/spalletti-milinkovic-savic-juventus-napoli/) - **Football Italia**
-4. [Revealed: Roma made contact with Kolo Muani](https://romapress.net/revealed-roma-made-contact-with-kolo-muani/) - **RomaPress**
-5. [£52m Liverpool target confirms interest](https://www.anfieldwatch.co.uk/liverpool-fc/news/ps52m-liverpool-target-confirms-interest/) - **Anfieldwatch.co.uk**
-6. [‘Football shows a changing America, its tastes shaped by migration’](https://economictimes.indiatimes.com/news/et-evoke/football-shows-a-changing-america-its-tastes-shaped-by-migration/articleshow/131998852.cms) - **The Times of India**
-7. [Real Madrid communicate plans to re-sign €9m talent as €60m resale offer revealed](https://siempremadrid.com/real-madrid-communicate-plans-to-re-sign-e9m-talent-as-e60m-resale-offer-revealed/) - **Siempremadrid.com**
-8. [Arsenal holds talks with Bruno Guimaraes' representatives - as Mikel Arteta eyes Newcastle star ahead of Premier League title defence](https://www.dailymail.com/sport/football/article-15930235/Arsenal-holds-talks-Bruno-Guimaraes-representatives-Mikel-Arteta-eyes-Newcastle-star-ahead-Premier-League-title-defence.html) - **Dailymail.com**
-9. [Andoni Iraola tipped for reunion with key player](https://www.anfieldwatch.co.uk/liverpool-fc/news/andoni-iraola-tipped-for-reunion-with-key-player/) - **Anfieldwatch.co.uk**
-10. [Boro meet Wrexham in one of five all-Championship cup ties](https://www.bbc.com/sport/football/articles/c75yqze975xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [MLB makes big push for salary cap, floor with public statement outlining labor negotiations with MLBPA](https://sports.yahoo.com/mlb/article/mlb-makes-big-push-for-salary-cap-floor-with-public-statement-outlining-labor-negotiations-with-mlbpa-195702767.html) - **Yahoo Entertainment**
+2. [Journalist: Liverpool hold ‘firm interest’ in World Cup star](https://anfieldindex.com/95281/journalist-liverpool-hold-firm-interest-in-world-cup-star.html) - **Anfieldindex.com**
+3. [Newcastle United Left-Back Is Open To Joining Manchester United: Should Carrick Go For Him?](https://the4thofficial.net/2026/06/newcastle-united-left-back-is-open-to-joining-manchester-united-should-carrick-go-for-him/) - **The4thofficial.net**
+4. [Report: Everton have joined the race to sign Premier League midfielder](https://eplindex.com/147680/report-everton-have-joined-the-race-to-sign-premier-league-midfielder.html) - **English Premier League Index - Opta Stats**
+5. [“Nothing is impossible” – Erling Haaland’s father keeps door open over transfer to European giants](https://cityxtra.co.uk/48907/nothing-is-impossible-erling-haalands-father-keeps-door-open-over-transfer-to-european-giants/) - **Cityxtra.co.uk**
+6. [Felix Nmecha emerges as midfield option for Manchester United](https://thebusbybabe.sbnation.com/manchester-united-transfer-rumors-news/35103/felix-nmecha-emerges-as-midfield-option-for-manchester-united) - **SB Nation**
+7. [Chelsea Are Ready To Step Up Their Efforts To Land This Crystal Palace Defender: Good Choice For Alonso?](https://the4thofficial.net/2026/06/chelsea-are-ready-to-step-up-their-efforts-to-land-this-crystal-palace-defender/) - **The4thofficial.net**
+8. [FC Bayern finalizes €55M transfer deal for Nathaniel Brown](https://cryptobriefing.com/bayern-brown-55m-transfer-deal/) - **Crypto Briefing**
+9. [Newcastle United faces £3.2M tax demand over transfer failures under Mike Ashley era](https://cryptobriefing.com/newcastle-united-tax-demand-transfer-failures/) - **Crypto Briefing**
+10. [Bristol City sign midfielder Greenwood](https://www.bbc.com/sport/football/articles/c74y959zgq3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-06-27 02:58:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-27 05:02:39 (KST) / (하루 100회 제한 준수 중)*
