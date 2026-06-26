@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bruno Fernandes: Keane and Wright assess Man United’s captain](https://thepeoplesperson.com/2026/06/25/bruno-fernandes-keane-and-wright-assess-man-uniteds-captain-311952/) - **The Peoples Person**
-2. [Opening round schedule as Championship fixtures released for 2026/27 season](https://thefootballfaithful.com/opening-round-schedule-as-championship-fixtures-released-for-2026-27-season/) - **The Football Faithful**
-3. [Defining success for every first-year NFL coach: Why pressure is already on for Jesse Minter, Joe Brady](https://www.cbssports.com/nfl/news/defining-success-for-first-year-nfl-coaches/) - **CBS Sports**
-4. [Wolves to face Blackburn in 2026/27 Championship opening week](https://www.vanguardngr.com/2026/06/wolves-to-face-blackburn-in-2026-27-championship-opening-week/) - **Vanguard**
-5. ['Buy both and stop mucking around' - fans on Fernandes and Tonali links](https://www.bbc.com/sport/football/articles/cevl1x3gvg2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Rangers, West Ham, Hull City explore signing free agent Dan Neil](https://cryptobriefing.com/dan-neil-free-agent-rangers-west-ham-hull/) - **Crypto Briefing**
-7. [Piero Hincapie joins Arsenal in permanent deal](http://www.arsenal.com/news/piero-hincapie-joins-arsenal-permanent-deal) - **Arsenal.com**
-8. [Report: Four clubs pushing to sign Liverpool midfielder](https://anfieldindex.com/95263/report-four-clubs-pushing-to-sign-liverpool-midfielder.html) - **Anfieldindex.com**
-9. [Hull have enquired about Bayern Munich goalkeeper](https://bulinews.com/hull-enquired-bayern-munich-goalkeeper) - **Bulinews.com**
-10. [Erling Haaland, Having Time Of His Life In The States, Says He Got Goosebumps From The ‘Pride’ Americans Have](https://brobible.com/sports/article/erling-haaland-goosebumps-usa-national-anthem/) - **BroBible**
+1. [West Ham and Leicester discover Carabao Cup first-round opponents](https://www.skysports.com/football/news/11938/13550702/carabao-cup-2026-27-first-round-draw-championship-league-one-and-league-two-teams-discover-opponents) - **Sky Sports**
+2. [From Spain: Nico Paz returns to Real Madrid but Inter hope to leverage good relationship](https://football-italia.net/from-spain-nico-paz-returns-to-real-madrid/) - **Football Italia**
+3. [Holders Luton drawn with Peterborough in EFL Trophy](https://www.bbc.com/sport/football/articles/cgev5gdj4wjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Roma’s Matias Soule: Intermediary trying to iron out Saudi Arabia move](https://www.getfootballnewsitaly.com/2026/romas-matias-soule-intermediary-trying-to-iron-out-saudi-arabia-move/) - **Getfootballnewsitaly.com**
+5. [They fled war as child refugees, now they’re playing at World Cup 2026](https://www.aljazeera.com/sports/2026/6/25/they-fled-war-as-child-refugees-now-theyre-playing-at-world-cup-2026) - **Al Jazeera English**
+6. [“I don’t agree with that” Jose Mourinho defends Arsenal from their critics](https://www.justarsenal.com/i-dont-agree-with-that-jose-mourinho-defends-arsenal-from-their-critics/417533) - **Just Arsenal News**
+7. [Sky Sports: Chelsea have made contact over move for Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5710f209-832c-4652-974c-1490893dca4a) - **Yahoo Entertainment**
+8. [Holders Luton drawn with Peterborough in EFL Trophy](https://www.bbc.co.uk/sport/football/articles/cgev5gdj4wjo) - **BBC News**
+9. [Betis ask Torino for information on former Chelsea and Inter midfielder Casadei](https://football-italia.net/betis-ask-torino-for-information-on-casadei/) - **Football Italia**
+10. [One U.S. college is fixing tuition at just 10% of parental income: ‘We’re not hiding the cost of college behind secret formulas’](https://fortune.com/2026/06/25/whitman-college-fixing-tuition-10-of-parental-income-not-hiding-cost-of-college-behind-secret-formulas/) - **Fortune**
 
 
 ---
-*최근 업데이트: 2026-06-26 22:24:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-27 00:57:48 (KST) / (하루 100회 제한 준수 중)*
