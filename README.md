@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Real Madrid to trigger €9m buy-back for Nico Paz as Como offered €60m permanent deal option](https://www.footballmuse.com/news/real-madrid-to-trigger-eur9m-buy-back-for-nico-paz-as-como-offered-eur60m-permanent-deal-option) - **Footballmuse.com**
-2. [Today’s Papers: Italy require Maldini, Paz decision coming, Roma say no to 100m](https://football-italia.net/papers-italy-require-maldini-paz-decision/) - **Football Italia**
-3. [Fabrizio Romano confirms Liverpool will make 'much higher demands' for wantaway star](https://www.anfieldwatch.co.uk/liverpool-fc/news/fabrizio-romano-confirms-liverpool-will-make-much-higher-demands-for-wantaway-star/) - **Anfieldwatch.co.uk**
-4. [Matheus Cunha matches Manchester United World Cup record with 3 goals](https://cryptobriefing.com/cunha-matches-man-utd-world-cup-record/) - **Crypto Briefing**
-5. [Italian reports reveal Arsenal’s €50m interest in World Cup star](https://eplindex.com/147662/italian-reports-reveal-arsenals-e50m-interest-in-world-cup-star.html) - **English Premier League Index - Opta Stats**
-6. [Bologna open talks for Rangers' Raskin - gossip](https://www.bbc.com/sport/football/articles/c8r20l02e56o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Bologna open talks for Rangers' Raskin - gossip](https://www.bbc.co.uk/sport/football/articles/c8r20l02e56o) - **BBC News**
-8. [Marcus Rashford’s wage set to rise to £325K after Manchester United qualifies for UCL](https://cryptobriefing.com/rashford-wage-rise-325k-ucl-qualification/) - **Crypto Briefing**
-9. [Manchester City and Hugo Viana ready to meet £100M fee for Aston Villa’s Morgan Rogers](https://cityxtra.co.uk/48827/manchester-city-and-hugo-viana-ready-to-meet-100m-fee-for-aston-villas-morgan-rogers/) - **Cityxtra.co.uk**
+1. [Key Liverpool figure set to exit Anfield soon](https://www.anfieldwatch.co.uk/liverpool-fc/news/key-liverpool-figure-set-to-exit-anfield-soon/) - **Anfieldwatch.co.uk**
+2. ['Sell him in a heartbeat' - or is Gusto's price tag 'wishful thinking'?](https://www.bbc.com/sport/football/articles/cp3xdj89vy7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Flash Sports & Media (Nasdaq: FLZH) Announces Planned Launch of Zimbabwe T20 League (ZT20)](https://financialpost.com/globe-newswire/flash-sports-media-nasdaq-flzh-announces-planned-launch-of-zimbabwe-t20-league-zt20) - **Financial Post**
+4. [Leicester start League One season at Notts County](https://www.bbc.co.uk/sport/football/articles/ce8k4er291jo) - **BBC News**
+5. [Flash Sports & Media (Nasdaq: FLZH) Announces Planned Launch of Zimbabwe T20 League (ZT20)](https://www.globenewswire.com/news-release/2026/06/25/3317419/0/en/Flash-Sports-Media-Nasdaq-FLZH-Announces-Planned-Launch-of-Zimbabwe-T20-League-ZT20.html) - **GlobeNewswire**
+6. [Journalist claims Liverpool are in the race to sign talented midfielder](https://anfieldindex.com/95258/journalist-claims-liverpool-are-in-the-race-to-sign-talented-midfielder.html) - **Anfieldindex.com**
+7. [The Netherlands' deadly striker who bounced back from extortion nightmare to shine at the World Cup: Brian Bobbey escaped Amsterdam gang violence and is now bullying defences for Ronald Koeman's side](https://www.dailymail.com/sport/football/article-15926941/brian-brobbey-netherlands-world-cup.html) - **Dailymail.com**
+8. [Burnley and West Ham to meet on first Championship weekend](https://www.bbc.com/sport/football/articles/cjwg9l53evwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Burnley and West Ham to meet on first Championship weekend](https://www.bbc.co.uk/sport/football/articles/cjwg9l53evwo) - **BBC News**
+10. [West Ham visit Burnley on opening Championship weekend - every game live on Sky](https://www.skysports.com/football/news/11688/13552248/championship-2026-27-season-fixtures-dates-schedule-and-how-to-watch) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-06-26 17:00:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-26 20:11:38 (KST) / (하루 100회 제한 준수 중)*
