@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [West Ham and Leicester discover Carabao Cup first-round opponents](https://www.skysports.com/football/news/11938/13550702/carabao-cup-2026-27-first-round-draw-championship-league-one-and-league-two-teams-discover-opponents) - **Sky Sports**
-2. [From Spain: Nico Paz returns to Real Madrid but Inter hope to leverage good relationship](https://football-italia.net/from-spain-nico-paz-returns-to-real-madrid/) - **Football Italia**
-3. [Holders Luton drawn with Peterborough in EFL Trophy](https://www.bbc.com/sport/football/articles/cgev5gdj4wjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Roma’s Matias Soule: Intermediary trying to iron out Saudi Arabia move](https://www.getfootballnewsitaly.com/2026/romas-matias-soule-intermediary-trying-to-iron-out-saudi-arabia-move/) - **Getfootballnewsitaly.com**
-5. [They fled war as child refugees, now they’re playing at World Cup 2026](https://www.aljazeera.com/sports/2026/6/25/they-fled-war-as-child-refugees-now-theyre-playing-at-world-cup-2026) - **Al Jazeera English**
-6. [“I don’t agree with that” Jose Mourinho defends Arsenal from their critics](https://www.justarsenal.com/i-dont-agree-with-that-jose-mourinho-defends-arsenal-from-their-critics/417533) - **Just Arsenal News**
-7. [Sky Sports: Chelsea have made contact over move for Premier League star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5710f209-832c-4652-974c-1490893dca4a) - **Yahoo Entertainment**
-8. [Holders Luton drawn with Peterborough in EFL Trophy](https://www.bbc.co.uk/sport/football/articles/cgev5gdj4wjo) - **BBC News**
-9. [Betis ask Torino for information on former Chelsea and Inter midfielder Casadei](https://football-italia.net/betis-ask-torino-for-information-on-casadei/) - **Football Italia**
-10. [One U.S. college is fixing tuition at just 10% of parental income: ‘We’re not hiding the cost of college behind secret formulas’](https://fortune.com/2026/06/25/whitman-college-fixing-tuition-10-of-parental-income-not-hiding-cost-of-college-behind-secret-formulas/) - **Fortune**
+1. [Bayern and Frankfurt settle over €55m payment for Nathaniel Brown](https://bulinews.com/bayern-and-frankfurt-settle-over-55m-payment-for-nathaniel-brown) - **Bulinews.com**
+2. [NBA trade rumors: Jaylen Brown, Kawhi Leonard lead players most likely to be dealt before free agency](https://www.sportingnews.com/us/nba/news/nba-trade-rumors-jaylen-brown-kawhi-leonard-lead-players-most-likely-be-dealt-free-agency/58e290bc5119e85f188f58d3) - **Sporting News**
+3. [Spalletti wants Milinkovic-Savic as Juventus and Napoli searches intertwine](https://football-italia.net/spalletti-milinkovic-savic-juventus-napoli/) - **Football Italia**
+4. [Revealed: Roma made contact with Kolo Muani](https://romapress.net/revealed-roma-made-contact-with-kolo-muani/) - **RomaPress**
+5. [£52m Liverpool target confirms interest](https://www.anfieldwatch.co.uk/liverpool-fc/news/ps52m-liverpool-target-confirms-interest/) - **Anfieldwatch.co.uk**
+6. [‘Football shows a changing America, its tastes shaped by migration’](https://economictimes.indiatimes.com/news/et-evoke/football-shows-a-changing-america-its-tastes-shaped-by-migration/articleshow/131998852.cms) - **The Times of India**
+7. [Real Madrid communicate plans to re-sign €9m talent as €60m resale offer revealed](https://siempremadrid.com/real-madrid-communicate-plans-to-re-sign-e9m-talent-as-e60m-resale-offer-revealed/) - **Siempremadrid.com**
+8. [Arsenal holds talks with Bruno Guimaraes' representatives - as Mikel Arteta eyes Newcastle star ahead of Premier League title defence](https://www.dailymail.com/sport/football/article-15930235/Arsenal-holds-talks-Bruno-Guimaraes-representatives-Mikel-Arteta-eyes-Newcastle-star-ahead-Premier-League-title-defence.html) - **Dailymail.com**
+9. [Andoni Iraola tipped for reunion with key player](https://www.anfieldwatch.co.uk/liverpool-fc/news/andoni-iraola-tipped-for-reunion-with-key-player/) - **Anfieldwatch.co.uk**
+10. [Boro meet Wrexham in one of five all-Championship cup ties](https://www.bbc.com/sport/football/articles/c75yqze975xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-06-27 00:57:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-27 02:58:46 (KST) / (하루 100회 제한 준수 중)*
