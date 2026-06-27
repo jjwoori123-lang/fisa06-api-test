@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Egypt vs. Iran odds, prediction, time: 2026 World Cup picks, best bets from expert on 23-13 run](https://www.cbssports.com/soccer/news/egypt-iran-odds-prediction-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
-2. [Saliba reveals how he disagreed with Arsenal on his best loan club](https://www.justarsenal.com/saliba-reveals-how-he-disagreed-with-arsenal-on-his-best-loan-club/417548) - **Just Arsenal News**
-3. [Could the Detroit Lions Trade for Denzel Ward to Replace Terrion Arnold?](https://detroitsportsnation.com/detroit-lions-trade-for-denzel-ward/richardknight/detroit-lions/06/26/2026/487815/) - **Detroit Sports Nation**
-4. [Nottingham Forest eyeing Manchester City midfield raid as Elliot Anderson undergoes medical](https://cityxtra.co.uk/48932/nottingham-forest-eyeing-manchester-city-midfield-raid-as-elliot-anderson-undergoes-medical/) - **Cityxtra.co.uk**
-5. [Brentford in talks to host Shakhtar Donetsk’s Champions League matches next season](https://cryptobriefing.com/brentford-shakhtar-champions-league-hosting-talks/) - **Crypto Briefing**
-6. [Sweden hero Elanga confesses World Cup confusion: ‘I was just screaming’](https://www.101greatgoals.com/football/world-cup-news/sweden-elanga/) - **101 Great Goals**
-7. [Phil Foden splashes out on new jewellery for his girlfriend Rebecca Cooke during a day out in Cheshire after he missed out on England's World Cup squad](https://www.dailymail.com/tvshowbiz/article-15932425/Phil-Foden-new-jewellery-girlfriend-Rebecca-Cooke-England-World-Cup-squad.html) - **Dailymail.com**
-8. [Frustrated forward faces biggest Liverpool test under Iraola](https://anfieldindex.com/95291/frustrated-forward-faces-biggest-liverpool-test-under-iraola.html) - **Anfieldindex.com**
-9. [Lamine Yamal odds, picks, predictions, player props: Best bets for Spain vs. Uruguay in 2026 World Cup](https://www.cbssports.com/soccer/news/lamine-yamal-odds-picks-predictions-player-props-best-bets-spain-uruguay-2026-world-cup/) - **CBS Sports**
-10. [Report: Liverpool to block summer exit for ‘proven’ star](https://anfieldindex.com/95290/report-liverpool-to-block-summer-exit-for-proven-star.html) - **Anfieldindex.com**
+1. [Man United’s Manuel Ugarte at centre of Uruguay World Cup revolt](https://thepeoplesperson.com/2026/06/26/man-uniteds-manuel-ugarte-at-centre-of-uruguay-world-cup-revolt-312011/) - **The Peoples Person**
+2. [Trailfinders have no fear in PWR final - Burton](https://www.bbc.com/sport/rugby-union/articles/c20yelzzvjdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Bournemouth join race for Arsenal target Mbemba](https://www.bbc.com/sport/football/articles/cjegkq397nwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Use BetMGM bonus code CBSSPORTS to get $1,500 in bonus bets on Spain-Uruguay, France-Norway, 2026 World Cup](https://www.cbssports.com/betting/news/use-betmgm-bonus-code-cbssports-to-get-1500-in-bonus-bets-spain-uruguay-france-norway-2026-world-cup/) - **CBS Sports**
+5. [Wrexham hero Mullin departs by mutual consent after five-year spell](https://www.channelnewsasia.com/sport/wrexham-hero-mullin-departs-mutual-consent-after-five-year-spell-6213611) - **CNA**
+6. [Asare's unlikely rise to national hero helps Ghana to keep clean sheets](https://www.channelnewsasia.com/sport/asares-unlikely-rise-national-hero-helps-ghana-keep-clean-sheets-6213616) - **CNA**
+7. [Nottingham Forest targets Mateo Kovacic to replace Elliot Anderson](https://cryptobriefing.com/nottingham-forest-kovacic-replace-anderson/) - **Crypto Briefing**
+8. [Use DraftKings promo code for $200 in bonus bets by targeting Spain-Uruguay, France-Norway, 2026 World Cup](https://www.cbssports.com/betting/news/use-draftkings-promo-code-for-200-in-bonus-bets-targeting-2026-world-cup-spain-uruguay-france-norway/) - **CBS Sports**
+9. [Palestra finalising Chelsea transfer today with medical, cost set at €60m](https://football-italia.net/palestra-finalising-chelsea-transfer-today-60m/) - **Football Italia**
+10. [Roma Keeping the Premier League Sharks at Bay for Now](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8055aff6-c038-4056-aca1-b2abd592e3c7) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-06-27 23:09:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-28 00:41:30 (KST) / (하루 100회 제한 준수 중)*
