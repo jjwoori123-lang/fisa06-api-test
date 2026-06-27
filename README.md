@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Meloni electoral plan ‘authoritarian’ Italy’s opposition says](https://www.irishtimes.com/world/2026/06/26/meloni-electoral-plan-authoritarian-italys-opposition-says/) - **The Irish Times**
-2. [From Portugal: Hugo Viana tracking Sporting Lisbon star as Man City battle with Arsenal](https://cityxtra.co.uk/48946/from-portugal-hugo-viana-tracking-sporting-lisbon-star-as-man-city-register-interest-in-arsenal-target/) - **Cityxtra.co.uk**
-3. [Report: European giants considering move for Chelsea star](https://eplindex.com/147708/report-european-giants-considering-move-for-chelsea-star.html) - **English Premier League Index - Opta Stats**
-4. [Inter join Everton in race for departing Man City veteran Stones](https://football-italia.net/inter-join-everton-in-race-man-city-stones/) - **Football Italia**
-5. ['Makes no sense': Colin Cowherd rips WNBA over Caitlin Clark poster decision](https://www.sportingnews.com/us/wnba/indiana-fever/news/makes-no-sense-colin-cowherd-rips-wnba-over-caitlin-clark-poster-decision/3f4d9620d30dd9f4458693e6) - **Sporting News**
-6. [Blades Left With Big Hole to Fill As Promising Winger Sold to Championship Rivals](https://sheffunitedway.co.uk/2026/06/26/blades-left-with-big-hole-to-fill-as-promising-winger-sold-to-championship-rivals/) - **Sheffunitedway.co.uk**
-7. [Spurs fail with same bid twice – player prefers Arsenal](https://dailycannon.com/2026/06/spurs-tonali-bids-arsenal/) - **Dailycannon.com**
-8. [The knock-on effect Anderson deal could have on midfielder market this summer](https://www.skysports.com/football/news/11095/13557952/arsenal-liverpool-man-utd-and-spurs-transfers-how-elliot-anderson-deal-could-affect-midfielder-market-this-summer) - **Sky Sports**
-9. [Bruno Guimaraes: Arsenal’s plot to sign Man United target unveiled](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_865520f0-be32-4138-9dbf-ec1a8e9e7da0) - **Yahoo Entertainment**
-10. [Are the Giants spending their money wisely this season?](https://www.bigblueview.com/new-york-giants-depth-chart/164198/position-by-position-spending-andrew-thomas-brian-burns) - **Big Blue View**
+1. [Egypt vs. Iran odds, prediction, time: 2026 World Cup picks, best bets from expert on 23-13 run](https://www.cbssports.com/soccer/news/egypt-iran-odds-prediction-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+2. [Saliba reveals how he disagreed with Arsenal on his best loan club](https://www.justarsenal.com/saliba-reveals-how-he-disagreed-with-arsenal-on-his-best-loan-club/417548) - **Just Arsenal News**
+3. [Could the Detroit Lions Trade for Denzel Ward to Replace Terrion Arnold?](https://detroitsportsnation.com/detroit-lions-trade-for-denzel-ward/richardknight/detroit-lions/06/26/2026/487815/) - **Detroit Sports Nation**
+4. [Nottingham Forest eyeing Manchester City midfield raid as Elliot Anderson undergoes medical](https://cityxtra.co.uk/48932/nottingham-forest-eyeing-manchester-city-midfield-raid-as-elliot-anderson-undergoes-medical/) - **Cityxtra.co.uk**
+5. [Brentford in talks to host Shakhtar Donetsk’s Champions League matches next season](https://cryptobriefing.com/brentford-shakhtar-champions-league-hosting-talks/) - **Crypto Briefing**
+6. [Sweden hero Elanga confesses World Cup confusion: ‘I was just screaming’](https://www.101greatgoals.com/football/world-cup-news/sweden-elanga/) - **101 Great Goals**
+7. [Phil Foden splashes out on new jewellery for his girlfriend Rebecca Cooke during a day out in Cheshire after he missed out on England's World Cup squad](https://www.dailymail.com/tvshowbiz/article-15932425/Phil-Foden-new-jewellery-girlfriend-Rebecca-Cooke-England-World-Cup-squad.html) - **Dailymail.com**
+8. [Frustrated forward faces biggest Liverpool test under Iraola](https://anfieldindex.com/95291/frustrated-forward-faces-biggest-liverpool-test-under-iraola.html) - **Anfieldindex.com**
+9. [Lamine Yamal odds, picks, predictions, player props: Best bets for Spain vs. Uruguay in 2026 World Cup](https://www.cbssports.com/soccer/news/lamine-yamal-odds-picks-predictions-player-props-best-bets-spain-uruguay-2026-world-cup/) - **CBS Sports**
+10. [Report: Liverpool to block summer exit for ‘proven’ star](https://anfieldindex.com/95290/report-liverpool-to-block-summer-exit-for-proven-star.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-06-27 21:00:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-27 23:09:49 (KST) / (하루 100회 제한 준수 중)*
