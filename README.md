@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [With power-skill combo, MSU's Ethan Belchetz will be off board early in NHL draft](https://www.lansingstatejournal.com/story/sports/college/msu/hockey/2026/06/25/incoming-spartan-ethan-belchetz-likely-to-be-early-pick-in-nhl-draft/90688254007/) - **Lansing State Journal**
-2. [How Roman Sorkin became the heart of Maccabi Tel Aviv’s title run](https://www.jpost.com/israel-news/sports/article-900584) - **The Jerusalem Post**
-3. [Ecuador breathe fresh life into their World Cup campaign with historic win as Manuel Neuer blunder sees Germany's eleven-game winning run come to an end](https://www.dailymail.com/sport/football/article-15927547/Ecuador-breathe-fresh-life-World-Cup-campaign.html) - **Dailymail.com**
-4. [Anderson to join Man City from Forest for British record fee: reports](https://sports.yahoo.com/articles/anderson-join-man-city-forest-224413319.html) - **Yahoo Entertainment**
-5. [Gilberto Mora: Man United will rival Europe’s elite for Mexican wonderkid](https://thepeoplesperson.com/2026/06/25/gilberto-mora-man-united-will-rival-europes-elite-for-mexican-wonderkid-311978/) - **The Peoples Person**
-6. [How Tyler Adams bounced back from injury nightmare to become the USMNT's unsung hero: Streetwise midfielder marks Erling Haaland at corners and is making Mauricio Pochettino's side tick at the World Cup](https://www.dailymail.com/sport/football/article-15927097/tyler-adams-usmnt-world-cup.html) - **Dailymail.com**
-7. [Use BetMGM bonus code CBSSPORTS to get $1,500 in bonus bets on USA-Turkiye, Japan-Sweden, 2026 World Cup](https://www.cbssports.com/betting/news/use-betmgm-bonus-code-cbssports-to-get-1500-in-bonus-bets-usa-turkiye-japan-sweden-2026-world-cup/) - **CBS Sports**
-8. [Elliot Anderson transfer fee: How Man City deal compares with record Premier League signings](https://www.sportingnews.com/us/soccer/news/elliot-anderson-transfer-fee-man-city-record-premier-league/6236633b9f468e849a802bfe) - **Sporting News**
-9. [4 Takeaways From Ivory Coast's Win Over Curaçao In Group E Finale](https://www.foxsports.com/stories/soccer/world-cup-ivory-coast-win-curacao-group-e-finale) - **Fox Sports**
-10. [Tottenham Hotspur receives interest from four clubs for Pape Matar Sarr](https://cryptobriefing.com/tottenham-pape-matar-sarr-transfer-interest/) - **Crypto Briefing**
+1. [Use DraftKings promo code for $200 in bonus bets by targeting 2026 World Cup, USA vs. Turkiye](https://www.cbssports.com/betting/news/use-draftkings-promo-code-for-200-in-bonus-bets-targeting-2026-world-cup-usa-vs-turkiye/) - **CBS Sports**
+2. [Japan to play Brazil in World Cup knockouts after nervy Sweden draw](https://sports.yahoo.com/articles/japan-play-brazil-world-cup-010439080.html) - **Yahoo Entertainment**
+3. ['Anyone who understands football values him enormously': Meet Spain's unsung 'MVP' goal machine Mikel Oyarzabal - and why Tottenham or Man United should hijack Barcelona move for the man outshining Lamine Yamal](https://www.dailymail.com/sport/football/article-15929373/mikel-oyarzabal-spain-barcelona-transfer.html) - **Dailymail.com**
+4. [Japan 1-1 Sweden – Both sides through after tepid draw](https://www.101greatgoals.com/news/japan-1-1-sweden-both-sides-through-after-tepid-draw/) - **101 Great Goals**
+5. [How to live stream USA vs Turkey: FIFA World Cup 2026, TV channel](https://www.thebiglead.com/how-to-live-stream-usa-vs-turkey-fifa-world-cup-2026-tv-channel/) - **The Big Lead**
+6. [Yamal In Action; Mbappé, Haaland Finally Meet: World Cup Match Day 16 Is Massive](https://www.foxsports.com/stories/soccer/mbappe-haaland-yamal-world-cup-match-day-16) - **Fox Sports**
+7. [Turkey serves as reminder to USMNT how World Cup could have gone very wrong](https://nypost.com/2026/06/25/sports/turkey-serves-as-usmnt-reminder-how-world-cup-could-have-gone-wrong/) - **New York Post**
+8. [New Zealand eye Belgium shock as World Cup surprises fuel belief](https://www.channelnewsasia.com/sport/new-zealand-eye-belgium-shock-world-cup-surprises-fuel-belief-6211636) - **CNA**
+9. [The surprising career parallels between footballers and researchers](https://www.nature.com/articles/d41586-026-01794-0) - **Nature.com**
+10. [Tottenham eyes Manchester City striker Omar Marmoush for transfer](https://cryptobriefing.com/tottenham-manchester-city-omar-marmoush-transfer/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-06-27 08:08:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-27 10:24:49 (KST) / (하루 100회 제한 준수 중)*
