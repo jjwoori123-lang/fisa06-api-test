@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [David Price selects his favourite pics from 25/26!](http://www.arsenal.com/news/david-price-selects-his-favourite-pics-2526) - **Arsenal.com**
-2. [Today’s Papers: Juventus eye Kessie, Nico Paz up for sale](https://football-italia.net/todays-papers-juventus-eye-kessie-nico-paz-up-for-sale/) - **Football Italia**
-3. [Future football stars to get university education](https://www.bbc.com/news/articles/cly7l3n3891o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Manchester City signs Elliot Anderson for club-record £116M](https://cryptobriefing.com/manchester-city-elliot-anderson-record-transfer/) - **Crypto Briefing**
-5. [Mikel Oyarzabal: Man United have found perfect Benjamin Sesko deputy](https://thepeoplesperson.com/2026/06/26/mikel-oyarzabal-man-united-have-found-perfect-benjamin-sesko-deputy-311993/) - **The Peoples Person**
-6. [Manchester City add Blackburn Rovers midfield sensation to summer transfer wishlist](https://cityxtra.co.uk/48883/manchester-city-eye-blackburn-rovers-teenage-midfield-sensation/) - **Cityxtra.co.uk**
-7. [Alexi Lalas is football’s worst pundit — that’s exactly why Fox Sports loves him](https://www.the-independent.com/arts-entertainment/tv/features/alexi-lalas-fox-sports-henry-zlatan-b3002379.html) - **The-independent.com**
-8. [Where to watch Norway vs. France live stream, TV channel, start time for World Cup Group I match](https://www.sportingnews.com/us/soccer/news/watch-norway-vs-france-live-stream-channel-time-world-cup/fadb83210c9ed6df956af46e) - **Sporting News**
-9. [Nwabali: How not to treat a star in distress](https://www.vanguardngr.com/2026/06/nwabali-how-not-to-treat-a-star-in-distress/) - **Vanguard**
+1. [Arsenal's opening bid for Bruno Guimarães rebuffed](https://www.playmakerstats.com/news/arsenal-s-opening-bid-for-bruno-guimaraes-rebuffed/1150046) - **Playmakerstats.com**
+2. [AC Milan emerge as leading candidate to sign Barcelona homegrown midfielder](https://barcauniversal.com/ac-milan-emerge-as-leading-candidate-to-sign-barcelona-homegrown-midfielder/) - **Barcauniversal.com**
+3. [Igor Thiago has not played a single minute for Brazil since the Morocco match](https://cryptobriefing.com/igor-thiago-brazil-world-cup-bench/) - **Crypto Briefing**
+4. [Chelsea set to sign Maxence Lacroix for €55M after World Cup, extending crypto partnership with BingX](https://cryptobriefing.com/chelsea-lacroix-55m-crypto-bingx/) - **Crypto Briefing**
+5. [Gossip: Southampton in talks with midfielder Neil](https://www.bbc.com/sport/football/articles/c8r2026x2kno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [English giants circle Bruno Guimarães as Newcastle dig in](https://cryptobriefing.com/english-clubs-approach-bruno-guimaraes-newcastle/) - **Crypto Briefing**
+7. [Arsenal’s verbal offer for Bruno Guimaraes rejected by Newcastle](https://cryptobriefing.com/arsenal-bruno-guimaraes-offer-rejected-newcastle/) - **Crypto Briefing**
+8. [Arsenal confirms late pre-season plans ahead of next season](https://www.justarsenal.com/arsenal-confirms-late-pre-season-plans-ahead-of-next-season/417549) - **Just Arsenal News**
+9. [Bologna demand €25m for Lucumi as Juventus weigh cheaper Muharemovic alternative](https://football-italia.net/bologna-demand-25m-for-lucumi-as-juventus/) - **Football Italia**
+10. [Liverpool have already found their Alexis Mac Allister replacement](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-have-already-found-their-alexis-mac-allister-replacement/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-06-27 17:15:31 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-27 19:27:30 (KST) / (하루 100회 제한 준수 중)*
