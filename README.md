@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United Are Set To Step Up Their Efforts To Land This Borussia Dortmund Midfielder: Good Fit For Carrick?](https://the4thofficial.net/2026/06/manchester-united-are-set-to-step-up-their-efforts-to-land-this-borussia-dortmund-midfielder-good-fit-for-carrick/) - **The4thofficial.net**
-2. [Chelsea want £35million for Trevoh Chalobah - after turning down £22m bid from Cesc Fabregas-managed Como](https://www.dailymail.com/sport/football/article-15935119/Chelsea-bid-Trevoh-Chalobah-rejecct-22m-bid-Como.html) - **Dailymail.com**
-3. [Croatia vs. Ghana odds, prediction, time: 2026 World Cup picks, best bets from expert on 25-13 run](https://www.cbssports.com/soccer/news/croatia-ghana-odds-prediction-line-start-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
-4. [Barcelona set sights on Julián Alvarez alternative](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_b382520b-9470-4f8b-ae25-f1a5b3afa89b) - **Yahoo Entertainment**
-5. [Manchester City Are In Talks To Sign This Newcastle United Midfielder: What Will He Bring To The Etihad?](https://the4thofficial.net/2026/06/manchester-city-are-in-talks-to-sign-this-newcastle-united-midfielder/) - **The4thofficial.net**
-6. [Performance coach Wilson set to leave Arsenal](https://www.bbc.com/sport/football/articles/cn75kem1g37o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Performance coach Wilson set to leave Arsenal](https://www.bbc.co.uk/sport/football/articles/cn75kem1g37o) - **BBC News**
-8. [Egypt Manager Hossam Hassan Addresses Concerns Over Mohamed Salah's Left Knee Injury](https://www.foxsports.com/stories/soccer/egypt-manager-hossam-hassan-addresses-concerns-over-mohamed-salahs-left-knee-injury) - **Fox Sports**
-9. [Fuchs leaves Newport County after just seven months](https://www.bbc.co.uk/sport/football/articles/cy8w4yqq7e9o) - **BBC News**
-10. [Premier League giants closely monitoring Real Madrid midfielder’s situation](https://madriduniversal.com/premier-league-giants-closely-monitoring-real-madrid-midfielders-situation/) - **Madriduniversal.com**
+1. [Fabrizio Romano confirms our report: Liverpool have made contact for Premier League star](https://www.anfieldwatch.co.uk/liverpool-fc/news/fabrizio-romano-confirms-our-report-liverpool-have-made-contact-for-premier-league-star/) - **Anfieldwatch.co.uk**
+2. [Liverpool make contact over deal for Real Madrid star](https://getfootballnewsspain.com/liverpool-make-contact-over-deal-for-real-madrid-star/) - **Getfootballnewsspain.com**
+3. [Chelsea show interest in Sunderland's Swiss midfielder Xhaka](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260627-99-883370/) - **Dpa-international.com**
+4. [New Zealand's early World Cup exit puts Oceania free pass in spotlight](https://www.channelnewsasia.com/sport/new-zealands-early-world-cup-exit-puts-oceania-free-pass-in-spotlight-6215576) - **CNA**
+5. [Roma Join Nottingham Forest For €30m Celtic: Why Parkhead Must Stand Firm On The Valuation?](https://the4thofficial.net/2026/06/roma-join-nottingham-forest-for-e30m-celtic-why-parkhead-must-stand-firm-on-the-valuation/) - **The4thofficial.net**
+6. [Barcelona prefers Anthony Gordon over Marcus Rashford for €80M transfer](https://cryptobriefing.com/barcelona-anthony-gordon-rashford-transfer/) - **Crypto Briefing**
+7. [Leeds United Eyeing 1.97 Metres Tall Goalkeeper: Why Farke Must Land The Player?](https://the4thofficial.net/2026/06/leeds-united-eyeing-1-97-metres-tall-goalkeeper-why-farke-must-land-the-player/) - **The4thofficial.net**
+8. [Richard Hughes working on deal for €50m Portugal forward](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-sporting-francisco-trincao-richard-hughes-working-on-deal-for-eur50m-portugal-forward/) - **Anfieldwatch.co.uk**
+9. [Christian Pulisic Gets ‘Very Dangerous’ Warning From AC Milan Legend Ruud Gullit](https://www.foxsports.com/stories/soccer/christian-pulisic-gets-very-dangerous-warning-from-ac-milan-legend-ruud-gullit) - **Fox Sports**
+10. [Why did Saliba miss France’s match against Norway](https://www.justarsenal.com/why-did-saliba-miss-frances-match-against-norway/417637) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-06-29 04:24:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-29 05:43:48 (KST) / (하루 100회 제한 준수 중)*
