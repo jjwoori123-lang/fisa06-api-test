@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal hold talks with Strasbourg technical director Pascal de Maesschalck](https://www.getfootballnewsfrance.com/2026/arsenal-hold-talks-with-strasbourg-technical-director-pascal-de-maesschalck/) - **Get French Football News**
-2. [Liverpool plan to beat Newcastle again in deal for Brazilian midfielder](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-allan-palmeiras-beat-newcastle-again-in-deal-for-brazilian-midfielder/) - **Anfieldwatch.co.uk**
-3. [Chido Obi set for Bundesliga switch as Man United look to continue his development](https://thepeoplesperson.com/2026/06/27/chido-obi-set-for-bundesliga-switch-as-man-united-look-to-continue-his-development-312038/) - **The Peoples Person**
-4. [Croatia vs. Ghana odds, prediction, time: 2026 World Cup picks, best bets from expert on 25-13 run](https://www.cbssports.com/soccer/news/croatia-ghana-odds-prediction-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
-5. [Brighton lodge €34m bid for Italy and Atalanta talent Ahanor](https://football-italia.net/brighton-lodge-34m-bid-for-ahanor/) - **Football Italia**
-6. [Wolves’ Yerson Mosquera and Rangers’ Emmanuel Fernandez targets for Rennes](https://www.getfootballnewsfrance.com/2026/wolves-yerson-mosquera-and-rangers-emmanuel-fernandez-targets-for-rennes/) - **Get French Football News**
-7. [Watch: Premier League Kabaddi - Day One](https://www.bbc.com/sport/live/cdejg8112plt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Why didn’t Arsenal’s Saliba play against Norway?](https://dailycannon.com/2026/06/saliba-france-norway/) - **Dailycannon.com**
-9. [Rennes face Premier League competition to sign Charlie Cresswell](https://www.getfootballnewsfrance.com/2026/rennes-face-premier-league-competition-to-sign-charlie-cresswell/) - **Get French Football News**
-10. [Como bids for Trevoh Chalobah as Inter Milan circles Chelsea defender](https://cryptobriefing.com/como-bids-chalobah-inter-milan-interest/) - **Crypto Briefing**
+1. [Imitation Games by Darragh McGee: Football in the grip of a gambling addiction](https://www.irishtimes.com/culture/books/review/2026/06/27/imitation-games-by-darragh-mcgee-football-in-the-grip-of-a-gambling-addiction/) - **The Irish Times**
+2. [Everton cannot be serious about chasing after Liam Delap again?](http://www.toffeeweb.com/season/25-26/news/47700.html) - **Toffeeweb**
+3. [Current and former Ravens make a list of NFL impact newcomers](https://ravenswire.usatoday.com/story/sports/nfl/ravens/2026/06/27/ravens-current-former-players-2026-new-faces-impact-ranking/90709097007/) - **USA Today**
+4. [Uzbekistan makes its World Cup debut, a first for Central Asia](https://www.npr.org/2026/06/27/g-s1-129705/uzbekistan-world-cup) - **NPR**
+5. [Who would the US need to beat to win the World Cup? Probably only Spain, France and England](https://sports.yahoo.com/articles/us-beat-win-world-cup-134100893.html) - **Yahoo Entertainment**
+6. [Liverpool make contract for Real Madrid midfielder as club weigh summer sale – report](https://madriduniversal.com/liverpool-make-contract-for-real-madrid-midfielder-as-club-weigh-summer-sale-report/) - **Madriduniversal.com**
+7. [Fiorentina want Udogie of Tottenham or Atletico Madrid’s Ruggeri](https://football-italia.net/fiorentina-udogie-tottenham-atletico-ruggeri/) - **Football Italia**
+8. [Nottingham Forest Linked with Liverpool’s Curtis Jones Following Anderson Sale](https://liverpooloffside.sbnation.com/liverpool-fc-transfer-news/81544/nottingham-forest-linked-liverpools-curtis-jones-transfer-anderson-man-city) - **SB Nation**
+9. [World Cup 2026: Who makes the team of the group stage?](https://www.101greatgoals.com/football/world-cup-news/world-cup-2026-who-makes-the-team-of-the-group-stage/) - **101 Great Goals**
+10. [Marcus Rashford: Tuchel explains decision to bench United ace](https://thepeoplesperson.com/2026/06/27/marcus-rashford-tuchel-explains-decision-to-bench-united-ace-312039/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-06-28 20:47:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-28 22:52:48 (KST) / (하루 100회 제한 준수 중)*
