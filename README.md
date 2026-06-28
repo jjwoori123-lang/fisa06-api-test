@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Nahuel Molina open to joining Inter after meeting with club representatives](https://cryptobriefing.com/nahuel-molina-inter-milan-transfer-talks/) - **Crypto Briefing**
-2. [Astonishing moment France's 'dictator' captain Kylian Mbappe orders English referee Michael Oliver to hand his armband to France team-mate during thumping win over Norway](https://www.dailymail.com/sport/football/article-15933867/Kylian-Mbappe-English-referee-Michael-Oliver.html) - **Dailymail.com**
-3. [England's Reece James Dealt Major Blow Amid World Cup](https://biztoc.com/x/31d15d58e30218ab) - **Biztoc.com**
-4. [Ireland stuns India in T20 to record historic first win over champions](https://www.abc.net.au/news/2026-06-27/t20-international-ireland-beats-india-in-historic-win/106850488) - **ABC News (AU)**
-5. [The hunt for another midfielder is on for Manchester City](https://esteemedkompany.com/2026/06/26/the-hunt-for-another-midfielder-is-on-for-manchester-city/) - **Esteemedkompany.com**
-6. [Lamine Yamal odds, picks, predictions, player props: Best bets for Spain vs. Uruguay in 2026 World Cup](https://www.cbssports.com/soccer/news/lamine-yamal-odds-picks-predictions-player-props-best-bets-spain-vs-uruguay-2026-world-cup/) - **CBS Sports**
-7. [Trouble in Panama camp! England's World Cup rivals involved in heated training ground bust-up on eve of New York clash - with Thomas Tuchel's side looking to get back to winning ways](https://www.dailymail.com/sport/football/article-15933711/Trouble-Panama-camp-Englands-World-Cup-rivals-involved-heated-training-ground-bust-eve-New-York-clash-Thomas-Tuchels-looking-winning-ways.html) - **Dailymail.com**
-8. [Spain vs. Uruguay odds, prediction, time: 2026 World Cup picks, best bets from expert on 23-13 run](https://www.cbssports.com/soccer/news/spain-uruguay-odds-prediction-line-start-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
-9. [Brighton bids £30M for Atalanta defender Honest Ahanor](https://cryptobriefing.com/brighton-bid-atalanta-defender-ahanor/) - **Crypto Briefing**
-10. ['You've got no idea the courage it took for her to come': As Declan Rice's girlfriend takes new baby to watch England play, how Lauren Fryer struggled to overcome the body-shaming trolls - and why the couple were determined to keep pregnancy secret](https://www.dailymail.com/tvshowbiz/article-15933249/Declan-Rice-girlfriend-baby-England-Lauren-Fryer.html) - **Dailymail.com**
+1. [Carroll shines and bullpen grinds to victory over Twins](https://www.azsnakepit.com/arizona-diamondbacks-game-information/93936/diamondbacks-1-rays-6-impressive-game) - **AZ Snake Pit**
+2. [Heartbroken Manuel Ugarte leaves the pitch in tears as he is stretchered off on World Cup duty with Uruguay - leaving Man United facing a nervous wait over star's fitness which could put huge midfield overhaul at risk](https://www.dailymail.com/sport/football/article-15934009/manuel-ugarte-man-united-midfield-injury.html) - **Dailymail.com**
+3. [Second Future Spartan Taken in First Round: Nikita Klepov Selected No. 15 Overall by Anaheim Ducks](https://roundtable.io/sports/ncaa/michigan-state/players/second-future-spartan-taken-in-first-round-nikita-klepov-selected-no-15-overall-by-anaheim-ducks) - **Roundtable.io**
+4. ['He has everything... physique, strength, speed, dribbling': Why Chelsea spent £43m on 'Swiss Army Knife' Marco Palestra, how Serie A's sprint king fits into Xabi Alonso's plans and what it means for Josh Acheampong's Blues future](https://www.dailymail.com/sport/football/article-15928821/Marco-Palestra-Chelsea-Xabi-Alonso-sprint-king.html) - **Dailymail.com**
+5. [How Midfielder Declan Rice’s Move To Arsenal Improved His Game](https://www.foxsports.com/stories/soccer/how-105m-arsenal-transfer-helped-declan-rice-step-up-three-levels-as-former-england-captain-backs-gunners-star-to-inherit-armband-from-harry-kane) - **Fox Sports**
+6. [Egypt vs. Iran odds, prediction, time: 2026 World Cup picks, best bets from expert on 23-13 run](https://www.cbssports.com/soccer/news/egypt-iran-odds-prediction-line-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+7. [Sevilla reject €10m offer for Adams](https://punchng.com/sevilla-reject-e10m-offer-for-adams/) - **The Punch**
+8. [Tanimu rules out NPFL return](https://punchng.com/tanimu-rules-out-npfl-return/) - **The Punch**
+9. [Rangers acquire Pavel Dorofeyev from Golden Knights in draft-night blockbuster](https://nypost.com/2026/06/26/sports/rangers-acquire-pavel-dorofeyev-from-golden-knights-in-draft-night-trade/?utm_source=yahoo&amp;utm_campaign=nypost&amp;utm_medium=referral) - **New York Post**
+10. ['God's gift to Indian cricket': The great expectations on teen wonder](https://www.abc.net.au/news/2026-06-27/vaibhav-sooryavanshi-the-indian-cricket-wonderkid/106850516) - **ABC News (AU)**
 
 
 ---
-*최근 업데이트: 2026-06-28 08:39:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-28 10:52:03 (KST) / (하루 100회 제한 준수 중)*
