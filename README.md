@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United join the race to sign Barcelona priority target; contacts already made](https://barcauniversal.com/manchester-united-join-the-race-to-sign-barcelona-priority-target-contacts-already-made/) - **Barcauniversal.com**
-2. [Nathaniel Brown: Details of United’s late hijack attempt revealed](https://thepeoplesperson.com/2026/06/27/nathaniel-brown-details-of-uniteds-late-hijack-attempt-revealed-312025/) - **The Peoples Person**
-3. [We want to find the next Virat Kohli! Ex-IPL boss Rashid Ali Khan reveals his vision for Glasgow Cosmic as they get set to compete in inaugural edition of European T20 Premier League](https://www.dailymail.com/sport/cricket/article-15933531/We-want-Virat-Kohli-Ex-IPL-boss-Rashid-Ali-Khan-reveals-vision-Glasgow-Cosmic-set-compete-inaugural-edition-European-T20-Premier-League.html) - **Dailymail.com**
-4. [Journalist: Newcastle Eye German World Cup Star as Tonali Exit Talk Raises Midfield Stakes](https://eplindex.com/147731/newcastle-eye-german-world-cup-star-as-tonali-exit-talk-raises-midfield-stakes.html) - **English Premier League Index - Opta Stats**
-5. [Finally, Belgium Arrived: 4 Takeaways From The Group-Clinching Win vs. New Zealand](https://www.foxsports.com/stories/soccer/belgium-world-cup-new-zealand-knockout-group) - **Fox Sports**
-6. [Journalist: Tottenham Eye Liverpool Forward As Reds Face Major Summer Decision](https://anfieldindex.com/95306/journalist-tottenham-eye-liverpool-forward-as-reds-face-major-summer-decision.html) - **Anfieldindex.com**
-7. [Rockets Eye Ime Udoka Reunion With Former NBA Defensive Player of the Year](https://heavy.com/sports/nba/houston-rockets/marcus-smart-rockets-udoka/) - **Heavy.com**
-8. [Luis Díaz continues to prove why he is one of the world’s best wingers](https://www.bavarianfootballworks.com/germany-international-soccer/221424/luis-diaz-continues-to-prove-why-he-is-one-of-the-worlds-best-wingers) - **Bavarian Football Works**
-9. [Belgium’s Leandro Trossard adds to successful year with 2 goals in World Cup win over New Zealand](https://sports.yahoo.com/articles/belgium-leandro-trossard-adds-successful-052512888.html) - **Yahoo Entertainment**
-10. [Tottenham agree deal to sell flop Alejo Veliz](https://sportsview.co.uk/2026/06/tottenham-agree-deal-to-sell-flop-alejo-veliz?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-agree-deal-to-sell-flop-alejo-veliz) - **Sportsview.co.uk**
+1. [Eze says England is using Premier League intensity at World Cup](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_dfe006da-0758-4bb2-9a91-beebf73fa94a) - **Yahoo Entertainment**
+2. [Eze says England is using Premier League intensity at World Cup](https://www.justarsenal.com/eze-says-england-is-using-premier-league-intensity-at-world-cup/417591) - **Just Arsenal News**
+3. [Fulham signs Jonah Kusi-Asare from Bayern Munich for undisclosed fee](https://cryptobriefing.com/fulham-signs-kusi-asare-bayern-munich/) - **Crypto Briefing**
+4. [High school baseball players who had jaw-dropping performances at 2026 MLB Draft Combine](https://www.usatoday.com/story/sports/high-school/baseball/2026/06/27/six-high-schoolers-who-had-elite-performances-at-2026-mlb-draft-combine/90714883007/) - **USA Today**
+5. [Premier League 2026/27 Odds: Title, Top Four & Relegation Betting Guide](https://footballtoday.com/2026/06/27/premier-league-2026-27-odds-title-top-four-relegation-betting-guide/) - **Footballtoday.com**
+6. ['Look at the players Arsenal are talking to' - Finance guru impressed by club's transfer plans](https://www.footballinsider247.com/arsenal/look-at-the-players-arsenal-are-talking-to-finance-guru-impressed-by-clubs-transfer-plans) - **Football Insider**
+7. [FC Barcelona News: 27 June 2026](https://www.barcablaugranes.com/barcelona-news/124802/fc-barcelona-news-27-june-2026-spain-eliminate-uruguay-world-cup-marc-bernal-rejects-premier-league) - **Barca Blaugranes**
+8. [Man Utd Fear Serious Ugarte Knee Injury After World Cup Stretcher Exit](https://strettynews.com/2026/06/27/ugarte-knee-injury-man-utd-scan/) - **Strettynews.com**
+9. [Report: Arsenal have £55m bid rejected for Premier League star](https://eplindex.com/147735/report-arsenal-have-55m-bid-rejected-for-premier-league-star.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-06-28 15:21:31 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-28 18:45:38 (KST) / (하루 100회 제한 준수 중)*
