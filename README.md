@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea veteran Chalobah targeted by both Inter and Como after Solet problem](https://football-italia.net/chelsea-chalobah-target-inter-como-solet/) - **Football Italia**
-2. [Gateshead's Lowery signs one-year extension](https://www.bbc.com/sport/football/articles/c4gy5jy9ndno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [France Supplies the Spectacle Against Norway](https://www.newyorker.com/sports/sporting-scene/france-supplies-the-spectacle-against-norway) - **The New Yorker**
-4. [Rangers manager Derek McInnes pursues Ben Godfrey loan from Atalanta](https://cryptobriefing.com/rangers-ben-godfrey-loan-atalanta/) - **Crypto Briefing**
-5. [The 2 billion-print, $2-pack last hurrah for a World Cup legend: the Panini sticker album’s last ride](https://fortune.com/2026/06/27/panini-world-cup-stickers-sold-out-fanatics-end-era/) - **Fortune**
-6. [Liverpool urged to make surprise move for former Chelsea forward](https://anfieldindex.com/95315/liverpool-urged-to-make-surprise-move-for-former-chelsea-forward.html) - **Anfieldindex.com**
-7. [Mateus Fernandes: Man United’s new plan to beat Spurs to West Ham star](https://thepeoplesperson.com/2026/06/27/mateus-fernandes-man-uniteds-new-plan-to-beat-spurs-to-west-ham-star-312041/) - **The Peoples Person**
-8. [Toxic Bielsa leaves ‘nothing good’ behind as Uruguay suffer World Cup shock](https://www.aljazeera.com/sports/2026/6/27/toxic-bielsa-leaves-nothing-good-behind-in-uruguay-shock-world-cup-exit) - **Al Jazeera English**
-9. [Sky Sports: Everton are in the race to sign Serie A midfielder](https://eplindex.com/147738/sky-sports-tottenham-hotspur-star-leaves-in-8m-move.html) - **English Premier League Index - Opta Stats**
+1. [“Expect bids soon” – Romano reports PSG ready to move for top Ligue 1 talent](https://psgtalk.com/2026/06/romano-reports-psg-ready-to-move-for-top-ligue-1-talent/) - **Psgtalk.com**
+2. [Former Spurs first-round pick poised for NBA return after dominant EuroLeague run](https://www.sportingnews.com/us/nba/san-antonio-spurs/news/former-spurs-first-round-pick-poised-nba-return-after-dominant-euroleague-run/6ce7e9cc8dbacdf832a7902e) - **Sporting News**
+3. [Croatia vs. Ghana odds, prediction, time: 2026 World Cup picks, best bets from expert on 25-13 run](https://www.cbssports.com/soccer/news/croatia-ghana-odds-prediction-line-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+4. [Manchester United face tense injury wait that could impact transfer plans](https://www.101greatgoals.com/football/world-cup-news/manchester-united-face-tense-injury-wait-transfer-plans/) - **101 Great Goals**
+5. [Bruno Guimarães: Liverpool make major decision on United target](https://thepeoplesperson.com/2026/06/27/bruno-guimaraes-liverpool-make-major-decision-on-united-target-312044/) - **The Peoples Person**
+6. [Report Greenwood offer from Fenerbahce was ‘disrespectful’ in boost to Roma](https://football-italia.net/report-greenwood-fenerbahce-disrespectful-roma/) - **Football Italia**
+7. [Promoted Troyes sells forward Detourbet to Manchester City](https://sports.yahoo.com/articles/promoted-troyes-sells-forward-detourbet-160505764.html) - **Yahoo Entertainment**
+8. [Official | Mathys Detourbet joins Manchester City](https://www.getfootballnewsfrance.com/2026/official-mathys-detourbet-joins-manchester-city/) - **Get French Football News**
+9. [Secrets behind Wayne Rooney's astonishing World Cup 'glow up': KATIE HIND reveals what's behind his slimmer physique, thicker hair and fresher complexion...](https://www.dailymail.com/tvshowbiz/article-15934645/Wayne-Rooney-astonishing-World-Cup-KATIE-HIND-reveals-slimmer-physique-thicker-hair-fresher-complexion.html) - **Dailymail.com**
+10. [Secrets behind Wayne Rooney's astonishing World Cup 'glow up': KATIE HIND reveals what's behind his slimmer physique, thicker hair and fresher complexion...](https://www.dailymail.com/tvshowbiz/article-15934645/Wayne-Rooney-astonishing-World-Cup-KATIE-HIND-reveals-slimmer-physique-thicker-hair-fresher-complexion.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-06-29 00:19:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-29 01:39:50 (KST) / (하루 100회 제한 준수 중)*
