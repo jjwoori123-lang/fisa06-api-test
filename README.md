@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Eze says England is using Premier League intensity at World Cup](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_dfe006da-0758-4bb2-9a91-beebf73fa94a) - **Yahoo Entertainment**
-2. [Eze says England is using Premier League intensity at World Cup](https://www.justarsenal.com/eze-says-england-is-using-premier-league-intensity-at-world-cup/417591) - **Just Arsenal News**
-3. [Fulham signs Jonah Kusi-Asare from Bayern Munich for undisclosed fee](https://cryptobriefing.com/fulham-signs-kusi-asare-bayern-munich/) - **Crypto Briefing**
-4. [High school baseball players who had jaw-dropping performances at 2026 MLB Draft Combine](https://www.usatoday.com/story/sports/high-school/baseball/2026/06/27/six-high-schoolers-who-had-elite-performances-at-2026-mlb-draft-combine/90714883007/) - **USA Today**
-5. [Premier League 2026/27 Odds: Title, Top Four & Relegation Betting Guide](https://footballtoday.com/2026/06/27/premier-league-2026-27-odds-title-top-four-relegation-betting-guide/) - **Footballtoday.com**
-6. ['Look at the players Arsenal are talking to' - Finance guru impressed by club's transfer plans](https://www.footballinsider247.com/arsenal/look-at-the-players-arsenal-are-talking-to-finance-guru-impressed-by-clubs-transfer-plans) - **Football Insider**
-7. [FC Barcelona News: 27 June 2026](https://www.barcablaugranes.com/barcelona-news/124802/fc-barcelona-news-27-june-2026-spain-eliminate-uruguay-world-cup-marc-bernal-rejects-premier-league) - **Barca Blaugranes**
-8. [Man Utd Fear Serious Ugarte Knee Injury After World Cup Stretcher Exit](https://strettynews.com/2026/06/27/ugarte-knee-injury-man-utd-scan/) - **Strettynews.com**
-9. [Report: Arsenal have £55m bid rejected for Premier League star](https://eplindex.com/147735/report-arsenal-have-55m-bid-rejected-for-premier-league-star.html) - **English Premier League Index - Opta Stats**
+1. [Arsenal hold talks with Strasbourg technical director Pascal de Maesschalck](https://www.getfootballnewsfrance.com/2026/arsenal-hold-talks-with-strasbourg-technical-director-pascal-de-maesschalck/) - **Get French Football News**
+2. [Liverpool plan to beat Newcastle again in deal for Brazilian midfielder](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-allan-palmeiras-beat-newcastle-again-in-deal-for-brazilian-midfielder/) - **Anfieldwatch.co.uk**
+3. [Chido Obi set for Bundesliga switch as Man United look to continue his development](https://thepeoplesperson.com/2026/06/27/chido-obi-set-for-bundesliga-switch-as-man-united-look-to-continue-his-development-312038/) - **The Peoples Person**
+4. [Croatia vs. Ghana odds, prediction, time: 2026 World Cup picks, best bets from expert on 25-13 run](https://www.cbssports.com/soccer/news/croatia-ghana-odds-prediction-time-2026-world-cup-picks-best-bets/) - **CBS Sports**
+5. [Brighton lodge €34m bid for Italy and Atalanta talent Ahanor](https://football-italia.net/brighton-lodge-34m-bid-for-ahanor/) - **Football Italia**
+6. [Wolves’ Yerson Mosquera and Rangers’ Emmanuel Fernandez targets for Rennes](https://www.getfootballnewsfrance.com/2026/wolves-yerson-mosquera-and-rangers-emmanuel-fernandez-targets-for-rennes/) - **Get French Football News**
+7. [Watch: Premier League Kabaddi - Day One](https://www.bbc.com/sport/live/cdejg8112plt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Why didn’t Arsenal’s Saliba play against Norway?](https://dailycannon.com/2026/06/saliba-france-norway/) - **Dailycannon.com**
+9. [Rennes face Premier League competition to sign Charlie Cresswell](https://www.getfootballnewsfrance.com/2026/rennes-face-premier-league-competition-to-sign-charlie-cresswell/) - **Get French Football News**
+10. [Como bids for Trevoh Chalobah as Inter Milan circles Chelsea defender](https://cryptobriefing.com/como-bids-chalobah-inter-milan-interest/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-06-28 18:45:38 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-28 20:47:43 (KST) / (하루 100회 제한 준수 중)*
