@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Imitation Games by Darragh McGee: Football in the grip of a gambling addiction](https://www.irishtimes.com/culture/books/review/2026/06/27/imitation-games-by-darragh-mcgee-football-in-the-grip-of-a-gambling-addiction/) - **The Irish Times**
-2. [Everton cannot be serious about chasing after Liam Delap again?](http://www.toffeeweb.com/season/25-26/news/47700.html) - **Toffeeweb**
-3. [Current and former Ravens make a list of NFL impact newcomers](https://ravenswire.usatoday.com/story/sports/nfl/ravens/2026/06/27/ravens-current-former-players-2026-new-faces-impact-ranking/90709097007/) - **USA Today**
-4. [Uzbekistan makes its World Cup debut, a first for Central Asia](https://www.npr.org/2026/06/27/g-s1-129705/uzbekistan-world-cup) - **NPR**
-5. [Who would the US need to beat to win the World Cup? Probably only Spain, France and England](https://sports.yahoo.com/articles/us-beat-win-world-cup-134100893.html) - **Yahoo Entertainment**
-6. [Liverpool make contract for Real Madrid midfielder as club weigh summer sale – report](https://madriduniversal.com/liverpool-make-contract-for-real-madrid-midfielder-as-club-weigh-summer-sale-report/) - **Madriduniversal.com**
-7. [Fiorentina want Udogie of Tottenham or Atletico Madrid’s Ruggeri](https://football-italia.net/fiorentina-udogie-tottenham-atletico-ruggeri/) - **Football Italia**
-8. [Nottingham Forest Linked with Liverpool’s Curtis Jones Following Anderson Sale](https://liverpooloffside.sbnation.com/liverpool-fc-transfer-news/81544/nottingham-forest-linked-liverpools-curtis-jones-transfer-anderson-man-city) - **SB Nation**
-9. [World Cup 2026: Who makes the team of the group stage?](https://www.101greatgoals.com/football/world-cup-news/world-cup-2026-who-makes-the-team-of-the-group-stage/) - **101 Great Goals**
-10. [Marcus Rashford: Tuchel explains decision to bench United ace](https://thepeoplesperson.com/2026/06/27/marcus-rashford-tuchel-explains-decision-to-bench-united-ace-312039/) - **The Peoples Person**
+1. [Chelsea veteran Chalobah targeted by both Inter and Como after Solet problem](https://football-italia.net/chelsea-chalobah-target-inter-como-solet/) - **Football Italia**
+2. [Gateshead's Lowery signs one-year extension](https://www.bbc.com/sport/football/articles/c4gy5jy9ndno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [France Supplies the Spectacle Against Norway](https://www.newyorker.com/sports/sporting-scene/france-supplies-the-spectacle-against-norway) - **The New Yorker**
+4. [Rangers manager Derek McInnes pursues Ben Godfrey loan from Atalanta](https://cryptobriefing.com/rangers-ben-godfrey-loan-atalanta/) - **Crypto Briefing**
+5. [The 2 billion-print, $2-pack last hurrah for a World Cup legend: the Panini sticker album’s last ride](https://fortune.com/2026/06/27/panini-world-cup-stickers-sold-out-fanatics-end-era/) - **Fortune**
+6. [Liverpool urged to make surprise move for former Chelsea forward](https://anfieldindex.com/95315/liverpool-urged-to-make-surprise-move-for-former-chelsea-forward.html) - **Anfieldindex.com**
+7. [Mateus Fernandes: Man United’s new plan to beat Spurs to West Ham star](https://thepeoplesperson.com/2026/06/27/mateus-fernandes-man-uniteds-new-plan-to-beat-spurs-to-west-ham-star-312041/) - **The Peoples Person**
+8. [Toxic Bielsa leaves ‘nothing good’ behind as Uruguay suffer World Cup shock](https://www.aljazeera.com/sports/2026/6/27/toxic-bielsa-leaves-nothing-good-behind-in-uruguay-shock-world-cup-exit) - **Al Jazeera English**
+9. [Sky Sports: Everton are in the race to sign Serie A midfielder](https://eplindex.com/147738/sky-sports-tottenham-hotspur-star-leaves-in-8m-move.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-06-28 22:52:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-29 00:19:26 (KST) / (하루 100회 제한 준수 중)*
