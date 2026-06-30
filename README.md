@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Praise pours in for ‘true Canadian heroes’ after last-minute World Cup win](https://www.aljazeera.com/sports/2026/6/29/praise-pours-in-for-true-canadian-heroes-after-last-minute-world-cup-win) - **Al Jazeera English**
-2. [Romano: PSG “verbally agree” contract with huge summer target](https://psgtalk.com/2026/06/romano-psg-verbally-agree-huge-summer-target/) - **Psgtalk.com**
-3. [THE ANALYST - Alex Scott: Why Man United and Arsenal are battling for Bournemouth's £80m 'diamond' - how 'complete player' dominates midfield despite slight frame, the attributes that wowed Mikel Arteta and United's key advantage in race to sign him](https://www.dailymail.com/sport/football/article-15935001/THE-ANALYST-Alex-Scott-Man-United-Arsenal-transfers.html) - **Dailymail.com**
-4. [Canada advances to first ever Round of 16 with win vs. South Africa with late stoppage time goal](https://www.masslive.com/sports/2026/06/canada-advances-to-first-ever-round-of-16-with-win-vs-south-africa-with-late-stoppage-time-goal.html) - **MassLive.com**
-5. [Germany must win to defy World Cup doubters, says Nagelsmann](https://sports.yahoo.com/articles/germany-must-win-defy-world-001119763.html) - **Yahoo Entertainment**
-6. [‘You guys are Canadian heroes’: Jesse Marsch’s emotional speech after Canada’s historic World Cup win over South Africa](https://worldsoccertalk.com/world-cup/you-guys-are-canadian-heroes-jesse-marschs-emotional-speech-after-canadas-historic-world-cup-win-over-south-africa/) - **Worldsoccertalk.com**
-7. [Chad Johnson wears surprising retro Premier League jersey to meet Cristiano Ronaldo at World Cup](https://www.hitc.com/chad-johnson-wears-surprising-retro-premier-league-jersey-to-meet-cristiano-ronaldo-at-world-cup/) - **HITC - Football, Gaming, Movies, TV, Music**
-8. [Jesse Marsch 'Doesn't Care' If USA Joins Canada In World Cup Round of 16](https://www.foxsports.com/stories/soccer/jesse-marsch-doesnt-care-usa-joins-canada-world-cup-round-16) - **Fox Sports**
-9. [United end Osimhen pursuit – Report](https://punchng.com/united-end-osimhen-pursuit-report/) - **The Punch**
-10. [Eustáquio's foot delivers late strike for Canada’s first World Cup knockout win](https://sports.yahoo.com/articles/eust-quios-foot-delivers-strike-230311076.html) - **Yahoo Entertainment**
+1. [Elliot Anderson passes Man City medical in Kansas ahead of £116M transfer announcement](https://cityxtra.co.uk/49098/elliot-anderson-passes-man-city-medical-in-kansas-ahead-of-116m-transfer-announcement/) - **Cityxtra.co.uk**
+2. [Florida, family propel Palm Beach Gardens’ Madelyne Anderson to AVP League stage](https://www.sun-sentinel.com/2026/06/29/florida-family-propel-madelyne-anderson-to-avp-league-stage/) - **Sun Sentinel**
+3. [When five Wimbledon titles in one weekend changed British tennis](https://www.bbc.com/sport/tennis/articles/cgev5n0vqv3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Why Does Chelsea Want Sunderland’s Granit Xhaka?](https://www.forbes.com/sites/grahamruthven/2026/06/29/why-does-chelsea-want-sunderlands-granit-xhaka/) - **Forbes**
+5. [Morgan's licence to inspire female Welsh coaches](https://www.bbc.com/sport/football/articles/crkvxrxr4v6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Brian Brobbey: Sunderland’s asking price for United target revealed](https://thepeoplesperson.com/2026/06/29/brian-brobbey-sunderlands-asking-price-for-united-target-revealed-312080/) - **The Peoples Person**
+7. [On This Day (29th June 1994): Smith Looks To Reunite With Sunderland Midfielder!](https://rokerreport.sbnation.com/features/139983/on-this-day-29th-june-1994-smith-looks-to-reunite-with-sunderland-midfielder) - **SB Nation**
+8. [The Rise Of ‘Supporter Brands’ And What Sunderland Can Learn From Them](https://rokerreport.sbnation.com/opinion/143103/the-rise-of-supporter-brands-and-what-sunderland-can-learn-from-them) - **SB Nation**
+9. [’COULD YOU IMAGINE,’ ’Absolutely Disgusting’ — NBA World Reacts to Warriors’ Plan To Unite LeBron James, Anthony Davis With Stephen Curry](https://www.profootballnetwork.com/nba/could-you-imagine-absolutely-disgusting-nba-world-reacts-warriors-plan-unite-lebron-james-anthony-davis-stephen-curry-june-2026/?utm_medium=rss&amp;utm_source=nordot) - **Pro Football Network**
 
 
 ---
-*최근 업데이트: 2026-06-30 10:27:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-30 14:53:06 (KST) / (하루 100회 제한 준수 중)*
