@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool Are Showing Interest In This Talented Playmaker: Good Option For Iraola?](https://the4thofficial.net/2026/06/liverpool-are-showing-interest-in-this-talented-playmaker/) - **The4thofficial.net**
-2. [Aston Villa want £130m for Arsenal target Morgan Rogers](https://sportsview.co.uk/2026/06/aston-villa-want-130m-for-arsenal-target-morgan-rogers?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=aston-villa-want-130m-for-arsenal-target-morgan-rogers) - **Sportsview.co.uk**
-3. [Xabi Alonso wants Real Madrid midfielder if Enzo Fernandez secures Bernabeu move – report](https://madriduniversal.com/xabi-alonso-wants-real-madrid-midfielder-if-enzo-fernandez-secures-bernabeu-move-report/) - **Madriduniversal.com**
-4. [London-born DR Congo fullback Aaron Wan-Bissaka aims to derail England at World Cup](https://cryptobriefing.com/wan-bissaka-dr-congo-england-world-cup/) - **Crypto Briefing**
-5. [Three forwards on list as Yan Diomande moves away from Liverpool deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-yan-diomande-psg-el-mala-barcola-rayan/) - **Anfieldwatch.co.uk**
-6. [How Will Manchester City Change Under Enzo Maresca’s Control?](https://www.forbes.com/sites/grahamruthven/2026/06/29/how-will-manchester-city-change-under-enzo-marescas-control/) - **Forbes**
-7. [Former Premier League cult hero fails to qualify for The Open for second year running](https://www.dailymail.com/sport/football/article-15939185/Former-Premier-League-cult-hero-fails-qualify-Open.html) - **Dailymail.com**
-8. [Liverpool transfer blow as Diomande prefers PSG move — Reports](https://www.vanguardngr.com/2026/06/liverpool-transfer-blow-as-diomande-prefers-psg-move-reports/) - **Vanguard**
-9. [3 Lessons Utah Jazz Fans Can Learn From the 2026 Finals](https://www.slcdunk.com/utah-jazz-game-coverage/69073/3-lessons-utah-jazz-fans-can-learn-from-the-2026-finals) - **Slcdunk.com**
+1. [Aston Villa Launch €70m Bid For This Manchester City Star: Why Should They Not Go Ahead?](https://the4thofficial.net/2026/06/aston-villa-launch-e70m-bid-for-this-manchester-city-star-why-should-they-not-go-ahead/) - **The4thofficial.net**
+2. [Ancelotti says never doubted 'suffering' Brazil would score](https://sports.yahoo.com/articles/ancelotti-says-never-doubted-suffering-210223059.html) - **Yahoo Entertainment**
+3. [Bruno Guimarães becomes first Brazilian with 4 assists in a World Cup since Zico in 1982](https://cryptobriefing.com/bruno-guimaraes-four-assists-world-cup-zico/) - **Crypto Briefing**
+4. [Inter: ‘Realistic’ on Jones, Camavinga and Solet problems](https://football-italia.net/inter-realistic-jones-camavinga-solet-problems/) - **Football Italia**
+5. [Como secures agreement for Nico Paz to stay next season in complex Real Madrid deal](https://cryptobriefing.com/como-nico-paz-real-madrid-deal/) - **Crypto Briefing**
+6. [Bournemouth reject Arsenal interest in Scott](https://www.bbc.com/sport/football/articles/ce8mgmr732do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Bournemouth reject Arsenal interest in Scott](https://www.bbc.co.uk/sport/football/articles/ce8mgmr732do) - **BBC News**
+8. [Netherlands vs. Morocco odds, prediction, time: 2026 World Cup Round of 32 picks from expert on 25-13 run](https://www.cbssports.com/soccer/news/netherlands-morocco-odds-prediction-line-start-time-2026-world-cup-round-of-32-picks/) - **CBS Sports**
+9. [Brazil 2-1 Japan: The Selecao prevail after Casemiro's first-half horror show - but the caveats are huge as Carlo Ancelotti is given cause for concern](https://www.dailymail.com/sport/football/article-15937999/Brazil-2-1-Japan-Selecao-prevail-Casemiros-half-horror-caveats-huge-Carlo-Ancelotti-given-cause-concern.html) - **Dailymail.com**
+10. [Matheus Cunha’s former Brazil coach opens up on their unique bond](https://thepeoplesperson.com/2026/06/29/matheus-cunhas-former-brazil-coach-opens-up-on-their-unique-bond-312109/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-07-01 04:10:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-01 06:09:01 (KST) / (하루 100회 제한 준수 중)*
