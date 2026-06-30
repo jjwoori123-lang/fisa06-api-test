@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Elliot Anderson passes Man City medical in Kansas ahead of £116M transfer announcement](https://cityxtra.co.uk/49098/elliot-anderson-passes-man-city-medical-in-kansas-ahead-of-116m-transfer-announcement/) - **Cityxtra.co.uk**
-2. [Florida, family propel Palm Beach Gardens’ Madelyne Anderson to AVP League stage](https://www.sun-sentinel.com/2026/06/29/florida-family-propel-madelyne-anderson-to-avp-league-stage/) - **Sun Sentinel**
-3. [When five Wimbledon titles in one weekend changed British tennis](https://www.bbc.com/sport/tennis/articles/cgev5n0vqv3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Why Does Chelsea Want Sunderland’s Granit Xhaka?](https://www.forbes.com/sites/grahamruthven/2026/06/29/why-does-chelsea-want-sunderlands-granit-xhaka/) - **Forbes**
-5. [Morgan's licence to inspire female Welsh coaches](https://www.bbc.com/sport/football/articles/crkvxrxr4v6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Brian Brobbey: Sunderland’s asking price for United target revealed](https://thepeoplesperson.com/2026/06/29/brian-brobbey-sunderlands-asking-price-for-united-target-revealed-312080/) - **The Peoples Person**
-7. [On This Day (29th June 1994): Smith Looks To Reunite With Sunderland Midfielder!](https://rokerreport.sbnation.com/features/139983/on-this-day-29th-june-1994-smith-looks-to-reunite-with-sunderland-midfielder) - **SB Nation**
-8. [The Rise Of ‘Supporter Brands’ And What Sunderland Can Learn From Them](https://rokerreport.sbnation.com/opinion/143103/the-rise-of-supporter-brands-and-what-sunderland-can-learn-from-them) - **SB Nation**
-9. [’COULD YOU IMAGINE,’ ’Absolutely Disgusting’ — NBA World Reacts to Warriors’ Plan To Unite LeBron James, Anthony Davis With Stephen Curry](https://www.profootballnetwork.com/nba/could-you-imagine-absolutely-disgusting-nba-world-reacts-warriors-plan-unite-lebron-james-anthony-davis-stephen-curry-june-2026/?utm_medium=rss&amp;utm_source=nordot) - **Pro Football Network**
+1. [Albion's summer transfer strategy is clear from the off](https://www.bbc.com/sport/football/articles/cn4rd3nznv3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [United's midfield issues](https://www.bbc.com/sport/football/articles/cg53gerj0meo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Arsenal handed the chance to sign another Newcastle United star](https://www.justarsenal.com/arsenal-handed-the-chance-to-sign-another-newcastle-united-star/417723) - **Just Arsenal News**
+4. [FIFA World Cup: Ivory Coast Gear Up For Haaland Challenge](https://www.rediff.com/sports/report/fifa-world-cup-2026-ivory-coasts-strategy-to-counter-erling-haaland/20260629.htm) - **Rediff.com**
+5. [Chelsea eyes move for World Cup star linked to Barcelona](https://cryptobriefing.com/chelsea-transfer-world-cup-star-barcelona/) - **Crypto Briefing**
+6. [Rangers sign Ben Godfrey on loan from Atalanta as McInnes builds his squad](https://cryptobriefing.com/rangers-sign-ben-godfrey-loan-atalanta-mcinnes/) - **Crypto Briefing**
+7. [Milan to Acquire Ramos from PSG in Record-Breaking Deal](https://cultofcalcio.com/milan-to-acquire-ramos-from-psg-in-record-breaking-deal/) - **Cultofcalcio.com**
+8. [Truro City appoint experienced Elstone as advisor](https://www.bbc.com/sport/football/articles/c3ry1w3dqzyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Rangers sign ex-Everton defender Godfrey on loan from Atalanta](https://www.skysports.com/football/news/11788/13558797/ben-godfrey-rangers-sign-ex-everton-defender-on-season-long-loan-from-atalanta) - **Sky Sports**
+10. [Man Utd confirm Ugarte knee ligament damage](https://thechronicle.com.gh/man-utd-confirm-ugarte-knee-ligament-damage/) - **Thechronicle.com.gh**
 
 
 ---
-*최근 업데이트: 2026-06-30 14:53:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-30 18:41:56 (KST) / (하루 100회 제한 준수 중)*
