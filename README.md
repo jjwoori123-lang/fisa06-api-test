@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Albion's summer transfer strategy is clear from the off](https://www.bbc.com/sport/football/articles/cn4rd3nznv3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [United's midfield issues](https://www.bbc.com/sport/football/articles/cg53gerj0meo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Arsenal handed the chance to sign another Newcastle United star](https://www.justarsenal.com/arsenal-handed-the-chance-to-sign-another-newcastle-united-star/417723) - **Just Arsenal News**
-4. [FIFA World Cup: Ivory Coast Gear Up For Haaland Challenge](https://www.rediff.com/sports/report/fifa-world-cup-2026-ivory-coasts-strategy-to-counter-erling-haaland/20260629.htm) - **Rediff.com**
-5. [Chelsea eyes move for World Cup star linked to Barcelona](https://cryptobriefing.com/chelsea-transfer-world-cup-star-barcelona/) - **Crypto Briefing**
-6. [Rangers sign Ben Godfrey on loan from Atalanta as McInnes builds his squad](https://cryptobriefing.com/rangers-sign-ben-godfrey-loan-atalanta-mcinnes/) - **Crypto Briefing**
-7. [Milan to Acquire Ramos from PSG in Record-Breaking Deal](https://cultofcalcio.com/milan-to-acquire-ramos-from-psg-in-record-breaking-deal/) - **Cultofcalcio.com**
-8. [Truro City appoint experienced Elstone as advisor](https://www.bbc.com/sport/football/articles/c3ry1w3dqzyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Rangers sign ex-Everton defender Godfrey on loan from Atalanta](https://www.skysports.com/football/news/11788/13558797/ben-godfrey-rangers-sign-ex-everton-defender-on-season-long-loan-from-atalanta) - **Sky Sports**
-10. [Man Utd confirm Ugarte knee ligament damage](https://thechronicle.com.gh/man-utd-confirm-ugarte-knee-ligament-damage/) - **Thechronicle.com.gh**
+1. [World Cup 2026 R32 England vs. DR Congo Prediction: Knockout Preview & Best Bets](https://thecelticstar.com/world-cup-r32-england-dr-congo-predictions/) - **The Celtic Star**
+2. [Transfer fee revealed as Eintracht Frankfurt defender's move to Coventry nears completion](https://bulinews.com/transfer-fee-revealed-eintracht-frankfurt-defender-move-coventry-nears-completion) - **Bulinews.com**
+3. [Where is Avesh Khan? The lanky pacer eyes India comeback via Ranji Trophy](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9df29399-71a7-4538-9892-9e0ec16d79ac) - **Yahoo Entertainment**
+4. [Monza turn to Juric for return to Serie A](https://sports.yahoo.com/articles/monza-turn-juric-return-serie-114312672.html) - **Yahoo Entertainment**
+5. [ No rest, no subs! This World Cup star smashes all fitness records](https://onefootball.com/en/news/no-rest-no-subs-this-world-cup-star-smashes-all-fitness-records-43072172) - **Onefootball.com**
+6. [Fernandes and Cunha handed prestigious honours for World Cup displays](https://thepeoplesperson.com/2026/06/29/fernandes-and-cunha-handed-prestigious-honours-for-world-cup-displays-312093/) - **The Peoples Person**
+7. [Brandt can be 'game-changer' for Leeds](https://www.bbc.com/sport/football/articles/cgjxwnnqjpzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Liam Rosenior in talks with new club over return to France - two months after ending Chelsea nightmare](https://www.dailymail.com/sport/football/article-15938157/Liam-Rosenior-talks-new-club-return-France-Chelsea.html) - **Dailymail.com**
+9. [Ben Godfrey joins Rangers on loan](https://www.playmakerstats.com/news/ben-godfrey-joins-rangers-on-loan/1151264) - **Playmakerstats.com**
 
 
 ---
-*최근 업데이트: 2026-06-30 18:41:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-06-30 21:11:18 (KST) / (하루 100회 제한 준수 중)*
