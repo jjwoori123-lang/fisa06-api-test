@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Majestic Olise raises France to another level at World Cup](https://sports.yahoo.com/articles/majestic-olise-raises-france-another-042557192.html) - **Yahoo Entertainment**
-2. [Able Made Soccer Brand Gets $2 Million in Seed Money](http://wwd.com/business-news/financial/able-made-soccer-2-million-seed-money-suzanne-mckenzie-1239045647/) - **WWD**
-3. [Have England won the World Cup? Three Lions' all-time record at FIFA finals](https://www.sportingnews.com/us/soccer/news/have-england-won-world-cup-three-lions-all-time-record-fifa-finals/c670a6380c53747a5ce9f501) - **Sporting News**
-4. [Bayern Munich News: Is Michael Olise wavering on FC Bayern future?; Newcastle eyeing BVB’s Felix Nmecha; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/223076/bayern-munich-olise-newcastle-bvb-nmecha-real-madrid-fc-barcelona-manchester-city-united) - **Bavarian Football Works**
-5. [Carolina Needs to Sign Carlson Right Now](https://easysportz.com/2026/06/carolina-needs-to-sign-carlson-right-now/) - **Easysportz.com**
-6. [USA face Bosnia in World Cup knockouts, with pride, credentials on the line](https://www.aljazeera.com/sports/2026/7/1/usa-face-bosnia-in-world-cup-knockouts-with-pride-credentials-on-the-line) - **Al Jazeera English**
-7. [NPFL sets date for 2026/27 season](https://punchng.com/npfl-sets-date-for-2026-27-season/) - **The Punch**
-8. [49ers roster ranks strong everywhere except one spot](https://ninerswire.usatoday.com/story/sports/nfl/niners/2026/06/30/49ers-roster-ranks-strong-everywhere-except-one-spot/90761059007/) - **USA Today**
-9. [Vinicius Junior transfer speculation heats up as one destination gets ruled out](https://cryptobriefing.com/vinicius-junior-transfer-crypto-meme-tokens/) - **Crypto Briefing**
+1. [How good is Bosnia and Herzegovina in soccer? What to know about USMNT's knockout opponent in 2026 World Cup](https://www.sportingnews.com/us/soccer/news/how-good-bosnia-soccer-usmnt-knockout-opponent-world-cup/f23675ea3b47ddc4321ec721) - **Sporting News**
+2. [Bosnia-Herzegovina XI vs USA – Predicted lineup and team news](https://thefootballfaithful.com/bosnia-herzegovina-xi-vs-usa-predicted-lineup-and-team-news/) - **The Football Faithful**
+3. [USA vs Bosnia-Herzegovina – Match preview and team news](https://thefootballfaithful.com/usa-vs-bosnia-herzegovina-match-preview-and-team-news/) - **The Football Faithful**
+4. [Virgil van Dijk transfer rumors swirl, but Liverpool’s captain isn’t going anywhere yet](https://cryptobriefing.com/van-dijk-liverpool-transfer-rumors/) - **Crypto Briefing**
+5. [World Cup: England face DR Congo hurdle, USA set eyes on Round of 16 place](https://www.vanguardngr.com/2026/07/world-cup-england-face-dr-congo-hurdle-usa-set-eyes-on-round-of-16-place/) - **Vanguard**
+6. [Relegated star positioned to be Liverpool’s surprise saviour](https://www.anfieldwatch.co.uk/liverpool-fc/news/relegated-star-positioned-to-be-liverpools-surprise-saviour/) - **Anfieldwatch.co.uk**
+7. [Arsenal star becomes second player to be sent off at World Cup for covering his mouth - as Ecuador are knocked out at the last-32 stage by Mexico](https://www.dailymail.com/sport/football/article-15943757/Arsenal-star-Piero-Hincapie-second-player-sent-World-Cup-covering-mouth-Ecuador-Mexico.html) - **Dailymail.com**
+8. [Arsenal star becomes second player to be sent off at World Cup for covering his mouth - as Ecuador are knocked out at the last-32 stage by Mexico](https://www.dailymail.com/sport/football/article-15943757/Arsenal-star-Piero-Hincapie-second-player-sent-World-Cup-covering-mouth-Ecuador-Mexico.html) - **Dailymail.com**
+9. [Newcastle, Villa and Chelsea all caught out by Uefa’s fianncial rules; fines imposed.](https://untold-arsenal.com/archives/121529) - **Untold-arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-07-02 13:33:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-02 16:54:31 (KST) / (하루 100회 제한 준수 중)*
