@@ -1,15 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How good is Bosnia and Herzegovina in soccer? What to know about USMNT's knockout opponent in 2026 World Cup](https://www.sportingnews.com/us/soccer/news/how-good-bosnia-soccer-usmnt-knockout-opponent-world-cup/f23675ea3b47ddc4321ec721) - **Sporting News**
-2. [Bosnia-Herzegovina XI vs USA – Predicted lineup and team news](https://thefootballfaithful.com/bosnia-herzegovina-xi-vs-usa-predicted-lineup-and-team-news/) - **The Football Faithful**
-3. [USA vs Bosnia-Herzegovina – Match preview and team news](https://thefootballfaithful.com/usa-vs-bosnia-herzegovina-match-preview-and-team-news/) - **The Football Faithful**
-4. [Virgil van Dijk transfer rumors swirl, but Liverpool’s captain isn’t going anywhere yet](https://cryptobriefing.com/van-dijk-liverpool-transfer-rumors/) - **Crypto Briefing**
-5. [World Cup: England face DR Congo hurdle, USA set eyes on Round of 16 place](https://www.vanguardngr.com/2026/07/world-cup-england-face-dr-congo-hurdle-usa-set-eyes-on-round-of-16-place/) - **Vanguard**
-6. [Relegated star positioned to be Liverpool’s surprise saviour](https://www.anfieldwatch.co.uk/liverpool-fc/news/relegated-star-positioned-to-be-liverpools-surprise-saviour/) - **Anfieldwatch.co.uk**
-7. [Arsenal star becomes second player to be sent off at World Cup for covering his mouth - as Ecuador are knocked out at the last-32 stage by Mexico](https://www.dailymail.com/sport/football/article-15943757/Arsenal-star-Piero-Hincapie-second-player-sent-World-Cup-covering-mouth-Ecuador-Mexico.html) - **Dailymail.com**
-8. [Arsenal star becomes second player to be sent off at World Cup for covering his mouth - as Ecuador are knocked out at the last-32 stage by Mexico](https://www.dailymail.com/sport/football/article-15943757/Arsenal-star-Piero-Hincapie-second-player-sent-World-Cup-covering-mouth-Ecuador-Mexico.html) - **Dailymail.com**
-9. [Newcastle, Villa and Chelsea all caught out by Uefa’s fianncial rules; fines imposed.](https://untold-arsenal.com/archives/121529) - **Untold-arsenal.com**
+1. ['It's all about this town' - Frevola on stadium expansion](https://www.bbc.com/sport/football/articles/c5yz5lvrne3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Spurs complete club-record £85m Fernandes signing](https://www.skysports.com/football/news/11095/13559479/mateus-fernandes-transfer-news-midfielder-set-for-medical-after-spurs-beat-man-utd-to-lb85m-deal) - **Sky Sports**
+3. ['A big dream for me' - Jacquet officialy joins Liverpool](https://www.rte.ie/sport/soccer/2026/0701/1581241-a-big-dream-for-me-jacquet-officialy-joins-liverpool/) - **RTE**
+4. [MLB trade rumors: Tarik Skubal among 7 potential All-Stars who could soon switch teams](https://www.usatoday.com/story/sports/mlb/columnist/bob-nightengale/2026/07/01/mlb-trade-rumors-all-stars-switching-teams-tarik-skubal/90764127007/) - **USA Today**
+5. ['A big dream for me': Jacquet officially joins Liverpool from Rennes](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260701-99-923361/) - **Dpa-international.com**
+6. [Report: Everton hoping to complete move for Premier League attacker](https://eplindex.com/147838/report-everton-hoping-to-complete-move-for-premier-league-attacker.html) - **English Premier League Index - Opta Stats**
+7. [Every Eze goal and assist in 2025/26](http://www.arsenal.com/news/every-eze-goal-and-assist-202526) - **Arsenal.com**
+8. [Rivals make move for Liverpool linked midfielder](https://anfieldindex.com/95395/rivals-make-move-for-liverpool-linked-midfielder.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-07-02 16:54:31 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-02 19:43:22 (KST) / (하루 100회 제한 준수 중)*
