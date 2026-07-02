@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Spurs target West Ham's Summerville - Thursday's gossip](https://www.bbc.com/sport/football/articles/cx2krd2yzwxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Spurs target West Ham's Summerville - Thursday's gossip](https://www.bbc.co.uk/sport/football/articles/cx2krd2yzwxo) - **BBC News**
-3. [Liverpool Reignite Their Interest In This Wolves Youngster: One For The Future?](https://the4thofficial.net/2026/07/liverpool-reignite-their-interest-in-this-wolves-youngster/) - **The4thofficial.net**
-4. [Zlatan Ibrahimovic singles out England star who 'struggled' in midfield during dramatic 2-1 win over DR Congo - and claims Thomas Tuchel's side are 'suffering physically'](https://www.dailymail.com/sport/football/article-15946023/Zlatan-Ibrahimovic-singles-England-star-struggled-DR-Congo.html) - **Dailymail.com**
-5. [Report: Spurs' spending spree continues with $133-million Sandro Tonali deal agreed](https://www.nbcsports.com/soccer/news/report-spurs-spending-spree-continues-with-133-million-sandro-tonali-deal-agreed) - **NBCSports.com**
-6. [2026 World Cup picks, odds: USA vs. Bosnia and Herzegovina predictions, best bets by expert on 25-15 run](https://www.cbssports.com/soccer/news/2026-world-cup-picks-odds-to-advance-usa-bosnia-and-herzegovina-predictions-soccer-best-bets/) - **CBS Sports**
-7. [Emmanuel Petit left shocked by Aston Villa’s ‘ridiculous’ asking price for Arsenal target Morgan Rogers](https://footballtoday.com/2026/07/01/emmanuel-petit-left-shocked-by-aston-villas-ridiculous-asking-price-for-arsenal-target-morgan-rogers/) - **Footballtoday.com**
-8. [OFFICIAL: Blackhawks Sign Byram To Lucrative Six-Year Contract Extension](https://chicagohockeynow.com/official-blackhawks-sign-byram-to-lucrative-six-year-contract-extension/) - **Chicagohockeynow.com**
-9. [Update On The Future Of This Sunderland Youngster: Good Move For Everyone Involved?](https://the4thofficial.net/2026/07/update-on-the-future-of-this-sunderland-youngster/) - **The4thofficial.net**
-10. [England and Brazil set for potential World Cup quarter-final clash with Manchester United teammates on opposite sides](https://cryptobriefing.com/england-brazil-world-cup-quarter-final/) - **Crypto Briefing**
+1. [Former Seminole earns spot in MLB's Futures Game](https://fsuwire.usatoday.com/story/sports/college/fsu/baseball/2026/07/01/fsu-baseball-jamie-arnold-mlb-futures-game/90774780007/) - **USA Today**
+2. [Tottenham agree club record £100m move for Newcastle’s Tonali](https://www.vanguardngr.com/2026/07/tottenham-agree-club-record-100m-move-for-newcastles-tonali/) - **Vanguard**
+3. [LeBron James is just the second player coming off an All-Star season to leave the Lakers in free agency](https://www.hoopshype.com/story/sports/nba/2026/07/01/lebron-james-second-player-coming-off-all-star-season-to-leave-the-lakers-in-free-agecy/90772436007/) - **Hoops Hype**
+4. [Newcastle agree deal for Ivory Coast winger Toure](https://www.101greatgoals.com/football/premier-league/newcastle-agree-deal-for-ivory-coast-winger-toure/) - **101 Great Goals**
+5. [Real Madrid offer midfielder to Manchester City – Direct contacts held between two clubs](https://cityxtra.co.uk/49326/real-madrid-offer-midfielder-to-manchester-city-direct-contacts-held-between-two-clubs/) - **Cityxtra.co.uk**
+6. [Manchester United Are Eager To Move In For This Bournemouth Midfielder: Good Fit For Carrick?](https://the4thofficial.net/2026/07/manchester-united-are-eager-to-move-in-for-this-bournemouth-midfielder/) - **The4thofficial.net**
+7. [Arsenal wants to sign a player that Leeds United just released](https://www.justarsenal.com/arsenal-wants-to-sign-a-player-that-leeds-united-just-released/417869) - **Just Arsenal News**
+8. [Spurs agree club record £100 mn move for Newcastle's Tonali - reports](https://sports.yahoo.com/articles/spurs-agree-club-record-100-205058059.html) - **Yahoo Entertainment**
+9. [Chelsea Are In Talks To Land This Bournemouth Forward: Should Alonso Snap Him Up?](https://the4thofficial.net/2026/07/chelsea-are-in-talks-to-land-this-bournemouth-forward/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-07-03 05:20:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-03 06:47:49 (KST) / (하루 100회 제한 준수 중)*
