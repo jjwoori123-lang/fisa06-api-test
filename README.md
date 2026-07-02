@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Alex Scott: Why Bournemouth ace is better for Man United than Fernandes](https://thepeoplesperson.com/2026/06/30/alex-scott-why-bournemouth-ace-is-better-for-man-united-than-fernandes-312172/) - **The Peoples Person**
-2. [Taking over the World Cup, 'Viking Row' steers Norway to round of 16](https://www.usatoday.com/story/sports/soccer/worldcup/2026/06/30/norway-viking-row-celebration-world-cup-ivory-coast-haaland-odegaard/90759073007/) - **USA Today**
-3. [Rosenior nears management return at Paris FC](https://www.bbc.com/sport/football/articles/cx2x0pd01dno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Rosenior nears management return at Paris FC](https://www.bbc.co.uk/sport/football/articles/cx2x0pd01dno) - **BBC News**
-5. [Netherlands head coach Ronald Koeman steps down after World Cup Round of 32 exit](https://www.sportingnews.com/us/soccer/news/netherlands-head-coach-ronald-koeman-steps-down-world-cup/1135db263505e01a0e7ac6a5) - **Sporting News**
-6. [Why Zlatan Ibrahimović Told Erling Haaland To 'Never' Cut His Hair](https://www.foxsports.com/stories/soccer/why-zlatan-ibrahimovic-told-erling-haaland-never-cut-his-hair) - **Fox Sports**
-7. [Rangers agree £6m deal for Hull goalkeeper Pandur... with Butland set to go the other way](https://www.dailymail.com/sport/football/article-15942957/Rangers-agree-6m-deal-Hull-goalkeeper-Pandur-Butland-set-way.html) - **Dailymail.com**
-8. [Who am I? (Quiz 6)](https://www.managingmadrid.com/real-madrid-cf-players/109662/who-am-i-quiz-6) - **Managing Madrid**
-9. [Manchester United Are Showing Interest In This Bundesliga Midfielder: Should Carrick Launch A Move?](https://the4thofficial.net/2026/06/manchester-united-are-showing-interest-in-this-bundesliga-midfielder-should-carrick-launch-a-move/) - **The4thofficial.net**
-10. [Liverpool eyeing up deal for £35m Championship winger after missing out on Yan Diomande](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-mateus-mane-wolves-35m-championship-winger-after-missing-out-on-yan-diomande/) - **Anfieldwatch.co.uk**
+1. [Mexico vs. Ecuador lineups, starting 11 for World Cup Round of 32 game in Mexico City](https://www.sportingnews.com/us/soccer/news/mexico-vs-ecuador-lineups-starting-11-world-cup/58bc84da64ad359f8f48889d) - **Sporting News**
+2. [Ken Early: France prove they simply can’t play boring football in sweeping aside Sweden](https://www.irishtimes.com/sport/soccer/2026/07/01/ken-early-france-prove-they-simply-cant-play-boring-football-in-sweeping-aside-sweden/) - **The Irish Times**
+3. [Here’s Everything New on Paramount+ in July 2026](https://www.thewrap.com/creative-content/what-to-watch/new-on-paramount-streaming-july-2026/) - **TheWrap**
+4. [LeBron James sweepstakes has surprise team in NBA free agency](https://www.thebiglead.com/lebron-james-sweepstakes-has-surprise-team-in-nba-free-agency/) - **The Big Lead**
+5. [France through to World Cup last 16 with 3-0 Sweden win](https://www.vanguardngr.com/2026/07/france-through-to-world-cup-last-16-with-3-0-sweden-win/) - **Vanguard**
+6. [Mbappe scores twice as France breeze past Sweden into World Cup last 16](https://sports.yahoo.com/articles/mbappe-scores-twice-france-breeze-230359525.html) - **Yahoo Entertainment**
+7. [France beat Sweden as Mbappe draws level with Messi in World Cup goal chart](https://www.aljazeera.com/sports/2026/6/30/mbappe-and-barcola-score-as-france-shine-in-2-0-world-cup-defeat-of-sweden) - **Al Jazeera English**
+8. [Inside 'football nerd' Thomas Tuchel's rise from German fifth-tier to leader of England's World Cup dreams](https://www.cbssports.com/soccer/news/inside-thomas-tuchels-rise-german-fifth-tier-england-world-cup/) - **CBS Sports**
+9. [Penalties Can Be Cruel. How Will The USA Approach Them?](https://www.foxsports.com/stories/soccer/usmnt-world-cup-penalty-kicks-pulisic-tillman) - **Fox Sports**
+10. [Alex Scott: Why Bournemouth ace is better for Man United than Fernandes](https://thepeoplesperson.com/2026/06/30/alex-scott-why-bournemouth-ace-is-better-for-man-united-than-fernandes-312172/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-07-02 07:42:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-02 09:10:53 (KST) / (하루 100회 제한 준수 중)*
