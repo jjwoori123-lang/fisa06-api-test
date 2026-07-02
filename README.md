@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Done Deal: Tonali to Tottenham for Italian record £99.5m fee from Newcastle](https://football-italia.net/done-deal-tonali-to-tottenham-99-5m-newcastle/) - **Football Italia**
-2. [At a fan-owned club, a 'band of optimists' reflects Canada's soccer moment](https://www.channelnewsasia.com/sport/fan-owned-club-band-optimists-reflects-canadas-soccer-moment-6225736) - **CNA**
-3. [Big-spending Tottenham prepare to break the bank AGAIN as they finalise £100m deal for Sandro Tonali](https://www.dailymail.com/sport/football/article-15945847/Big-spending-Tottenham-prepare-break-bank-finalise-100m-deal-Sandro-Tonali.html) - **Dailymail.com**
-4. [Everton Want To Spend £20m On PL Attacker: Should They Move For This Unproven Teenager?](https://the4thofficial.net/2026/07/everton-want-to-spend-20m-on-pl-attacker-should-they-move-for-this-unproven-teenager/) - **The4thofficial.net**
-5. [Salah fitness race in focus for Egypt ahead of Australia clash](https://www.channelnewsasia.com/sport/salah-fitness-race-in-focus-egypt-ahead-australia-clash-6225726) - **CNA**
-6. [Curtis Jones makes Nottingham Forest decision following £116m midfielder deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-curtis-jones-makes-nottingham-forest-decision-following-ps116m-midfielder-deal/) - **Anfieldwatch.co.uk**
-7. [Kanes Comes Through: 4 Takeaways From England's Nervy Comeback Win vs. DR Congo](https://www.foxsports.com/stories/soccer/kanes-comes-through-4-takeaways-from-englands-nervy-comeback-win-vs-dr-congo) - **Fox Sports**
-8. [DR Congo World Cup star Chancel Mbemba ‘thought he was being kidnapped’ in bizarre mix-up in England](https://www.hitc.com/dr-congo-world-cup-star-chancel-mbemba-thought-he-was-being-kidnapped-in-bizarre-mix-up-in-england/) - **HITC - Football, Gaming, Movies, TV, Music**
-9. [Kit Margetson: Swansea goalkeeper to join Manchester United](https://thepeoplesperson.com/2026/07/01/kit-margetson-swansea-goalkeeper-to-join-manchester-united-312217/) - **The Peoples Person**
+1. [Spurs target West Ham's Summerville - Thursday's gossip](https://www.bbc.com/sport/football/articles/cx2krd2yzwxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Spurs target West Ham's Summerville - Thursday's gossip](https://www.bbc.co.uk/sport/football/articles/cx2krd2yzwxo) - **BBC News**
+3. [Liverpool Reignite Their Interest In This Wolves Youngster: One For The Future?](https://the4thofficial.net/2026/07/liverpool-reignite-their-interest-in-this-wolves-youngster/) - **The4thofficial.net**
+4. [Zlatan Ibrahimovic singles out England star who 'struggled' in midfield during dramatic 2-1 win over DR Congo - and claims Thomas Tuchel's side are 'suffering physically'](https://www.dailymail.com/sport/football/article-15946023/Zlatan-Ibrahimovic-singles-England-star-struggled-DR-Congo.html) - **Dailymail.com**
+5. [Report: Spurs' spending spree continues with $133-million Sandro Tonali deal agreed](https://www.nbcsports.com/soccer/news/report-spurs-spending-spree-continues-with-133-million-sandro-tonali-deal-agreed) - **NBCSports.com**
+6. [2026 World Cup picks, odds: USA vs. Bosnia and Herzegovina predictions, best bets by expert on 25-15 run](https://www.cbssports.com/soccer/news/2026-world-cup-picks-odds-to-advance-usa-bosnia-and-herzegovina-predictions-soccer-best-bets/) - **CBS Sports**
+7. [Emmanuel Petit left shocked by Aston Villa’s ‘ridiculous’ asking price for Arsenal target Morgan Rogers](https://footballtoday.com/2026/07/01/emmanuel-petit-left-shocked-by-aston-villas-ridiculous-asking-price-for-arsenal-target-morgan-rogers/) - **Footballtoday.com**
+8. [OFFICIAL: Blackhawks Sign Byram To Lucrative Six-Year Contract Extension](https://chicagohockeynow.com/official-blackhawks-sign-byram-to-lucrative-six-year-contract-extension/) - **Chicagohockeynow.com**
+9. [Update On The Future Of This Sunderland Youngster: Good Move For Everyone Involved?](https://the4thofficial.net/2026/07/update-on-the-future-of-this-sunderland-youngster/) - **The4thofficial.net**
+10. [England and Brazil set for potential World Cup quarter-final clash with Manchester United teammates on opposite sides](https://cryptobriefing.com/england-brazil-world-cup-quarter-final/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-07-03 03:51:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-03 05:20:42 (KST) / (하루 100회 제한 준수 중)*
