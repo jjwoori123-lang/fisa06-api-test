@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ex-Man United academy graduate Danny Simpson makes shock career decision](https://thepeoplesperson.com/2026/07/01/ex-man-united-academy-graduate-danny-simpson-makes-shock-career-decision-312224/) - **The Peoples Person**
-2. [Tottenham to accelerate their pursuit of Eli Junior Kroupi, Bournemouth want at least £90m](https://sportsview.co.uk/2026/07/tottenham-to-accelerate-their-pursuit-of-eli-junior-kroupi-bournemouth-want-at-least-90m?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-to-accelerate-their-pursuit-of-eli-junior-kroupi-bournemouth-want-at-least-90m) - **Sportsview.co.uk**
-3. [2026 World Cup picks, odds: USA vs. Bosnia and Herzegovina predictions, best bets by expert on 25-15 run](https://www.cbssports.com/soccer/news/2026-world-cup-picks-odds-to-advance-usa-vs-bosnia-and-herzegovina-predictions-soccer-best-bets/) - **CBS Sports**
-4. [Bruno Guimaraes: Newcastle’s plan to stop United revealed](https://thepeoplesperson.com/2026/07/01/bruno-guimaraes-newcastles-plan-to-stop-united-revealed-312222/) - **The Peoples Person**
-5. [Kevin de Bruyne reflects on final World Cup game from the bench](https://cryptobriefing.com/kevin-de-bruyne-world-cup-bench-crypto/) - **Crypto Briefing**
-6. [Christian Pulisic odds, picks, predictions, player props: Best bets for USA vs. Bosnia and Herzegovina](https://www.cbssports.com/soccer/news/christian-pulisic-odds-picks-predictionsplayer-props-best-bets-usa-bosnia-and-herzegovina/) - **CBS Sports**
-7. [Newcastle United optimistic on deal for Freiburg midfielder Johan Manzambi](https://cryptobriefing.com/newcastle-manzambi-freiburg-transfer-sorare/) - **Crypto Briefing**
-8. [White Ferns greats Suzie Bates, Sophie Devine and Lea Tahuhu retire together](https://www.nzherald.co.nz/sport/cricket/white-ferns/white-ferns-greats-suzie-bates-sophie-devine-and-lea-tahuhu-retire-together/TKFUYEP5IZHW5ALTTUISR57N24/) - **New Zealand Herald**
-9. [Does Bruno Guimaraes has a release clause in his contract amid Arsenal’s interest](https://www.justarsenal.com/does-bruno-guimaraes-has-a-release-clause-in-his-contract-amid-arsenals-interest/417870) - **Just Arsenal News**
-10. [Spurs Reach £100m Tonali Agreement as Midfield Rebuild Accelerates](https://eplindex.com/147896/spurs-reach-100m-tonali-agreement-as-midfield-rebuild-accelerates.html) - **English Premier League Index - Opta Stats**
+1. [Chelsea confirm $62.4 million transfer marking start of Xabi Alonso era](https://www.alloutsoccer.com/news/chelsea-palestra-signing-alonso-era-1916407) - **Alloutsoccer.com**
+2. [Did the Celtics give away Jaylen Brown? Why 'analytics' don’t see Philly's new star as elite of elite](https://sports.yahoo.com/nba/article/did-the-celtics-give-away-jaylen-brown-why-analytics-dont-see-phillys-new-star-as-elite-of-elite-004011270.html) - **Yahoo Entertainment**
+3. [Gala receive €120m Osimhen offer from Saudi](https://punchng.com/gala-receive-e120m-osimhen-offer-from-saudi/) - **The Punch**
+4. [Spain vs. Austria odds, prediction, time: 2026 World Cup Round of 32 picks from expert on 12-5 roll](https://www.cbssports.com/soccer/news/spain-austria-odds-prediction-time-2026-world-cup-round-of-32-picks/) - **CBS Sports**
+5. [5 Most Significant AHL Moves On Day One Of NHL Free Agency](https://thehockeynews.com/ahl/latest-news/5-most-significant-ahl-moves-on-day-one-of-nhl-free-agency) - **The Hockey News**
+6. [Edin Džeko labels USMNT ‘favorites’ ahead of World Cup game before sending stern warning to rivals](https://www.alloutsoccer.com/news/dzeko-usmnt-bosnia-world-cup-1916368) - **Alloutsoccer.com**
+7. [Jaylen Brown-Paul George trade grades: Celtics sell low on star; Sixers add talent, get younger](https://www.sportingnews.com/us/nba/news/jaylen-brown-paul-george-trade-grades-celtics-sixers/9179a0cebe1df78008231826) - **Sporting News**
+8. [Belgium checks for penalty after Tielemans incident, sparks World Cup controversy](https://cryptobriefing.com/belgium-penalty-tielemans-world-cup-controversy/) - **Crypto Briefing**
+9. [Alan Shearer won’t mind Harry Kane staying at Bayern Munich](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/223319/alan-shearer-wont-mind-harry-kane-staying-at-bayern-munich) - **Bavarian Football Works**
 
 
 ---
-*최근 업데이트: 2026-07-03 08:10:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-03 10:05:20 (KST) / (하루 100회 제한 준수 중)*
