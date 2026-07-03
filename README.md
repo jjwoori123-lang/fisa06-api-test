@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bournemouth set to sign former Real Madrid striker Álvaro Rodríguez in €30M deal](https://cryptobriefing.com/bournemouth-alvaro-rodriguez-real-madrid-transfer/) - **Crypto Briefing**
-2. [Guernsey FC Under-23 side to play in English league](https://www.bbc.com/sport/football/articles/c1ly9j9nmvno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [“Just play well... they will love you”: Yakubu’s advice as Hayden Hackney signs five-year Everton deal](http://www.toffeeweb.com/season/25-26/news/47718.html) - **Toffeeweb**
-4. [4 Ways USA Could Replace Suspended Star Striker Folarin Balogun vs. Belgium](https://www.foxsports.com/stories/soccer/usmnt-world-cup-usmnt-balogun-red-card-who-could-replace) - **Fox Sports**
-5. [Anderson closes in on record Man City move](https://sports.yahoo.com/articles/anderson-closes-record-man-city-140102535.html) - **Yahoo Entertainment**
-6. [Hull City in talks to sign Axel Tuanzebe](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_6da3bb0d-b906-4c0e-9f85-5b1530bf30e1) - **Yahoo Entertainment**
-7. [Chukwueze rejected Trabzonspor at €15m and has Milan belief](https://football-italia.net/chukwueze-rejected-trabzonspor-at-e15m-milan/) - **Football Italia**
-8. [Season 'can't come quickly enough' as Butland joins Hull](https://www.bbc.com/sport/football/articles/cp3x8l8e98zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Arsenal set new World Cup record for assist providers](https://thefootballfaithful.com/arsenal-set-new-world-cup-record-for-assist-providers/) - **The Football Faithful**
-10. [Manchester City confirm record-breaking £116m signing of Elliot Anderson from Nottingham Forest](https://footballtoday.com/2026/07/02/manchester-city-confirm-record-breaking-116m-signing-of-elliot-anderson-from-nottingham-forest/) - **Footballtoday.com**
+1. [The growing appeal of Scottish Premiership talent](https://www.bbc.com/sport/football/articles/cvgql9yw1vjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Beloved Emmy-Winning Comedy Is Finally Back Next Month for Season 4](https://www.comingsoon.net/tv/news/2157107-ted-lasso-season-4-release-date-apple-tv-2) - **ComingSoon.net**
+3. [Habtom Samuel and Pamela Kosgei are the 2025-26 Mountain West Male and Female Athletes of the Year](https://www.mwcconnection.com/mountain-west-news/88441/habtom-samuel-and-pamela-kosgei-are-the-2025-26-mountain-west-male-and-female-athletes-of-the-year) - **Mwcconnection.com**
+4. [“He knows the ins and outs” – Kyle Walker hails Manchester City’s Enzo Maresca appointment](https://cityxtra.co.uk/49267/he-knows-the-ins-and-outs-kyle-walker-hails-manchester-citys-enzo-maresca-appointment/) - **Cityxtra.co.uk**
+5. [Report: Liverpool offered chance to sign Serie A powerhouse who recently outperformed Gravenberch](https://www.empireofthekop.com/2026/07/02/liverpool-offered-chance-to-sign-serie-a-powerhouse/) - **Empire of The Kop**
+6. [Sports tokenization still lags as Nakamura World Cup hype finds zero crypto traction](https://cryptobriefing.com/nakamura-world-cup-crypto-sports-tokenization/) - **Crypto Briefing**
+7. [FGR team closure 'sends message women not valued'](https://www.bbc.com/sport/football/articles/ce37599zj78o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [FGR team closure 'sends message women not valued'](https://www.bbc.co.uk/sport/football/articles/ce37599zj78o) - **BBC News**
+9. [Frattesi and Fagioli on Newcastle United radar after Tonali €116m sale](https://football-italia.net/frattesi-fagioli-newcastle-united-radar-tonali/) - **Football Italia**
+10. [Cristiano Ronaldo looking to end World Cup jinx as Portugal take on Croatia](https://www.alloutsoccer.com/news/ronaldo-portugal-croatia-world-cup-1917746) - **Alloutsoccer.com**
 
 
 ---
-*최근 업데이트: 2026-07-04 00:29:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-04 02:01:39 (KST) / (하루 100회 제한 준수 중)*
