@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [PlayStation Plus Members Get Bonus Free Game This Weekend](https://screenrant.com/playstation-plus-free-game-july-3-5/) - **Screen Rant**
-2. [Time Spent Wisely? The Usefulness Of The Interval In Modern Football](https://rokerreport.sbnation.com/features/143486/time-spent-wisely-the-usefulness-of-half-times-in-modern-football) - **SB Nation**
-3. [On This Day (2 July 1991) Murray Fights Against Premier League Proposition](https://rokerreport.sbnation.com/features/143585/on-this-day-2-july-1991-murray-fights-against-premier-league-proposition) - **SB Nation**
-4. [‘This was not a red card offense’: Former referee not happy with ‘unfortunate’ call against USMNT star](https://thecomeback.com/soccer/this-was-not-a-red-card-offense-former-referee-not-happy-with-unfortunate-call-against-usmnt-star.html) - **The Comeback**
-5. [When FIFA gave the 1994 World Cup to the United States, it did so on one condition: America had to build a professional soccer league from scratch — Major League Soccer launched two years later, and the tournament itself set a total-attendance record that stood for thirty-two years until the current 2026 World Cup](https://spacedaily.com/d-when-fifa-gave-the-1994-world-cup-to-the-united-states-it-did-so-on-one-condition-america-had-to-build-a-professional-soccer-league-from-scratch-major-league-soccer-launched-two-years-late/) - **Space Daily**
-6. [USA advances to World Cup Round of 16 as crypto brands deepen their FIFA footprint](https://cryptobriefing.com/usa-world-cup-round-of-16-crypto/) - **Crypto Briefing**
-7. [NYC Mayor Zohran Mamdani reacts as Liberty make WNBA history with Commissioner's Cup title](https://www.sportingnews.com/us/wnba/new-york-liberty/news/nyc-mayor-zohran-mamdani-reacts-liberty-make-wnba-history-commissioners-cup-title/2a908805495ef80a8e747f18) - **Sporting News**
-8. [BBC’s Danny Murphy drops the most incredible World Cup commentary story](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_db2708da-6aa6-4bbd-8b09-3673a06836b4) - **Yahoo Entertainment**
-9. [PSG Set One Condition for Bradley Barcola Exit as Liverpool, Arsenal Circle](https://psgworld.io/news/news/psg-set-one-condition-for-bradley-barcola-exit-as-liverpool-arsenal-circle) - **Psgworld.io**
+1. ["BET Awards" 2026 Grows Across Every Platform with First-Time Host Druski, Cementing BET as the Epicenter of Black Culture](http://www.thefutoncritic.com/ratings/2026/07/02/bet-awards-2026-grows-across-every-platform-with-first-time-host-druski-cementing-bet-as-the-epicenter-of-black-culture-926112/20260702bet01/) - **Thefutoncritic.com**
+2. [Manchester United works on signing goalkeeper Sam Johnstone from Wolves](https://cryptobriefing.com/manchester-united-sam-johnstone-wolves-transfer/) - **Crypto Briefing**
+3. [Keisuke Honda makes case to take the Japan job from Hajime Moriyasu after World Cup exit](https://www.hitc.com/keisuke-honda-makes-case-to-take-the-japan-job-from-hajime-moriyasu-after-world-cup-exit/) - **HITC - Football, Gaming, Movies, TV, Music**
+4. [New store massive for club income, say Sky Blues](https://www.bbc.com/news/articles/cq61qjpj763o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Report: Sunderland star wanted by European giants](https://eplindex.com/147902/report-sunderland-star-wanted-by-european-giants.html) - **English Premier League Index - Opta Stats**
+6. [Your World Cup scouting: Moroccan midfielders and French forwards](https://www.bbc.com/sport/football/articles/ckg41w9y81zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [‘Our info is…’ – Journalist claims Chelsea player ‘would jump at’ the chance to join Liverpool](https://www.empireofthekop.com/2026/07/02/journalist-claims-chelsea-player-would-jump-at-chance-to-join-liverpool/) - **Empire of The Kop**
+8. [Why Guimaraes is Newcastle's heartbeat](https://www.bbc.com/sport/football/articles/cj0gd2qmy5vo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Arsenal man looking for a new club after just one season at the Emirates](https://www.justarsenal.com/arsenal-man-looking-for-a-new-club-after-just-one-season-at-the-emirates/417883) - **Just Arsenal News**
+10. [Tottenham Hotspur signs Sandro Tonali on six-year deal for £100M](https://cryptobriefing.com/tottenham-signs-sandro-tonali-100m-deal/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-07-03 14:01:08 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-03 17:29:30 (KST) / (하루 100회 제한 준수 중)*
