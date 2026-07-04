@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Nagelsmann quits as Germany coach after World Cup embarrassment](https://www.thelocal.de/20260703/nagelsmann-quits-as-germany-coach-after-world-cup-embarrassment) - **The Local Germany**
-2. [Afrosports: Building a global sports platform through the Unity Cup](https://www.vanguardngr.com/2026/07/afrosports-building-a-global-sports-platform-through-the-unity-cup/) - **Vanguard**
-3. ['We are going to have to strengthen the squad where we can' - Lampard](https://www.bbc.com/sport/football/articles/c4gy53y42q0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Report: Liverpool are in the race to sign 17-year-old wonderkid](https://anfieldindex.com/95478/report-liverpool-are-in-the-race-to-sign-17-year-old-wonderkid.html) - **Anfieldindex.com**
-5. [Arsenal eye double Aston Villa swoop: Ezri Konsa and Morgan Rogers targeted as Arteta seeks signings](https://www.footballmuse.com/news/arsenal-eye-double-aston-villa-swoop-ezri-konsa-and-morgan-rogers-targeted-as-arteta-seeks-signings) - **Footballmuse.com**
-6. [Maresca’s Mission: Can Manchester City Reclaim the Premier League Crown in 2026/27?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_59bf7974-6302-4458-9146-2ea5efb544f5) - **Yahoo Entertainment**
-7. [Man United, Everton and Leeds all in for Karl Darlow, Sunderland receive £22m bid for Eliezer Mayenda... and United in talks over Crysencio Summerville: WINDOW WATCH](https://www.dailymail.com/sport/football/article-15950083/Man-United-Everton-Leeds-Karl-Darlow-Sunderland-receive-22m-bid-Eliezer-Mayenda-United-talks-Crysencio-Summerville-WINDOW-WATCH.html) - **Dailymail.com**
-8. [Brentford locks down Michael Kayode with contract until 2032](https://cryptobriefing.com/brentford-michael-kayode-contract-2032/) - **Crypto Briefing**
-9. [Klopp has exit clause for Germany job as DFB seeks successor to Nagelsmann after WC shock](https://www.footballmuse.com/news/klopp-has-exit-clause-for-germany-job-as-dfb-seeks-successor-to-nagelsmann-after-wc-shock) - **Footballmuse.com**
+1. [Tchouameni and Scott high on Man Utd midfield shortlist](https://www.skysports.com/football/news/11667/13559979/man-utd-transfer-news-aurelien-tchouameni-and-alex-scott-high-on-midfield-shortlist-with-ayyoub-bouaddi-also-of-interest) - **Sky Sports**
+2. [Kayode on new contract: Brentford is like a family to me](https://www.brentfordfc.com/en/news/article/interviews-michael-kayode-new-brentford-contract-2032) - **Brentfordfc.com**
+3. [Door open for Barcelona winger to return to national team plans after World Cup snub](https://barcauniversal.com/door-open-for-barcelona-winger-to-return-to-national-team-plans-after-world-cup-snub/) - **Barcauniversal.com**
+4. [Kayode signs new long-term Brentford contract](https://www.brentfordfc.com/en/news/article/first-team-michael-kayode-signs-new-long-term-brentford-contract-2032) - **Brentfordfc.com**
+5. [Arsenal withdraw interest in wonderkid after Man City joins race](https://www.justarsenal.com/arsenal-withdraw-interest-in-wonderkid-after-man-city-joins-race/417942) - **Just Arsenal News**
+6. [Cristiano Ronaldo leads tributes to Diogo Jota on first anniversary of Liverpool and Portugal star’s death](https://www.101greatgoals.com/football/premier-league/cristiano-ronaldo-diogo-jota-first-anniversary-liverpool-portugal-stars-death/) - **101 Great Goals**
+7. [Bengaluru May Host Global Chess League's Fourth Edition](https://www.rediff.com/sports/report/global-chess-league-seeks-karnataka-support-for-bengaluru/20260703.htm) - **Rediff.com**
+8. [Hull make £22.3m offer for Toulouse striker Emersonn](https://www.getfootballnewsfrance.com/2026/hull-make-22-3m-offer-for-toulouse-striker-emersonn/) - **Get French Football News**
+9. [10 years ago, he was working in a Dublin bank. Now he's facing Messi in the World Cup knockouts](https://www.the42.ie/pico-lopes-feature-7086615-Jul2026/) - **The42**
+10. [Klopp in ‘talks’ for Germany job after Nagelsmann exit – Federation](https://www.vanguardngr.com/2026/07/klopp-in-talks-for-germany-job-after-nagelsmann-exit-federation/) - **Vanguard**
 
 
 ---
-*최근 업데이트: 2026-07-04 18:07:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-04 20:02:01 (KST) / (하루 100회 제한 준수 중)*
