@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Juventus join the race for Leeds United target Zion Suzuki](https://sportsview.co.uk/2026/07/juventus-join-the-race-for-leeds-united-target-zion-suzuki?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=juventus-join-the-race-for-leeds-united-target-zion-suzuki) - **Sportsview.co.uk**
-2. [Klopp wants job as Nagelsmann resigns as Germany coach](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260703-99-950995/) - **Dpa-international.com**
-3. [REPORT: Jorge Mendes pushing deal to bring Rafael Leao to Tottenham](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-transfers-rumors/71867/tottenham-hotspur-transfer-news-rumors-rafael-leao-ac-milan-jorge-mendes-offer) - **SB Nation**
-4. [Arsenal considers signing 28-year-old Premier League defender](https://www.justarsenal.com/arsenal-considers-signing-28-year-old-premier-league-defender/417944) - **Just Arsenal News**
-5. [Newcastle Face Building Enterily New XI After Start of Summer Transfer Window](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/22326/newcastle-face-building-enterily-new-xi-after-start-of-summer-transfer-window) - **SB Nation**
-6. [Better know a draft prospect: Gio Rojas](https://www.royalsreview.com/kansas-city-royals-mlb-draft/101347/better-know-a-draft-prospect-gio-rojas) - **Royals Review**
-7. [What is the situation of Villa's England stars?](https://www.bbc.com/sport/football/articles/cjwg8q72j1qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Real Madrid deny interest in Chelsea midfielder Enzo Fernández](https://www.vanguardngr.com/2026/07/real-madrid-deny-interest-in-chelsea-midfielder-enzo-fernandez/) - **Vanguard**
-9. [The most expensive English transfers as Anderson joins Man City](https://thefootballfaithful.com/most-expensive-english-transfers-ever/) - **The Football Faithful**
-10. [Matthew Stafford ranked among top 5 QBs by PFF, but just barely](https://theramswire.usatoday.com/story/sports/nfl/rams/2026/07/03/rams-matthew-stafford-quarterback-rankings-pff-2026/90793792007/) - **USA Today**
+1. [Manchester United steps up efforts to beat Arsenal to attacker](https://www.justarsenal.com/manchester-united-steps-up-efforts-to-beat-arsenal-to-attacker/417958) - **Just Arsenal News**
+2. [How to watch Argentina vs Cape Verde live: Stream link, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-argentina-vs-cape-verde-live-stream-link-tv-channel-team-news-prediction) - **NBCSports.com**
+3. [Hong Kong Summer Fun](https://www.globenewswire.com/news-release/2026/07/03/3321906/0/en/Hong-Kong-Summer-Fun.html) - **GlobeNewswire**
+4. [Enzo Fernandez seeks proof of Chelsea’s title ambitions to stay, and crypto-linked clubs face a credibility reckoning](https://cryptobriefing.com/enzo-fernandez-chelsea-ambitions-crypto-sports/) - **Crypto Briefing**
+5. [Steelers CB Jalen Ramsey makes NFL Top 100 Players list](https://www.behindthesteelcurtain.com/pittsburgh-steelers-news/172144/steelers-cb-jalen-ramsey-makes-nfl-top-100-players-list-alex-highsmith) - **Behind the Steel Curtain**
+6. [Premier League betting guide for the 2026/27 season](https://footballtoday.com/2026/07/03/premier-league-betting-guide-for-the-2026-27-season/) - **Footballtoday.com**
+7. [What next for ex-Germany coach Julian Nagelsmann?](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260703-99-951402/) - **Dpa-international.com**
+8. [Yakubu urges Everton to tie down Iliman Ndiaye with new deal, insists now is not the time to leave](http://www.toffeeweb.com/season/25-26/news/47724.html) - **Toffeeweb**
+9. [Journalist: Manchester United in talks to sign former Newcastle star](https://eplindex.com/147972/journalist-manchester-united-in-talks-to-sign-former-newcastle-star.html) - **English Premier League Index - Opta Stats**
+10. [Grandparents Steven Gerrard, 46, and his wife Alex, 43, haven't aged since his Premier League glory days as they make a rare appearance at Wimbledon](https://www.dailymail.com/tvshowbiz/article-15951095/Grandparents-Steven-Gerrard-46-wife-Alex-43-havent-aged-Premier-League-glory-days-make-rare-appearance-Wimbledon.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-07-04 23:13:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-05 00:34:25 (KST) / (하루 100회 제한 준수 중)*
