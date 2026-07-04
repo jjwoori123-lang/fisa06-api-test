@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tchouameni and Scott high on Man Utd midfield shortlist](https://www.skysports.com/football/news/11667/13559979/man-utd-transfer-news-aurelien-tchouameni-and-alex-scott-high-on-midfield-shortlist-with-ayyoub-bouaddi-also-of-interest) - **Sky Sports**
-2. [Kayode on new contract: Brentford is like a family to me](https://www.brentfordfc.com/en/news/article/interviews-michael-kayode-new-brentford-contract-2032) - **Brentfordfc.com**
-3. [Door open for Barcelona winger to return to national team plans after World Cup snub](https://barcauniversal.com/door-open-for-barcelona-winger-to-return-to-national-team-plans-after-world-cup-snub/) - **Barcauniversal.com**
-4. [Kayode signs new long-term Brentford contract](https://www.brentfordfc.com/en/news/article/first-team-michael-kayode-signs-new-long-term-brentford-contract-2032) - **Brentfordfc.com**
-5. [Arsenal withdraw interest in wonderkid after Man City joins race](https://www.justarsenal.com/arsenal-withdraw-interest-in-wonderkid-after-man-city-joins-race/417942) - **Just Arsenal News**
-6. [Cristiano Ronaldo leads tributes to Diogo Jota on first anniversary of Liverpool and Portugal star’s death](https://www.101greatgoals.com/football/premier-league/cristiano-ronaldo-diogo-jota-first-anniversary-liverpool-portugal-stars-death/) - **101 Great Goals**
-7. [Bengaluru May Host Global Chess League's Fourth Edition](https://www.rediff.com/sports/report/global-chess-league-seeks-karnataka-support-for-bengaluru/20260703.htm) - **Rediff.com**
-8. [Hull make £22.3m offer for Toulouse striker Emersonn](https://www.getfootballnewsfrance.com/2026/hull-make-22-3m-offer-for-toulouse-striker-emersonn/) - **Get French Football News**
-9. [10 years ago, he was working in a Dublin bank. Now he's facing Messi in the World Cup knockouts](https://www.the42.ie/pico-lopes-feature-7086615-Jul2026/) - **The42**
-10. [Klopp in ‘talks’ for Germany job after Nagelsmann exit – Federation](https://www.vanguardngr.com/2026/07/klopp-in-talks-for-germany-job-after-nagelsmann-exit-federation/) - **Vanguard**
+1. [Dortmund’s £103m Deterrent Price Could Derail United’s Nmecha Pursuit](https://strettynews.com/2026/07/03/felix-nmecha-transfer-dortmund-man-united/) - **Strettynews.com**
+2. [The 10 most beautiful high streets in Britain, from a medieval gem to one of England's most photographed views](https://www.dailymail.com/travel/article-15948531/best-beautiful-high-street-britain-england-scotland-wales.html) - **Dailymail.com**
+3. [Guernsey FC and Jersey Bulls get home ties in FA Cup](https://www.bbc.com/sport/football/articles/c932ezzgzdxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Juventus Closer to Sassuolo Man, Bayern Munich Eye Star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8370afde-c0ab-4fdf-8fa6-665ccdda8e1e) - **Yahoo Entertainment**
+5. [Chalobah’s agents arrive in Italy for talks with Inter and Como](https://football-italia.net/chalobahs-agents-arrive-italy-talks-inter-como/) - **Football Italia**
+6. ['Pereira will get a good job somewhere else' - Hodge](https://www.bbc.com/sport/football/articles/crm014k8pe7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Esports giants G2 and HLE clash at MSI 2026, but crypto remains on the sidelines](https://cryptobriefing.com/esports-msi-2026-crypto-sidelines/) - **Crypto Briefing**
+8. [Report: Man United eyeing move to sign Premier League midfielder](https://eplindex.com/147963/report-man-united-eyeing-move-to-sign-premier-league-midfielder-3.html) - **English Premier League Index - Opta Stats**
+9. [Sophie Cunningham questions WNBA after Caitlin Clark's surprising omission from anniversary poster](https://www.sportingnews.com/us/wnba/indiana-fever/news/sophie-cunningham-questions-wnba-after-caitlin-clarks-surprising-omission-anniversary-poster/3421f880ef91ddd668af4b91) - **Sporting News**
+10. [Klopp wants job as Nagelsmann resigns as Germany coach](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260703-99-948850/) - **Dpa-international.com**
 
 
 ---
-*최근 업데이트: 2026-07-04 20:02:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-04 21:37:21 (KST) / (하루 100회 제한 준수 중)*
