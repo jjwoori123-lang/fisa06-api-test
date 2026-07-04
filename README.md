@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United steps up efforts to beat Arsenal to attacker](https://www.justarsenal.com/manchester-united-steps-up-efforts-to-beat-arsenal-to-attacker/417958) - **Just Arsenal News**
-2. [How to watch Argentina vs Cape Verde live: Stream link, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-argentina-vs-cape-verde-live-stream-link-tv-channel-team-news-prediction) - **NBCSports.com**
-3. [Hong Kong Summer Fun](https://www.globenewswire.com/news-release/2026/07/03/3321906/0/en/Hong-Kong-Summer-Fun.html) - **GlobeNewswire**
-4. [Enzo Fernandez seeks proof of Chelsea’s title ambitions to stay, and crypto-linked clubs face a credibility reckoning](https://cryptobriefing.com/enzo-fernandez-chelsea-ambitions-crypto-sports/) - **Crypto Briefing**
-5. [Steelers CB Jalen Ramsey makes NFL Top 100 Players list](https://www.behindthesteelcurtain.com/pittsburgh-steelers-news/172144/steelers-cb-jalen-ramsey-makes-nfl-top-100-players-list-alex-highsmith) - **Behind the Steel Curtain**
-6. [Premier League betting guide for the 2026/27 season](https://footballtoday.com/2026/07/03/premier-league-betting-guide-for-the-2026-27-season/) - **Footballtoday.com**
-7. [What next for ex-Germany coach Julian Nagelsmann?](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260703-99-951402/) - **Dpa-international.com**
-8. [Yakubu urges Everton to tie down Iliman Ndiaye with new deal, insists now is not the time to leave](http://www.toffeeweb.com/season/25-26/news/47724.html) - **Toffeeweb**
-9. [Journalist: Manchester United in talks to sign former Newcastle star](https://eplindex.com/147972/journalist-manchester-united-in-talks-to-sign-former-newcastle-star.html) - **English Premier League Index - Opta Stats**
-10. [Grandparents Steven Gerrard, 46, and his wife Alex, 43, haven't aged since his Premier League glory days as they make a rare appearance at Wimbledon](https://www.dailymail.com/tvshowbiz/article-15951095/Grandparents-Steven-Gerrard-46-wife-Alex-43-havent-aged-Premier-League-glory-days-make-rare-appearance-Wimbledon.html) - **Dailymail.com**
+1. [Al Nassr’s NASSR fan token faces speculation as coaching rumors swirl around Saudi club](https://cryptobriefing.com/nassr-fan-token-coaching-speculation/) - **Crypto Briefing**
+2. [Zakhar Bardakov Officially Lands With KHL Powerhouse SKA St. Petersburg](https://thehockeynews.com/nhl/colorado-avalanche/latest-news/zakhar-bardakov-officially-lands-with-khl-powerhouse-ska-st-petersburg) - **The Hockey News**
+3. [Sandro Tonali will wear the number six jersey at Tottenham](https://sportsview.co.uk/2026/07/sandro-tonali-will-wear-the-number-six-jersey-at-tottenham?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=sandro-tonali-will-wear-the-number-six-jersey-at-tottenham) - **Sportsview.co.uk**
+4. [Chelsea’s youth spending spree continues as club locks down 17-year-old Scottish defender](https://cryptobriefing.com/chelsea-signs-alfie-osborne-youth-strategy/) - **Crypto Briefing**
+5. [Portugal honors Diogo Jota in thrilling World Cup win one year after tragic death: ‘He gives us strength’](https://nypost.com/2026/07/03/sports/portugal-honors-diogo-jota-in-thrilling-world-cup-win-one-year-after-tragic-death/) - **New York Post**
+6. [Ake set to join Fenerbahce, Man City surprised by deal announcement](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260703-99-952030/) - **Dpa-international.com**
+7. [England must go low against Mexico to hit heights with Total Arsenalball](https://www.irishtimes.com/sport/soccer/2026/07/03/england-must-go-low-against-mexico-to-hit-heights-with-total-arsenalball/) - **The Irish Times**
+8. [Both South Coast derbies moved to Sunday](https://www.bbc.com/sport/football/articles/ce95pz8y8v4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Aris Thessaloniki hires former Chelsea manager in latest European football shakeup](https://cryptobriefing.com/aris-thessaloniki-former-chelsea-manager/) - **Crypto Briefing**
+10. [Derry City make double swoop for Chapman and Norcott](https://www.rte.ie/sport/soccer/2026/0703/1581667-derry-city-make-double-swoop-for-chapman-and-norcott/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-07-05 00:34:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-05 01:38:43 (KST) / (하루 100회 제한 준수 중)*
