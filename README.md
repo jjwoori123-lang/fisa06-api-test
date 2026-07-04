@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Al Nassr’s NASSR fan token faces speculation as coaching rumors swirl around Saudi club](https://cryptobriefing.com/nassr-fan-token-coaching-speculation/) - **Crypto Briefing**
-2. [Zakhar Bardakov Officially Lands With KHL Powerhouse SKA St. Petersburg](https://thehockeynews.com/nhl/colorado-avalanche/latest-news/zakhar-bardakov-officially-lands-with-khl-powerhouse-ska-st-petersburg) - **The Hockey News**
-3. [Sandro Tonali will wear the number six jersey at Tottenham](https://sportsview.co.uk/2026/07/sandro-tonali-will-wear-the-number-six-jersey-at-tottenham?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=sandro-tonali-will-wear-the-number-six-jersey-at-tottenham) - **Sportsview.co.uk**
-4. [Chelsea’s youth spending spree continues as club locks down 17-year-old Scottish defender](https://cryptobriefing.com/chelsea-signs-alfie-osborne-youth-strategy/) - **Crypto Briefing**
-5. [Portugal honors Diogo Jota in thrilling World Cup win one year after tragic death: ‘He gives us strength’](https://nypost.com/2026/07/03/sports/portugal-honors-diogo-jota-in-thrilling-world-cup-win-one-year-after-tragic-death/) - **New York Post**
-6. [Ake set to join Fenerbahce, Man City surprised by deal announcement](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260703-99-952030/) - **Dpa-international.com**
-7. [England must go low against Mexico to hit heights with Total Arsenalball](https://www.irishtimes.com/sport/soccer/2026/07/03/england-must-go-low-against-mexico-to-hit-heights-with-total-arsenalball/) - **The Irish Times**
-8. [Both South Coast derbies moved to Sunday](https://www.bbc.com/sport/football/articles/ce95pz8y8v4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Aris Thessaloniki hires former Chelsea manager in latest European football shakeup](https://cryptobriefing.com/aris-thessaloniki-former-chelsea-manager/) - **Crypto Briefing**
-10. [Derry City make double swoop for Chapman and Norcott](https://www.rte.ie/sport/soccer/2026/0703/1581667-derry-city-make-double-swoop-for-chapman-and-norcott/) - **RTE**
+1. [Show HN: Vublox Agent Tools, MCP server for live football scores and players](https://github.com/Vublox/vublox-agent-tools) - **Github.com**
+2. [Liverpool could have an even better signing than Yan Diomande lined up for €50m](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-could-have-an-even-better-signing-than-yan-diomande-lined-up-for-eur50m/) - **Anfieldwatch.co.uk**
+3. [Al-Nassr name Ange Postecoglou as new head coach](https://www.101greatgoals.com/football/al-nassr-name-ange-postecoglou-as-new-head-coach/) - **101 Great Goals**
+4. [Fenerbahce announce agreement with Man City to sign Nathan Ake in £7M deal](https://cityxtra.co.uk/49456/fenerbahce-announce-agreement-with-man-city-to-sign-nathan-ake-in-7m-deal/) - **Cityxtra.co.uk**
+5. [Man City's Ake in talks over £7m Fenerbahce move](https://www.bbc.com/sport/football/articles/c20y27eqj13o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Alex Scott: Major update on United’s pursuit of Bournemouth ace](https://thepeoplesperson.com/2026/07/03/alex-scott-major-update-on-uniteds-pursuit-of-bournemouth-ace-312289/) - **The Peoples Person**
+7. [Report: Anaheim Ducks 'Guaranteed' They Will Match Any Offer Sheet Attempt on Leo Carlsson, Analysis](https://thehockeynews.com/nhl/anaheim-ducks/latest-news/report-anaheim-ducks-guaranteed-they-will-match-any-offer-sheet-attempt-on-leo-carlsson-analysis) - **The Hockey News**
+8. [Netherlands defender Aké leaves Man City to join Fenerbahce's quest for Turkish league title](https://sports.yahoo.com/articles/netherlands-defender-ak-leaves-man-165807683.html) - **Yahoo Entertainment**
+9. [Man City's Ake in talks over £7m Fenerbahce move](https://www.bbc.co.uk/sport/football/articles/c20y27eqj13o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-07-05 01:38:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-05 02:44:39 (KST) / (하루 100회 제한 준수 중)*
