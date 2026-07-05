@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Nathan Ake leaves Man City as Fenerbahce agree transfer](https://www.playmakerstats.com/news/nathan-ake-leaves-man-city-as-fenerbahce-agree-transfer/1153430) - **Playmakerstats.com**
-2. [Report: Man City start considering £7m Fenerbahce move](https://eplindex.com/147995/report-man-city-start-considering-7m-fenerbahce-move.html) - **English Premier League Index - Opta Stats**
-3. [Starry London hotel that's welcomed Kate and William, Justin Bieber and The Beatles - and where 1966 WAGs were banned from World Cup winners' party](https://www.dailymail.com/travel/article-15947535/Kensington-hotel-Kate-William-Justin-Bieber-Beatles-1966-WAGs-World-Cup.html) - **Dailymail.com**
-4. [Derby County’s loan move for Divin Mubama highlights the growing financialization of football talent pipelines](https://cryptobriefing.com/derby-county-mubama-loan-sports-tokenization/) - **Crypto Briefing**
-5. [Camilo Duran: Why Celtic’s £2.5m Qarabag Deal Is Smarter Than It Looks](https://thecelticstar.com/camilo-duran-celtic-qarabag-transfer/) - **The Celtic Star**
-6. [Better than any other achievement – emotional Salah hails Egypt’s World Cup win with Messi now lying in wait](https://www.101greatgoals.com/football/world-cup-news/emotional-mohamed-salah-hails-egypts-world-cup-win-lionel-messi-now-lying-in-wait/) - **101 Great Goals**
-7. [Report: Sunderland skipper rejects Alonso’s Chelsea advances to stick with Black Cats](https://eplindex.com/147994/report-sunderland-skipper-rejects-alonsos-chelsea-advances-to-stick-with-black-cats.html) - **English Premier League Index - Opta Stats**
-8. [Postecoglou returns to management with Al-Nassr appointment](https://www.playmakerstats.com/news/postecoglou-returns-to-management-with-al-nassr-appointment/1153231) - **Playmakerstats.com**
-9. [Liverpool can capitalise on £100m Tottenham mistake](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-can-capitalise-on-ps100m-tottenham-mistake/) - **Anfieldwatch.co.uk**
-10. [Reports: Juventus jump into the mix to try and sign Parma goalkeeper Zion Suzuki](https://www.blackwhitereadallover.com/juventus-transfer-rumours-news/39776/zion-suzuki-juventus-parma-aston-villa-leeds-united-2026-serie-a-premier-league-summer-transfer-rumors) - **Black & White & Read All Over**
+1. [Real Madrid midfielder steps up preparation for pre-season amid uncertain future](https://madriduniversal.com/real-madrid-midfielder-steps-up-preparation-for-pre-season-amid-uncertain-future/) - **Madriduniversal.com**
+2. [Open to Anfield move: Liverpool could complete surprise RW transfer; scouted since 2024](https://www.empireofthekop.com/2026/07/04/open-to-anfield-move-liverpool-could-complete-surprise-rw-transfer-scouted-since-2024/) - **Empire of The Kop**
+3. [In spotlight but shunning limelight - Olise's unique rise to top](https://www.bbc.com/sport/football/articles/c5yzr42943lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [MAMMOTH money needed for Mohamed Salah heir, it'll cost Liverpool €240m](https://www.anfieldwatch.co.uk/liverpool-fc/news/mammoth-money-needed-for-mohamed-salah-heir-itll-cost-liverpool-eur240m/) - **Anfieldwatch.co.uk**
+5. [Klopp Confirms Germany Talks, And Says He's 'Recharged' Since Liverpool Exit](https://www.foxsports.com/stories/soccer/jurgen-klopp-germany-national-soccer-team) - **Fox Sports**
+6. [How Matheus Nunes went from Manchester City headache to Enzo Maresca’s right-back solution](https://cityxtra.co.uk/49128/how-matheus-nunes-has-gone-from-a-manchester-city-headache-to-enzo-marescas-right-back-solution/) - **Cityxtra.co.uk**
+7. [Enzo Fernandez’s agent reacts to Real Madrid links in wake of club statement](https://siempremadrid.com/enzo-fernandezs-agent-reacts-to-real-madrid-links-in-wake-of-club-statement/) - **Siempremadrid.com**
+8. ['Unlaid egg' - what Klopp might change to reinvigorate Germany](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260704-99-958188/) - **Dpa-international.com**
+9. [Lazio eyeing two defenders including Brighton’s Coppola to replace Milan-bound Gila](https://football-italia.net/lazio-eyeing-two-defenders-to-replace-gila/) - **Football Italia**
+10. [Important Newcastle United dates as clock ticking with 9 days to pre-season and 3 weeks to first friendly](https://www.themag.co.uk/2026/07/important-newcastle-united-dates-as-clock-ticking-with-9-days-to-pre-season-and-3-weeks-to-first-friendly/) - **The Mag**
 
 
 ---
-*최근 업데이트: 2026-07-05 18:55:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-05 20:37:35 (KST) / (하루 100회 제한 준수 중)*
