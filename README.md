@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [World Cup TV pundit wars: All the BBC and ITV's broadcast regulars RANKED - including Olivier Giroud after strong public reaction](https://www.dailymail.com/sport/football/article-15925621/World-Cup-TV-pundit-wars-BBC-ITV.html) - **Dailymail.com**
-2. [Axel Tuanzebe: Former United player in talks to return to Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1f60d6b9-c357-4af2-bd58-12ed64b46d9f) - **Yahoo Entertainment**
-3. [Liverpool ready to go 'all in' for 13-goal sensation](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-ready-to-go-all-in-for-13-goal-sensation/) - **Anfieldwatch.co.uk**
-4. [Real Madrid mainstay to miss France’s Round of 16 clash through injury](https://madriduniversal.com/real-madrid-mainstay-to-miss-frances-round-of-16-clash-through-injury/) - **Madriduniversal.com**
-5. [Klopp confirms Germany talks and says he's 'recharged' since leaving Liverpool](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_07a790e0-6ade-4af1-b72d-6980e65e30f7) - **Yahoo Entertainment**
-6. [Report: Leeds United face competition from European giants for €30m-rated star](https://eplindex.com/147985/report-leeds-united-face-competition-from-european-giants-for-e30m-rated-star.html) - **English Premier League Index - Opta Stats**
-7. [What Newcastle fans can expect from Bazoumana Touré as €50m move from Hoffenheim nears completion](https://bulinews.com/what-newcastle-fans-can-expect-bazoumana-toure-50m-move-hoffenheim-nears-completion) - **Bulinews.com**
-8. [Transfer rumour roundup: Amorim eyes AC Milan defensive revamp with Van Dijk dream](https://www.footballmuse.com/features/transfer-rumour-roundup-amorim-eyes-ac-milan-defensive-revamp-with-van-dijk-dream) - **Footballmuse.com**
-9. [Morocco XI vs Canada – Predicted lineup and team news](https://thefootballfaithful.com/morocco-xi-vs-canada-predicted-lineup-and-team-news/) - **The Football Faithful**
-10. [Richard Hughes in race against time to avoid awful WOAT label](https://www.anfieldwatch.co.uk/liverpool-fc/news/richard-hughes-in-race-against-time-to-avoid-awful-woat-label/) - **Anfieldwatch.co.uk**
+1. [Nathan Ake leaves Man City as Fenerbahce agree transfer](https://www.playmakerstats.com/news/nathan-ake-leaves-man-city-as-fenerbahce-agree-transfer/1153430) - **Playmakerstats.com**
+2. [Report: Man City start considering £7m Fenerbahce move](https://eplindex.com/147995/report-man-city-start-considering-7m-fenerbahce-move.html) - **English Premier League Index - Opta Stats**
+3. [Starry London hotel that's welcomed Kate and William, Justin Bieber and The Beatles - and where 1966 WAGs were banned from World Cup winners' party](https://www.dailymail.com/travel/article-15947535/Kensington-hotel-Kate-William-Justin-Bieber-Beatles-1966-WAGs-World-Cup.html) - **Dailymail.com**
+4. [Derby County’s loan move for Divin Mubama highlights the growing financialization of football talent pipelines](https://cryptobriefing.com/derby-county-mubama-loan-sports-tokenization/) - **Crypto Briefing**
+5. [Camilo Duran: Why Celtic’s £2.5m Qarabag Deal Is Smarter Than It Looks](https://thecelticstar.com/camilo-duran-celtic-qarabag-transfer/) - **The Celtic Star**
+6. [Better than any other achievement – emotional Salah hails Egypt’s World Cup win with Messi now lying in wait](https://www.101greatgoals.com/football/world-cup-news/emotional-mohamed-salah-hails-egypts-world-cup-win-lionel-messi-now-lying-in-wait/) - **101 Great Goals**
+7. [Report: Sunderland skipper rejects Alonso’s Chelsea advances to stick with Black Cats](https://eplindex.com/147994/report-sunderland-skipper-rejects-alonsos-chelsea-advances-to-stick-with-black-cats.html) - **English Premier League Index - Opta Stats**
+8. [Postecoglou returns to management with Al-Nassr appointment](https://www.playmakerstats.com/news/postecoglou-returns-to-management-with-al-nassr-appointment/1153231) - **Playmakerstats.com**
+9. [Liverpool can capitalise on £100m Tottenham mistake](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-can-capitalise-on-ps100m-tottenham-mistake/) - **Anfieldwatch.co.uk**
+10. [Reports: Juventus jump into the mix to try and sign Parma goalkeeper Zion Suzuki](https://www.blackwhitereadallover.com/juventus-transfer-rumours-news/39776/zion-suzuki-juventus-parma-aston-villa-leeds-united-2026-serie-a-premier-league-summer-transfer-rumors) - **Black & White & Read All Over**
 
 
 ---
-*최근 업데이트: 2026-07-05 16:29:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-05 18:55:55 (KST) / (하루 100회 제한 준수 중)*
