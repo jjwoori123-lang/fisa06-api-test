@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ahead of Morocco vs Canada at the World Cup, comparisons arise with the 2022 team](https://www.aljazeera.com/sports/2026/7/4/ahead-of-morocco-vs-canada-at-the-world-cup-comparisons-arise-with-the-2022-team) - **Al Jazeera English**
-2. [Former Alabama Star Terrion Arnold Could Return to NFL Soon as Lawyer Reveals Interest From Three Teams](https://roundtable.io/sports/ncaa/alabama/news/former-alabama-star-terrion-arnold-could-return-to-nfl-soon-as-lawyer-reveals-interest-from-three-teams) - **Roundtable.io**
-3. [Rugby league's bumper pay day. But who will foot the bill?](https://www.abc.net.au/news/2026-07-04/rubgy-league-five-billion-dollar-broadcast-deal-makes-history/106875754) - **ABC News (AU)**
-4. [1xbet Live Basketball ᐉ Football In-play Betting Live Odds](https://blogdoandroid.com/1xbet-live-basketball-i-football-in-play-betting-live-odds/) - **Blogdoandroid.com**
-5. [United reignite Ndidi interest](https://punchng.com/united-reignite-ndidi-interest/) - **The Punch**
-6. [Knicks sign veteran big man Andre Drummond to one-year deal](https://www.postingandtoasting.com/knicks-free-agency-rumors-news/87292/knicks-sign-veteran-big-man-andre-drummond-to-one-year-deal) - **Posting and Toasting**
-7. [Okonkwo’s younger brother extends West Brom deal](https://punchng.com/okonkwos-younger-brother-extends-west-brom-deal/) - **The Punch**
-8. [Argentina’s World Cup run is fueling a rally in fan tokens, and Lisandro Martinez just added more fuel](https://cryptobriefing.com/argentina-fan-token-martinez-world-cup/) - **Crypto Briefing**
-9. [Canada vs. Morocco odds, prediction, time: 2026 World Cup Round of 16 picks from expert on 25-15 run](https://www.cbssports.com/soccer/news/canada-morocco-odds-prediction-time-2026-world-cup-round-of-16-picks/) - **CBS Sports**
-10. [NPFL: Mixed reactions trail NSC’s N2m minimum player salary](https://punchng.com/npfl-mixed-reactions-trail-nscs-n2m-minimum-player-salary/) - **The Punch**
+1. [World Cup TV pundit wars: All the BBC and ITV's broadcast regulars RANKED - including Olivier Giroud after strong public reaction](https://www.dailymail.com/sport/football/article-15925621/World-Cup-TV-pundit-wars-BBC-ITV.html) - **Dailymail.com**
+2. [Axel Tuanzebe: Former United player in talks to return to Premier League](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1f60d6b9-c357-4af2-bd58-12ed64b46d9f) - **Yahoo Entertainment**
+3. [Liverpool ready to go 'all in' for 13-goal sensation](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-ready-to-go-all-in-for-13-goal-sensation/) - **Anfieldwatch.co.uk**
+4. [Real Madrid mainstay to miss France’s Round of 16 clash through injury](https://madriduniversal.com/real-madrid-mainstay-to-miss-frances-round-of-16-clash-through-injury/) - **Madriduniversal.com**
+5. [Klopp confirms Germany talks and says he's 'recharged' since leaving Liverpool](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_07a790e0-6ade-4af1-b72d-6980e65e30f7) - **Yahoo Entertainment**
+6. [Report: Leeds United face competition from European giants for €30m-rated star](https://eplindex.com/147985/report-leeds-united-face-competition-from-european-giants-for-e30m-rated-star.html) - **English Premier League Index - Opta Stats**
+7. [What Newcastle fans can expect from Bazoumana Touré as €50m move from Hoffenheim nears completion](https://bulinews.com/what-newcastle-fans-can-expect-bazoumana-toure-50m-move-hoffenheim-nears-completion) - **Bulinews.com**
+8. [Transfer rumour roundup: Amorim eyes AC Milan defensive revamp with Van Dijk dream](https://www.footballmuse.com/features/transfer-rumour-roundup-amorim-eyes-ac-milan-defensive-revamp-with-van-dijk-dream) - **Footballmuse.com**
+9. [Morocco XI vs Canada – Predicted lineup and team news](https://thefootballfaithful.com/morocco-xi-vs-canada-predicted-lineup-and-team-news/) - **The Football Faithful**
+10. [Richard Hughes in race against time to avoid awful WOAT label](https://www.anfieldwatch.co.uk/liverpool-fc/news/richard-hughes-in-race-against-time-to-avoid-awful-woat-label/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-07-05 12:42:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-05 16:29:29 (KST) / (하루 100회 제한 준수 중)*
