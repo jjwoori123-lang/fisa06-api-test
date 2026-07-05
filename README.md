@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Gallery: Ake’s City career in pictures](https://www.mancity.com/news/mens/nathan-ake-city-career-exit-gallery-63918753) - **Manchester City FC**
-2. [Nathan Ake’s City career: Season-by-season breakdown](https://www.mancity.com/news/mens/ake-city-career-season-breakdown-63918755) - **Manchester City FC**
-3. [Ake leaves City to join Fenerbahce](https://www.mancity.com/news/mens/nathan-ake-leaves-city-for-fenerbahce-63918750) - **Manchester City FC**
-4. [Nathan Ake: A True City Gent](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7cfe4453-1ec8-475e-9e73-4391d25c10e5) - **Yahoo Entertainment**
-5. [Why Europe's top clubs are eyeing Morocco's teenage sensation Bouaddi](https://www.bbc.com/sport/football/articles/c802jp3lz13o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [The most expensive Premier League transfers ever ranked](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_da68b056-3712-4896-921b-e17ed47bc4d3) - **Yahoo Entertainment**
-7. [Hibs sign forward Colvill from Standard Liege](https://www.bbc.com/sport/articles/c1ey24qpd4xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [10 Greatest Pokémon Fan Theories of All Time](https://screenrant.com/best-pokemon-fan-theories/) - **Screen Rant**
+1. [Nicky Butt and Paul Scholes split over Aurelien Tchouameni at Man United](https://thepeoplesperson.com/2026/07/04/nicky-butt-and-paul-scholes-split-over-aurelien-tchouameni-at-man-united-312317/) - **The Peoples Person**
+2. [Argentine media react to Lisandro Martinez’s masterclass](https://thepeoplesperson.com/2026/07/04/argentine-media-react-to-lisandro-martinezs-masterclass-312316/) - **The Peoples Person**
+3. [Como prepares £30M offer for Chelsea defender Trevoh Chalobah as Serie A transfer battle heats up](https://cryptobriefing.com/como-chelsea-chalobah-transfer-bid/) - **Crypto Briefing**
+4. [Ipswich Town make bid to Toulouse for Hull City target Emersonn](https://www.getfootballnewsfrance.com/2026/ipswich-town-make-bid-to-toulouse-for-hull-city-target-emersonn/) - **Get French Football News**
+5. [Newcastle have set their sights on Alexander Sorloth](https://sportsview.co.uk/2026/07/newcastle-have-set-their-sights-on-alexander-sorloth?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-have-set-their-sights-on-alexander-sorloth) - **Sportsview.co.uk**
+6. [Celtic Land 16-Year-Old Keeper Lyall Ahead of Arsenal and Premier League Rivals](https://thecelticstar.com/warren-lyall-celtic-goalkeeper-arsenal/) - **The Celtic Star**
+7. [Report: Cheslea set to battle Liverpool in the race for World Cup midfielder](https://eplindex.com/148014/report-cheslea-set-to-battle-liverpool-in-the-race-for-world-cup-midfielder.html) - **English Premier League Index - Opta Stats**
+8. [Report – Juventus Set Sights on Premier League Goalkeeper to Replace Di Gregorio](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_bf091336-6ad2-46b5-87f7-c0b89834ca93) - **Yahoo Entertainment**
+9. [Forget high altitude! What other problems could Mexico pose England on the pitch?](https://www.skysports.com/football/news/11095/13560431/world-cup-2026-what-problems-could-mexico-pose-england-on-the-pitch-during-their-last-16-clash) - **Sky Sports**
+10. [2026 World Cup: Scouting Belgium](https://www.starsandstripesfc.com/world-cup-2026-content/44723/usa-vs-belgium-2026-world-cup-scouting-belgium) - **Starsandstripesfc.com**
 
 
 ---
-*최근 업데이트: 2026-07-05 23:45:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-06 01:11:21 (KST) / (하루 100회 제한 준수 중)*
