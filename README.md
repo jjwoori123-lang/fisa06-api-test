@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal’s only relegation: The season that remains unique in the club’s history](https://www.justarsenal.com/arsenals-only-relegation-the-season-that-remains-unique-in-the-clubs-history/418048) - **Just Arsenal News**
-2. [Manchester City stance on Ruben Dias sale as Real Madrid register formal transfer enquiry](https://cityxtra.co.uk/49493/manchester-city-stance-on-ruben-dias-sale-as-real-madrid-register-formal-transfer-enquiry/) - **Cityxtra.co.uk**
-3. [Leeds United In The Race For €30m Centre-Back: Should Daniel Farke Push For Him?](https://the4thofficial.net/2026/07/leeds-united-in-the-race-for-e30m-centre-back-should-daniel-farke-push-for-him/) - **The4thofficial.net**
-4. [Newcastle land highly-rated winger Bazoumana Toure](https://www.playmakerstats.com/news/newcastle-land-highly-rated-winger-bazoumana-toure/1153972) - **Playmakerstats.com**
-5. [Erling Haaland vs. Gabriel rivalry: Arsenal, Man City resume heated feud in World Cup Round of 16](https://www.sportingnews.com/us/soccer/news/erling-haaland-gabriel-rivalry-arsenal-man-city-world-cup/42db31a53ddc7471f7df458b) - **Sporting News**
-6. [Fiorentina scare as Arsenal join race for Boca Juniors sensation Aranda](https://football-italia.net/fiorentina-scare-as-arsenal-join-race-aranda/) - **Football Italia**
-7. [The hidden brain disease impacting DV victim-survivors](https://www.abc.net.au/news/2026-07-06/domestic-and-family-violence-survivors-at-risk-of-cte/106870892) - **ABC News (AU)**
-8. [Aston Villa Linked With £18.3m Goalkeeper: Good Option For Emery?](https://the4thofficial.net/2026/07/aston-villa-linked-with-18-3m-goalkeeper-good-option-for-emery/) - **The4thofficial.net**
-9. [Spurs, Fiorentina agree loan-to-buy deal for Radu Dragusin](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-transfers-rumors/71905/tottenham-hotspur-transfer-news-rumors-radu-dragusin-fiorentina-loan-to-buy) - **SB Nation**
-10. [Report: Premier League clubs and Real Madrid keen on Inter talent Sucic](https://football-italia.net/report-premier-league-clubs-real-madrid-sucic/) - **Football Italia**
+1. [Real Madrid plot £188m Olise deal - Monday's gossip](https://www.bbc.com/sport/football/articles/cgjxx6ngdggo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Haaland scores perfect header against Gabriel as Norway stuns Brazil at World Cup 2026](https://cryptobriefing.com/haaland-header-norway-brazil-world-cup-2026/) - **Crypto Briefing**
+3. [Erling Haaland’s record-breaking season is fueling crypto speculation, but not much else](https://cryptobriefing.com/haaland-record-season-crypto-speculation/) - **Crypto Briefing**
+4. [Newcastle prepare fresh contract offer for long-term Arsenal target – Report](https://www.justarsenal.com/newcastle-prepare-fresh-contract-offer-for-long-term-arsenal-target-report/418058) - **Just Arsenal News**
+5. [“There’s always a vibe here,” Miami 305 headline BIG3 takeover in South Florida](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8a9d0710-91f9-4e3f-81e2-cf726074834a) - **Yahoo Entertainment**
+6. [Arsenal Are Big Admirers Of This Newcastle United Midfielder: Should Arteta Get Him On Board?](https://the4thofficial.net/2026/07/arsenal-are-big-admirers-of-this-newcastle-united-midfielder-should-arteta-get-him-on-board/) - **The4thofficial.net**
+7. [Real Madrid plot £188m Olise deal - Monday's gossip](https://www.bbc.co.uk/sport/football/articles/cgjxx6ngdggo) - **BBC News**
+8. [Chelsea Are Among The Clubs Hoping To Land This Ligue 1 Midfielder: Should Alonso Bring Him On Board?](https://the4thofficial.net/2026/07/chelsea-are-among-the-clubs-hoping-to-land-this-ligue-1-midfielder/) - **The4thofficial.net**
+9. [Rangers Miss Out On €5m Defensive Target: Big Setback For McInnes?](https://the4thofficial.net/2026/07/rangers-miss-out-on-e5m-defensive-target-big-setback-for-mcinnes/) - **The4thofficial.net**
+10. [FIFA's green light for Folarin Balogun to play for USMNT is the right decision made through the wrong process](https://www.sportingnews.com/us/soccer/news/fifa-folarin-balogun-play-usmnt-right-decision-wrong-process/aaf5d6d4251e907b93a7785d) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-07-07 05:32:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-07 07:01:03 (KST) / (하루 100회 제한 준수 중)*
