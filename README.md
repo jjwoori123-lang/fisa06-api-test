@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Where do you predict Newcastle United will finish in 2026/27 Premier League season? Vote now](https://www.themag.co.uk/2026/07/where-do-you-predict-newcastle-united-will-finish-in-2026-27-premier-league-season-vote-now/) - **The Mag**
-2. [Manchester City reject Chelsea and Real Madrid bids for Dias](https://thefootballfaithful.com/manchester-city-reject-chelsea-and-real-madrid-bids-for-dias/) - **The Football Faithful**
-3. [Napoli eye Garnacho as Chelsea open door to £40m exit](https://thefootballfaithful.com/napoli-eye-garnacho-as-chelsea-open-door-to-40m-exit/) - **The Football Faithful**
-4. [Arsenal target free-agent Sommer to back up Raya](https://thefootballfaithful.com/arsenal-target-free-agent-sommer-to-back-up-raya/) - **The Football Faithful**
-5. [After a calamitous 2025/26, can Liverpool get back to challenging for the Premier League title?](https://www.empireofthekop.com/2026/07/05/can-liverpool-get-back-to-challenging-for-the-premier-league-title/) - **Empire of The Kop**
-6. [Ranking Arsenal’s greatest centre-back partnerships of the Premier League era](https://www.justarsenal.com/ranking-arsenals-greatest-centre-back-partnerships-of-the-premier-league-era/417610) - **Just Arsenal News**
-7. [Can USA beat Belgium? How the USMNT can win their World Cup Round of 16 match vs. Red Devils](https://www.sportingnews.com/us/soccer/news/can-usa-beat-belgium-usmnt-win-world-cup-round-16/ec0e0ebff31cd8bd9955bab4) - **Sporting News**
-8. [Liverpool have the chance to sign £51m-rated midfielder this summer](https://anfieldindex.com/95531/liverpool-have-the-chance-to-sign-51m-rated-midfielder-this-summer.html) - **Anfieldindex.com**
-9. [England security reveal Mexico fans' noisy late-night hotel siege FAILED to rattle Thomas Tuchel's side ahead of crunch last-16 World Cup clash - after riot police stepped in to restore order](https://www.dailymail.com/sport/football/article-15953967/England-security-Mexico-fans-late-night-hotel-siege-FAILED-Thomas-Tuchel-World-Cup-clash.html) - **Dailymail.com**
-10. [Andoni Iraola hands €100m Liverpool star an undeserved lifeline](https://www.anfieldwatch.co.uk/liverpool-fc/news/andoni-iraola-hands-eur100m-liverpool-star-an-undeserved-lifeline/) - **Anfieldwatch.co.uk**
+1. [Everton agrees to sign Tyrique George from Chelsea for £18M upfront](https://cryptobriefing.com/everton-tyrique-george-chelsea-transfer-2/) - **Crypto Briefing**
+2. [Newcastle Reportedly Tracking Wolves Teenager for Summer Transfer](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/22155/newcastle-reportedly-tracking-wolves-teenager-for-summer-transfer) - **SB Nation**
+3. [Chelsea defender Chalobah prefers Inter over Como, but Fabregas’ hopes still alive](https://football-italia.net/chelsea-chalobah-prefers-inter-to-como-2026/) - **Football Italia**
+4. [ALAN CAWLEY: It's time to stop sadistically cheering anyone but England. This is why I'm backing them to WIN the World Cup - and why every Irish football fan should too](https://www.dailymail.com/news/article-15953533/ALAN-CAWLEY-time-stop-sadistically-cheering-England-Im-backing-WIN-World-Cup-Irish-football-fan-too.html) - **Dailymail.com**
+5. [Liverpool legend throws coaching credentials into the mix following Thiago comments](https://anfieldindex.com/95535/liverpool-legend-throws-coaching-credentials-into-the-mix-following-thiago-comments.html) - **Anfieldindex.com**
+6. [Sunday Notes: Sean Doolittle is Watching the World Cup, Leeds United in Mind](https://blogs.fangraphs.com/sunday-notes-sean-doolittle-is-watching-the-world-cup-leeds-united-in-mind/) - **Fangraphs.com**
+7. [England fighting history as well as Mexican nation in Azteca cauldron](https://www.bbc.com/sport/football/articles/cvg7z7zxkw9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Tour de France 2026: TdF Riders as Premier League Clubs](https://liverpooloffside.sbnation.com/odds-and-ends/81744/tour-de-france-2026-explained-beginners-preview-riders-football-clubs) - **SB Nation**
+9. [Man Utd and Newcastle vie for Chelsea midfielder Santos](https://thefootballfaithful.com/man-utd-transfer-news-newcastle-vie-chelsea-midfielder-santos/) - **The Football Faithful**
+10. [Report Hull City pounce on Napoli goalkeeper Milinkovic-Savic](https://football-italia.net/hull-city-pounce-milinkovic-savic-napoli-15m/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-07-06 17:23:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-06 21:26:27 (KST) / (하루 100회 제한 준수 중)*
