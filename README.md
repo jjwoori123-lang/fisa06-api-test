@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Brazil vs. Norway odds, prediction, time: 2026 World Cup Round of 16 picks via expert on 25-16 roll](https://www.cbssports.com/soccer/news/brazil-norway-odds-prediction-time-2026-world-cup-round-16-picks-soccer-best-bets/) - **CBS Sports**
-2. [Who are Mexico's WAGs? Meet the influencers, fashion designers and actresses cheering on England's opponents tonight](https://www.dailymail.com/tvshowbiz/article-15954339/Mexico-WAGs-influencers-actresses-England-World-Cup-football.html) - **Dailymail.com**
-3. [Why does England sing 'Wonderwall' after World Cup victories?](https://www.usatoday.com/story/sports/soccer/worldcup/2026/07/05/why-does-england-sing-wonderwall-world-cup-oasis/90812881007/) - **USA Today**
-4. [Report – The real hurdle behind Real Madrid’s struggle to sell 23-year-old midfielder](https://madriduniversal.com/report-the-real-hurdle-behind-real-madrids-struggle-to-sell-23-year-old-midfielder/) - **Madriduniversal.com**
-5. [Andoni Iraola given major Premier League title boost as 'powerful' star set to stay](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5d4a6a25-e823-49d0-9192-ae9f69a34978) - **Yahoo Entertainment**
-6. [FIFA Suspends Red Card for US Soccer Star Folarin Balogun, Clearing Him to Play in World Cup Match vs. Belgium](https://www.breitbart.com/sports/2026/07/05/fifa-suspends-red-card-for-us-soccer-star-folarin-balogun-clearing-him-to-play-in-world-cup-match-vs-belgium/) - **Breitbart News**
-7. [Bournemouth’s £50M Tyler Adams valuation highlights the growing financialization of Premier League transfers](https://cryptobriefing.com/bournemouth-tyler-adams-transfer-valuation/) - **Crypto Briefing**
-8. [Andrey Santos position, style of play: Why Man United reportedly want to sign Chelsea midfielder](https://www.sportingnews.com/us/soccer/manchester-united/news/andrey-santos-position-style-man-united-chelsea-midfielder/133125adb1a7b4c2f247b21c) - **Sporting News**
-9. [Braves send five to 2026 All-Star Game, Drake Baldwin and Ozzie Albies earn starting honors](https://www.sportingnews.com/us/mlb/atlanta-braves/news/braves-send-five-2026-all-star-game/4b0713285c1e47cb3006eb0d) - **Sporting News**
-10. [Benfica drops €20M on Polish winger Kamiński as European football’s transfer market heats up](https://cryptobriefing.com/benfica-kaminski-transfer-20m-deal/) - **Crypto Briefing**
+1. [Arsenal’s only relegation: The season that remains unique in the club’s history](https://www.justarsenal.com/arsenals-only-relegation-the-season-that-remains-unique-in-the-clubs-history/418048) - **Just Arsenal News**
+2. [Manchester City stance on Ruben Dias sale as Real Madrid register formal transfer enquiry](https://cityxtra.co.uk/49493/manchester-city-stance-on-ruben-dias-sale-as-real-madrid-register-formal-transfer-enquiry/) - **Cityxtra.co.uk**
+3. [Leeds United In The Race For €30m Centre-Back: Should Daniel Farke Push For Him?](https://the4thofficial.net/2026/07/leeds-united-in-the-race-for-e30m-centre-back-should-daniel-farke-push-for-him/) - **The4thofficial.net**
+4. [Newcastle land highly-rated winger Bazoumana Toure](https://www.playmakerstats.com/news/newcastle-land-highly-rated-winger-bazoumana-toure/1153972) - **Playmakerstats.com**
+5. [Erling Haaland vs. Gabriel rivalry: Arsenal, Man City resume heated feud in World Cup Round of 16](https://www.sportingnews.com/us/soccer/news/erling-haaland-gabriel-rivalry-arsenal-man-city-world-cup/42db31a53ddc7471f7df458b) - **Sporting News**
+6. [Fiorentina scare as Arsenal join race for Boca Juniors sensation Aranda](https://football-italia.net/fiorentina-scare-as-arsenal-join-race-aranda/) - **Football Italia**
+7. [The hidden brain disease impacting DV victim-survivors](https://www.abc.net.au/news/2026-07-06/domestic-and-family-violence-survivors-at-risk-of-cte/106870892) - **ABC News (AU)**
+8. [Aston Villa Linked With £18.3m Goalkeeper: Good Option For Emery?](https://the4thofficial.net/2026/07/aston-villa-linked-with-18-3m-goalkeeper-good-option-for-emery/) - **The4thofficial.net**
+9. [Spurs, Fiorentina agree loan-to-buy deal for Radu Dragusin](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-transfers-rumors/71905/tottenham-hotspur-transfer-news-rumors-radu-dragusin-fiorentina-loan-to-buy) - **SB Nation**
+10. [Report: Premier League clubs and Real Madrid keen on Inter talent Sucic](https://football-italia.net/report-premier-league-clubs-real-madrid-sucic/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-07-07 03:22:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-07 05:32:12 (KST) / (하루 100회 제한 준수 중)*
