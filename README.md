@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [England star Elliot Anderson reveals his emotional struggle at the World Cup after his mum died just before the tournament](https://www.dailymail.com/sport/football/article-15955651/England-star-Elliot-Anderson-reveals-emotional-struggle-World-Cup-mum-died-just-tournament.html) - **Dailymail.com**
-2. [Official | Eliezer Mayenda completes move from Sunderland to Rennes](https://www.getfootballnewsfrance.com/2026/official-eliezer-mayenda-completes-move-from-sunderland-to-rennes/) - **Get French Football News**
-3. [Premier League club announce new manager on Monday morning](https://www.themag.co.uk/2026/07/premier-league-club-announce-new-manager-on-monday-morning-nottingham-forest-oliver-glasner/) - **The Mag**
-4. [Liverpool make ‘serious move’ for £50m winger with impeccable World Cup record](https://www.empireofthekop.com/2026/07/06/liverpool-make-serious-move-for-50m-winger-with-impeccable-world-cup-record/) - **Empire of The Kop**
-5. [Nottingham Forest confirm Glasner as new head coach](https://www.101greatgoals.com/football/premier-league/nottingham-forest-confirm-glasner-as-new-head-coach/) - **101 Great Goals**
-6. [Nottingham Forest confirm Glasner's appointment as head coach](https://www.skysports.com/football/news/11095/13560923/oliver-glasner-to-nottingham-forest-former-crystal-palace-boss-succeeds-vitor-pereira-at-the-city-ground) - **Sky Sports**
-7. [Nottingham Forest announce appointment of Oliver Glasner](https://www.playmakerstats.com/news/nottingham-forest-announce-appointment-of-oliver-glasner/1154207) - **Playmakerstats.com**
-8. [Real Madrid change plans for summer signing after top target snub](https://siempremadrid.com/real-madrid-change-plans-for-summer-signing-after-top-target-snub/) - **Siempremadrid.com**
-9. [Nottingham Forest's three-year operation to get Oliver Glasner: The Marinakis lieutenant who masterminded move, the signings new boss has already identified and the Crystal Palace star who could follow him](https://www.dailymail.com/sport/football/article-15947967/Oliver-Glasner-Nottingham-Forest-Crystal-Palace-Marinakis-transfers.html) - **Dailymail.com**
+1. [Harry Kane Shines at World Cup 2026 as Son Heung-min and South Korea Suffer Historic Group Stage Exit](https://www.ibtimes.com.au/kane-son-2026-world-cup-contrast-1871877) - **Ibtimes.com.au**
+2. [Aurelien Tchouameni: Man United’s plan for Real Madrid star explained](https://thepeoplesperson.com/2026/07/06/aurelien-tchouameni-man-uniteds-plan-for-real-madrid-star-explained-312361/) - **The Peoples Person**
+3. [‘No, no…’ – David Moyes gives blunt answer to eyebrow-raising Mo Salah and Everton question](https://www.empireofthekop.com/2026/07/06/david-moyes-gives-blunt-answer-to-mo-salah-and-everton-question/) - **Empire of The Kop**
+4. [Tonali completes club-record £100m Tottenham move](https://wp.fromthespot.co.uk/31038/tonali-completes-club-record-100m-tottenham-move/) - **Fromthespot.co.uk**
+5. [Tottenham Hotspur Sign Sandro Tonali In Club-Record £100 Million Deal](https://www.rediff.com/sports/report/tottenham-hotspur-sign-sandro-tonali-in-club-record-100-million-deal/20260706.htm) - **Rediff.com**
+6. [USA vs. Belgium odds, prediction, time: 2026 World Cup Round of 16 picks via expert on 25-16 roll](https://www.cbssports.com/soccer/news/usa-belgium-odds-prediction-time-2026-world-cup-round-of-16-picks-with-folarin-balogun-playing/) - **CBS Sports**
+7. [Will ITV still be free? The massive Sky-ITV deal explained — and what it means for your favorite TV shows](https://www.techradar.com/televisions/the-sky-itv-deal-explained-2026) - **TechRadar**
+8. [Transfers: 6 July. Arsenal signing 33 players!](https://untold-arsenal.com/archives/121610) - **Untold-arsenal.com**
+9. [Rogers to Become 100% Owner of Maple Leaf Sports & Entertainment](https://www.globenewswire.com/news-release/2026/07/06/3322361/0/en/Rogers-to-Become-100-Owner-of-Maple-Leaf-Sports-Entertainment.html) - **GlobeNewswire**
+10. [Jumbo Package: Alabama self-reports six minor violations](https://www.rollbamaroll.com/alabama-crimson-tide-basketball/82634/alabama-football-self-reports-six-minor-violations) - **Roll Bama Roll**
 
 
 ---
-*최근 업데이트: 2026-07-07 18:47:11 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-07 21:28:29 (KST) / (하루 100회 제한 준수 중)*
