@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Life at the end of the metaverse](https://www.prospectmagazine.co.uk/ideas/technology/73949/life-at-the-end-of-the-metaverse) - **Prospect Magazine**
-2. [Tottenham star Djed Spence redeems himself with heroic last-ditch effort to help his side into the World Cup quarter-final](https://sportsview.co.uk/2026/07/tottenham-star-djed-spence-redeems-himself-with-heroic-last-ditch-effort-to-help-his-side-into-the-world-cup-quarter-final?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-star-djed-spence-redeems-himself-with-heroic-last-ditch-effort-to-help-his-side-into-the-world-cup-quarter-final) - **Sportsview.co.uk**
-3. [Aurelien Tchouameni: Mourinho pours cold water on United’s dreams](https://thepeoplesperson.com/2026/07/06/aurelien-tchouameni-mourinho-pours-cold-water-on-uniteds-dreams-312346/) - **The Peoples Person**
-4. [Football pitches 'like concrete' due to extreme heat, say clubs](https://www.bbc.com/news/articles/c4gy52p07lvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [First XV wrap: Auckland Grammar edge Sacred Heart to stay unbeaten in 1A, Rosmini end Westlake streak](https://www.nzherald.co.nz/sport/rugby/school-rugby/first-xv-wrap-auckland-grammar-edge-sacred-heart-to-stay-unbeaten-in-1a-rosmini-end-westlake-streak/premium/NAZ4H46NV5HFTC7CH34S4OG3EM/) - **New Zealand Herald**
-6. [Ken Early: The World Cup is an epic battle between prudent precision and superhuman instinct](https://www.irishtimes.com/sport/soccer/2026/07/06/ken-early-the-world-cup-is-an-epic-battle-between-prudent-precision-and-superhuman-instinct/) - **The Irish Times**
-7. [On This Day (6th July 1995): Reidy Bags Pop & Hints At Pulling On His Boots](https://rokerreport.sbnation.com/features/143738/on-this-day-6th-july-1995-reidy-bags-pop-hints-at-pulling-on-his-boots) - **SB Nation**
-8. [Editorial: Eliezer Mayenda — A Farewell To A Sunderland Favourite](https://rokerreport.sbnation.com/opinion/144012/editorial-eliezer-mayenda-a-farewell-to-a-sunderland-favourite) - **SB Nation**
-9. [Who Should Replace Dennis Cirkin at Left-Back?](https://rokerreport.sbnation.com/opinion/143148/who-should-replace-dennis-cirkin-at-left-back) - **SB Nation**
-10. [Kane vs. Haaland: The World's Best Strikers Will Meet In World Cup Quarterfinals](https://www.foxsports.com/stories/soccer/kane-vs-haaland-worlds-best-strikers-will-meet-world-cup-quarterfinals) - **Fox Sports**
+1. [England star Elliot Anderson reveals his emotional struggle at the World Cup after his mum died just before the tournament](https://www.dailymail.com/sport/football/article-15955651/England-star-Elliot-Anderson-reveals-emotional-struggle-World-Cup-mum-died-just-tournament.html) - **Dailymail.com**
+2. [Official | Eliezer Mayenda completes move from Sunderland to Rennes](https://www.getfootballnewsfrance.com/2026/official-eliezer-mayenda-completes-move-from-sunderland-to-rennes/) - **Get French Football News**
+3. [Premier League club announce new manager on Monday morning](https://www.themag.co.uk/2026/07/premier-league-club-announce-new-manager-on-monday-morning-nottingham-forest-oliver-glasner/) - **The Mag**
+4. [Liverpool make ‘serious move’ for £50m winger with impeccable World Cup record](https://www.empireofthekop.com/2026/07/06/liverpool-make-serious-move-for-50m-winger-with-impeccable-world-cup-record/) - **Empire of The Kop**
+5. [Nottingham Forest confirm Glasner as new head coach](https://www.101greatgoals.com/football/premier-league/nottingham-forest-confirm-glasner-as-new-head-coach/) - **101 Great Goals**
+6. [Nottingham Forest confirm Glasner's appointment as head coach](https://www.skysports.com/football/news/11095/13560923/oliver-glasner-to-nottingham-forest-former-crystal-palace-boss-succeeds-vitor-pereira-at-the-city-ground) - **Sky Sports**
+7. [Nottingham Forest announce appointment of Oliver Glasner](https://www.playmakerstats.com/news/nottingham-forest-announce-appointment-of-oliver-glasner/1154207) - **Playmakerstats.com**
+8. [Real Madrid change plans for summer signing after top target snub](https://siempremadrid.com/real-madrid-change-plans-for-summer-signing-after-top-target-snub/) - **Siempremadrid.com**
+9. [Nottingham Forest's three-year operation to get Oliver Glasner: The Marinakis lieutenant who masterminded move, the signings new boss has already identified and the Crystal Palace star who could follow him](https://www.dailymail.com/sport/football/article-15947967/Oliver-Glasner-Nottingham-Forest-Crystal-Palace-Marinakis-transfers.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-07-07 14:49:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-07 18:47:11 (KST) / (하루 100회 제한 준수 중)*
