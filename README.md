@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Three Premier League games rearranged for TV](http://www.arsenal.com/news/three-premier-league-games-rearranged-tv) - **Arsenal.com**
-2. [One Liverpool starter faces crucial ‘audition’ in Andoni Iraola’s first few games in charge](https://www.empireofthekop.com/2026/07/07/liverpool-starter-faces-crucial-audition-in-iraolas-first-few-games/) - **Empire of The Kop**
-3. [Two Brentford games selected for Sky Sports coverage](https://www.brentfordfc.com/en/news/article/first-team-brentford-premier-league-fixtures-live-sky-sports-august-september-2026) - **Brentfordfc.com**
-4. [Burnley set to bring in Genk head coach to replace Scott Parker](https://getfootballnewsbene.com/burnley-set-to-bring-in-genk-head-coach-to-replace-scott-parker/) - **Getfootballnewsbene.com**
-5. [Where former Michigan Basketball players are playing outside the NBA](https://www.maizenbrew.com/michigan-mens-basketball/117712/michigan-basketball-trey-burke-ignas-brazdeikis-zavier-simpson-derrick-walton) - **Maize n Brew**
-6. [Roma unveil full preseason friendly games schedule](https://romapress.net/roma-unveil-full-preseason-friendly-games-schedule/) - **RomaPress**
-7. [Newcastle Linked to Former Liverpool Striker Once Again](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/22218/newcastle-linked-to-former-liverpool-striker-once-again) - **SB Nation**
-8. [Crystal Palace and Manchester United away games moved for TV coverage](https://www.mancity.com/news/mens/crystal-palace-manchester-united-2026-27-premier-league-tv-coverage-63919014) - **Manchester City FC**
-9. [Burnley in talks to appoint Hayen as boss](https://www.bbc.com/sport/football/articles/c4gy328lv3qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Burnley in talks to appoint Hayen as boss](https://www.bbc.co.uk/sport/football/articles/c4gy328lv3qo) - **BBC News**
+1. [Inside Arsenal's overhaul to fight injury crisis: As Bukayo Saka, Declan Rice, William Saliba and more battle burnout, this is why Mikel Arteta is poaching Aston Villa coaches, the 200m sprinter running the show and Eberechi Eze's crucial intervention](https://www.dailymail.com/sport/football/article-15958823/Arsenal-injuries-medical-overhaul-Arteta-Villa-Eze.html) - **Dailymail.com**
+2. [Dechert Bolsters Private Equity M&A Capabilities With Addition of Partner Leahana Grimley](https://www.prnewswire.com/news-releases/dechert-bolsters-private-equity-ma-capabilities-with-addition-of-partner-leahana-grimley-302819619.html) - **PRNewswire**
+3. [How to watch Switzerland vs Colombia in USA: 2026 World Cup, Live Stream, TV & Preview](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-switzerland-vs-colombia-in-the-usa-live-stream-and-tv-for-2026-world-cup/) - **Worldsoccertalk.com**
+4. [Texans' All-Pro cornerback ranks No. 2 in ESPN's 2026 NFL cornerback rankings](https://www.sportingnews.com/us/nfl/houston-texans/news/derek-stingley-jr-espn-2026-cornerback-rankings/ba555cb48c120d78cf635fa1) - **Sporting News**
+5. [Manchester City face battle to keep star Academy trio including Ryan McAidoo](https://cityxtra.co.uk/49657/manchester-city-face-battle-to-keep-star-academy-trio-including-ryan-mcaidoo/) - **Cityxtra.co.uk**
+6. [Can Scotland learn from history-making Norway?](https://www.bbc.co.uk/sport/football/articles/cr7xk8r9xl4o) - **BBC News**
+7. [Inside Liverpool's pre-season plans as Iraola starts work](https://www.bbc.co.uk/sport/football/articles/c5yz3g5pmzyo) - **BBC News**
+8. [The Good, The Bad, And The Ugly Of The USMNT At The FIFA World Cup](https://www.forbes.com/sites/michaellewis/2026/07/07/the-good-the-bad-and-the-ugly-of-the-usmnt-at-the-fifa-world-cup/) - **Forbes**
+9. [Billi Mucklow shows off her fitness transformation after losing a stone and dropping a dress size](https://www.dailymail.com/tvshowbiz/article-15959609/Billi-Mucklow-fitness-transformation-losing-stone.html) - **Dailymail.com**
+10. [Manchester United linked to Andrey Santos](https://thebusbybabe.sbnation.com/general/35239/manchester-united-linked-to-andrey-santos) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-07-08 23:20:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-09 01:12:46 (KST) / (하루 100회 제한 준수 중)*
