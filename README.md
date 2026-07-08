@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Switzerland vs. Colombia odds, prediction, time: 2026 World Cup Round of 16 picks by expert on 25-16 run](https://www.cbssports.com/soccer/news/switzerland-vs-colombia-odds-prediction-time-2026-world-cup-round-of-16-picks-by-expert-on-25-16-run/) - **CBS Sports**
-2. [Manchester United interested in signing Aurélien Tchouaméni after losing out on key targets](https://www.getfootballnewsfrance.com/2026/manchester-united-interested-in-signing-aurelien-tchouameni-after-losing-out-on-key-targets/) - **Get French Football News**
-3. [Alex Scott: Chelsea’s plot for Man United’s main transfer target unveiled](https://thepeoplesperson.com/2026/07/07/alex-scott-chelseas-plot-for-man-uniteds-main-transfer-target-unveiled-312401/) - **The Peoples Person**
-4. [Arsenal offering £19m to sign Club Tijuana attacker Gilberto Mora](https://sportsview.co.uk/2026/07/arsenal-now-offer-19m-to-sign-club-tijuana-attacker-gilberto-mora?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-now-offer-19m-to-sign-club-tijuana-attacker-gilberto-mora) - **Sportsview.co.uk**
-5. [Report: Chelsea ready to cash in on £40m forward](https://eplindex.com/148087/report-chelsea-ready-to-cash-in-on-40m-forward.html) - **English Premier League Index - Opta Stats**
-6. [Everton considering a move for Strasbourg’s Guéla Doué](https://www.getfootballnewsfrance.com/2026/everton-considering-a-move-for-strasbourgs-guela-doue/) - **Get French Football News**
-7. [PSG unlikely to formalise their interest in Aston Villa’s Morgan Rogers](https://www.getfootballnewsfrance.com/2026/psg-unlikely-to-formalise-their-interest-in-aston-villas-morgan-rogers/) - **Get French Football News**
-8. [Arsenal offer £19m to sign Club Tijuana attacker Gilberto Mora](https://sportsview.co.uk/2026/07/arsenal-offer-19m-to-sign-club-tijuana-attacker-gilberto-mora?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-offer-19m-to-sign-club-tijuana-attacker-gilberto-mora) - **Sportsview.co.uk**
-9. [10 Arsenal players set to miss start of pre-season](https://dailycannon.com/2026/07/arsenal-players-miss-start-pre-season/) - **Dailycannon.com**
-10. ['That is a card Farke could play...'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3787ee4c-f49b-4b4c-8073-ee7ab10bf190) - **Yahoo Entertainment**
+1. [Three Premier League games rearranged for TV](http://www.arsenal.com/news/three-premier-league-games-rearranged-tv) - **Arsenal.com**
+2. [One Liverpool starter faces crucial ‘audition’ in Andoni Iraola’s first few games in charge](https://www.empireofthekop.com/2026/07/07/liverpool-starter-faces-crucial-audition-in-iraolas-first-few-games/) - **Empire of The Kop**
+3. [Two Brentford games selected for Sky Sports coverage](https://www.brentfordfc.com/en/news/article/first-team-brentford-premier-league-fixtures-live-sky-sports-august-september-2026) - **Brentfordfc.com**
+4. [Burnley set to bring in Genk head coach to replace Scott Parker](https://getfootballnewsbene.com/burnley-set-to-bring-in-genk-head-coach-to-replace-scott-parker/) - **Getfootballnewsbene.com**
+5. [Where former Michigan Basketball players are playing outside the NBA](https://www.maizenbrew.com/michigan-mens-basketball/117712/michigan-basketball-trey-burke-ignas-brazdeikis-zavier-simpson-derrick-walton) - **Maize n Brew**
+6. [Roma unveil full preseason friendly games schedule](https://romapress.net/roma-unveil-full-preseason-friendly-games-schedule/) - **RomaPress**
+7. [Newcastle Linked to Former Liverpool Striker Once Again](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/22218/newcastle-linked-to-former-liverpool-striker-once-again) - **SB Nation**
+8. [Crystal Palace and Manchester United away games moved for TV coverage](https://www.mancity.com/news/mens/crystal-palace-manchester-united-2026-27-premier-league-tv-coverage-63919014) - **Manchester City FC**
+9. [Burnley in talks to appoint Hayen as boss](https://www.bbc.com/sport/football/articles/c4gy328lv3qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Burnley in talks to appoint Hayen as boss](https://www.bbc.co.uk/sport/football/articles/c4gy328lv3qo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-07-08 20:47:38 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-08 23:20:04 (KST) / (하루 100회 제한 준수 중)*
