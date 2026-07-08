@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The USMNT Failed to Meet the Moment. Seattle Did Not](https://frontofficesports.com/seattle-world-cup-lumen-field-soccer-fans-united-states/) - **Frontofficesports.com**
-2. [Arsenal seal deal for former Leeds United goalkeeper – Report](https://www.justarsenal.com/mora-25m-arsenal-bid-for-gilberto-mora/418207) - **Just Arsenal News**
-3. [Chelsea concede defeat in pursuit of Morgan Rogers](https://footballtoday.com/2026/07/07/chelsea-concede-defeat-in-pursuit-of-morgan-rogers/) - **Footballtoday.com**
-4. [Aurelien Tchouameni wage demands revealed as United keep pushing](https://thepeoplesperson.com/2026/07/07/aurelien-tchouameni-wage-demands-revealed-as-united-keep-pushing-312428/) - **The Peoples Person**
-5. [Cádiz secures loan deal for Antonio Cordero from Newcastle until 2026](https://cryptobriefing.com/cadiz-cordero-newcastle-loan-deal/) - **Crypto Briefing**
-6. [Bradley dismisses Lopes absence as reason for Euro defeat](https://www.rte.ie/sport/soccer/2026/0707/1582300-bradley-dismisses-lopes-absence-as-reason-for-euro-defeat/) - **RTE**
-7. [These ASX tech shares crashed hard. Could they double from here?](https://www.fool.com.au/2026/07/08/these-asx-tech-shares-crashed-hard-could-they-double-from-here/) - **Motley Fool Australia**
-8. [AC Milan’s Bennacer heads to Qatar as Gulf sports spending continues to reshape player markets](https://cryptobriefing.com/bennacer-ac-milan-qatar-gulf-sports-spending/) - **Crypto Briefing**
-9. [Big fixture update emerges for Man United ahead of new season](https://thepeoplesperson.com/2026/07/07/big-fixture-update-emerges-for-man-united-ahead-of-new-season-312422/) - **The Peoples Person**
-10. [Everything New on Streaming in July: Netflix, HBO Max and More](https://www.thewrap.com/creative-content/what-to-watch/everything-new-streaming-july-2026/) - **TheWrap**
+1. [Fulham announce Alvaro Arbeloa as new manager: Ex-Liverpool star replaces Marco Silva at Craven Cottage after Real Madrid nightmare](https://www.dailymail.com/sport/football/article-15960823/Fulham-announce-Alvaro-Arbeloa-new-manager-Ex-Liverpool-star-replaces-Marco-Silva-Craven-Cottage-Real-Madrid-nightmare.html) - **Dailymail.com**
+2. [Fulham appoint Arbeloa as new manager](https://www.rte.ie/sport/soccer/2026/0708/1582313-fulham-appoint-arbeloa-as-new-manager/) - **RTE**
+3. [ÖFB-Frauen Bundesliga: LASK make six new signings ahead of 2026/27 season](https://herfootballhub.com/ofb-frauen-bundesliga-lask-six-news-signings-ahead-of-2026-27-season/) - **Herfootballhub.com**
+4. [U.S. vs. Belgium had a total American audience of 42 million](https://www.nbcsports.com/nfl/profootballtalk/rumor-mill/news/u-s-vs-belgium-had-a-total-american-audience-of-42-million) - **NBCSports.com**
+5. [In Toronto, Kyle Lowry transformed himself and the Raptors franchise](https://www.cbssports.com/nba/news/kyle-lowry-toronto-raptors-retirement/) - **CBS Sports**
+6. [Premier League clubs’ pre-tax losses surge to nearly £1B as crypto sponsorship scrutiny intensifies](https://cryptobriefing.com/premier-league-losses-crypto-sponsorship-scrutiny/) - **Crypto Briefing**
+7. [2026 World Cup Quarterfinals Preview: The Key Storyline For Every Team](https://www.foxsports.com/stories/soccer/2026-world-cup-quarterfinals-preview-key-storyline-every-team) - **Fox Sports**
+8. [European football revenue breaks €40 billion but growth is slowing, says Deloitte](https://www.channelnewsasia.com/sport/european-football-revenue-breaks-eu40-billion-growth-slowing-says-deloitte-6239641) - **CNA**
+9. [Bombshell: Álvaro Arbeloa is Fulham’s new manager](https://onefootball.com/en/news/bombshell-alvaro-arbeloa-is-fulhams-new-manager-43110820) - **Onefootball.com**
+10. [Alex Scott: United ready to match Bournemouth’s asking price](https://thepeoplesperson.com/2026/07/08/alex-scott-united-ready-to-match-bournemouths-asking-price-312433/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-07-09 07:09:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-09 08:34:07 (KST) / (하루 100회 제한 준수 중)*
