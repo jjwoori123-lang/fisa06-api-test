@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Inside Arsenal's overhaul to fight injury crisis: As Bukayo Saka, Declan Rice, William Saliba and more battle burnout, this is why Mikel Arteta is poaching Aston Villa coaches, the 200m sprinter running the show and Eberechi Eze's crucial intervention](https://www.dailymail.com/sport/football/article-15958823/Arsenal-injuries-medical-overhaul-Arteta-Villa-Eze.html) - **Dailymail.com**
-2. [Dechert Bolsters Private Equity M&A Capabilities With Addition of Partner Leahana Grimley](https://www.prnewswire.com/news-releases/dechert-bolsters-private-equity-ma-capabilities-with-addition-of-partner-leahana-grimley-302819619.html) - **PRNewswire**
-3. [How to watch Switzerland vs Colombia in USA: 2026 World Cup, Live Stream, TV & Preview](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-switzerland-vs-colombia-in-the-usa-live-stream-and-tv-for-2026-world-cup/) - **Worldsoccertalk.com**
-4. [Texans' All-Pro cornerback ranks No. 2 in ESPN's 2026 NFL cornerback rankings](https://www.sportingnews.com/us/nfl/houston-texans/news/derek-stingley-jr-espn-2026-cornerback-rankings/ba555cb48c120d78cf635fa1) - **Sporting News**
-5. [Manchester City face battle to keep star Academy trio including Ryan McAidoo](https://cityxtra.co.uk/49657/manchester-city-face-battle-to-keep-star-academy-trio-including-ryan-mcaidoo/) - **Cityxtra.co.uk**
-6. [Can Scotland learn from history-making Norway?](https://www.bbc.co.uk/sport/football/articles/cr7xk8r9xl4o) - **BBC News**
-7. [Inside Liverpool's pre-season plans as Iraola starts work](https://www.bbc.co.uk/sport/football/articles/c5yz3g5pmzyo) - **BBC News**
-8. [The Good, The Bad, And The Ugly Of The USMNT At The FIFA World Cup](https://www.forbes.com/sites/michaellewis/2026/07/07/the-good-the-bad-and-the-ugly-of-the-usmnt-at-the-fifa-world-cup/) - **Forbes**
-9. [Billi Mucklow shows off her fitness transformation after losing a stone and dropping a dress size](https://www.dailymail.com/tvshowbiz/article-15959609/Billi-Mucklow-fitness-transformation-losing-stone.html) - **Dailymail.com**
-10. [Manchester United linked to Andrey Santos](https://thebusbybabe.sbnation.com/general/35239/manchester-united-linked-to-andrey-santos) - **SB Nation**
+1. [Qarabag's Durán poised for Celtic medical](https://www.bbc.com/sport/football/articles/c5yzzxv8yw0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Premier League announce several fixture changes for first two months of new season](https://hayters.com/premier-league-announce-several-fixture-changes-for-first-two-months-of-new-season/) - **Hayters.com**
+3. [Pierre Sage was willing to stay at Lens if Crystal Palace failed to reach an agreement](https://www.getfootballnewsfrance.com/2026/pierre-sage-was-willing-to-stay-at-lens-if-crystal-palace-failed-to-reach-an-agreement/) - **Get French Football News**
+4. [Zohran Mamdani weighs in on Folarin Balogun red card controversy after USMNT World Cup exit](https://www.alloutsoccer.com/news/mamdani-balogun-usmnt-world-cup-1925762) - **Alloutsoccer.com**
+5. [Pierre Sage reveals Premier League ambition behind Crystal Palace move](https://www.getfootballnewsfrance.com/2026/pierre-sage-reveals-premier-league-ambition-behind-crystal-palace-move/) - **Get French Football News**
+6. [Euro giants met Liverpool star 'in person' to discuss Anfield exit](https://www.anfieldwatch.co.uk/liverpool-fc/news/euro-giants-met-liverpool-star-in-person-to-discuss-anfield-exit/) - **Anfieldwatch.co.uk**
+7. [Yankees All-Star Ben Rice shares exciting news on IG](https://www.thebiglead.com/yankees-all-star-ben-rice-shares-exciting-news-on-ig/) - **The Big Lead**
+8. [Lamine Yamal, Gavi & Barcelona stars console João Cancelo after Portugal World Cup KO](https://www.barcablaugranes.com/world-cup-2026/125877/lamine-yamal-gavi-barcelona-stars-console-joao-cancelo-after-portugal-world-cup-ko) - **Barca Blaugranes**
+9. [Switzerland vs. Colombia odds, prediction, time: 2026 World Cup Round of 16 picks by expert on 25-16 run](https://www.cbssports.com/soccer/news/switzerland-colombia-odds-prediction-time-2026-world-cup-round-of-16-picks/) - **CBS Sports**
+10. [Brentford sign forward Anthony from Burnley](https://www.channelnewsasia.com/sport/brentford-sign-forward-anthony-burnley-6239021) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-07-09 01:12:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-09 02:53:47 (KST) / (하루 100회 제한 준수 중)*
