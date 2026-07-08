@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Aston Villa Linked With La Liga Player As Onana’s Replacement: Why Paying A Premium Is Not Right?](https://the4thofficial.net/2026/07/aston-villa-linked-with-la-liga-player-as-onanas-replacement-why-paying-a-premium-is-not-right/) - **The4thofficial.net**
-2. [5 biggest overreactions to USA's World Cup letdown: Christian Pulisic, Mauricio Pochettino and outsized expectations](https://www.sportingnews.com/us/soccer/news/usmnt-world-cup-overreactions/98eaa6e262ccc11dfae31863) - **Sporting News**
-3. [2026 MLB All-Star Game events in Philadelphia. What to know](https://www.delawareonline.com/story/sports/mlb/phillies/2026/07/07/mlb-all-star-game-2026-events-schedule-philadelphia-how-to-watch/90837465007/) - **The News Journal**
-4. [Manchester United Have Joined The Race For This Real Madrid Keeper: Good Fit For Carrick?](https://the4thofficial.net/2026/07/manchester-united-have-joined-the-race-for-this-real-madrid-keeper/) - **The4thofficial.net**
-5. [World Cup RO16: Switzerland vs Colombia – Lineups announced](https://thefootballfaithful.com/world-cup-ro16-switzerland-vs-colmbia-lineups-announced/) - **The Football Faithful**
-6. [Egypt’s Mostafa Ziko Blasts Refs Over Controversial Disallowed Goal In Argentina’s Win](https://brobible.com/sports/article/egypts-mostafa-ziko-disallowed-goal-argentina/) - **BroBible**
-7. [Manchester City Are Ready To Launch A Move For This Real Madrid Winger: Dream Signing For Maresca?](https://the4thofficial.net/2026/07/manchester-city-are-ready-to-launch-a-move-for-this-real-madrid-winger-2/) - **The4thofficial.net**
-8. [Previewing Northwestern volleyball’s newcomers for 2026](https://www.insidenu.com/northwestern-volleyball/68637/previewing-northwestern-volleyballs-newcomers-for-2026) - **Inside NU**
-9. [Mauricio Pochettino’s potential departure wouldn’t shock former USMNT goalie](https://nypost.com/2026/07/07/sports/mauricio-pochettinos-potential-departure-wouldnt-shock-former-usmnt-goalie/) - **New York Post**
-10. [John Terry warns England to be careful of Odegaard in the Norway match](https://www.justarsenal.com/john-terry-warns-england-to-be-careful-of-odegaard-in-the-norway-match/418176) - **Just Arsenal News**
+1. [Rangers See Cash-Plus-Player Path to Sign Long-Term Midfield Target Amid Bologna’s Barron Pursuit: Why McInnes Must Make The Call](https://the4thofficial.net/2026/07/rangers-see-cash-plus-player-path-to-sign-long-term-midfield-target-amid-bolognas-barron-pursuit-why-mcinnes-must-make-the-call/) - **The4thofficial.net**
+2. [Liverpool get green light in £116m forward deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-bradley-barcola-arsenal-psg-green-light-in-ps116m-forward-deal/) - **Anfieldwatch.co.uk**
+3. [World Cupcophony](https://www.nplusonemag.com/online-only/gooooaaal/world-cupcophony/) - **Nplusonemag.com**
+4. [Five of the best players to never win the World Cup](https://thefootballfaithful.com/fifa-world-cup-best-players-to-never-win/) - **The Football Faithful**
+5. [US Soccer confirms contract talks with Mauricio Pochettino following World Cup exit](https://www.alloutsoccer.com/news/usmnt-pochettino-contract-world-cup-1926039) - **Alloutsoccer.com**
+6. [Report: Newcastle Target World Cup Star After £100m Tonali Exit](https://eplindex.com/148101/report-newcastle-target-world-cup-star-after-100m-tonali-exit.html) - **English Premier League Index - Opta Stats**
+7. [What does Donovan Mitchell's big payday mean for Cleveland's future?](https://sports.yahoo.com/nba/article/what-does-donovan-mitchells-big-payday-mean-for-clevelands-future-201841904.html) - **Yahoo Entertainment**
+8. [EARNED Signs Elite High School Baseball Star, Boston College Commit Ford McCarthy](https://www.globenewswire.com/news-release/2026/07/07/3323636/0/en/EARNED-Signs-Elite-High-School-Baseball-Star-Boston-College-Commit-Ford-McCarthy.html) - **GlobeNewswire**
+9. [Norway's Solbakken praises unique Haaland as England World Cup clash looms](https://www.channelnewsasia.com/sport/norways-solbakken-praises-unique-haaland-england-world-cup-clash-looms-6239331) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-07-09 04:36:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-09 05:45:45 (KST) / (하루 100회 제한 준수 중)*
