@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [EXCLUSIVE | Richard Dunne on Folarin Balogun: ‘He has handled himself really well and could be a Premier League success’](https://www.getfootballnewsfrance.com/2026/exclusive-richard-dunne-on-folarin-balogun-he-has-handled-himself-really-well-and-could-be-a-premier-league-success/) - **Get French Football News**
-2. [England's best players don't play in Premier League, says Norway coach](https://www.channelnewsasia.com/sport/englands-best-players-dont-play-in-premier-league-says-norway-coach-6242071) - **CNA**
-3. [Bruno Guimaraes asks to LEAVE Newcastle: Magpies captain makes desire to join Arsenal clear - but Eddie Howe's side maintain he is NOT for sale](https://www.dailymail.com/sport/football/article-15963395/Bruno-Guimaraes-LEAVE-Newcastle-Arsenal.html) - **Dailymail.com**
-4. [Ivan Provedel is an Inter player](https://www.inter.it/en/news/ivan-provedel-is-an-inter-player) - **Inter.it**
-5. [Manchester United’s £50M Andrey Santos deal highlights crypto’s growing footprint in Premier League finance](https://cryptobriefing.com/manchester-united-santos-deal-crypto-premier-league/) - **Crypto Briefing**
-6. [Strikers Kane, Haaland highlight England-Norway World Cup quarterfinal matchup in Miami](https://www.sun-sentinel.com/2026/07/08/wc-norway-england-facts/) - **Sun Sentinel**
-7. [OFFICIAL: Fiorentina signs Radu Drǎgușin from Tottenham Hotspur](https://www.violanation.com/serie-a-transfer-news-rumours-calciomercato/22235/official-fiorentina-radu-dragusin-tottenham-hotspur-transfer-buy-sell-loan-price-obligation-terms) - **Violanation.com**
-8. [Everton Turn To €40m LaLiga Midfielder: Should The Toffees Pay The Price?](https://the4thofficial.net/2026/07/everton-turn-to-e40m-laliga-midfielder-should-the-toffees-pay-the-price/) - **The4thofficial.net**
-9. [Real Madrid forward emerges as a leading target for Arbeloa at Fulham](https://madriduniversal.com/real-madrid-forward-emerges-as-a-leading-target-for-arbeloa-at-fulham/) - **Madriduniversal.com**
-10. [Chelsea’s £40M Quenda signing highlights how Premier League mega-deals still bypass crypto entirely](https://cryptobriefing.com/chelsea-quenda-transfer-crypto-sports/) - **Crypto Briefing**
+1. [England must cut Haaland's supply lines, says Rogers](https://www.channelnewsasia.com/sport/england-must-cut-haalands-supply-lines-says-rogers-6242211) - **CNA**
+2. [Chelsea sign 19-yr-old Geovany Quenda from Sporting Lisbon](https://www.vanguardngr.com/2026/07/chelsea-sign-19-yr-old-geovany-quenda-from-sporting-lisbon/) - **Vanguard**
+3. [Athlone go top after entertaining draw with Shelbourne](https://www.rte.ie/sport/soccer/2026/0708/1582474-athlone-go-top-after-entertaining-draw-with-shelbourne/) - **RTE**
+4. [Barcelona know what it would cost to land Eli Junior Kroupi](https://getfootballnewsspain.com/barcelona-know-what-it-would-cost-to-land-eli-junior-kroupi/) - **Getfootballnewsspain.com**
+5. [Manchester United considers signing PSG winger Ibrahim Mbaye this summer](https://cryptobriefing.com/manchester-united-psg-mbaye-transfer-crypto/) - **Crypto Briefing**
+6. [Revealed: Man City’s positional belief in Elliot Anderson amid Rodri uncertainty](https://cityxtra.co.uk/49646/revealed-man-citys-positional-belief-in-elliot-anderson-amid-rodri-uncertainty/) - **Cityxtra.co.uk**
+7. [Why Texas politician is demanding accountability over Caitlin Clark attacks in letter to WNBA](https://www.sportingnews.com/us/wnba/indiana-fever/news/texas-politician-wnba-commissioner-cathy-engelbert-caitlin-clark/f4e12937a985ca34286cb4f9) - **Sporting News**
+8. [Ederson to Man United deal facing last-minute collapse](https://thepeoplesperson.com/2026/07/08/ederson-to-man-united-deal-facing-last-minute-collapse-312470/) - **The Peoples Person**
+9. [Udinese locks in striker Keinan Davis with five-year deal, and crypto-powered fan tokens are watching](https://cryptobriefing.com/udinese-keinan-davis-deal-fan-tokens/) - **Crypto Briefing**
+10. [Shohei Ohtani reaches two incredible MLB milestones with one swing on Tuesday](https://www.thebiglead.com/shohei-ohtani-reaches-two-incredible-mlb-milestones-with-one-swing-on-tuesday/) - **The Big Lead**
 
 
 ---
-*최근 업데이트: 2026-07-10 04:11:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-10 05:57:49 (KST) / (하루 100회 제한 준수 중)*
