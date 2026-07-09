@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [England must cut Haaland's supply lines, says Rogers](https://www.channelnewsasia.com/sport/england-must-cut-haalands-supply-lines-says-rogers-6242211) - **CNA**
-2. [Chelsea sign 19-yr-old Geovany Quenda from Sporting Lisbon](https://www.vanguardngr.com/2026/07/chelsea-sign-19-yr-old-geovany-quenda-from-sporting-lisbon/) - **Vanguard**
-3. [Athlone go top after entertaining draw with Shelbourne](https://www.rte.ie/sport/soccer/2026/0708/1582474-athlone-go-top-after-entertaining-draw-with-shelbourne/) - **RTE**
-4. [Barcelona know what it would cost to land Eli Junior Kroupi](https://getfootballnewsspain.com/barcelona-know-what-it-would-cost-to-land-eli-junior-kroupi/) - **Getfootballnewsspain.com**
-5. [Manchester United considers signing PSG winger Ibrahim Mbaye this summer](https://cryptobriefing.com/manchester-united-psg-mbaye-transfer-crypto/) - **Crypto Briefing**
-6. [Revealed: Man City’s positional belief in Elliot Anderson amid Rodri uncertainty](https://cityxtra.co.uk/49646/revealed-man-citys-positional-belief-in-elliot-anderson-amid-rodri-uncertainty/) - **Cityxtra.co.uk**
-7. [Why Texas politician is demanding accountability over Caitlin Clark attacks in letter to WNBA](https://www.sportingnews.com/us/wnba/indiana-fever/news/texas-politician-wnba-commissioner-cathy-engelbert-caitlin-clark/f4e12937a985ca34286cb4f9) - **Sporting News**
-8. [Ederson to Man United deal facing last-minute collapse](https://thepeoplesperson.com/2026/07/08/ederson-to-man-united-deal-facing-last-minute-collapse-312470/) - **The Peoples Person**
-9. [Udinese locks in striker Keinan Davis with five-year deal, and crypto-powered fan tokens are watching](https://cryptobriefing.com/udinese-keinan-davis-deal-fan-tokens/) - **Crypto Briefing**
-10. [Shohei Ohtani reaches two incredible MLB milestones with one swing on Tuesday](https://www.thebiglead.com/shohei-ohtani-reaches-two-incredible-mlb-milestones-with-one-swing-on-tuesday/) - **The Big Lead**
+1. [Which Cardinals star cracked the NFL’s top 100 players of 2026?](https://burncitysports.com/2026/07/08/cardinals-budda-baker-nfl-top-100/) - **Burncitysports.com**
+2. [Inside Man United's pre-season plans: The stars back on first day, latest on injured players and an update on summer transfer window business after agreeing £50m Andrey Santos deal](https://www.dailymail.com/sport/football/article-15962555/man-united-transfer-plans-michael-carrick.html) - **Dailymail.com**
+3. [US Soccer issues statement on Mauricio Pochettino's future with Team USA after World Cup](https://www.foxnews.com/sports/us-soccer-issues-statement-mauricio-pochettino-future-team-usa-world-cup) - **Fox News**
+4. [Rogers determined to stay grounded amid transfer talk and England rise](https://hayters.com/rogers-determined-to-stay-grounded-amid-transfer-talk-and-england-rise/) - **Hayters.com**
+5. [Tottenham Hotspur Are Keeping Tabs On This Gifted Winger: One For The Future?](https://the4thofficial.net/2026/07/tottenham-hotspur-are-keeping-tabs-on-this-gifted-winger/) - **The4thofficial.net**
+6. [Fenerbahce Linked With €25m Deal For Aston Villa Star: What Should The Midlands Club Do?](https://the4thofficial.net/2026/07/fenerbahce-linked-with-e25m-deal-for-aston-villa-star-what-should-the-midlands-club-do/) - **The4thofficial.net**
+7. [Bruno Guimaraes: Man United risk losing race to Arsenal for Newcastle star](https://thepeoplesperson.com/2026/07/08/bruno-guimaraes-man-united-risk-losing-race-to-arsenal-for-newcastle-star-312468/) - **The Peoples Person**
+8. [Chelsea locks up teenage winger Jesse Derry on six-year deal, sends him to Sporting CP on loan](https://cryptobriefing.com/chelsea-jesse-derry-six-year-deal-sporting-loan/) - **Crypto Briefing**
+9. [Manchester City hires Enzo Maresca’s full coaching staff, including former goalkeeper Willy Caballero](https://cryptobriefing.com/manchester-city-maresca-backroom-staff-caballero/) - **Crypto Briefing**
+10. [Inter Make Quick Moves To Sign €30m Everton Target: Should The Toffees Press For Him?](https://the4thofficial.net/2026/07/inter-make-quick-moves-to-sign-e30m-everton-target-should-the-toffees-press-for-him/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-07-10 05:57:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-10 07:38:50 (KST) / (하루 100회 제한 준수 중)*
