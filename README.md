@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bruno Guimaraes is the latest name we have to learn how to pronounce](https://untold-arsenal.com/archives/121668) - **Untold-arsenal.com**
-2. [2026 World Cup | Who are France’s opponents, Morocco?](https://www.getfootballnewsfrance.com/2026/2026-world-cup-who-are-frances-opponents-morocco/) - **Get French Football News**
-3. [Report: Liverpool interested in move for 18-year-old wonderkid](https://anfieldindex.com/95624/report-liverpool-interested-in-move-for-18-year-old-wonderkid.html) - **Anfieldindex.com**
-4. [David Ornstein: Man United have agreed £50m deal to sign Chelsea star](https://eplindex.com/148177/david-ornstein-man-united-have-agreed-50m-deal-to-sign-chelsea-star.html) - **English Premier League Index - Opta Stats**
-5. ['Celtic go all out for striker Bowie' - gossip](https://www.bbc.com/sport/football/articles/ce37q0371n8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. ['Celtic go all out for striker Bowie' - gossip](https://www.bbc.co.uk/sport/football/articles/ce37q0371n8o) - **BBC News**
-7. [Papers: England set to get bank holiday IF Three Lions win World Cup](https://www.skysports.com/football/transfer-paper-talk/12709/13561845/world-cup-2026-england-set-to-get-bank-holiday-if-three-lions-win-world-cup-paper-talk) - **Sky Sports**
-8. [Idolises Ronaldo, plays like Saka - meet £40m Chelsea winger Quenda](https://www.bbc.com/sport/football/articles/c629q72yr90o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Idolises Ronaldo, plays like Saka - meet £40m Chelsea winger Quenda](https://www.bbc.co.uk/sport/football/articles/c629q72yr90o) - **BBC News**
-10. [Lucas Herrington: United throw hat in ring for breakout World Cup starlet](https://thepeoplesperson.com/2026/07/09/lucas-herrington-united-throw-hat-in-ring-for-breakout-world-cup-starlet-312482/) - **The Peoples Person**
+1. [Danny Ings joins Leicester City: what free agent moves tell us about football’s evolving transfer economics](https://cryptobriefing.com/danny-ings-leicester-city-free-agent-deal/) - **Crypto Briefing**
+2. [Nottingham Forest submits €17.5M bid for Feyenoord’s Givairo Read as football transfer valuations keep climbing](https://cryptobriefing.com/nottingham-forest-bid-feyenoord-givairo-read/) - **Crypto Briefing**
+3. [What picks do the Guardians have in the MLB Draft? Who are their targets](https://www.beaconjournal.com/story/sports/mlb/cleveland-guardians/2026/07/09/cleveland-guardians-mlb-draft-2026-picks-targets-time-date/90822241007/) - **Akron Beacon Journal**
+4. [Fonte joins Sunderland coaching staff](https://www.bbc.com/sport/football/articles/c75y0rqw3dro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Santos keen for first-team football](https://www.bbc.com/sport/football/articles/ckg7v5y5r4jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Arsenal star ill ahead of quarter-final showdown](https://dailycannon.com/2026/07/odegaard-ill-norway-england/) - **Dailycannon.com**
+7. [Report: Liverpool have scouted World Cup star ahead of potential move](https://anfieldindex.com/95627/report-liverpool-have-scouted-world-cup-star-ahead-of-potential-move.html) - **Anfieldindex.com**
+8. [Nottingham Forest loans Jota Silva to Olympiacos, keeping FLOKI crypto partnership in the spotlight](https://cryptobriefing.com/nottingham-forest-silva-olympiacos-floki-crypto/) - **Crypto Briefing**
+9. [David Ornstein confirms major Newcastle United transfer blow as another star wants to leave](https://eplindex.com/148176/david-ornstein-confirms-major-newcastle-united-transfer-blow-as-another-star-wants-to-leave.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-07-10 16:02:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-10 19:30:03 (KST) / (하루 100회 제한 준수 중)*
