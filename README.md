@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [JioStar taps AI for shopping, TV movie night ideas](https://www.bloomberg.com/news/articles/2026-07-08/india-s-jiostar-taps-ai-for-shopping-tv-movie-night-ideas) - **Bloomberg**
-2. [Anthony Gordon: A solution to a Raphinha problem at Barcelona](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/125878/anthony-gordon-a-solution-to-a-raphinha-problem-at-barcelona) - **Barca Blaugranes**
-3. [JioStar taps AI for shopping, TV movie night ideas](https://economictimes.indiatimes.com/industry/media/entertainment/jiostar-taps-ai-for-shopping-tv-movie-night-ideas/articleshow/132275549.cms) - **The Times of India**
-4. [University spin-out seeks to transform sports injury assessment](https://www.irishtimes.com/business/innovation/2026/07/09/university-spin-out-seeks-to-transform-sports-injury-assessment/) - **The Irish Times**
-5. [Incredible story: He played at the World Cup, now he's left school](https://onefootball.com/en/news/incredible-story-he-played-at-the-world-cup-now-hes-left-school-43115519) - **Onefootball.com**
-6. [Report: Inter has joined Juve’s chase for Jhon Lucumí](https://www.blackwhitereadallover.com/juventus-transfer-rumours-news/39894/report-inter-has-joined-juves-chase-for-jhon-lucumi) - **Black & White & Read All Over**
-7. [Show HN: I built 38-0, a Premier League draft game with a Poisson match engine](https://www.38-0.pro) - **38-0.pro**
-8. [Pinch him, put three men on him and watch out for the double move: How do you stop Erling Haaland? It's the question Thomas Tuchel will obsess over this week - here's what he can learn from those who've done it](https://www.dailymail.com/sport/football/article-15959667/Erling-Haaland-Norway-England-World-Cup.html) - **Dailymail.com**
-9. [PSG Loan Midfielder to LaLiga Club for 2026-27 Season](https://psgworld.io/news/transfers/psg-loan-midfielder-to-laliga-club-for-2026-27-season) - **Psgworld.io**
-10. [Crystal Palace, Aston Villa & German Club Monitoring PSG Striker](https://psgworld.io/news/transfers/crystal-palace-aston-villa-german-club-monitoring-psg-striker) - **Psgworld.io**
+1. [Bruno Guimaraes is the latest name we have to learn how to pronounce](https://untold-arsenal.com/archives/121668) - **Untold-arsenal.com**
+2. [2026 World Cup | Who are France’s opponents, Morocco?](https://www.getfootballnewsfrance.com/2026/2026-world-cup-who-are-frances-opponents-morocco/) - **Get French Football News**
+3. [Report: Liverpool interested in move for 18-year-old wonderkid](https://anfieldindex.com/95624/report-liverpool-interested-in-move-for-18-year-old-wonderkid.html) - **Anfieldindex.com**
+4. [David Ornstein: Man United have agreed £50m deal to sign Chelsea star](https://eplindex.com/148177/david-ornstein-man-united-have-agreed-50m-deal-to-sign-chelsea-star.html) - **English Premier League Index - Opta Stats**
+5. ['Celtic go all out for striker Bowie' - gossip](https://www.bbc.com/sport/football/articles/ce37q0371n8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. ['Celtic go all out for striker Bowie' - gossip](https://www.bbc.co.uk/sport/football/articles/ce37q0371n8o) - **BBC News**
+7. [Papers: England set to get bank holiday IF Three Lions win World Cup](https://www.skysports.com/football/transfer-paper-talk/12709/13561845/world-cup-2026-england-set-to-get-bank-holiday-if-three-lions-win-world-cup-paper-talk) - **Sky Sports**
+8. [Idolises Ronaldo, plays like Saka - meet £40m Chelsea winger Quenda](https://www.bbc.com/sport/football/articles/c629q72yr90o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Idolises Ronaldo, plays like Saka - meet £40m Chelsea winger Quenda](https://www.bbc.co.uk/sport/football/articles/c629q72yr90o) - **BBC News**
+10. [Lucas Herrington: United throw hat in ring for breakout World Cup starlet](https://thepeoplesperson.com/2026/07/09/lucas-herrington-united-throw-hat-in-ring-for-breakout-world-cup-starlet-312482/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-07-10 12:36:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-10 16:02:44 (KST) / (하루 100회 제한 준수 중)*
