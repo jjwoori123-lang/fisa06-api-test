@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Crystal Palace, Aston Villa & German Club Monitoring PSG Striker](https://psgworld.io/news/transfers/crystal-palace-aston-villa-german-club-monitoring-psg-striker) - **Psgworld.io**
-2. [Girls' High School Open champion soccer coach leaves for nearby school](https://www.azcentral.com/story/sports/high-school/2026/07/08/jason-hammond-leaves-casteel-queen-creek-girls-soccer-program/90855465007/) - **AZCentral**
-3. [Karim Adeyemi: Barcelona set to strike double blow to Man United](https://thepeoplesperson.com/2026/07/09/karim-adeyemi-barcelona-set-to-strike-double-blow-to-man-united-312477/) - **The Peoples Person**
-4. [Which Cardinals star cracked the NFL’s top 100 players of 2026?](https://burncitysports.com/2026/07/08/cardinals-budda-baker-nfl-top-100/) - **Burncitysports.com**
-5. [Inside Man United's pre-season plans: The stars back on first day, latest on injured players and an update on summer transfer window business after agreeing £50m Andrey Santos deal](https://www.dailymail.com/sport/football/article-15962555/man-united-transfer-plans-michael-carrick.html) - **Dailymail.com**
-6. [US Soccer issues statement on Mauricio Pochettino's future with Team USA after World Cup](https://www.foxnews.com/sports/us-soccer-issues-statement-mauricio-pochettino-future-team-usa-world-cup) - **Fox News**
-7. [Rogers determined to stay grounded amid transfer talk and England rise](https://hayters.com/rogers-determined-to-stay-grounded-amid-transfer-talk-and-england-rise/) - **Hayters.com**
-8. [Tottenham Hotspur Are Keeping Tabs On This Gifted Winger: One For The Future?](https://the4thofficial.net/2026/07/tottenham-hotspur-are-keeping-tabs-on-this-gifted-winger/) - **The4thofficial.net**
-9. [Fenerbahce Linked With €25m Deal For Aston Villa Star: What Should The Midlands Club Do?](https://the4thofficial.net/2026/07/fenerbahce-linked-with-e25m-deal-for-aston-villa-star-what-should-the-midlands-club-do/) - **The4thofficial.net**
-10. [Bruno Guimaraes: Man United risk losing race to Arsenal for Newcastle star](https://thepeoplesperson.com/2026/07/08/bruno-guimaraes-man-united-risk-losing-race-to-arsenal-for-newcastle-star-312468/) - **The Peoples Person**
+1. [JioStar taps AI for shopping, TV movie night ideas](https://www.bloomberg.com/news/articles/2026-07-08/india-s-jiostar-taps-ai-for-shopping-tv-movie-night-ideas) - **Bloomberg**
+2. [Anthony Gordon: A solution to a Raphinha problem at Barcelona](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/125878/anthony-gordon-a-solution-to-a-raphinha-problem-at-barcelona) - **Barca Blaugranes**
+3. [JioStar taps AI for shopping, TV movie night ideas](https://economictimes.indiatimes.com/industry/media/entertainment/jiostar-taps-ai-for-shopping-tv-movie-night-ideas/articleshow/132275549.cms) - **The Times of India**
+4. [University spin-out seeks to transform sports injury assessment](https://www.irishtimes.com/business/innovation/2026/07/09/university-spin-out-seeks-to-transform-sports-injury-assessment/) - **The Irish Times**
+5. [Incredible story: He played at the World Cup, now he's left school](https://onefootball.com/en/news/incredible-story-he-played-at-the-world-cup-now-hes-left-school-43115519) - **Onefootball.com**
+6. [Report: Inter has joined Juve’s chase for Jhon Lucumí](https://www.blackwhitereadallover.com/juventus-transfer-rumours-news/39894/report-inter-has-joined-juves-chase-for-jhon-lucumi) - **Black & White & Read All Over**
+7. [Show HN: I built 38-0, a Premier League draft game with a Poisson match engine](https://www.38-0.pro) - **38-0.pro**
+8. [Pinch him, put three men on him and watch out for the double move: How do you stop Erling Haaland? It's the question Thomas Tuchel will obsess over this week - here's what he can learn from those who've done it](https://www.dailymail.com/sport/football/article-15959667/Erling-Haaland-Norway-England-World-Cup.html) - **Dailymail.com**
+9. [PSG Loan Midfielder to LaLiga Club for 2026-27 Season](https://psgworld.io/news/transfers/psg-loan-midfielder-to-laliga-club-for-2026-27-season) - **Psgworld.io**
+10. [Crystal Palace, Aston Villa & German Club Monitoring PSG Striker](https://psgworld.io/news/transfers/crystal-palace-aston-villa-german-club-monitoring-psg-striker) - **Psgworld.io**
 
 
 ---
-*최근 업데이트: 2026-07-10 08:49:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-10 12:36:24 (KST) / (하루 100회 제한 준수 중)*
