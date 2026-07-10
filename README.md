@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal sign former Leeds goalkeeper Illan Meslier on free transfer](https://www.vanguardngr.com/2026/07/arsenal-sign-former-leeds-goalkeeper-illan-meslier-on-free-transfer/) - **Vanguard**
-2. [Arsenal signs Bruno Guimaraes to five-year contract, and his Sorare NFTs are already moving](https://cryptobriefing.com/arsenal-bruno-guimaraes-sorare-nft-impact/) - **Crypto Briefing**
-3. [Brentford complete free transfer of Callum Wilson](https://www.playmakerstats.com/news/brentford-complete-free-transfer-of-callum-wilson/1155480) - **Playmakerstats.com**
-4. [How to watch Argentina vs Switzerland live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-argentina-vs-switzerland-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
-5. [Bruno pursuit shows Arsenal's efforts to capitalise on 'win window'](https://www.skysports.com/football/news/33799/13561995/bruno-guimaraes-to-arsenal-newcastle-captain-wanted-as-gunners-aim-to-turn-title-success-into-dominance) - **Sky Sports**
-6. [Fabinho eyes Real Madrid return as free agent, but crypto-powered football transfers tell the bigger story](https://cryptobriefing.com/fabinho-real-madrid-crypto-football-transfers/) - **Crypto Briefing**
-7. [Door open for Parma goalkeeper Suzuki at Leeds as Meslier joins Arsenal](https://football-italia.net/parma-goalkeeper-suzuki-leeds-meslier-arsenal/) - **Football Italia**
-8. [Guardians Draft in Review: 2022](https://www.coveringthecorner.com/cleveland-guardians-mlb-draft/71119/guardians-draft-in-review-2022) - **Coveringthecorner.com**
-9. [Meet Nigeria-eligible defender, Idris Fabiyi who signed for Manchester United](https://www.vanguardngr.com/2026/07/meet-nigeria-eligible-defender-idris-fabiyi-who-signed-for-manchester-united/) - **Vanguard**
+1. [Haaland relishing 'super special' England showdown as Norway's dream World Cup run rolls on](https://economictimes.indiatimes.com/news/sports/football/haaland-relishing-super-special-england-showdown-as-norways-dream-world-cup-run-rolls-on/articleshow/132294392.cms) - **The Times of India**
+2. [Major League Fishing Bringing Bass Pro Tour to Caddo and Cross Lakes for First-Ever Time in February 2027](https://www.ibtimes.com.au/caddo-cross-lakes-2027-bass-pro-tour-1872081) - **Ibtimes.com.au**
+3. [Karl Darlow: United agree deal to sign goalkeeper after Leeds exit](https://thepeoplesperson.com/2026/07/09/karl-darlow-united-agree-deal-to-sign-goalkeeper-after-leeds-exit-312511/) - **The Peoples Person**
+4. [What are the key dates for the 2026-27 football season?](https://www.bbc.com/sport/football/articles/cd0m840p7d1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Manchester United and Arsenal chase Botafogo midfielder Danilo Santos as asking price may drop](https://cryptobriefing.com/manchester-united-arsenal-danilo-santos-transfer/) - **Crypto Briefing**
+6. [Report: Manchester United receive green light to push for Serie A midfielder](https://eplindex.com/148199/report-manchester-united-receive-green-light-to-push-for-serie-a-midfielder.html) - **English Premier League Index - Opta Stats**
+7. [Board expectations and where will Coventry be at Christmas?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_38d9da62-f795-47ef-9123-a5bc8e397d92) - **Yahoo Entertainment**
+8. [Crystal Palace sign Spain defender Mingueza from Celta Vigo](https://www.channelnewsasia.com/sport/crystal-palace-sign-spain-defender-mingueza-celta-vigo-6244591) - **CNA**
+9. [Quansah banned for two games after red card vs Mexico](https://www.skysports.com/football/news/11095/13562035/jarrell-quansah-banned-for-two-world-cup-games-for-red-card-vs-mexico) - **Sky Sports**
+10. [Move over Ronaldo, Erling Haaland is coming for billion-dollar milestone](https://www.hitc.com/move-over-ronaldo-erling-haaland-is-coming-for-billion-dollar-milestone/) - **HITC - Football, Gaming, Movies, TV, Music**
 
 
 ---
-*최근 업데이트: 2026-07-11 00:33:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-11 02:24:35 (KST) / (하루 100회 제한 준수 중)*
