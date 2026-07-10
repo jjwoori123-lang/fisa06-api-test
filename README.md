@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Real Madrid versatile attacker not considering offers to leave this summer – report](https://madriduniversal.com/real-madrid-versatile-attacker-not-considering-offers-to-leave-this-summer-report/) - **Madriduniversal.com**
-2. [Journalist: Liverpool ready to move for forward despite £127m price tag](https://anfieldindex.com/95654/journalist-liverpool-ready-to-move-for-forward-despite-127m-price-tag.html) - **Anfieldindex.com**
-3. [Many factors behind shock Newport exit - Fuchs](https://www.bbc.com/sport/football/articles/cj9gxyxe1d0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Haaland's Norway load pressure on England ahead of Miami showdown](https://www.channelnewsasia.com/sport/haalands-norway-load-pressure-england-ahead-miami-showdown-6244756) - **CNA**
-5. [TNS fall to Champions League defeat in Azerbaijan](https://www.bbc.com/sport/football/live/cvg40525zy6t?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Richard Hughes just waiting for perfect time to strike deal for £35m second-tier forward](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-mateus-mane-wolves-richard-hughes-just-waiting-for-perfect-time-to-strike-deal-for-ps35m-second-tier-forward/) - **Anfieldwatch.co.uk**
-7. [Aston Villa holds firm on Emiliano Martínez valuation as Juventus lowball offer rejected](https://cryptobriefing.com/aston-villa-martinez-transfer-valuation/) - **Crypto Briefing**
-8. [World Cup referee controversy highlights the growing intersection of politics and sports governance](https://cryptobriefing.com/world-cup-red-card-review-crypto-betting/) - **Crypto Briefing**
-9. [Man United reveals latest plans for new stadium to replace Old Trafford](https://sports.yahoo.com/articles/man-united-reveals-latest-plans-183339097.html) - **Yahoo Entertainment**
-10. [Sunderland Locked In A Battle With Leeds United For This Serie A Defender: Good Option For Le Bris?](https://the4thofficial.net/2026/07/sunderland-are-locked-in-a-three-way-battle-for-this-serie-a-defender/) - **The4thofficial.net**
+1. [Tottenham Hotspur Are In The Race For This Bundesliga Winger: Should De Zerbi Go For Him?](https://the4thofficial.net/2026/07/tottenham-hotspur-are-in-the-race-for-this-bundesliga-winger/) - **The4thofficial.net**
+2. [Spurs make offer for Kolo Muani - Friday gossip](https://www.bbc.com/sport/football/articles/cz6vz91n7e5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Spurs make offer for Kolo Muani - Friday gossip](https://www.bbc.co.uk/sport/football/articles/cz6vz91n7e5o) - **BBC News**
+4. [Seth Green Joins Global Gaming League's Advisory Board, Kicks Off "Ready, Seth, Go!" Tournament Series](https://www.globenewswire.com/news-release/2026/07/09/3325232/0/en/Seth-Green-Joins-Global-Gaming-League-s-Advisory-Board-Kicks-Off-Ready-Seth-Go-Tournament-Series.html) - **GlobeNewswire**
+5. [The next Erling Haaland is coming to join Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/the-next-erling-haaland-is-coming-to-join-liverpool/) - **Anfieldwatch.co.uk**
+6. [Americans 'kind of hilarious" Norway World Cup star Erling Haaland says](https://www.palmbeachpost.com/story/sports/soccer/world-cup/2026/07/09/erling-haaland-norway-world-cup-england/90866148007/) - **Palm Beach Post**
+7. [Arsenal Have Made A Move For This Talented Playmaker: One For The Future At The North London Club?](https://the4thofficial.net/2026/07/arsenal-have-made-a-move-for-this-talented-playmaker/) - **The4thofficial.net**
+8. [Cleated Rivalry: How Jude Bellingham and Erling Haaland’s Friendship Is Rewriting the Script of Toxic Football Masculinity](https://www.cosmopolitan.com/entertainment/celebs/a71887954/jude-bellingham-erling-haaland-friendship/) - **Cosmopolitan.com**
+9. [Álvaro Arbeloa eyeing 2nd Real Madrid youngster for Fulham squad](https://getfootballnewsspain.com/alvaro-arbeloa-eyeing-2nd-real-madrid-youngster-for-fulham-squad/) - **Getfootballnewsspain.com**
+10. [Chelsea Are Facing Stiff Competition For This Gifted Defender: Is He A Star In The Making?](https://the4thofficial.net/2026/07/chelsea-are-facing-stiff-competition-for-this-gifted-defender/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-07-11 04:07:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-11 05:45:19 (KST) / (하루 100회 제한 준수 중)*
