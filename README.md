@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Quantity over quality: Rams TEs left off top-23 list from NFL coaches, execs](https://theramswire.usatoday.com/story/sports/nfl/rams/2026/07/10/rams-nfl-tight-ends-rankings-ferguson-parkinson/90877117007/) - **USA Today**
-2. [Burnley appoint Hayen as new head coach](https://www.bbc.com/sport/football/articles/cz6v5j606ywo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Burnley appoint Hayen as new head coach](https://www.bbc.co.uk/sport/football/articles/cz6v5j606ywo) - **BBC News**
-4. [Clattenburg claim Mariani officiating 2026 World Cup Final ‘would upset people’](https://football-italia.net/clattenburg-mariani-2026-world-cup-final-upset/) - **Football Italia**
-5. [West Ham boss Nuno Espirito Santo an admirer of Alverca defender Bastien Meupiyou](https://sportsview.co.uk/2026/07/west-ham-boss-nuno-espirito-santo-an-admirer-of-alverca-defender-bastien-meupiyou?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=west-ham-boss-nuno-espirito-santo-an-admirer-of-alverca-defender-bastien-meupiyou) - **Sportsview.co.uk**
-6. [Fredrick promoted to Brentford’s first-team squad and signs new contract](https://www.brentfordfc.com/en/news/article/first-team-promotion-benjamin-fredrick-new-contract) - **Brentfordfc.com**
-7. [Truecaller weighs legal options over Trai’s spam-labelling directive](https://www.livemint.com/industry/truecaller-weighs-legal-options-over-trai-s-spam-labelling-directive-11783695642503.html) - **Livemint**
-8. [‘Good things will come if…’ — Xabi Alonso sends first message to Chelsea fans](https://www.vanguardngr.com/2026/07/good-things-will-come-if-xabi-alonso-sends-first-message-to-chelsea-fans/) - **Vanguard**
-9. [The ball is round – and contrary to some keepers’ views, in this World Cup it has performed just fine](https://theconversation.com/the-ball-is-round-and-contrary-to-some-keepers-views-in-this-world-cup-it-has-performed-just-fine-287044) - **The Conversation Africa**
-10. [Sky Sports: Man United have set their sights on move for World Cup forward](https://eplindex.com/148243/sky-sports-man-united-have-set-their-sights-on-move-for-world-cup-forward.html) - **English Premier League Index - Opta Stats**
+1. [Xhaka tells Swiss fans to 'keep dreaming' ahead of Argentina World Cup clash](https://sports.yahoo.com/articles/xhaka-tells-swiss-fans-keep-171535294.html) - **Yahoo Entertainment**
+2. [Ipswich Town sign forward Adams](https://fawslfulltime.co.uk/2026/07/10/ipswich-town-sign-forward-adams/) - **Fawslfulltime.co.uk**
+3. [Coventry City reportedly signs Loum Tchaouna from Burnley in £20M deal](https://cryptobriefing.com/coventry-city-tchaouna-burnley-transfer/) - **Crypto Briefing**
+4. [Chelsea open to permanent transfer of Alejandro Garnacho as AS Roma circles](https://cryptobriefing.com/chelsea-garnacho-permanent-transfer-roma/) - **Crypto Briefing**
+5. [Manchester City Winger Is On The Radar Of Tottenham Hotspur: Should Maresca Cash In On Him?](https://the4thofficial.net/2026/07/manchester-city-winger-is-on-the-radar-of-tottenham-hotspur-should-maresca-cash-in-on-him/) - **The4thofficial.net**
+6. [World Cup 2026: Why Erling Haaland has 'Braut' on the back of his Norway jersey](https://sports.yahoo.com/soccer/article/world-cup-2026-why-erling-haaland-has-braut-on-the-back-of-his-norway-jersey-181657227.html) - **Yahoo Entertainment**
+7. [This time from Africa? Economic lessons from the beautiful game, especially the African model](https://economictimes.indiatimes.com/opinion/et-commentary/this-time-from-africa-economic-lessons-from-the-beautiful-game-especially-the-african-model/articleshow/132318685.cms) - **The Times of India**
+8. [Tyler Adams World Cup diary: ‘We win together, we suffer together’](https://andscape.com/features/tyler-adams-world-cup-diary-usmnt-belgium-loss-reaction/) - **Andscape.com**
+9. [Sheffield United sign goalkeeper Soper](https://fawslfulltime.co.uk/2026/07/10/sheffield-united-sign-goalkeeper-soper/) - **Fawslfulltime.co.uk**
+10. [Report Leao offered to Tottenham, who don’t want Milan outcast](https://football-italia.net/report-leao-offered-tottenham-dont-want-milan/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-07-12 02:25:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-12 03:32:17 (KST) / (하루 100회 제한 준수 중)*
