@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [JJ Wetherholt's Long-Term Extension Boosts His Dynasty Fantasy Baseball Value](https://www.si.com/onsi/fantasy/mlb/jj-wetherholt-extension-boosts-dynasty-fantasy-baseball-value) - **Sports Illustrated**
-2. [Could Sporting KC sign Egyptian, Premier League star Mohamed Salah?](https://fox4kc.com/sports/sporting-kc/could-sporting-kc-sign-egyptian-premier-league-star-mohamed-salah/) - **WDAF FOX4 Kansas City**
-3. [Arsenal Are Close To Recruiting This Talented Winger: What Will He Bring To North London?](https://the4thofficial.net/2026/07/arsenal-are-close-to-recruiting-this-talented-winger/) - **The4thofficial.net**
-4. [Salah demands put Saudi switch in doubt - Saturday's gossip](https://www.bbc.com/sport/football/articles/cy06rnjzxkyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Salah demands put Saudi switch in doubt - Saturday's gossip](https://www.bbc.co.uk/sport/football/articles/cy06rnjzxkyo) - **BBC News**
-6. [What to know about Erling Haaland, Norway's viral World Cup star](https://abcnews.com/GMA/Culture/erling-haaland-norwegian-world-cup-star-finding-viral/story?id=134644601) - **Abcnews.com**
-7. [Tamworth re-sign striker Tshikuna](https://www.bbc.com/sport/football/articles/cz75xen743yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Chelsea Made A Big Offer For This Talented Midfielder: Should Alonso Snap Him Up?](https://the4thofficial.net/2026/07/chelsea-made-a-big-offer-for-this-talented-midfielder-should-alonso-snap-him-up/) - **The4thofficial.net**
-9. [Report: Arsenal set to battle Newcastle United in the race for midfielder](https://eplindex.com/148250/report-arsenal-set-to-battle-newcastle-united-in-the-race-for-midfielder.html) - **English Premier League Index - Opta Stats**
-10. [Edwards leaves role with Liverpool owners FSG](https://sports.yahoo.com/articles/edwards-leaves-role-liverpool-owners-201446747.html) - **Yahoo Entertainment**
+1. [Mikel Merino Rescues La Roja Again: 4 Takeaways From Spain's Win Over Belgium](https://www.foxsports.com/stories/soccer/spain-vs-belgium-takeaways-mikel-merino-world-cup-july-10) - **Fox Sports**
+2. [Arsenal fend off massive competition to land Tottenham youngster Elijah Upson](https://sportsview.co.uk/2026/07/arsenal-fend-off-massive-competition-to-land-tottenham-youngster-elijah-upson?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-fend-off-massive-competition-to-land-tottenham-youngster-elijah-upson) - **Sportsview.co.uk**
+3. [Drogheda United come from behind to beat Dundalk in derby](https://www.irishtimes.com/sport/soccer/2026/07/10/drogheda-united-come-from-behind-to-beat-dundalk-in-derby/) - **The Irish Times**
+4. [Manchester United Ready To Step Up Their Efforts For This Serie A Midfielder: Good Choice For Carrick?](https://the4thofficial.net/2026/07/manchester-united-ready-to-step-up-their-efforts-for-this-serie-a-midfielder/) - **The4thofficial.net**
+5. [Who is Mikel Merino? Meet Spain sub that came on late vs. Belgium and willed La Roja into semifinals](https://www.sportingnews.com/us/soccer/news/mikel-merino-spain-sub-belgium-game-winning-goal/850135ea50af70e8eb339de1) - **Sporting News**
+6. [Ederson alternative? United in contact with Wolves for Joao Gomes](https://thepeoplesperson.com/2026/07/10/ederson-alternative-united-in-contact-with-wolves-for-joao-gomes-312568/) - **The Peoples Person**
+7. [‘We are not a tribal club’ — Enugu Rangers reject Moses Simon’s discrimination claim.](https://www.vanguardngr.com/2026/07/we-are-not-a-tribal-club-enugu-rangers-reject-moses-simons-discrimination-claim/) - **Vanguard**
+8. [Report Ederson waiting for final Manchester United decision on €45m move](https://football-italia.net/report-ederson-wait-final-manchester-united/) - **Football Italia**
+9. [Liverpool now 'in talks' to sign 18-year-old sensation](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-now-in-talks-to-sign-18-year-old-sensation/) - **Anfieldwatch.co.uk**
+10. [Manchester City Are Among The Clubs Hoping To Land This Gifted Defender: One For The Future?](https://the4thofficial.net/2026/07/manchester-city-are-among-the-clubs-hoping-to-land-this-gifted-defender-one-for-the-future/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-07-12 05:52:39 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-12 06:52:45 (KST) / (하루 100회 제한 준수 중)*
