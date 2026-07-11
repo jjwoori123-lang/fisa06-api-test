@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Brau's future and who should start opener against Arsenal?](https://www.bbc.com/sport/football/articles/c80243y9kv7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Ederson: Man United’s concern over transfer with Atalanta explained](https://thepeoplesperson.com/2026/07/10/ederson-man-uniteds-concern-over-transfer-with-atalanta-explained-312540/) - **The Peoples Person**
-3. [Middlesbrough sign striker Joseph from Hull City](https://www.bbc.com/sport/football/articles/c8e2303y1xgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Report: Tottenham Hotspur want to keep midfielder despite latest rumours](https://eplindex.com/148219/report-tottenham-hotspur-want-to-keep-midfielder-despite-latest-rumours.html) - **English Premier League Index - Opta Stats**
-5. [Fabrizio Romano confirms £14.9m bid for Liverpool target who instantly fixes RB woes](https://www.empireofthekop.com/2026/07/10/fabrizio-romano-confirms-14-9m-bid-for-liverpool-target-who-instantly-fixes-rb-woes/) - **Empire of The Kop**
-6. [Newcastle United show interest in Borussia Mönchengladbach’s Moritz Nicolas](https://www.getfootballnewsgermany.com/2026/newcastle-united-show-interest-in-borussia-monchengladbachs-moritz-nicolas/) - **Getfootballnewsgermany.com**
-7. [Roma’s Kone a serious option for Manchester United as well as Ederson](https://football-italia.net/romas-kone-a-serious-option-for-man-united/) - **Football Italia**
-8. [Yates captaining Forest 'means everything to people of Nottingham'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_62ac07a7-0bdf-43e4-bb12-ec4814a5c8c2) - **Yahoo Entertainment**
-9. [Julian Edelman knows exactly which NFL great Erling Haaland is most like](https://www.hitc.com/julian-edelman-knows-exactly-which-nfl-great-erling-haaland-is-most-like/) - **HITC - Football, Gaming, Movies, TV, Music**
-10. [How involved is Howe in transfers?](https://www.bbc.com/sport/football/articles/clyekz5m83lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [NFL execs, coaches, scouts rank Pat Surtain as league’s best cornerback](https://broncoswire.usatoday.com/story/sports/nfl/broncos/2026/07/10/broncos-pat-surtain-ranked-best-nfl-cornerback/90859660007/) - **USA Today**
+2. [Who Are The Referees For Spain vs. Belgium?](https://www.foxsports.com/stories/soccer/world-cup-referees-spain-belgium) - **Fox Sports**
+3. [Get your 2025/26 champions commemorative book](http://www.arsenal.com/news/get-your-202526-champions-commemorative-book) - **Arsenal.com**
+4. [New Era's 2026 MLB All-Star Collection Honors America's 250th Anniversary](https://www.prnewswire.com/news-releases/new-eras-2026-mlb-all-star-collection-honors-americas-250th-anniversary-302822757.html) - **PRNewswire**
+5. [Jurgen Klopp reveals how Liverpool almost signed Kylian Mbappe prior to Real Madrid move](https://siempremadrid.com/jurgen-klopp-reveals-how-liverpool-almost-signed-kylian-mbappe-prior-to-real-madrid-move/) - **Siempremadrid.com**
+6. [JioStar, TNT Sports, Willow and Cricbuzz secure broadcast rights for European T20 Premier League](https://economictimes.indiatimes.com/industry/media/entertainment/jiostar-tnt-sports-willow-and-cricbuzz-secure-broadcast-rights-for-european-t20-premier-league/articleshow/132311273.cms) - **The Times of India**
+7. [Report: Spurs set to battle Brentford in the race to sign young midfielder](https://eplindex.com/148220/report-spurs-set-to-battle-brentford-in-the-race-to-sign-young-midfielder.html) - **English Premier League Index - Opta Stats**
+8. [Monga appears unfazed by pressure](https://www.bbc.com/sport/football/articles/c5yz4yd7414o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [West Ham interested in signing Scottish midfielder](https://hayters.com/west-ham-keen-on-scottish-midfielder-barron/) - **Hayters.com**
+10. [Roberto Martinez emerges as top candidate for Scotland manager, and betting markets are moving fast](https://cryptobriefing.com/roberto-martinez-scotland-manager-candidate/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-07-11 20:07:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-11 21:08:15 (KST) / (하루 100회 제한 준수 중)*
