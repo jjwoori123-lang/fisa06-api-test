@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Tottenham Hotspur are in the race to sign La Liga defender](https://eplindex.com/148218/report-tottenham-hotspur-are-in-the-race-to-sign-la-liga-defender.html) - **English Premier League Index - Opta Stats**
-2. [Elijah Upson visits Arsenal training ground as he considers next move after Spurs exit](https://sportsview.co.uk/2026/07/elijah-upson-visits-arsenal-training-ground-as-he-considers-next-move-after-spurs-exit?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=elijah-upson-visits-arsenal-training-ground-as-he-considers-next-move-after-spurs-exit) - **Sportsview.co.uk**
-3. [How Yorkshire-born Erling Haaland could have been playing for England! Norway superstar even says 'home' is here - but now he's out to make himself Public Enemy Number One](https://www.dailymail.com/sport/football/article-15966695/erling-haaland-england-norway-football.html) - **Dailymail.com**
-4. [Chalobah is next Inter priority as Chelsea defender snubs Crystal Palace – report](https://football-italia.net/chalobah-inter-priority-chelsea-snubs-palace/) - **Football Italia**
-5. [Eagles DT Jalen Carter remains one of the NFL's biggest mismatches](https://theeagleswire.usatoday.com/story/sports/nfl/eagles/2026/07/10/eagles-news-jalen-carter-defensive-tackle-ranking-2026/90862786007/) - **USA Today**
-6. [Why Hull's £55m loan is a 'little strange'](https://www.bbc.com/sport/football/articles/cpwel48y51do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Sunshine and Saharan Dust Make Miami’s World Cup Quarter-Final a Dangerous Game for England Norway](https://www.wired.com/story/sunshine-and-saharan-dust-make-miamis-world-cup-quarter-final-a-dangerous-game-for-england-norway/) - **Wired**
-8. [Six teams in quarter-finals: Why Europe is dominating the World Cup](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260710-99-21248/) - **Dpa-international.com**
-9. [QPR sign former Wednesday keeper Charles on loan](https://www.bbc.com/sport/football/articles/c621kpjl9zxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [NI goalkeeper Charles joins QPR on loan after Man City move](https://www.bbc.co.uk/sport/football/articles/c621kpjl9zxo) - **BBC News**
+1. [Brau's future and who should start opener against Arsenal?](https://www.bbc.com/sport/football/articles/c80243y9kv7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Ederson: Man United’s concern over transfer with Atalanta explained](https://thepeoplesperson.com/2026/07/10/ederson-man-uniteds-concern-over-transfer-with-atalanta-explained-312540/) - **The Peoples Person**
+3. [Middlesbrough sign striker Joseph from Hull City](https://www.bbc.com/sport/football/articles/c8e2303y1xgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Report: Tottenham Hotspur want to keep midfielder despite latest rumours](https://eplindex.com/148219/report-tottenham-hotspur-want-to-keep-midfielder-despite-latest-rumours.html) - **English Premier League Index - Opta Stats**
+5. [Fabrizio Romano confirms £14.9m bid for Liverpool target who instantly fixes RB woes](https://www.empireofthekop.com/2026/07/10/fabrizio-romano-confirms-14-9m-bid-for-liverpool-target-who-instantly-fixes-rb-woes/) - **Empire of The Kop**
+6. [Newcastle United show interest in Borussia Mönchengladbach’s Moritz Nicolas](https://www.getfootballnewsgermany.com/2026/newcastle-united-show-interest-in-borussia-monchengladbachs-moritz-nicolas/) - **Getfootballnewsgermany.com**
+7. [Roma’s Kone a serious option for Manchester United as well as Ederson](https://football-italia.net/romas-kone-a-serious-option-for-man-united/) - **Football Italia**
+8. [Yates captaining Forest 'means everything to people of Nottingham'](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_62ac07a7-0bdf-43e4-bb12-ec4814a5c8c2) - **Yahoo Entertainment**
+9. [Julian Edelman knows exactly which NFL great Erling Haaland is most like](https://www.hitc.com/julian-edelman-knows-exactly-which-nfl-great-erling-haaland-is-most-like/) - **HITC - Football, Gaming, Movies, TV, Music**
+10. [How involved is Howe in transfers?](https://www.bbc.com/sport/football/articles/clyekz5m83lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-07-11 18:52:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-11 20:07:30 (KST) / (하루 100회 제한 준수 중)*
