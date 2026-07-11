@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Everton Academy finally gets a shake-up](http://www.toffeeweb.com/season/25-26/news/47743.html) - **Toffeeweb**
-2. [Torino submits official bid for Ben Nelson, rejected by Leicester City](https://cryptobriefing.com/torino-bid-ben-nelson-leicester-city/) - **Crypto Briefing**
-3. [Report: Tottenham Hotspur have joined the race to sign forward with €60m release clause](https://eplindex.com/148237/report-tottenham-hotspur-have-joined-the-race-to-sign-forward-with-e60m-release-clause.html) - **English Premier League Index - Opta Stats**
-4. ['Loyalty to CSK': Cricket Australia reveals why Chennai Super Kings' Chepauk was chosen to host BBL 2026/27 opener](https://www.cricketnews.com/en/cricket/news/cricket-australia-reveals-why-csk-chepauk-was-chosen-host-bbl-opener/8d8c99ce14cef57a1bc18355) - **Cricketnews.com**
-5. [Quicker than Usain Bolt: The reason why Barcelona want Karim Adeyemi](https://www.101greatgoals.com/football/la-liga/quicker-than-usain-bolt-the-reason-why-barcelona-want-karim-adeyemi/) - **101 Great Goals**
-6. [Edwards leaves football chief role with Liverpool owners FSG](https://www.bbc.com/sport/football/articles/cpd3gqz6qleo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Edwards leaves football chief role with Liverpool owners FSG](https://www.bbc.co.uk/sport/football/articles/cpd3gqz6qleo) - **BBC News**
-8. [Phillies’ Bryce Harper Gets Dodgers Update After Home Run Derby Announcement](https://www.forbes.com/sites/peterchawaga/2026/07/10/phillies-bryce-harper-gets-dodgers-update-after-home-run-derby-announcement/) - **Forbes**
-9. [Davante Adams' goal line targets in 2025 were the most this century](https://theramswire.usatoday.com/story/sports/nfl/rams/2026/07/10/rams-davante-adams-red-zone-goal-line-targets/90872512007/) - **USA Today**
-10. [Liverpool transfer chief Michael Edwards quits role with second executive's future also in limbo](https://www.alloutsoccer.com/news/liverpool-transfer-chief-edwards-quits-1930824) - **Alloutsoccer.com**
+1. [Inside the inquest into the death of Maddy Cusack: The 'prison warden' manager who was star's 'nemesis', the 'bullying' and 'fat-shaming' denials, the tears in court, latest delay explained and vital evidence still to come](https://www.dailymail.com/sport/football/article-15967907/Sheffield-United-Maddy-Cusack-inquest-court.html) - **Dailymail.com**
+2. [AstroTurf® Comes to Helfaer Field, Bringing a Major League Surface to Milwaukee’s Next Generation](https://www.globenewswire.com/news-release/2026/07/10/3325643/0/en/AstroTurf-Comes-to-Helfaer-Field-Bringing-a-Major-League-Surface-to-Milwaukee-s-Next-Generation.html) - **GlobeNewswire**
+3. [Report: Liverpool offered the chance to sign world-class Real Madrid star this summer](https://anfieldindex.com/95671/report-liverpool-offered-the-chance-to-sign-world-class-real-madrid-star-this-summer.html) - **Anfieldindex.com**
+4. [Northern Ireland Striker Casey Howe Joins Celtic Women from Nottingham Forest](https://thecelticstar.com/casey-howe-celtic-women-nottingham-forest/) - **The Celtic Star**
+5. [How to watch US TV from anywhere in the world – stream your favorite TV shows and sports when overseas](https://www.techradar.com/how-to-watch/tv-shows/watch-us-tv-from-anywhere-in-the-world-stream-tv-shows-and-sports-overseas) - **TechRadar**
+6. [TV Premier League fixtures: Full list of schedule changes in August and September 2026 including channels, live online streams, confirmed kick off times](https://www.101greatgoals.com/football/premier-league/tv-premier-league-fixtures-august-september-2026-schedule-changes-channels-live-online-streams-kick-off-times/) - **101 Great Goals**
+7. [Carra: Why I'd pick Kane over 'greatest goalscorer' Haaland](https://www.skysports.com/football/news/11095/13562351/world-cup-2026-norways-erling-haaland-will-go-down-as-footballs-greatest-goalscorer-says-jamie-carragher-ahead-of-showdown-with-englands-harry-kane) - **Sky Sports**
+8. [Dplus Kia VP Joon Lee exits as esports org navigates Web3 fan token strategy](https://cryptobriefing.com/dplus-kia-vp-joon-lee-departure-web3/) - **Crypto Briefing**
+9. [“No fear being the favourite” – de la Fuente on World Cup quarter-final tie with Belgium](https://wp.fromthespot.co.uk/31153/no-fear-being-the-favourite-de-la-fuente-on-world-cup-quarter-final-tie-with-belgium/) - **Fromthespot.co.uk**
+10. [Haaland's mind blowing scoring records](https://freerepublic.com/focus/f-chat/4387441/posts) - **Freerepublic.com**
 
 
 ---
-*최근 업데이트: 2026-07-12 00:04:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-12 01:12:32 (KST) / (하루 100회 제한 준수 중)*
