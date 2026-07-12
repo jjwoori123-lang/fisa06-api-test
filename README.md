@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester City drops £10M on a goalkeeper as Premier League clubs keep spending like crypto whales](https://cryptobriefing.com/manchester-city-pierce-charles-transfer-crypto-spending/) - **Crypto Briefing**
-2. [Why Erling Haaland plays for Norway instead of England despite UK birthplace](https://www.sportingnews.com/us/soccer/news/why-erling-haaland-plays-norway-instead-england-despite-uk-birthplace/c1d917059b2abbd8fcdfafe7) - **Sporting News**
-3. [Manchester City’s Sverre Nypan heads to Lommel SK on loan, continuing City Football Group’s development pipeline](https://cryptobriefing.com/nypan-lommel-city-football-group-loan/) - **Crypto Briefing**
-4. [When the World Cup finishes, the football continues on BBC Sport](https://www.bbc.com/sport/football/articles/c9w2zr9wzj1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [When the World Cup finishes, the football continues on BBC Sport](https://www.bbc.co.uk/sport/football/articles/c9w2zr9wzj1o) - **BBC News**
-6. [From Graham Taylor's Spygate gaffe to David Platt's set-piece fury and Paul Gascoigne's foul-mouthed gag... England must learn the painful lessons of history and not take Norway for granted in Miami](https://www.dailymail.com/sport/football/article-15963857/Graham-Taylor-Spygate-gaffe-David-Platt-Paul-Gascoigne-foul-mouthed-gag-England-learn-painful-lessons-history-Norway-Miami.html) - **Dailymail.com**
-7. [Is it time to give record-breaker Pickford the credit he deserves?](https://www.bbc.com/sport/football/articles/cj9gknxm91vo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Kane's stardom no surprise to ex-Norway midfielder](https://www.bbc.com/news/articles/c05yr51e72yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Artificial turf & coaching revolution - how Norway shaped golden generation](https://www.bbc.com/sport/football/articles/cvge7299ygwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Barcelona close in on signing 18-year-old Belgian pearl after €10m offer tabled](https://barcauniversal.com/barcelona-close-in-on-signing-18-year-old-belgian-pearl-after-e10m-offer-tabled/) - **Barcauniversal.com**
+2. [Liverpool have found their next Fernando Torres in ex-Manchester City ace](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-have-found-their-next-fernando-torres-in-ex-manchester-city-ace/) - **Anfieldwatch.co.uk**
+3. [The Man Utd youngsters to look out for in Finland and Norway](https://www.bbc.com/sport/football/articles/c74yej43w97o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [The Man Utd youngsters to look out for in Finland and Norway](https://www.bbc.co.uk/sport/football/articles/c74yej43w97o) - **BBC News**
+5. [Liverpool could solve midfield issue after dramatic transfer U-turn](https://anfieldindex.com/95682/liverpool-could-solve-midfield-issue-after-dramatic-transfer-u-turn.html) - **Anfieldindex.com**
+6. [Newcastle United receive boost in pursuit of Premier League star](https://eplindex.com/148261/newcastle-united-receive-boost-in-pursuit-of-premier-league-star.html) - **English Premier League Index - Opta Stats**
+7. [What does Braut Haaland mean? Explaining Erling Haaland's full name on back of jersey](https://www.sportingnews.com/us/soccer/news/braut-haaland-meaning-erling-haaland-name-jersey/a2382739b226c9869a019f78) - **Sporting News**
+8. [Erling Haaland mania is taking over at the 2026 FIFA World Cup](https://www.cbc.ca/news/world/erling-haaland-fifa-world-cup-9.7266170) - **CBC News**
+9. [Hey Jude: Bellingham's return to England indispensability](https://www.bbc.com/sport/football/articles/ckg47l8nl7jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [England vs. Norway history: Head-to-head matches at World Cup, last meeting, team records and more](https://www.sportingnews.com/us/soccer/news/england-norway-history-head-head-matches-world-cup/634d08867e22448a8bafcb70) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-07-12 15:35:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-12 17:53:24 (KST) / (하루 100회 제한 준수 중)*
