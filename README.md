@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Thibaut Courtois drops honest verdict on Senne Lammens’ costly error](https://thepeoplesperson.com/2026/07/11/thibaut-courtois-drops-honest-verdict-on-senne-lammens-costly-error-312585/) - **The Peoples Person**
-2. [London Club Eyeing Up Move For Sheffield United Talent](https://sheffunitedway.co.uk/2026/07/11/london-club-eyeing-up-move-for-sheffield-united-talent/) - **Sheffunitedway.co.uk**
-3. [Caitlin Clark's All-Star voting sparks outrage after former WNBA star calls result 'insulting'](https://www.sportingnews.com/us/wnba/indiana-fever/news/caitlin-clarks-all-star-voting-sparks-outrage-after-former-wnba-star-calls-result-insulting/4167d279c7ba6a80ff307103) - **Sporting News**
-4. [Bayern Munich settled in with Vincent Kompany](https://www.bavarianfootballworks.com/bayern-munich-coaches/229022/bayern-munich-settled-in-with-vincent-kompany) - **Bavarian Football Works**
-5. [Man City sign teenage winger Monga on five-year deal](https://punchng.com/man-city-sign-teenage-winger-monga-on-five-year-deal/) - **The Punch**
-6. [AS Roma sets €55M asking price for Manu Koné as UEFA fines and FFP pressure force player sales](https://cryptobriefing.com/roma-kone-transfer-financial-pressure-asr/) - **Crypto Briefing**
-7. [Rafael Benitez shares his thoughts on Liverpool’s decision to appoint Andoni Iraola](https://anfieldindex.com/95685/rafael-benitez-shares-his-thoughts-on-liverpools-decision-to-appoint-andoni-iraola.html) - **Anfieldindex.com**
-8. [Report: Aston Villa star wanted by European side](https://eplindex.com/148264/report-aston-villa-star-wanted-by-european-side.html) - **English Premier League Index - Opta Stats**
-9. [Bayern Munich could move for Barcelona star under one condition](https://cfbayerninsider.com/2026/07/bayern-munich-jules-kounde-transfer-news/) - **Cfbayerninsider.com**
-10. [Report – Chelsea Plot Audacious Double Swoop for Inter & Juventus Stars](https://cultofcalcio.com/chelsea-eager-to-sign-pio-esposito-vlahovic/) - **Cultofcalcio.com**
+1. [Wolves reject bids for Tolu Arokodare as Premier League clubs increasingly treat players like appreciating assets](https://cryptobriefing.com/wolves-arokodare-bid-rejected-asset-management/) - **Crypto Briefing**
+2. [Arsenal ‘hold interest in defender’ – latest transfer reports](https://hayters.com/arsenal-hold-interest-in-defender-latest-transfer-reports/) - **Hayters.com**
+3. [Garnacho absent from Chelsea pre-season training](https://www.bbc.com/sport/football/articles/cr47ykwr7zgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Garnacho absent from Chelsea pre-season training](https://www.bbc.co.uk/sport/football/articles/cr47ykwr7zgo) - **BBC News**
+5. [12 football transfers you may have missed this summer](https://punchng.com/12-football-transfers-you-may-have-missed-this-summer/) - **The Punch**
+6. [Chelsea’s pursuit of Pep Chavarria hits a wall as Rayo Vallecano holds firm on release clause](https://cryptobriefing.com/chelsea-chavarria-rayo-vallecano-transfer/) - **Crypto Briefing**
+7. [Como plans improved £30M bid for Chelsea’s Trevoh Chalobah](https://cryptobriefing.com/como-improved-bid-chelsea-chalobah/) - **Crypto Briefing**
+8. [Ravens tight end Mark Andrews still commands league-wide respect](https://ravenswire.usatoday.com/story/sports/nfl/ravens/2026/07/11/ravens-mark-andrews-nfl-tight-end-ranking-2026/90880440007/) - **USA Today**
+9. [Stuart Pearce does not think England should risk Declan Rice’s injury](https://www.justarsenal.com/stuart-pearce-does-not-think-england-should-risk-declan-rices-injury/418427) - **Just Arsenal News**
+10. [Roy Keane vs. Erling Haaland beef, explained: Revisiting infamous dirty tackle on dad in 2001 Manchester Derby](https://www.sportingnews.com/us/soccer/news/roy-keane-erling-haaland-dad-explained/e4aed354e380960edc28c4ea) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-07-12 20:42:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-12 22:25:59 (KST) / (하루 100회 제한 준수 중)*
