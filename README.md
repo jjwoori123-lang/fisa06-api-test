@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Barcelona close in on signing 18-year-old Belgian pearl after €10m offer tabled](https://barcauniversal.com/barcelona-close-in-on-signing-18-year-old-belgian-pearl-after-e10m-offer-tabled/) - **Barcauniversal.com**
-2. [Liverpool have found their next Fernando Torres in ex-Manchester City ace](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-have-found-their-next-fernando-torres-in-ex-manchester-city-ace/) - **Anfieldwatch.co.uk**
-3. [The Man Utd youngsters to look out for in Finland and Norway](https://www.bbc.com/sport/football/articles/c74yej43w97o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [The Man Utd youngsters to look out for in Finland and Norway](https://www.bbc.co.uk/sport/football/articles/c74yej43w97o) - **BBC News**
-5. [Liverpool could solve midfield issue after dramatic transfer U-turn](https://anfieldindex.com/95682/liverpool-could-solve-midfield-issue-after-dramatic-transfer-u-turn.html) - **Anfieldindex.com**
-6. [Newcastle United receive boost in pursuit of Premier League star](https://eplindex.com/148261/newcastle-united-receive-boost-in-pursuit-of-premier-league-star.html) - **English Premier League Index - Opta Stats**
-7. [What does Braut Haaland mean? Explaining Erling Haaland's full name on back of jersey](https://www.sportingnews.com/us/soccer/news/braut-haaland-meaning-erling-haaland-name-jersey/a2382739b226c9869a019f78) - **Sporting News**
-8. [Erling Haaland mania is taking over at the 2026 FIFA World Cup](https://www.cbc.ca/news/world/erling-haaland-fifa-world-cup-9.7266170) - **CBC News**
-9. [Hey Jude: Bellingham's return to England indispensability](https://www.bbc.com/sport/football/articles/ckg47l8nl7jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [England vs. Norway history: Head-to-head matches at World Cup, last meeting, team records and more](https://www.sportingnews.com/us/soccer/news/england-norway-history-head-head-matches-world-cup/634d08867e22448a8bafcb70) - **Sporting News**
+1. [Man United’s Ederson decision troubles Atalanta as stats prove midfielder’s fitness](https://football-italia.net/man-united-ederson-trouble-atalanta-fitness/) - **Football Italia**
+2. [Man City complete £10m Jeremy Monga deal - after beating Arsenal to 17-year-old Leicester star: WINDOW WATCH](https://www.dailymail.com/sport/football/article-15970143/Man-City-complete-10m-Jeremy-Monga-deal-beating-Arsenal-17-year-old-Leicester-star-WINDOW-WATCH.html) - **Dailymail.com**
+3. [From Italy: Liverpool player’s exit to Premier League club is now ‘closer’ as agreement reached](https://www.empireofthekop.com/2026/07/11/liverpool-midfielder-exit-is-now-closer-as-agreement-reached/) - **Empire of The Kop**
+4. [Report: Arsenal interested in move to re-sign former star](https://eplindex.com/148263/report-arsenal-interested-in-move-to-re-sign-former-star.html) - **English Premier League Index - Opta Stats**
+5. [Wales defender Lockyer signs for Melbourne Victory](https://www.bbc.com/sport/football/articles/c78yp36pg4do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Wales defender Lockyer signs for Melbourne Victory](https://www.bbc.co.uk/sport/football/articles/c78yp36pg4do) - **BBC News**
+7. [Man City sign Monga from Leicester on a five-year deal](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260711-99-30492/) - **Dpa-international.com**
+8. [Where was Erling Haaland born? Norway star could have played for England](https://www.usatoday.com/story/sports/soccer/worldcup/2026/07/11/where-was-erling-haaland-born-norway-england-world-cup/90875810007/) - **USA Today**
+9. [Koné: Roma set asking price for Man United as Soulé’s agent meets Sunderland and Fulham](https://football-italia.net/roma-asking-price-soule-man-united-soule-agent/) - **Football Italia**
+10. [Manchester City sign winger Monga from Leicester](https://www.channelnewsasia.com/sport/manchester-city-sign-winger-monga-leicester-6248046) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-07-12 17:53:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-12 19:35:54 (KST) / (하루 100회 제한 준수 중)*
