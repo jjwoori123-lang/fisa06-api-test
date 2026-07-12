@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Why does Erling Haaland play for Norway despite being born in England? Here's the reason](https://economictimes.indiatimes.com/news/new-updates/why-does-erling-haaland-play-for-norway-despite-being-born-in-england-heres-the-reason/articleshow/132332787.cms) - **The Times of India**
-2. [Report: Liverpool have made contact to sign £38m-rated midfielder](https://anfieldindex.com/95691/report-liverpool-have-made-contact-to-sign-38m-rated-midfielder.html) - **Anfieldindex.com**
-3. [Report: Arsenal leading the race to sign £130m-rated forward](https://eplindex.com/148281/report-arsenal-leading-the-race-to-sign-130m-rated-forward.html) - **English Premier League Index - Opta Stats**
-4. [DFB closes in on Jürgen Klopp as Germany’s next national team coach](https://cryptobriefing.com/dfb-jurgen-klopp-germany-national-team-coach/) - **Crypto Briefing**
-5. [Use BetMGM bonus code CBSSPORTS to get $1,500 bonus bets for Argentina-Switzerland, England-Norway, UFC 329](https://www.cbssports.com/betting/news/use-betmgm-bonus-code-cbssports-to-get-1500-bonus-bets-argentina-switzerland-england-norway-ufc-329/) - **CBS Sports**
-6. [Everton keen on signing Newcastle winger Jacob Murphy](https://sportsview.co.uk/2026/07/everton-keen-on-signing-newcastle-winger-jacob-murphy?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=everton-keen-on-signing-newcastle-winger-jacob-murphy) - **Sportsview.co.uk**
-7. [Alejandro Garnacho: Chelsea decision will delight Man United](https://thepeoplesperson.com/2026/07/11/alejandro-garnacho-chelsea-decision-will-delight-man-united-312596/) - **The Peoples Person**
-8. [Klopp’s Plan For Germany – And What He Thinks About Working With Völler](https://worldfootballindex.com/2026/07/klopps-plan-for-the-national-team-and-what-he-thinks-about-working-with-voller/) - **World Football Index**
-9. [Use DraftKings promo code for $200 in bonus bets by targeting Argentina-Switzerland, England-Norway, UFC 329](https://www.cbssports.com/betting/news/use-draftkings-promo-code-for-200-in-bonus-bets-by-targeting-argentina-switzerland-england-norway-ufc-329/) - **CBS Sports**
-10. [All the celebrities spotted cheering on their favorite teams at the World Cup](https://www.businessinsider.com/photos-celebrities-cheering-2026-world-cup#article) - **Business Insider**
+1. [Coventry sign Tchaouna from Burnley on five-year deal](https://www.channelnewsasia.com/sport/coventry-sign-tchaouna-burnley-five-year-deal-6248316) - **CNA**
+2. [Xabi Alonso keen on signing Real Madrid defender for Chelsea](https://madriduniversal.com/xabi-alonso-keen-on-signing-real-madrid-defender-for-chelsea/) - **Madriduniversal.com**
+3. [Transfer Rumour Mongering: Liverpool Join the Fray For Brazilian Midfielder](https://liverpooloffside.sbnation.com/liverpool-fc-transfer-news/81891/liverpool-fc-transfer-news-brazil-midfielder-joao-gomes-atletico-madrid) - **SB Nation**
+4. [Coventry City sign Loum Tchaouna from Burnley](https://www.playmakerstats.com/news/coventry-city-sign-loum-tchaouna-from-burnley/1156030) - **Playmakerstats.com**
+5. [Haaland’s World Cup run is fueling a frenzy in sports-linked crypto assets](https://cryptobriefing.com/haaland-world-cup-crypto-meme-token-nft/) - **Crypto Briefing**
+6. [Bournemouth’s Jimenez set for surprise Serie A return with Fiorentina](https://football-italia.net/bournemouth-jimenez-set-surprise-fiorentina/) - **Football Italia**
+7. [Klopp edges closer to Germany job as key points agreed](https://www.rte.ie/sport/soccer/2026/0711/1582902-klopp-edges-closer-to-germany-job-as-key-points-agreed/) - **RTE**
+8. [Atlanta Braves’ Matt Olson Makes Franchise History During Cardinals Series](https://roundtable.io/sports/mlb/braves/news/atlanta-braves-matt-olson-makes-franchise-history-during-cardinals-series) - **Roundtable.io**
+9. [Chelsea already want to sell £40m transfer flop](https://thefootballfaithful.com/chelsea-want-to-sell-40m-transfer-flop-garnacho/) - **The Football Faithful**
+10. [Report: Arsenal have held talks over move for World Cup midfielder](https://eplindex.com/148282/report-arsenal-have-held-talks-over-move-for-world-cup-midfielder.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-07-12 23:42:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-13 01:01:03 (KST) / (하루 100회 제한 준수 중)*
