@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Jett Lawrence retakes red plate as Sacha Coenen rules Southwick sand](https://www.mcnews.com.au/2026-southwick-ama-pro-motocross-results/) - **Mcnews.com.au**
-2. [Fabrizio Romano provides update on Liverpool star’s potential exit](https://anfieldindex.com/95703/fabrizio-romano-provides-update-on-liverpool-stars-potential-exit.html) - **Anfieldindex.com**
-3. [Report: Chelsea eyeing move for Serie A forward](https://eplindex.com/148298/report-chelsea-eyeing-move-for-serie-a-forward.html) - **English Premier League Index - Opta Stats**
-4. [Eric Musselman knows USC basketball must meet Big Ten's high standard](https://trojanswire.usatoday.com/story/sports/college/trojans/mens-basketball/2026/07/12/two-rough-seasons-usc-basketball-ready-big-ten/90859553007/) - **USA Today**
-5. [Noussair Mazraoui transfer rumors highlight the managerial merry-go-round reshaping European football spending](https://cryptobriefing.com/mazraoui-ac-milan-transfer-market-implications/) - **Crypto Briefing**
-6. [Liverpool handed boost in the race for £38m midfielder after Fabrizio Romano’s update](https://anfieldindex.com/95702/liverpool-handed-boost-in-the-race-for-38m-midfielder-after-fabrizio-romanos-update.html) - **Anfieldindex.com**
-7. [Can Hayen lift Burnley once again?](https://www.bbc.com/sport/football/articles/c5yz1d9gzd4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Report: Sunderland have held talks over move for Serie A star](https://eplindex.com/148297/report-sunderland-have-held-talks-over-move-for-serie-a-star.html) - **English Premier League Index - Opta Stats**
-9. [Another dishonour looms for disgraced footy legend Nicky Winmar after his 'petrifying' attack on a woman](https://www.dailymail.com/sport/afl/article-15971645/Another-dishonour-looms-disgraced-footy-legend-Nicky-Winmar-petrifying-attack-woman.html) - **Dailymail.com**
-10. [Newcastle United summer transfer window and can you win anything with kids?](https://www.themag.co.uk/2026/07/newcastle-united-summer-transfer-window-and-can-you-win-anything-with-kids/) - **The Mag**
+1. [World Cup 2026 power rankings: who leads the pack as semi-finals loom?](https://sports.yahoo.com/articles/world-cup-2026-power-rankings-160022935.html) - **Yahoo Entertainment**
+2. [Report: Liverpool leading the race to sign Bundesliga defender](https://anfieldindex.com/95708/report-liverpool-leading-the-race-to-sign-bundesliga-defender.html) - **Anfieldindex.com**
+3. [Done Deal: Roma target Greenwood ready for Fenerbahce](https://football-italia.net/done-deal-roma-target-greenwood-fenerbahce/) - **Football Italia**
+4. [Report: Arsenal beat top clubs to sign former Tottenham youngster](https://www.justarsenal.com/report-arsenal-beat-top-clubs-to-sign-former-tottenham-youngster/418479) - **Just Arsenal News**
+5. [True Story of Wolf of Wall Street & 2 Finales To Release on Paramount+ This Week](https://www.comingsoon.net/tv/news/2159845-paramount-releases-this-week-new-july-13-19) - **ComingSoon.net**
+6. [Mason Mount set for brand new role under Michael Carrick](https://thepeoplesperson.com/2026/07/12/mason-mount-set-for-brand-new-role-under-michael-carrick-312618/) - **The Peoples Person**
+7. [Report – Chelsea Ponder Shock Move for Bologna Winger](https://cultofcalcio.com/chelsea-ponder-shock-move-for-bologna-winger-jonathan-rowe/) - **Cultofcalcio.com**
+8. [‘You Can Knock Him Back’ — NFL Coach Exposes Concerning Issue About Chiefs’ $94M Pro Bowler After ‘Down Year’](https://www.profootballnetwork.com/nfl-coach-exposes-concerning-issue-chiefs-trey-smith/?utm_medium=rss&amp;utm_source=nordot) - **Pro Football Network**
+9. [Man City respond to Chelsea’s £75M Malo Gusto demand as post-World Cup talks loom](https://cityxtra.co.uk/49799/man-city-respond-to-chelseas-75m-malo-gusto-demand-as-post-world-cup-talks-loom/) - **Cityxtra.co.uk**
+10. [When are Mac Allister and Munoz due back at Liverpool as World Cup semi-final lineup complete](https://www.empireofthekop.com/2026/07/12/when-are-mac-allister-and-munoz-due-back-at-liverpool/) - **Empire of The Kop**
 
 
 ---
-*최근 업데이트: 2026-07-13 22:01:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-14 01:00:30 (KST) / (하루 100회 제한 준수 중)*
