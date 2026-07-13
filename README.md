@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Muharemovic must choose between Leeds United, Bournemouth and Sunderland](https://football-italia.net/muharemovic-leedsunited-bournemouth-sunderland/) - **Football Italia**
-2. [An exciting signing has landed at Manchester City](https://esteemedkompany.com/2026/07/12/an-exciting-signing-has-landed-at-manchester-city/) - **Esteemedkompany.com**
-3. [Inter prepare another bid for Liverpool star Curtis Jones](https://sportsview.co.uk/2026/07/inter-prepare-another-bid-for-liverpool-star-curtis-jones?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=inter-prepare-another-bid-for-liverpool-star-curtis-jones) - **Sportsview.co.uk**
-4. [Everton Interested In 31-Year-Old Winger With 3 Goals: Why Is It Not A Good Move?](https://the4thofficial.net/2026/07/everton-interested-in-31-year-old-winger-with-3-goals-why-is-it-not-a-good-move/) - **The4thofficial.net**
-5. [Minnesota Vikings News and Links: Two Weeks To Go!](https://www.dailynorseman.com/minnesota-vikings-discussion-chat-message-board/97544/minnesota-vikings-news-and-links-two-weeks-to-go) - **Daily Norseman**
-6. [Stefon Diggs ranks himself atop NFL's No. 2 wide receivers: Why this makes him more signable in free agency](https://www.cbssports.com/nfl/news/stefon-diggs-nfl-free-agency-ranking/) - **CBS Sports**
-7. [Aston Villa Now Linked With This 33 Goal Forward: Good Option For Emery?](https://the4thofficial.net/2026/07/aston-villa-now-linked-with-this-33-goal-forward-good-option-for-emery/) - **The4thofficial.net**
-8. [Opinion: Arsenal’s Premier League triumph still hasn’t fully sunk in](https://www.justarsenal.com/opinion-arsenals-premier-league-triumph-still-hasnt-fully-sunk-in/418474) - **Just Arsenal News**
-9. [Sunderland Are In Pole Position To Land This Serie A Defender: Should Le Bris Move In For Him?](https://the4thofficial.net/2026/07/sunderland-are-in-pole-position-to-land-this-serie-a-defender/) - **The4thofficial.net**
-10. [Liverpool Have Set Their Sights On This Talented Playmaker: One For The Future?](https://the4thofficial.net/2026/07/liverpool-have-set-their-sights-on-this-talented-playmaker/) - **The4thofficial.net**
+1. [Papers: Arsenal turn to Alvarez with Barcola unavailable](https://www.skysports.com/football/transfer-paper-talk/12709/13562834/julian-alvarez-arsenal-switch-focus-to-atletico-madrid-striker-with-psg-forward-bradley-barcola-unavailable-paper-talk) - **Sky Sports**
+2. [Celtic Identify This Manchester United Keeper As A Summer Target: Why O’Neill Should Sanction The Move](https://the4thofficial.net/2026/07/celtic-identify-this-manchester-united-keeper-as-a-summer-target-why-oneill-should-sanction-the-move/) - **The4thofficial.net**
+3. [Roy Keane claims Erling Haaland's dad 'always seems to be drinking' in bizarre response to ex-Norway star's World Cup fury, as Alf Inge hits back with brutal reply in latest chapter of 30-year feud](https://www.dailymail.com/sport/football/article-15972177/Roy-Keane-Erling-Haaland-dad-drinking.html) - **Dailymail.com**
+4. [Jacob Murphy is not the sort of player we want at Everton](http://www.toffeeweb.com/season/25-26/news/47753.html) - **Toffeeweb**
+5. [Liverpool have a huge problem on their hands, it could ruin their title hopes](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-have-a-huge-problem-on-their-hands-it-could-ruin-their-title-hopes/) - **Anfieldwatch.co.uk**
+6. [Muharemovic must choose between Leeds United, Bournemouth and Sunderland](https://football-italia.net/muharemovic-leedsunited-bournemouth-sunderland/) - **Football Italia**
+7. [An exciting signing has landed at Manchester City](https://esteemedkompany.com/2026/07/12/an-exciting-signing-has-landed-at-manchester-city/) - **Esteemedkompany.com**
+8. [Inter prepare another bid for Liverpool star Curtis Jones](https://sportsview.co.uk/2026/07/inter-prepare-another-bid-for-liverpool-star-curtis-jones?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=inter-prepare-another-bid-for-liverpool-star-curtis-jones) - **Sportsview.co.uk**
+9. [Everton Interested In 31-Year-Old Winger With 3 Goals: Why Is It Not A Good Move?](https://the4thofficial.net/2026/07/everton-interested-in-31-year-old-winger-with-3-goals-why-is-it-not-a-good-move/) - **The4thofficial.net**
+10. [Minnesota Vikings News and Links: Two Weeks To Go!](https://www.dailynorseman.com/minnesota-vikings-discussion-chat-message-board/97544/minnesota-vikings-news-and-links-two-weeks-to-go) - **Daily Norseman**
 
 
 ---
-*최근 업데이트: 2026-07-14 05:58:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-14 07:02:33 (KST) / (하루 100회 제한 준수 중)*
