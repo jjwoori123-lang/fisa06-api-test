@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester City Are Eager To Recruit This Newcastle United Star: Should Maresca Go For Him?](https://the4thofficial.net/2026/07/manchester-city-are-eager-to-recruit-this-newcastle-united-star/) - **The4thofficial.net**
-2. [Game Thread: Athletics (41-54) at White Sox (49-45)](https://www.southsidesox.com/chicago-white-sox-discussions/130611/game-thread-athletics-41-54-at-white-sox-49-45) - **Southsidesox.com**
-3. [Report: Liverpool looking to hijack move for Serie A star](https://eplindex.com/148311/report-liverpool-looking-to-hijack-move-for-serie-a-star.html) - **English Premier League Index - Opta Stats**
-4. [Chelsea’s Xabi Alonso appointment highlights growing intersection of football clubs and fan tokens](https://cryptobriefing.com/chelsea-xabi-alonso-fan-tokens-crypto/) - **Crypto Briefing**
-5. [Erling Haaland Says “Sleep Is The Most Important Thing In The World,” and He Backs It Up with Cow Organs, Raw Milk, and 6,000 Calories a Day](https://thoughtcatalog.com/january-nelson/2026/07/erling-haaland-says-sleep-is-the-most-important-thing-in-the-world-and-he-backs-it-up-with-cow-organs-raw-milk-and-6000-calories-a-day/) - **Thoughtcatalog.com**
-6. [Arsenal plot surprise move for Barcelona’s priority target and Argentina’s World Cup hero](https://barcauniversal.com/arsenal-plot-surprise-move-for-barcelonas-priority-target-and-argentinas-world-cup-hero/) - **Barcauniversal.com**
-7. [England want new coach before Pakistan - who could it be?](https://www.bbc.com/sport/cricket/articles/c0ly317wg32o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Hoops come from three down to take point in Galway](https://www.rte.ie/sport/soccer/2026/0712/1582974-hoops-come-from-three-down-to-take-point-in-galway/) - **RTE**
-9. [Rice’s classy gesture to Ødegaard reminds Arsenal fans what this squad is built on](https://www.justarsenal.com/rices-classy-gesture-to-odegaard-reminds-arsenal-fans-what-this-squad-is-built-on/418481) - **Just Arsenal News**
-10. [15 Liverpool players set to start pre-season training tomorrow](https://anfieldindex.com/95713/15-liverpool-players-set-to-start-pre-season-training-tomorrow.html) - **Anfieldindex.com**
+1. [Liverpool Have Set Their Sights On This Talented Playmaker: One For The Future?](https://the4thofficial.net/2026/07/liverpool-have-set-their-sights-on-this-talented-playmaker/) - **The4thofficial.net**
+2. [Report: Serie A side ready to push hard to sign Chelsea defender](https://eplindex.com/148313/report-serie-a-side-ready-to-push-hard-to-sign-chelsea-defender.html) - **English Premier League Index - Opta Stats**
+3. [Arsenal want Argentina's Alvarez - Monday's gossip](https://www.bbc.com/sport/football/articles/c1myd53vgvno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Arsenal want Argentina's Alvarez - Monday's gossip](https://www.bbc.co.uk/sport/football/articles/c1myd53vgvno) - **BBC News**
+5. [Arsenal Are Keeping Tabs On This Real Madrid Winger: Dream Option For Arteta?](https://the4thofficial.net/2026/07/arsenal-are-keeping-tabs-on-this-real-madrid-winger/) - **The4thofficial.net**
+6. [Jesús Made drives in National League’s lone run in 6-1 Futures Game loss](https://www.brewcrewball.com/milwaukee-brewers-prospects/85932/jesus-made-drives-in-national-leagues-lone-run-in-6-1-futures-game-loss) - **Brew Crew Ball**
+7. [Chelsea Are In The Race For This Talented Keeper: What Will He Add To Alonso’s Side?](https://the4thofficial.net/2026/07/chelsea-are-in-the-race-for-this-talented-keeper/) - **The4thofficial.net**
+8. [Incredible deal could win Liverpool's transfer window](https://www.anfieldwatch.co.uk/liverpool-fc/news/incredible-deal-could-win-liverpools-transfer-window/) - **Anfieldwatch.co.uk**
+9. [Tottenham Hotspur Are Hoping To Land This Talented Playmaker: Good Option For De Zerbi?](https://the4thofficial.net/2026/07/tottenham-hotspur-are-hoping-to-land-this-talented-playmaker/) - **The4thofficial.net**
+10. [From the ride to the rubble - how McCullum lost England Test job](https://www.bbc.com/sport/cricket/articles/cqx15e27v3eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-07-14 03:12:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-14 04:53:14 (KST) / (하루 100회 제한 준수 중)*
