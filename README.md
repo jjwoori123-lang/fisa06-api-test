@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool Have Set Their Sights On This Talented Playmaker: One For The Future?](https://the4thofficial.net/2026/07/liverpool-have-set-their-sights-on-this-talented-playmaker/) - **The4thofficial.net**
-2. [Report: Serie A side ready to push hard to sign Chelsea defender](https://eplindex.com/148313/report-serie-a-side-ready-to-push-hard-to-sign-chelsea-defender.html) - **English Premier League Index - Opta Stats**
-3. [Arsenal want Argentina's Alvarez - Monday's gossip](https://www.bbc.com/sport/football/articles/c1myd53vgvno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Arsenal want Argentina's Alvarez - Monday's gossip](https://www.bbc.co.uk/sport/football/articles/c1myd53vgvno) - **BBC News**
-5. [Arsenal Are Keeping Tabs On This Real Madrid Winger: Dream Option For Arteta?](https://the4thofficial.net/2026/07/arsenal-are-keeping-tabs-on-this-real-madrid-winger/) - **The4thofficial.net**
-6. [Jesús Made drives in National League’s lone run in 6-1 Futures Game loss](https://www.brewcrewball.com/milwaukee-brewers-prospects/85932/jesus-made-drives-in-national-leagues-lone-run-in-6-1-futures-game-loss) - **Brew Crew Ball**
-7. [Chelsea Are In The Race For This Talented Keeper: What Will He Add To Alonso’s Side?](https://the4thofficial.net/2026/07/chelsea-are-in-the-race-for-this-talented-keeper/) - **The4thofficial.net**
-8. [Incredible deal could win Liverpool's transfer window](https://www.anfieldwatch.co.uk/liverpool-fc/news/incredible-deal-could-win-liverpools-transfer-window/) - **Anfieldwatch.co.uk**
-9. [Tottenham Hotspur Are Hoping To Land This Talented Playmaker: Good Option For De Zerbi?](https://the4thofficial.net/2026/07/tottenham-hotspur-are-hoping-to-land-this-talented-playmaker/) - **The4thofficial.net**
-10. [From the ride to the rubble - how McCullum lost England Test job](https://www.bbc.com/sport/cricket/articles/cqx15e27v3eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Muharemovic must choose between Leeds United, Bournemouth and Sunderland](https://football-italia.net/muharemovic-leedsunited-bournemouth-sunderland/) - **Football Italia**
+2. [An exciting signing has landed at Manchester City](https://esteemedkompany.com/2026/07/12/an-exciting-signing-has-landed-at-manchester-city/) - **Esteemedkompany.com**
+3. [Inter prepare another bid for Liverpool star Curtis Jones](https://sportsview.co.uk/2026/07/inter-prepare-another-bid-for-liverpool-star-curtis-jones?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=inter-prepare-another-bid-for-liverpool-star-curtis-jones) - **Sportsview.co.uk**
+4. [Everton Interested In 31-Year-Old Winger With 3 Goals: Why Is It Not A Good Move?](https://the4thofficial.net/2026/07/everton-interested-in-31-year-old-winger-with-3-goals-why-is-it-not-a-good-move/) - **The4thofficial.net**
+5. [Minnesota Vikings News and Links: Two Weeks To Go!](https://www.dailynorseman.com/minnesota-vikings-discussion-chat-message-board/97544/minnesota-vikings-news-and-links-two-weeks-to-go) - **Daily Norseman**
+6. [Stefon Diggs ranks himself atop NFL's No. 2 wide receivers: Why this makes him more signable in free agency](https://www.cbssports.com/nfl/news/stefon-diggs-nfl-free-agency-ranking/) - **CBS Sports**
+7. [Aston Villa Now Linked With This 33 Goal Forward: Good Option For Emery?](https://the4thofficial.net/2026/07/aston-villa-now-linked-with-this-33-goal-forward-good-option-for-emery/) - **The4thofficial.net**
+8. [Opinion: Arsenal’s Premier League triumph still hasn’t fully sunk in](https://www.justarsenal.com/opinion-arsenals-premier-league-triumph-still-hasnt-fully-sunk-in/418474) - **Just Arsenal News**
+9. [Sunderland Are In Pole Position To Land This Serie A Defender: Should Le Bris Move In For Him?](https://the4thofficial.net/2026/07/sunderland-are-in-pole-position-to-land-this-serie-a-defender/) - **The4thofficial.net**
+10. [Liverpool Have Set Their Sights On This Talented Playmaker: One For The Future?](https://the4thofficial.net/2026/07/liverpool-have-set-their-sights-on-this-talented-playmaker/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-07-14 04:53:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-14 05:58:25 (KST) / (하루 100회 제한 준수 중)*
