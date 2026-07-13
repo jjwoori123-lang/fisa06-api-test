@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man City make Jeremy Monga pre-season decision as Enzo Maresca assesses new attacking arrival](https://cityxtra.co.uk/49796/man-city-make-jeremy-monga-pre-season-decision-as-enzo-maresca-assesses-new-attacking-arrival/) - **Cityxtra.co.uk**
-2. [ESPN’s latest ranking reinforces why the Bengals went all-in for Dexter Lawrence](https://www.cincyjungle.com/cincinnati-bengals-analysis/194087/dexter-lawrence-nfl-best-defensive-tackles-ranking-espn) - **Cincy Jungle**
-3. [Bruno Guimaraes’ Father Goes Public Amid Arsenal Links](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/22629/bruno-guimaraes-father-goes-public-amid-arsenal-links) - **SB Nation**
-4. [Bruno Guimaraes Directly Told Newcastle He Wants Arsenal Transfer: Report](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/22602/bruno-guimaraes-directly-told-newcastle-he-wants-arsenal-transfer-report) - **SB Nation**
-5. [Report: Key Liverpool figure set to follow Michael Edwards out of the door at Anfield](https://anfieldindex.com/95700/report-key-liverpool-figure-set-to-follow-michael-edwards-out-of-the-door-at-anfield.html) - **Anfieldindex.com**
-6. [Report: Coventry City and West Ham United interested in move for World Cup star](https://eplindex.com/148295/report-coventry-city-and-west-ham-united-interested-in-move-for-world-cup-star.html) - **English Premier League Index - Opta Stats**
-7. [Saudi Arabian outfit deny links with Barcelona attacker, claims club’s name is being used unnecessarily](https://barcauniversal.com/saudi-arabian-outfit-deny-links-with-barcelona-attacker-claims-clubs-name-is-being-used-unnecessarily/) - **Barcauniversal.com**
-8. [Every England goal at 2026 World Cup scored by players outside the Premier League](https://cryptobriefing.com/england-world-cup-goals-non-premier-league/) - **Crypto Briefing**
-9. [Early winners of the transfer window: Madrid’s star spree, Spurs’ statement signings and Leverkusen’s next-gen bet](https://www.footballmuse.com/features/early-winners-of-the-transfer-window-madrids-star-spree-spurs-statement-signings-and-leverkusens-next-gen-bet) - **Footballmuse.com**
-10. [Real Madrid schedules contract talks with Vinicius Junior as scam crypto tokens exploit his name](https://cryptobriefing.com/real-madrid-vinicius-junior-contract-talks-crypto-scam-tokens/) - **Crypto Briefing**
+1. [Jett Lawrence retakes red plate as Sacha Coenen rules Southwick sand](https://www.mcnews.com.au/2026-southwick-ama-pro-motocross-results/) - **Mcnews.com.au**
+2. [Fabrizio Romano provides update on Liverpool star’s potential exit](https://anfieldindex.com/95703/fabrizio-romano-provides-update-on-liverpool-stars-potential-exit.html) - **Anfieldindex.com**
+3. [Report: Chelsea eyeing move for Serie A forward](https://eplindex.com/148298/report-chelsea-eyeing-move-for-serie-a-forward.html) - **English Premier League Index - Opta Stats**
+4. [Eric Musselman knows USC basketball must meet Big Ten's high standard](https://trojanswire.usatoday.com/story/sports/college/trojans/mens-basketball/2026/07/12/two-rough-seasons-usc-basketball-ready-big-ten/90859553007/) - **USA Today**
+5. [Noussair Mazraoui transfer rumors highlight the managerial merry-go-round reshaping European football spending](https://cryptobriefing.com/mazraoui-ac-milan-transfer-market-implications/) - **Crypto Briefing**
+6. [Liverpool handed boost in the race for £38m midfielder after Fabrizio Romano’s update](https://anfieldindex.com/95702/liverpool-handed-boost-in-the-race-for-38m-midfielder-after-fabrizio-romanos-update.html) - **Anfieldindex.com**
+7. [Can Hayen lift Burnley once again?](https://www.bbc.com/sport/football/articles/c5yz1d9gzd4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Report: Sunderland have held talks over move for Serie A star](https://eplindex.com/148297/report-sunderland-have-held-talks-over-move-for-serie-a-star.html) - **English Premier League Index - Opta Stats**
+9. [Another dishonour looms for disgraced footy legend Nicky Winmar after his 'petrifying' attack on a woman](https://www.dailymail.com/sport/afl/article-15971645/Another-dishonour-looms-disgraced-footy-legend-Nicky-Winmar-petrifying-attack-woman.html) - **Dailymail.com**
+10. [Newcastle United summer transfer window and can you win anything with kids?](https://www.themag.co.uk/2026/07/newcastle-united-summer-transfer-window-and-can-you-win-anything-with-kids/) - **The Mag**
 
 
 ---
-*최근 업데이트: 2026-07-13 19:31:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-13 22:01:42 (KST) / (하루 100회 제한 준수 중)*
