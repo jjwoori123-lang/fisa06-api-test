@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man Utd halts £39M Éderson transfer after medical concerns](https://cryptobriefing.com/man-utd-halts-39m-derson-transfer-after-medical-concerns/) - **Crypto Briefing**
-2. [New Liverpool boss Iraola says club need more signings ahead of new season](https://www.channelnewsasia.com/sport/new-liverpool-boss-iraola-says-club-need-more-signings-ahead-new-season-6251076) - **CNA**
-3. [Spain vs. France odds, prediction, time: 2026 World Cup semifinal picks from expert on 25-16 run](https://www.cbssports.com/soccer/news/spain-france-odds-prediction-time-2026-world-cup-semifinal-picks/) - **CBS Sports**
-4. [Gasperini: ‘The whole Italy system has to be reviewed, especially in the youth sector’](https://football-italia.net/gasperini-whole-italy-system-must-be-reviewed/) - **Football Italia**
-5. [Report: Tottenham Hotspur and Newcastle United interested in move for Man City star](https://eplindex.com/148328/report-tottenham-hotspur-and-newcastle-united-interested-in-move-for-man-city-star.html) - **English Premier League Index - Opta Stats**
-6. [PSG target former player and Premier League veteran thanks to reported release clause](https://psgtalk.com/2026/07/psg-former-player-premier-league-veteran/) - **Psgtalk.com**
-7. [Roony Bardghji breaks silence on his Future at Barcelona: ‘Everything’s fine’](https://barcauniversal.com/roony-bardghji-breaks-silence-on-his-future-at-barcelona-everythings-fine/) - **Barcauniversal.com**
-8. [UAE side in advanced talks with Arsenal player](https://dailycannon.com/2026/07/norgaard-al-jazira-talks/) - **Dailycannon.com**
-9. [Arsenal have concrete interest in 21yo German striker](https://dailycannon.com/2026/07/arsenal-tresoldi-transfer-interest/) - **Dailycannon.com**
-10. [Tottenham set sights on signing Norway star Andreas Schjelderup](https://footballtoday.com/2026/07/13/tottenham-set-sights-on-signing-norway-star-andreas-schjelderup/) - **Footballtoday.com**
+1. [Ex-Celtic star Nicolas Kuhn linked with shock Como departure](https://celticshorts.com/2026/07/ex-celtic-star-nicolas-kuhn-linked-with-shock-como-departure/) - **Celticshorts.com**
+2. [Arsenal World Cup star absent from training again](https://dailycannon.com/2026/07/saliba-france-training-absence-spain-injury/) - **Dailycannon.com**
+3. [Michigan State, Gonzaga meet in college basketball tilt at Acrisure Arena](https://www.desertsun.com/story/sports/basketball/2026/07/13/michigan-state-and-gonzaga-to-clash-in-college-basketball-at-acrisure-arena/90898009007/) - **The Desert Sun**
+4. [Manchester United signs Andrey Santos for £50M, Éderson transfer pending](https://cryptobriefing.com/manchester-united-signs-andrey-santos-for-50m-derson-transfer-pending/) - **Crypto Briefing**
+5. [Answerman - Anime Has Left the Building (And Moved Into Yours)](https://www.animenewsnetwork.com/answerman/2026-07-13/.239377) - **Anime News Network**
+6. [2026 Home Run Derby odds, picks, predictions, field, rules: Best bets by expert on 118-66 roll](https://www.cbssports.com/mlb/betting/2026-home-run-derby-odds-picks-predictions-field-rules-best-bets/) - **CBS Sports**
+7. [Every current Gunner's first Premier League goal](http://www.arsenal.com/news/every-current-gunners-first-premier-league-goal) - **Arsenal.com**
+8. [Report: Liverpool midfielder edges closer to summer exit amid interest from European giants](https://eplindex.com/148331/report-liverpool-midfielder-edges-closer-to-summer-exit-amid-interest-from-european-giants.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-07-14 20:59:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-14 23:06:32 (KST) / (하루 100회 제한 준수 중)*
