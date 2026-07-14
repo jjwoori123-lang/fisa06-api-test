@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ex-Celtic star Nicolas Kuhn linked with shock Como departure](https://celticshorts.com/2026/07/ex-celtic-star-nicolas-kuhn-linked-with-shock-como-departure/) - **Celticshorts.com**
-2. [Arsenal World Cup star absent from training again](https://dailycannon.com/2026/07/saliba-france-training-absence-spain-injury/) - **Dailycannon.com**
-3. [Michigan State, Gonzaga meet in college basketball tilt at Acrisure Arena](https://www.desertsun.com/story/sports/basketball/2026/07/13/michigan-state-and-gonzaga-to-clash-in-college-basketball-at-acrisure-arena/90898009007/) - **The Desert Sun**
-4. [Manchester United signs Andrey Santos for £50M, Éderson transfer pending](https://cryptobriefing.com/manchester-united-signs-andrey-santos-for-50m-derson-transfer-pending/) - **Crypto Briefing**
-5. [Answerman - Anime Has Left the Building (And Moved Into Yours)](https://www.animenewsnetwork.com/answerman/2026-07-13/.239377) - **Anime News Network**
-6. [2026 Home Run Derby odds, picks, predictions, field, rules: Best bets by expert on 118-66 roll](https://www.cbssports.com/mlb/betting/2026-home-run-derby-odds-picks-predictions-field-rules-best-bets/) - **CBS Sports**
-7. [Every current Gunner's first Premier League goal](http://www.arsenal.com/news/every-current-gunners-first-premier-league-goal) - **Arsenal.com**
-8. [Report: Liverpool midfielder edges closer to summer exit amid interest from European giants](https://eplindex.com/148331/report-liverpool-midfielder-edges-closer-to-summer-exit-amid-interest-from-european-giants.html) - **English Premier League Index - Opta Stats**
+1. [Manchester United closing in on $47 million Youri Tielemans transfer as Ederson deal stalls](https://www.alloutsoccer.com/news/manchester-united-youri-tielemans-transfer-1934557) - **Alloutsoccer.com**
+2. [‘We need more players’ — new Liverpool boss Iraola](https://www.vanguardngr.com/2026/07/we-need-more-players-new-liverpool-boss-iraola/) - **Vanguard**
+3. [Chelsea table fresh bid for Rayo Vallecano star](https://getfootballnewsspain.com/chelsea-table-fresh-bid-for-rayo-vallecano-star/) - **Getfootballnewsspain.com**
+4. [Carnevali warning for Kolo Muani, ‘do not need’ Frattesi at Juventus](https://football-italia.net/carnevali-kolo-muani-no-need-frattesi-juventus/) - **Football Italia**
+5. [Lewis Hall: Why Newcastle United star is so keen on a Man United move](https://thepeoplesperson.com/2026/07/13/lewis-hall-why-newcastle-united-star-is-so-keen-on-a-man-united-move-312651/) - **The Peoples Person**
+6. [Michigan State basketball, Gonzaga to play in Palm Springs in December](https://www.freep.com/story/sports/college/michigan-state/spartans/2026/07/13/michigan-state-basketball-schedule-gonzaga-palm-springs/90901385007/) - **Detroit Free Press**
+7. [Erling Haaland Says Goodbye to the U.S. After ‘Emotional’ World Cup Run with Norway](https://people.com/erling-haaland-says-goodbye-to-us-after-emotional-world-cup-run-12016901) - **PEOPLE**
+8. [‘We are ambitious’ – Alonso sets out plan for Chelsea revival after disappointing last season](https://hayters.com/we-are-ambitious-alonso-sets-out-plan-for-chelsea-revival-after-disappointing-last-season/) - **Hayters.com**
+9. [Burnley's Estève expected in Leipzig for medical this week](https://bulinews.com/burnley-esteve-expected-leipzig-for-medical-this-week) - **Bulinews.com**
 
 
 ---
-*최근 업데이트: 2026-07-14 23:06:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-15 00:50:49 (KST) / (하루 100회 제한 준수 중)*
