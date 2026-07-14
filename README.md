@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man Utd plot £50m Kone move as midfield rebuild shifts](https://thefootballfaithful.com/man-utd-plot-50m-kone-move-as-midfield-rebuild-shifts/) - **The Football Faithful**
-2. [Report: European giants ready to launch another bid to sign Liverpool star](https://anfieldindex.com/95720/report-european-giants-ready-to-launch-another-bid-to-sign-liverpool-star.html) - **Anfieldindex.com**
-3. [Ayyoub Bouaddi: Man United’s midfield plans revealed after Ederson shock](https://thepeoplesperson.com/2026/07/13/ayyoub-bouaddi-man-uniteds-midfield-plans-revealed-after-ederson-shock-312625/) - **The Peoples Person**
-4. [These are unprecedented times for England - enjoy them](https://www.bbc.com/sport/football/articles/c932rqverkvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [These are unprecedented times for England - enjoy them](https://www.bbc.co.uk/sport/football/articles/c932rqverkvo) - **BBC News**
-6. [Poppy Delevingne Led a Star-Studded Wimbledon Fashion Season — Here's Who Else Showed Up in Style](https://radaronline.com/p/poppy-delevingne-led-a-star-studded-wimbledon-fashion-season-heres-who-else-showed-up-in-style/) - **Radaronline.com**
-7. [Balancing the Backline: Why Sunderland Need A Natural Left-Sided Centre-Half This Summer](https://rokerreport.sbnation.com/features/144520/balancing-the-backline-why-sunderland-need-a-natural-left-sided-centre-half-this-summer) - **SB Nation**
-8. [Bombs, blood, ambushes - football coaching with the army](https://www.bbc.com/sport/football/articles/cd7we8we4xgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Bombs, blood, ambushes - football coaching with the army](https://www.bbc.co.uk/sport/football/articles/cd7we8we4xgo) - **BBC News**
-10. [Sophie Cunningham sends clear message about Fever's biggest problem halfway through season](https://www.sportingnews.com/us/wnba/indiana-fever/news/sophie-cunningham-sends-clear-message-about-fevers-biggest-problem-halfway-through-season/928156898be7f3d01961a70d) - **Sporting News**
+1. [11 set for induction into 2026 Delaware County Athletic Hall of Fame class](https://www.thestarpress.com/story/sports/high-school/2026/07/13/delaware-county-athletic-hall-of-fame-class-of-2026-inductees/90845268007/) - **The Star Press**
+2. [Manzambi picks Villa - becomes 10th player Newcastle have missed out on](https://www.skysports.com/football/news/11677/13562928/johan-manzambi-newcastle-set-to-lose-switzerland-world-cup-hero-to-aston-villa) - **Sky Sports**
+3. [Manzambi picks Villa - becomes 10th player Newcastle have missed out on](https://www.skysports.com/football/news/11677/13562928/johan-manzambi-newcastle-set-to-lose-switzerland-world-cup-hero-to-aston-villa-becoming-10th-player-to-turn-magpies-down-in-two-years) - **Sky Sports**
+4. [‘Medical booked’ – Liverpool target set to ‘become official this week’ after £46m deal agreed](https://www.empireofthekop.com/2026/07/13/medical-booked-liverpool-target-set-to-become-official-this-week-after-46m-deal-agreed/) - **Empire of The Kop**
+5. [Back to school beyond the World Cup: 5️⃣ stories shaping Monday](https://onefootball.com/en/news/back-to-school-beyond-the-world-cup-5-stories-shaping-monday-43131779) - **Onefootball.com**
+6. [Chupps Footwear strengthens sports marketing strategy with P. Gopichand Badminton Academy partnership](https://sportsmintmedia.com/chupps-footwear-strengthens-sports-marketing-strategy-with-p-gopichand-badminton-academy-partnership/) - **Sportsmintmedia.com**
+7. [Fleming steps down as Chennai head coach after 18 years in charge](https://www.channelnewsasia.com/sport/fleming-steps-down-chennai-head-coach-after-18-years-in-charge-6250491) - **CNA**
+8. [Roony Bardghji in demand as Barcelona receive over 10 offers](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/126426/roony-bardghji-in-demand-as-barcelona-receive-over-10-offers) - **Barca Blaugranes**
+9. [Four strategies England can adopt to beat Argentina in the World Cup semifinals](https://www.bavarianfootballworks.com/fifa-world-cup/229199/four-strategies-england-can-adopt-to-beat-argentina-in-the-world-cup-semifinals) - **Bavarian Football Works**
 
 
 ---
-*최근 업데이트: 2026-07-14 14:56:50 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-14 17:20:40 (KST) / (하루 100회 제한 준수 중)*
