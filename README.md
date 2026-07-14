@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [11 set for induction into 2026 Delaware County Athletic Hall of Fame class](https://www.thestarpress.com/story/sports/high-school/2026/07/13/delaware-county-athletic-hall-of-fame-class-of-2026-inductees/90845268007/) - **The Star Press**
-2. [Manzambi picks Villa - becomes 10th player Newcastle have missed out on](https://www.skysports.com/football/news/11677/13562928/johan-manzambi-newcastle-set-to-lose-switzerland-world-cup-hero-to-aston-villa) - **Sky Sports**
-3. [Manzambi picks Villa - becomes 10th player Newcastle have missed out on](https://www.skysports.com/football/news/11677/13562928/johan-manzambi-newcastle-set-to-lose-switzerland-world-cup-hero-to-aston-villa-becoming-10th-player-to-turn-magpies-down-in-two-years) - **Sky Sports**
-4. [‘Medical booked’ – Liverpool target set to ‘become official this week’ after £46m deal agreed](https://www.empireofthekop.com/2026/07/13/medical-booked-liverpool-target-set-to-become-official-this-week-after-46m-deal-agreed/) - **Empire of The Kop**
-5. [Back to school beyond the World Cup: 5️⃣ stories shaping Monday](https://onefootball.com/en/news/back-to-school-beyond-the-world-cup-5-stories-shaping-monday-43131779) - **Onefootball.com**
-6. [Chupps Footwear strengthens sports marketing strategy with P. Gopichand Badminton Academy partnership](https://sportsmintmedia.com/chupps-footwear-strengthens-sports-marketing-strategy-with-p-gopichand-badminton-academy-partnership/) - **Sportsmintmedia.com**
-7. [Fleming steps down as Chennai head coach after 18 years in charge](https://www.channelnewsasia.com/sport/fleming-steps-down-chennai-head-coach-after-18-years-in-charge-6250491) - **CNA**
-8. [Roony Bardghji in demand as Barcelona receive over 10 offers](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/126426/roony-bardghji-in-demand-as-barcelona-receive-over-10-offers) - **Barca Blaugranes**
-9. [Four strategies England can adopt to beat Argentina in the World Cup semifinals](https://www.bavarianfootballworks.com/fifa-world-cup/229199/four-strategies-england-can-adopt-to-beat-argentina-in-the-world-cup-semifinals) - **Bavarian Football Works**
+1. [Manchester United in talks to sign Youri Tielemans from Aston Villa](https://cryptobriefing.com/manchester-united-in-talks-to-sign-youri-tielemans-from-aston-villa/) - **Crypto Briefing**
+2. [Manchester United reportedly trigger £35M clause for Youri Tielemans](https://cryptobriefing.com/manchester-united-reportedly-trigger-35m-clause-for-youri-tielemans/) - **Crypto Briefing**
+3. [“Here we go”: Man United reach full agreement to sign Youri Tielemans](https://thepeoplesperson.com/2026/07/13/here-we-go-man-united-reach-full-agreement-to-sign-youri-tielemans-312640/) - **The Peoples Person**
+4. [ Manchester United 'in advanced talks' to sign Youri Tielemans](https://onefootball.com/en/news/manchester-united-in-advanced-talks-to-sign-youri-tielemans-43132360) - **Onefootball.com**
+5. [Ederson remains an option for Manchester United despite Tielemans talks](https://football-italia.net/ederson-remains-an-option-for-man-united/) - **Football Italia**
+6. [Netflix Takes Another Swing At MLB With Home Run Derby Broadcast](https://www.forbes.com/sites/peterchawaga/2026/07/13/netflix-takes-another-swing-at-mlb-with-home-run-derby-broadcast/) - **Forbes**
+7. [Brazilian midfielder has already opened the door to joining Liverpool](https://anfieldindex.com/95724/brazilian-midfielder-has-already-opened-the-door-to-joining-liverpool.html) - **Anfieldindex.com**
+8. [Manchester United in advanced talks to sign Youri Tielemans from Aston Villa](https://cryptobriefing.com/manchester-united-in-advanced-talks-to-sign-youri-tielemans-from-aston-villa/) - **Crypto Briefing**
+9. [Man United seeks to renegotiate Éderson transfer over knee concerns](https://cryptobriefing.com/man-united-seeks-to-renegotiate-derson-transfer-over-knee-concerns/) - **Crypto Briefing**
+10. [Top 10 Italy players by cumulative transfer fees: Tonali and Retegui lead the way](https://football-italia.net/top-10-italy-players-by-cumulative-fees/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-07-14 17:20:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-14 19:21:57 (KST) / (하루 100회 제한 준수 중)*
