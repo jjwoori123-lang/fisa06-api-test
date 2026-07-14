@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Cowboys' Caleb Downs Earns Highest Launch-Day Madden Rating Ever for a Dallas Rookie](https://roundtable.io/sports/nfl/cowboys/news/cowboys-caleb-downs-earns-highest-launch-day-madden-rating-ever-for-a-dallas-rookie) - **Roundtable.io**
-2. [Is Anthony Edwards Rated Too High, Too Low, or Just Right?](https://roundtable.io/sports/nba/timberwolves/news/is-anthony-edwards-rated-too-high-too-low-or-just-right) - **Roundtable.io**
-3. [Jürgen Klopp Agrees Principles Of Contract To Become Next Germany Head Coach](https://www.foxsports.com/stories/soccer/jurgen-klopp-agrees-principles-contract-become-next-germany-head-coach) - **Fox Sports**
-4. [Former Bucs WR earns credit for production under pressure by PFF](https://bucswire.usatoday.com/story/sports/nfl/buccaneers/2026/07/12/former-buccaneers-wr-mike-evans-one-of-nfls-ultimate-safety-blankets/90884133007/) - **USA Today**
-5. [Report: Johan Manzambi nears €70M Aston Villa transfer after starring at the 2026 World Cup with Switzerland](https://worldsoccertalk.com/news/report-johan-manzambi-nears-eur70m-aston-villa-transfer-after-starring-at-the-2026-world-cup-with-switzerland/) - **Worldsoccertalk.com**
-6. [ Reports: CL club pips Newcastle to Manzambi with €70m package](https://onefootball.com/en/news/reports-cl-club-pips-newcastle-to-manzambi-with-70m-package-43131011) - **Onefootball.com**
-7. [Papers: Arsenal turn to Alvarez with Barcola unavailable](https://www.skysports.com/football/transfer-paper-talk/12709/13562834/julian-alvarez-arsenal-switch-focus-to-atletico-madrid-striker-with-psg-forward-bradley-barcola-unavailable-paper-talk) - **Sky Sports**
-8. [Celtic Identify This Manchester United Keeper As A Summer Target: Why O’Neill Should Sanction The Move](https://the4thofficial.net/2026/07/celtic-identify-this-manchester-united-keeper-as-a-summer-target-why-oneill-should-sanction-the-move/) - **The4thofficial.net**
-9. [Roy Keane claims Erling Haaland's dad 'always seems to be drinking' in bizarre response to ex-Norway star's World Cup fury, as Alf Inge hits back with brutal reply in latest chapter of 30-year feud](https://www.dailymail.com/sport/football/article-15972177/Roy-Keane-Erling-Haaland-dad-drinking.html) - **Dailymail.com**
-10. [Jacob Murphy is not the sort of player we want at Everton](http://www.toffeeweb.com/season/25-26/news/47753.html) - **Toffeeweb**
+1. [Sophie Cunningham sends clear message about Fever's biggest problem halfway through season](https://www.sportingnews.com/us/wnba/indiana-fever/news/sophie-cunningham-sends-clear-message-about-fevers-biggest-problem-halfway-through-season/928156898be7f3d01961a70d) - **Sporting News**
+2. [Warriors Add LeBron James’ Former Championship Coach to Steve Kerr’s Staff](https://heavy.com/sports/nba/golden-state-warriors/warriors-frank-vogel-steve-kerr-staff/) - **Heavy.com**
+3. [Bristol Rhythm AFC owners talk successful season](https://www.wjhl.com/news/bristol-rhythm-afc-owners-talk-successful-season/) - **WJHL-TV News Channel 11**
+4. [Dziki Warsaw signs Osun Osunniyi](https://www.widerightnattylite.com/professional-cyclones/52488/dziki-warsaw-signs-osun-osunniyi) - **Widerightnattylite.com**
+5. [Chargers’ Joe Alt is Climbing Up the Rankings at Tackle](https://roundtable.io/sports/nfl/chargers/news/chargers-joe-alt-is-climbing-up-the-rankings-at-tackle) - **Roundtable.io**
+6. [Nuggets Sign EuroLeague Defensive Star as Peyton Watson Decision Looms](https://heavy.com/sports/nba/denver-nuggets/nuggets-sign-euroleague-defensive-star-as-peyton-watson-decision-looms/) - **Heavy.com**
+7. [The Home Run Derby Field is Stacked for Philly](https://easysportz.com/2026/07/the-home-run-derby-field-is-stacked-for-philly/) - **Easysportz.com**
+8. [Cowboys' Caleb Downs Earns Highest Launch-Day Madden Rating Ever for a Dallas Rookie](https://roundtable.io/sports/nfl/cowboys/news/cowboys-caleb-downs-earns-highest-launch-day-madden-rating-ever-for-a-dallas-rookie) - **Roundtable.io**
+9. [Is Anthony Edwards Rated Too High, Too Low, or Just Right?](https://roundtable.io/sports/nba/timberwolves/news/is-anthony-edwards-rated-too-high-too-low-or-just-right) - **Roundtable.io**
+10. [Jürgen Klopp Agrees Principles Of Contract To Become Next Germany Head Coach](https://www.foxsports.com/stories/soccer/jurgen-klopp-agrees-principles-contract-become-next-germany-head-coach) - **Fox Sports**
 
 
 ---
-*최근 업데이트: 2026-07-14 09:10:31 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-14 12:39:39 (KST) / (하루 100회 제한 준수 중)*
