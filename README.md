@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Alan Shearer warns 'a refereeing decision or VAR' could cost England a place in the World Cup final as Three Lions legend hits out at 'nonsense' decisions in Argentina's favour ahead of semi-final](https://www.dailymail.com/sport/football/article-15976889/Alan-Shearer-England-Referee-Argentina-World-Cup.html) - **Dailymail.com**
-2. [Alec Stathakis’ return helps spark Waterdogs’ midseason push](https://premierlacrosseleague.com/articles/alec-stathakis-returns-to-spark-waterdogs-midseason-push) - **Premierlacrosseleague.com**
-3. [Aston Villa weighing up move for Joao Palhinha](https://sportsview.co.uk/2026/07/aston-villa-weighing-up-move-for-joao-palhinha?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=aston-villa-weighing-up-move-for-joao-palhinha) - **Sportsview.co.uk**
-4. [Alejandro Garnacho: Roma submit opening offer for ex-United ace](https://thepeoplesperson.com/2026/07/14/alejandro-garnacho-roma-submit-opening-offer-for-ex-united-ace-312701/) - **The Peoples Person**
-5. [Arsenal agree Leandro Trossard sale to Besiktas after EPL title triumph](https://www.vanguardngr.com/2026/07/arsenal-agree-leandro-trossard-sale-to-besiktas-after-epl-title-triumph/) - **Vanguard**
-6. [Why Have Hundreds Of People In Peru Named Their Baby After Norwegian World Cup Star Erling Haaland?](https://brobible.com/sports/article/erling-haaland-peru-baby-name/) - **BroBible**
-7. [Bournemouth drops £25M on striker Alvaro Rodriguez as Premier League spending spree continues](https://cryptobriefing.com/bournemouth-alvaro-rodriguez-25m-deal/) - **Crypto Briefing**
-8. [Spain vs. France odds, prediction, time: 2026 World Cup semifinal picks from expert on 25-16 run](https://www.cbssports.com/soccer/news/spain-france-odds-prediction-time-2026-world-cup-semifinal-picks-best-bets/) - **CBS Sports**
-9. [Nike and Adidas facing $1bn-plus problem ahead of England vs Argentina in World Cup semi-final](https://www.hitc.com/nike-and-adidas-facing-1bn-plus-problem-ahead-of-england-vs-argentina-in-world-cup-semi-final/) - **HITC - Football, Gaming, Movies, TV, Music**
-10. [Bournemouth sign £25.7m striker Rodriguez](https://www.bbc.com/sport/football/articles/c93239v347qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Who is Spain's goalie? Why Unai Simon starts over Arsenal's David Raya, Barcelona's Joan Garcia](https://www.sportingnews.com/us/soccer/news/who-spain-goalie-why-unai-simon-starts-arsenal-david-raya-barcelona-joan-garcia/0d7caa814fe7063e827e8c7f) - **Sporting News**
+2. [Bruno Fernandes: Champions League side still dreams of signing Man United captain](https://thepeoplesperson.com/2026/07/14/bruno-fernandes-champions-league-side-still-dreams-of-signing-man-united-captain-312705/) - **The Peoples Person**
+3. [Liverpool given brilliant chance to copy superb Real Madrid blueprint](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-given-brilliant-chance-to-copy-superb-real-madrid-blueprint/) - **Anfieldwatch.co.uk**
+4. ['I leave with amazing memories and immense pride'](https://www.bbc.com/sport/football/articles/clyey4vlgnko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Aston Villa defender Lucas Digne set to join PSG](https://sportsview.co.uk/2026/07/aston-villa-defender-lucas-digne-set-to-join-psg?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=aston-villa-defender-lucas-digne-set-to-join-psg) - **Sportsview.co.uk**
+6. [Southampton opens talks to sign Iván Azón from Como for €10M](https://cryptobriefing.com/southampton-ivan-azon-como-transfer/) - **Crypto Briefing**
+7. [Amnesty warns of Rwanda ‘sportswashing’ in Villa sponsorship](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260714-99-57128/) - **Dpa-international.com**
+8. [Yes, Erling Haaland brought home a taxidermy raccoon from his World Cup travels](https://www.cbc.ca/news/world/haaland-raccoon-world-cup-9.7269319) - **CBC News**
+9. [Cristian Romero and Lisandro Martinez are the 'best worst centre-back partnership at the World Cup' but here's why Argentina's dynamite duo will be crucial against England](https://www.dailymail.com/sport/football/article-15973635/Cristian-Romero-Lisandro-Martinez-best-worst-centre-partnership-World-Cup-heres-Argentinas-dynamite-duo-crucial-against-England.html) - **Dailymail.com**
+10. [Is Tielemans a risk?](https://www.bbc.com/sport/football/articles/c5yzyl4551xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-07-16 00:54:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-16 02:19:51 (KST) / (하루 100회 제한 준수 중)*
