@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Gossip: Saints target strikers](https://www.bbc.com/sport/football/articles/c33y372zj6mo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Aston Villa move to hijack Newcastle deal for Swiss World Cup star Manzambi](https://www.vanguardngr.com/2026/07/aston-villa-move-to-hijack-newcastle-deal-for-swiss-world-cup-star-manzambi/) - **Vanguard**
-3. [Manchester City targets Lille’s Ayyoub Bouaddi in potential €100M transfer, and crypto-powered sports markets are watching](https://cryptobriefing.com/man-city-bouaddi-transfer-crypto-markets/) - **Crypto Briefing**
-4. [Daizen Maeda says he will join ‘any’ Premier League club](https://celticshorts.com/2026/07/daizen-maeda-says-he-will-join-any-premier-league-club/) - **Celticshorts.com**
-5. [Juve CEO Giovanni Carnevali sounds like he’s losing patience with PSG’s Randal Kolo Muani negotiations](https://www.blackwhitereadallover.com/juventus-transfer-rumours-news/39957/juventus-giovanni-carnevali-randal-kolo-muani-2026-serie-a-ligue-1-summer-transfer-talks) - **Black & White & Read All Over**
-6. [Crisp joins LGD Gaming for LPL Split 3 as esports roster moves highlight gaming industry’s growing financial stakes](https://cryptobriefing.com/crisp-lgd-gaming-lpl-esports/) - **Crypto Briefing**
-7. [Leicester's Kristiansen loaned to Panathinaikos](https://www.bbc.com/sport/football/articles/cg535dvqdnqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Report: Chelsea ready to submit £21m offer for La Liga star](https://eplindex.com/148356/report-chelsea-ready-to-submit-21m-offer-for-la-liga-star.html) - **English Premier League Index - Opta Stats**
-9. [Gary Neville reveals which Liverpool star he would sign for Man United](https://anfieldindex.com/95747/gary-neville-reveals-which-liverpool-star-he-would-sign-for-man-united.html) - **Anfieldindex.com**
-10. [Why Everton were right not to go for Harry Wilson](http://www.toffeeweb.com/season/25-26/news/47754.html) - **Toffeeweb**
+1. [Vuskovic 'can play at a very high level' - Hurzeler](https://www.bbc.com/sport/football/articles/c14y4xmnme2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Fabrizio Romano drops big update on Youri Tielemans to Man United](https://thepeoplesperson.com/2026/07/14/fabrizio-romano-drops-big-update-on-youri-tielemans-to-man-united-312686/) - **The Peoples Person**
+3. [Newcastle are big admirers of Wolverhampton Wanderers midfielder Joao Gomes](https://sportsview.co.uk/2026/07/newcastle-are-big-admirers-of-wolverhampton-wanderers-midfielder-joao-gomes?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-are-big-admirers-of-wolverhampton-wanderers-midfielder-joao-gomes) - **Sportsview.co.uk**
+4. [US stars jump on the Three Lions' bandwagon: Jason Sudeikis and Alexandra Daddario lead the A-listers throwing their support behind England in the World Cup](https://www.dailymail.com/tvshowbiz/article-15975761/US-stars-jump-Three-Lions-bandwagon-Jason-Sudeikis-Alexandra-Daddario-lead-listers-throwing-support-England-World-Cup.html) - **Dailymail.com**
+5. [Brighton sign ex-Hamburg defender Vušković from Tottenham](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260714-99-53668/) - **Dpa-international.com**
+6. [Brighton sign Vuskovic from Spurs for club record £46m](https://www.bbc.com/sport/football/articles/cy7370x2yp7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Brighton sign Vuskovic from Spurs for club record £46m](https://www.bbc.co.uk/sport/football/articles/cy7370x2yp7o) - **BBC News**
+8. [Is Kyle Schwarber beating Father Time with his evolving power swing? 'I hope so'](https://www.usatoday.com/story/sports/mlb/phillies/2026/07/14/kyle-schwarber-all-star-game-mlb-home-run-leader-philadelphia-phillies/90897741007/) - **USA Today**
+9. [Spurs confirm Vuskovic exit – with more departures set to follow](https://hayters.com/spurs-confirm-vuskovic-exit-with-more-departures-set-to-follow/) - **Hayters.com**
+10. [The English WAG who's supporting Argentina: Premier League star's girlfriend defends cheering for her country's enemy in World Cup semi-final](https://www.dailymail.com/sport/football/article-15975587/The-English-WAG-whos-supporting-Argentina.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-07-15 17:29:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-15 19:26:57 (KST) / (하루 100회 제한 준수 중)*
