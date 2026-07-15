@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United activate £35M release clause for Youri Tielemans](https://cryptobriefing.com/manchester-united-activate-35m-release-clause-for-youri-tielemans/) - **Crypto Briefing**
-2. [Manchester United trigger £35m clause to land Villa’s Tielemans](https://thefootballfaithful.com/manchester-united-trigger-35m-clause-to-land-villas-tielemans/) - **The Football Faithful**
-3. [Trossard approves Besiktas move as Arsenal exit confirmed](https://thefootballfaithful.com/trossard-approves-besiktas-move-as-arsenal-exit-confirmed/) - **The Football Faithful**
-4. [Arsenal’s Leandro Trossard set for Besiktas medical](https://www.getfootballnewsgermany.com/2026/arsenal-trossard-set-besiktas-medical/) - **Getfootballnewsgermany.com**
-5. [Kobbie Mainoo: Scholes and Butt deliver bold verdict on United star](https://thepeoplesperson.com/2026/07/14/kobbie-mainoo-scholes-and-butt-deliver-bold-verdict-on-united-star-312677/) - **The Peoples Person**
-6. [Kelsey Mitchell’s Historic WNBA Milestone Sparks Caitlin Clark Comparisons From WNBA Fans](https://www.essentiallysports.com/wnba-basketball-news-kelsey-mitchells-historic-wnba-milestone-sparks-caitlin-clark-comparisons-from-wnba-fans/) - **Essentially Sports**
-7. [Tottenham line up Benfica winger Andreas Schjelderup for summer move](https://sportsview.co.uk/2026/07/tottenham-line-up-benfica-winger-andreas-schjelderup-for-summer-move?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-line-up-benfica-winger-andreas-schjelderup-for-summer-move) - **Sportsview.co.uk**
-8. [Who Should Sunderland Keep on the Left Wing?](https://rokerreport.sbnation.com/opinion/144602/who-should-sunderland-keep-on-the-left-wing) - **SB Nation**
-9. [A Hat Trick Of Sunderland Games — “A Generational Love Affair”](https://rokerreport.sbnation.com/features/144600/a-hat-trick-of-sunderland-games-a-generational-love-affair) - **SB Nation**
-10. [On This Day (14th July 2015): Jeremain Lens ‘Keen’ On Sunderland Move!](https://rokerreport.sbnation.com/features/144737/on-this-day-14th-july-2015-jeremain-lens-keen-on-sunderland-move) - **SB Nation**
+1. [Gossip: Saints target strikers](https://www.bbc.com/sport/football/articles/c33y372zj6mo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Aston Villa move to hijack Newcastle deal for Swiss World Cup star Manzambi](https://www.vanguardngr.com/2026/07/aston-villa-move-to-hijack-newcastle-deal-for-swiss-world-cup-star-manzambi/) - **Vanguard**
+3. [Manchester City targets Lille’s Ayyoub Bouaddi in potential €100M transfer, and crypto-powered sports markets are watching](https://cryptobriefing.com/man-city-bouaddi-transfer-crypto-markets/) - **Crypto Briefing**
+4. [Daizen Maeda says he will join ‘any’ Premier League club](https://celticshorts.com/2026/07/daizen-maeda-says-he-will-join-any-premier-league-club/) - **Celticshorts.com**
+5. [Juve CEO Giovanni Carnevali sounds like he’s losing patience with PSG’s Randal Kolo Muani negotiations](https://www.blackwhitereadallover.com/juventus-transfer-rumours-news/39957/juventus-giovanni-carnevali-randal-kolo-muani-2026-serie-a-ligue-1-summer-transfer-talks) - **Black & White & Read All Over**
+6. [Crisp joins LGD Gaming for LPL Split 3 as esports roster moves highlight gaming industry’s growing financial stakes](https://cryptobriefing.com/crisp-lgd-gaming-lpl-esports/) - **Crypto Briefing**
+7. [Leicester's Kristiansen loaned to Panathinaikos](https://www.bbc.com/sport/football/articles/cg535dvqdnqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Report: Chelsea ready to submit £21m offer for La Liga star](https://eplindex.com/148356/report-chelsea-ready-to-submit-21m-offer-for-la-liga-star.html) - **English Premier League Index - Opta Stats**
+9. [Gary Neville reveals which Liverpool star he would sign for Man United](https://anfieldindex.com/95747/gary-neville-reveals-which-liverpool-star-he-would-sign-for-man-united.html) - **Anfieldindex.com**
+10. [Why Everton were right not to go for Harry Wilson](http://www.toffeeweb.com/season/25-26/news/47754.html) - **Toffeeweb**
 
 
 ---
-*최근 업데이트: 2026-07-15 14:59:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-15 17:29:57 (KST) / (하루 100회 제한 준수 중)*
