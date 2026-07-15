@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [William Saliba’s back injury raises questions for Arsenal’s defensive future and Premier League betting markets](https://cryptobriefing.com/saliba-back-injury-arsenal-betting-markets/) - **Crypto Briefing**
-2. [Dan the Scout Names His World Cup Team of the Quarter-finals – Who’s in Yours?](https://www.justarsenal.com/dan-the-scout-names-his-world-cup-team-of-the-quarter-finals-whos-in-yours/418624) - **Just Arsenal News**
-3. [Pico praise at tip of Bradley's tongue after Euro joy](https://www.rte.ie/sport/soccer/2026/0714/1583388-pico-praise-at-tip-of-bradleys-tongue-after-euro-joy/) - **RTE**
-4. [What number Youri Tielemans will wear for Man United revealed](https://thepeoplesperson.com/2026/07/14/what-number-youri-tielemans-will-wear-for-man-united-revealed-312715/) - **The Peoples Person**
-5. [Celtic Eye £2.5m Surprise Winger: Why It Makes Sense As Low-Risk Punt?](https://the4thofficial.net/2026/07/celtic-eye-2-5m-surprise-winger-why-it-makes-sense-as-low-risk-punt/) - **The4thofficial.net**
-6. [World Cup: Key players to watch as England and Argentina clash in semifinal](https://www.aljazeera.com/sports/2026/7/14/fifa-world-cup-key-players-to-watch-as-england-and-argentina-clash-in-semifinal) - **Al Jazeera English**
-7. [Former Lions QB Shares Powerful Message About Dan Campbell’s Leadership](https://detroitsportsnation.com/david-blough-dan-campbell-heartbeat-of-detroit-lions/richardknight/detroit-lions/07/14/2026/488162/) - **Detroit Sports Nation**
-8. [Everton Now Linked With £17m Wing-Back: Does David Moyes Need Him?](https://the4thofficial.net/2026/07/everton-now-linked-with-17m-wing-back-does-david-moyes-need-him/) - **The4thofficial.net**
-9. [Liverpool to lose millions after major news emerges from Anfield](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-to-lose-millions-after-major-news-emerges-from-anfield/) - **Anfieldwatch.co.uk**
+1. [Can England's upstart Jude dethrone his idol Messi in battle of the Number 10s?... with a little help from his mum](https://www.dailymail.com/sport/football/article-15977821/Englands-upstart-Jude-Messi-battle-Number-10s-mum.html) - **Dailymail.com**
+2. [Mohamed Salah open to Chelsea return if club makes offer](https://cryptobriefing.com/salah-open-chelsea-return-free-agent/) - **Crypto Briefing**
+3. [France vs Spain: William Saliba Injury Leaves Les Bleus Facing Major World Cup Blow](https://heavy.com/sports/soccer/world-cup/france-vs-spain-william-saliba-injury-leaves-les-bleus-facing-major-world-cup-blow/) - **Heavy.com**
+4. [Illegal 7,500-tonne waste dump is found next to football stadium after locals noticed smell of rotting food during heatwave](https://www.dailymail.com/news/article-15977975/Illegal-waste-dump-smell-rotting-food-heatwave.html) - **Dailymail.com**
+5. [Mac Allister calls on Argentina to channel Maradona spirit in England World Cup clash](https://sports.yahoo.com/articles/mac-allister-calls-argentina-channel-230028639.html) - **Yahoo Entertainment**
+6. [USA Network, Fandango secure Bundesliga rights in U.S. for $20 million annually](https://awfulannouncing.com/versant/usa-network-fandango-bundesliga-rights-us.html) - **Awful Announcing**
+7. [Israeli guard Yam Madar signs three-year deal with Maccabi Tel Aviv after leaving rival Hapoel](https://www.jpost.com/israel-news/politics-and-diplomacy/article-902527) - **The Jerusalem Post**
+8. [Key battles as England face Argentina in World Cup semi-final](https://sports.yahoo.com/articles/key-battles-england-face-argentina-223322900.html) - **Yahoo Entertainment**
+9. [Masterful Rodri rolls back the years to anchor Spain's march into the final](https://www.channelnewsasia.com/sport/masterful-rodri-rolls-back-years-anchor-spains-march-final-6254681) - **CNA**
+10. [Breaking: How to watch Bayern Munich will be changing in 2026/27](https://www.bavarianfootballworks.com/bayern-munich-bundesliga/230346/how-to-watch-bayern-munich-bundesliga-tv-rights-usa-fandango-espn-plus) - **Bavarian Football Works**
 
 
 ---
-*최근 업데이트: 2026-07-16 07:16:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-16 08:24:23 (KST) / (하루 100회 제한 준수 중)*
