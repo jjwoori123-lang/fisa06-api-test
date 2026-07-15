@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [William Saliba injury news: France, Arsenal defender subbed off in World Cup semifinal](https://www.nbcsports.com/soccer/news/william-saliba-injury-news-france-arsenal-defender-subbed-off-in-world-cup-semifinal) - **NBCSports.com**
-2. [Where USA TODAY Sports ranks Florida among SEC programs entering 2026](https://gatorswire.usatoday.com/story/sports/college/gators/football/2026/07/14/florida-football-sec-rankings-usa-today-sports/90917369007/) - **USA Today**
-3. [William Saliba injury update: What we know after France defender subbed off vs. Spain](https://www.usatoday.com/story/sports/soccer/worldcup/2026/07/14/william-saliba-injury-update-substitution-france-spain/90908173007/) - **USA Today**
-4. [England vs. Argentina odds, prediction, time: 2026 World Cup semifinal picks by expert on 25-16 roll](https://www.cbssports.com/soccer/news/england-argentina-odds-prediction-time-2026-world-cup-semifinal-picks/) - **CBS Sports**
-5. [Manchester United sign Youri Tielemans from Aston Villa](https://thebusbybabe.sbnation.com/general/35297/manchester-united-sign-youri-tielemans-from-aston-villa) - **SB Nation**
-6. [England lacking Premier League physicality, says Mac Allister](https://www.channelnewsasia.com/sport/england-lacking-premier-league-physicality-says-mac-allister-6254351) - **CNA**
-7. [Manchester United signs Youri Tielemans for €41M, and crypto fans are wondering what it means for fan tokens](https://cryptobriefing.com/manchester-united-tielemans-signing-crypto-fan-tokens/) - **Crypto Briefing**
-8. [Celtic Table Offer For This ‘Free Agent’ Centre-forward: Why The Hoops Must Push For His Parkhead Return](https://the4thofficial.net/2026/07/celtic-table-offer-for-this-free-agent-centre-forward-why-the-hoops-must-push-for-his-parkhead-return/) - **The4thofficial.net**
-9. [World Cup players and coaches could face FIFA sanctions from next week amid criticism](https://www.hitc.com/world-cup-players-and-coaches-could-face-fifa-sanctions-from-next-week-amid-criticism/) - **HITC - Football, Gaming, Movies, TV, Music**
+1. [Aaron Donald Teases Rams Return After 6-TIme Pro Bowler Shares Admiration for Franchise Legend](https://www.profootballnetwork.com/aaron-donald-teases-rams-return-davante-adams/?utm_medium=rss&amp;utm_source=nordot) - **Pro Football Network**
+2. [Fenerbahce sign Greenwood from Marseille for €39 million](https://www.channelnewsasia.com/sport/fenerbahce-sign-greenwood-marseille-eu39-million-6254481) - **CNA**
+3. [Pedro Porro’s stunning Spain goal puts fresh spotlight on Tottenham’s crypto ecosystem](https://cryptobriefing.com/porro-spain-goal-tottenham-crypto-fan-tokens/) - **Crypto Briefing**
+4. [How Mbappé makes Ballon d’Or top 10 for eighth year running without winning](https://punchng.com/how-mbappe-makes-ballon-dor-top-10-for-eighth-year-running-without-winning/) - **The Punch**
+5. [Journalist: Manchester United eye one more signing despite double transfer boost](https://eplindex.com/148376/journalist-manchester-united-eye-one-more-signing-despite-double-transfer-boost.html) - **English Premier League Index - Opta Stats**
+6. [Papers: Arsenal consider Gyokeres-Alvarez swap deal](https://www.skysports.com/football/transfer-paper-talk/12709/13563503/arsenal-transfer-news-gunners-explore-possible-swap-deal-involving-viktor-gyokeres-in-julian-alvarez-talks-paper-talk) - **Sky Sports**
+7. [France defender leaves World Cup semifinal early with clear message following injury](https://www.alloutsoccer.com/news/france-saliba-injury-world-cup-1937168) - **Alloutsoccer.com**
+8. [USMNT star Folarin Balogun joins LeBron James at Rich Paul’s agency after breakout World Cup](https://www.hitc.com/usmnt-star-folarin-balogun-joins-lebron-james-at-rich-pauls-agency-after-breakout-world-cup/) - **HITC - Football, Gaming, Movies, TV, Music**
+9. [Reports: Tarik Muharemović set for Leeds United move, Juve to receive 50% of €40 million fee](https://www.blackwhitereadallover.com/juventus-transfer-rumours-news/39969/tarik-muharemovic-juventus-sassuolo-leeds-united-2026-serie-a-premier-league-transfer-rumors) - **Black & White & Read All Over**
+10. [What happened to William Saliba in France’s World Cup semifinal against Spain?](https://worldsoccertalk.com/world-cup/what-happened-to-william-saliba-in-frances-world-cup-semifinal-against-spain/) - **Worldsoccertalk.com**
 
 
 ---
-*최근 업데이트: 2026-07-16 04:48:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-16 06:02:30 (KST) / (하루 100회 제한 준수 중)*
