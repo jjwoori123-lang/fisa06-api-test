@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [“I can’t wait” – Nico O’Reilly relishing Lionel Messi challenge ahead of Argentina World Cup semi-final](https://cityxtra.co.uk/49892/i-cant-wait-nico-oreilly-relishing-lionel-messi-challenge-ahead-of-argentina-world-cup-semi-final/) - **Cityxtra.co.uk**
-2. [Europe-bound Sunderland sign experienced defender Meunier](https://www.101greatgoals.com/football/premier-league/europe-bound-sunderland-sign-experienced-defender-meunier/) - **101 Great Goals**
-3. [Arsenal watched Andria Bartishvili last Wednesday, stepping up efforts to sign teenage attacker](https://sportsview.co.uk/2026/07/arsenal-watched-andria-bartishvili-last-wednesday-stepping-up-efforts-to-sign-teenage-attacker?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-watched-andria-bartishvili-last-wednesday-stepping-up-efforts-to-sign-teenage-attacker) - **Sportsview.co.uk**
-4. [Aston Villa targets Julian Quinones as Manzambi transfer nears completion](https://cryptobriefing.com/aston-villa-quinones-manzambi-transfers/) - **Crypto Briefing**
-5. [Central football built for playoff run with veteran OL | Position group preview](https://www.app.com/story/sports/high-school/football/2026/07/15/nj-shore-football-central-regional-season-preview/90839287007/) - **Asbury Park Press**
-6. [Andrey Santos: Man United’s new star shows off skills in training video](https://thepeoplesperson.com/2026/07/15/andrey-santos-man-uniteds-new-star-shows-off-skills-in-training-video-312738/) - **The Peoples Person**
-7. [‘Not been helpful’ – Journalist explains why Liverpool transfer pursuit may have become harder](https://www.empireofthekop.com/2026/07/15/journalist-explains-why-liverpool-transfer-pursuit-may-have-become-harder/) - **Empire of The Kop**
-8. [Winks leaves Leicester for Italian side Cagliari](https://www.bbc.com/sport/football/articles/cy494z870vyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Emirates Cup sold out, secure your Como seats now!](http://www.arsenal.com/news/emirates-cup-sold-out-secure-your-como-seats-now) - **Arsenal.com**
+1. [Lassine Sinayoko skips Auxerre training as Paris FC submit bid](https://www.getfootballnewsfrance.com/2026/lassine-sinayoko-skips-auxerre-training-as-paris-fc-submit-bid/) - **Get French Football News**
+2. [Ranking the 25 Most Important New England Patriots of 2026: 5-1](https://roundtable.io/sports/nfl/pats/news/ranking-the-25-most-important-new-england-patriots-of-2026-5-1) - **Roundtable.io**
+3. [Man United issue huge Manuel Ugarte injury update](https://thepeoplesperson.com/2026/07/15/man-united-issue-huge-manuel-ugarte-injury-update-312741/) - **The Peoples Person**
+4. [Arsenal players hold training camp ahead of pre-season start](https://dailycannon.com/2026/07/arsenal-pre-season-training-camp/) - **Dailycannon.com**
+5. [Did David Beckham ever win a World Cup? His history with England](https://www.usatoday.com/story/sports/soccer/worldcup/2026/07/15/david-beckham-world-cup-history-england/90923453007/) - **USA Today**
+6. [Evgeni Malkin & Patrick Kane Were Both Premier Superstars, But Who Was Better?](https://thehockeynews.com/nhl/chicago-blackhawks/latest-news/evgeni-malkin-patrick-kane-were-both-premier-superstars-but-who-was-better) - **The Hockey News**
+7. [“Midfield equivalent of Kylian Mbappe” Dwight Yorke praise Arsenal target](https://www.justarsenal.com/midfield-equivalent-of-kylian-mbappe-dwight-yorke-praise-arsenal-target/418587) - **Just Arsenal News**
+8. [Coventry close on £17m Switzerland defender Amenda](https://www.bbc.com/sport/football/articles/czx5xyd2k1no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Coventry close on £17m Switzerland defender Amenda](https://www.bbc.co.uk/sport/football/articles/czx5xyd2k1no) - **BBC News**
+10. [Report: Arsenal ready to swap forward for La Liga star](https://eplindex.com/148393/report-arsenal-ready-to-swap-forward-for-la-liga-star.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-07-16 18:31:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-16 20:20:31 (KST) / (하루 100회 제한 준수 중)*
