@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [England vs. Argentina: How to Watch the World Cup Semifinal Match Live](http://www.rollingstone.com/product-recommendations/streaming/how-to-watch-fifa-world-cup-england-vs-argentina-semifinal-1235593649/) - **Rolling Stone**
-2. [England reaches World Cup semifinals with a quirky stat: zero goals from Premier League players](https://cryptobriefing.com/england-world-cup-non-premier-league-goals/) - **Crypto Briefing**
-3. [Transfer rumour roundup: Arsenal eye Tzolis as Trossard replacement, Al Hilal join race for Crysencio Summerville](https://www.footballmuse.com/features/transfer-rumour-roundup-arsenal-eye-tzolis-as-trossard-replacement-al-hilal-join-race-for-crysencio-summerville) - **Footballmuse.com**
-4. [Man Utd remained disciplined in transfer approach](https://www.bbc.com/sport/football/articles/crlwl6erz5wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. ['A player not being for sale doesn't mean they won't leave the club'](https://www.bbc.com/sport/football/articles/cvgmgd0018do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Juventus eye ex-Arsenal forward Balogun as alternative to Kolo Muani deal](https://football-italia.net/juventus-eye-ex-arsenal-forward-balogun/) - **Football Italia**
-7. [Stoke squad must run through brick walls - Robins](https://www.bbc.com/sport/football/articles/c14y46p70r2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [England vs. Argentina odds, prediction, time: 2026 World Cup semifinal picks by expert on 25-18 roll](https://www.cbssports.com/soccer/news/england-argentina-odds-prediction-start-time-2026-world-cup-semifinal-picks/) - **CBS Sports**
-9. [Arsenal agree terms with Besiktas for Trossard’s permanent transfer](https://punchng.com/arsenal-agree-terms-with-besiktas-for-trossards-permanent-transfer/) - **The Punch**
-10. [Two Defenders Linked to Juventus & Milan Are EPL Bound](https://cultofcalcio.com/two-defenders-linked-to-juventus-milan-are-epl-bound/) - **Cultofcalcio.com**
+1. [Manchester United’s £35M Tielemans deal highlights how Premier League transfer economics rival crypto market caps](https://cryptobriefing.com/tielemans-manchester-united-transfer-economics/) - **Crypto Briefing**
+2. [Cardiff to appeal dismissed £100m Sala claim](https://www.bbc.com/sport/football/articles/cgmp72313elo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Barcelona admire World Cup-winning Premier League defender, but prefer a different profile](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_dcd344d9-f4fb-4cc1-b5c1-79841e68254a) - **Yahoo Entertainment**
+4. [Insider confirms unflattering verdict on Richard Hughes](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-james-pearce-insider-confirms-unflattering-verdict-on-richard-hughes/) - **Anfieldwatch.co.uk**
+5. [Team Liquid’s coach steps onto the VALORANT stage, and esports’ growing pains mirror crypto’s talent wars](https://cryptobriefing.com/team-liquid-lohan-nats-vct-emea-esports/) - **Crypto Briefing**
+6. [Ex-Arsenal man Tomiyasu targeted as free agent by Sassuolo and Venezia](https://football-italia.net/ex-arsenal-tomiyasu-targeted-sassuolo-venezia/) - **Football Italia**
+7. [Pete Crow-Armstrong jokes about what it will take to beat Shohei Ohtani for NL MVP](https://www.sportingnews.com/us/mlb/chicago-cubs/news/pete-crow-armstrong-jokes-about-what-it-will-take-beat-shohei-ohtani-nl-mvp/8d56144a9a7330b48d0c9f6b) - **Sporting News**
+8. [FIFA picks American referee for England vs Argentina World Cup semi-final, sparking debate over high-stakes officiating experience](https://cryptobriefing.com/fifa-elfath-england-argentina-referee/) - **Crypto Briefing**
+9. [Use DraftKings promo code for $200 bonus bets by targeting Argentina vs. England, Messi, World Cup Wednesday](https://www.cbssports.com/betting/news/use-draftkings-promo-code-for-200-bonus-bets-argentina-england-messi-world-cup-wednesday/) - **CBS Sports**
+10. [Christos Tzolis holding out for Arsenal transfer](https://thefootballfaithful.com/christos-tzolis-holding-out-for-arsenal-transfer/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-07-16 22:04:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-17 00:15:10 (KST) / (하루 100회 제한 준수 중)*
