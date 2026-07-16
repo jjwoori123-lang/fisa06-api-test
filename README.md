@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Premier League heavyweights ready to sacrifice first-team star for Barcelona priority target](https://barcauniversal.com/premier-league-heavyweights-ready-to-sacrifice-first-team-star-for-barcelona-priority-target/) - **Barcauniversal.com**
-2. [Crystal Palace eye move for Augsburg defender Chrislain Matsima](https://sportsview.co.uk/2026/07/crystal-palace-eye-move-for-augsburg-defender-chrislain-matsima?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=crystal-palace-eye-move-for-augsburg-defender-chrislain-matsima) - **Sportsview.co.uk**
-3. [Richard Hughes must act fast as agents of 'outstanding' star set to talk with Euro giants](https://www.anfieldwatch.co.uk/liverpool-fc/news/richard-hughes-must-act-fast-as-agents-of-outstanding-star-set-to-talk-with-euro-giants/) - **Anfieldwatch.co.uk**
-4. [West Ham now confident Jarrod Bowen will stay despite Premier League interest](https://sportsview.co.uk/2026/07/west-ham-now-confident-jarrod-bowen-will-stay-despite-premier-league-interest?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=west-ham-now-confident-jarrod-bowen-will-stay-despite-premier-league-interest) - **Sportsview.co.uk**
-5. [Villa criticized over Visit Rwanda sponsorship deal](https://www.channelnewsasia.com/sport/villa-criticized-over-visit-rwanda-sponsorship-deal-6255381) - **CNA**
-6. [Bournemouth close to signing Antonio Silva from Benfica](https://footballtoday.com/2026/07/15/bournemouth-close-to-signing-antonio-silva-from-benfica/) - **Footballtoday.com**
-7. [Golf Channel Announces Cast for "Big Break x Good Good Presented by Golf Galaxy," Returning Tuesday, August 25 on Golf Channel](http://www.thefutoncritic.com/news/2026/07/15/golf-channel-announces-cast-for-big-break-x-good-good-presented-by-golf-galaxy-returning-tuesday-august-25-on-golf-channel-422414/20260715golf01/) - **Thefutoncritic.com**
-8. [Real Madrid midfielder internally discussed as an option by Premier League giants but deal difficult – Romano](https://madriduniversal.com/real-madrid-midfielder-internally-discussed-as-an-option-by-premier-league-giants-but-deal-difficult-romano/) - **Madriduniversal.com**
-9. [What happened to David Batty, who shook off penalty miss against Argentina?](https://www.bbc.co.uk/sport/football/articles/cp9jn090kv2o) - **BBC News**
-10. [Report: Liverpool could reignite interest in England World Cup star](https://anfieldindex.com/95774/report-liverpool-could-reignite-interest-in-england-world-cup-star.html) - **Anfieldindex.com**
+1. [“I can’t wait” – Nico O’Reilly relishing Lionel Messi challenge ahead of Argentina World Cup semi-final](https://cityxtra.co.uk/49892/i-cant-wait-nico-oreilly-relishing-lionel-messi-challenge-ahead-of-argentina-world-cup-semi-final/) - **Cityxtra.co.uk**
+2. [Europe-bound Sunderland sign experienced defender Meunier](https://www.101greatgoals.com/football/premier-league/europe-bound-sunderland-sign-experienced-defender-meunier/) - **101 Great Goals**
+3. [Arsenal watched Andria Bartishvili last Wednesday, stepping up efforts to sign teenage attacker](https://sportsview.co.uk/2026/07/arsenal-watched-andria-bartishvili-last-wednesday-stepping-up-efforts-to-sign-teenage-attacker?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-watched-andria-bartishvili-last-wednesday-stepping-up-efforts-to-sign-teenage-attacker) - **Sportsview.co.uk**
+4. [Aston Villa targets Julian Quinones as Manzambi transfer nears completion](https://cryptobriefing.com/aston-villa-quinones-manzambi-transfers/) - **Crypto Briefing**
+5. [Central football built for playoff run with veteran OL | Position group preview](https://www.app.com/story/sports/high-school/football/2026/07/15/nj-shore-football-central-regional-season-preview/90839287007/) - **Asbury Park Press**
+6. [Andrey Santos: Man United’s new star shows off skills in training video](https://thepeoplesperson.com/2026/07/15/andrey-santos-man-uniteds-new-star-shows-off-skills-in-training-video-312738/) - **The Peoples Person**
+7. [‘Not been helpful’ – Journalist explains why Liverpool transfer pursuit may have become harder](https://www.empireofthekop.com/2026/07/15/journalist-explains-why-liverpool-transfer-pursuit-may-have-become-harder/) - **Empire of The Kop**
+8. [Winks leaves Leicester for Italian side Cagliari](https://www.bbc.com/sport/football/articles/cy494z870vyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Emirates Cup sold out, secure your Como seats now!](http://www.arsenal.com/news/emirates-cup-sold-out-secure-your-como-seats-now) - **Arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-07-16 16:07:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-16 18:31:33 (KST) / (하루 100회 제한 준수 중)*
