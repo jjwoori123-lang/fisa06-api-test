@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Lassine Sinayoko skips Auxerre training as Paris FC submit bid](https://www.getfootballnewsfrance.com/2026/lassine-sinayoko-skips-auxerre-training-as-paris-fc-submit-bid/) - **Get French Football News**
-2. [Ranking the 25 Most Important New England Patriots of 2026: 5-1](https://roundtable.io/sports/nfl/pats/news/ranking-the-25-most-important-new-england-patriots-of-2026-5-1) - **Roundtable.io**
-3. [Man United issue huge Manuel Ugarte injury update](https://thepeoplesperson.com/2026/07/15/man-united-issue-huge-manuel-ugarte-injury-update-312741/) - **The Peoples Person**
-4. [Arsenal players hold training camp ahead of pre-season start](https://dailycannon.com/2026/07/arsenal-pre-season-training-camp/) - **Dailycannon.com**
-5. [Did David Beckham ever win a World Cup? His history with England](https://www.usatoday.com/story/sports/soccer/worldcup/2026/07/15/david-beckham-world-cup-history-england/90923453007/) - **USA Today**
-6. [Evgeni Malkin & Patrick Kane Were Both Premier Superstars, But Who Was Better?](https://thehockeynews.com/nhl/chicago-blackhawks/latest-news/evgeni-malkin-patrick-kane-were-both-premier-superstars-but-who-was-better) - **The Hockey News**
-7. [“Midfield equivalent of Kylian Mbappe” Dwight Yorke praise Arsenal target](https://www.justarsenal.com/midfield-equivalent-of-kylian-mbappe-dwight-yorke-praise-arsenal-target/418587) - **Just Arsenal News**
-8. [Coventry close on £17m Switzerland defender Amenda](https://www.bbc.com/sport/football/articles/czx5xyd2k1no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Coventry close on £17m Switzerland defender Amenda](https://www.bbc.co.uk/sport/football/articles/czx5xyd2k1no) - **BBC News**
-10. [Report: Arsenal ready to swap forward for La Liga star](https://eplindex.com/148393/report-arsenal-ready-to-swap-forward-for-la-liga-star.html) - **English Premier League Index - Opta Stats**
+1. [England vs. Argentina: How to Watch the World Cup Semifinal Match Live](http://www.rollingstone.com/product-recommendations/streaming/how-to-watch-fifa-world-cup-england-vs-argentina-semifinal-1235593649/) - **Rolling Stone**
+2. [England reaches World Cup semifinals with a quirky stat: zero goals from Premier League players](https://cryptobriefing.com/england-world-cup-non-premier-league-goals/) - **Crypto Briefing**
+3. [Transfer rumour roundup: Arsenal eye Tzolis as Trossard replacement, Al Hilal join race for Crysencio Summerville](https://www.footballmuse.com/features/transfer-rumour-roundup-arsenal-eye-tzolis-as-trossard-replacement-al-hilal-join-race-for-crysencio-summerville) - **Footballmuse.com**
+4. [Man Utd remained disciplined in transfer approach](https://www.bbc.com/sport/football/articles/crlwl6erz5wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. ['A player not being for sale doesn't mean they won't leave the club'](https://www.bbc.com/sport/football/articles/cvgmgd0018do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Juventus eye ex-Arsenal forward Balogun as alternative to Kolo Muani deal](https://football-italia.net/juventus-eye-ex-arsenal-forward-balogun/) - **Football Italia**
+7. [Stoke squad must run through brick walls - Robins](https://www.bbc.com/sport/football/articles/c14y46p70r2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [England vs. Argentina odds, prediction, time: 2026 World Cup semifinal picks by expert on 25-18 roll](https://www.cbssports.com/soccer/news/england-argentina-odds-prediction-start-time-2026-world-cup-semifinal-picks/) - **CBS Sports**
+9. [Arsenal agree terms with Besiktas for Trossard’s permanent transfer](https://punchng.com/arsenal-agree-terms-with-besiktas-for-trossards-permanent-transfer/) - **The Punch**
+10. [Two Defenders Linked to Juventus & Milan Are EPL Bound](https://cultofcalcio.com/two-defenders-linked-to-juventus-milan-are-epl-bound/) - **Cultofcalcio.com**
 
 
 ---
-*최근 업데이트: 2026-07-16 20:20:31 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-16 22:04:59 (KST) / (하루 100회 제한 준수 중)*
