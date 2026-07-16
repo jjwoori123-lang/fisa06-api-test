@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Marc Casadó: If someone wants me to leave Barcelona, tell me](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/126603/marc-casado-if-someone-wants-me-to-leave-barcelona-tell-me) - **Barca Blaugranes**
-2. [Fulham close in on Nwaiwu](https://punchng.com/fulham-close-in-on-nwaiwu/) - **The Punch**
-3. [NFF warns NPFL clubs ahead new licensing regime](https://punchng.com/nff-warns-npfl-clubs-ahead-new-licensing-regime/) - **The Punch**
-4. [Braga snaps up Inter Lagos teen](https://punchng.com/braga-snaps-up-inter-lagos-teen/) - **The Punch**
-5. [A team blowing away individuals - Spain hit peak form at right time](https://www.bbc.com/sport/football/articles/cpv3v0gkw9vo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [A special team beats brilliant individuals - how Spain flattened France](https://www.bbc.co.uk/sport/football/articles/cpv3v0gkw9vo) - **BBC News**
-7. [Bournemouth targets Benfica’s Antonio Silva in deal that shows Premier League’s spending power remains unmatched](https://cryptobriefing.com/bournemouth-antonio-silva-benfica-transfer/) - **Crypto Briefing**
-8. [Which Premier League star was given just 2/10 for his display against Spain? L'Equipe deliver their damning verdict on France flops after surprise World Cup exit](https://www.dailymail.com/sport/football/article-15978035/Premier-League-star-2-10-display-Spain-LEquipe-damning-verdict-France-flops-surprise-World-Cup-exit.html) - **Dailymail.com**
-9. [Can England's upstart Jude dethrone his idol Messi in battle of the Number 10s?... with a little help from his mum](https://www.dailymail.com/sport/football/article-15977821/Englands-upstart-Jude-Messi-battle-Number-10s-mum.html) - **Dailymail.com**
-10. [Mohamed Salah open to Chelsea return if club makes offer](https://cryptobriefing.com/salah-open-chelsea-return-free-agent/) - **Crypto Briefing**
+1. [Tielemans is a good signing for United but reinforces a common mistake – opinion](https://thepeoplesperson.com/2026/07/15/tielemans-is-a-good-signing-for-united-but-reinforces-a-common-mistake-opinion-312698/) - **The Peoples Person**
+2. [Future of TV Briefing: The M&A match game (summer 2026 edition)](http://digiday.com/future-of-tv/future-of-tv-briefing-the-ma-match-game-summer-2026-edition/) - **Digiday**
+3. [England vs. Argentina rivalry renewed: Our staff from both countries weighs in on World Cup semifinal](https://www.sportingnews.com/us/soccer/news/england-vs-argentina-everything-fierce-world-cup-rivalry/6f1747b45b8a98022b2b5e25) - **Sporting News**
+4. [How Rodri Destroyed France's Plans and Powered Spain into Final](https://www.rediff.com/sports/report/how-rodri-bossed-france-and-powered-spain-into-world-cup-final/20260715.htm) - **Rediff.com**
+5. [Jamie Carragher Says England Can Exploit Lionel Messi's Defensive Frailties in World Cup Semi-Final](https://futbolchronicle.com/jamie-carragher-says-england-can-exploit-lionel-messis-defensive-frailties-in-world-cup-semi-final/) - **Futbolchronicle.com**
+6. [Fact Check: Video Does NOT Show Erling Haaland Saying He Will Support Argentina Over England In World Cup -- Fake Captions](https://leadstories.com/hoax-alert/2026/07/fact-check-video-does-not-show-erling-haaland-saying-he-will-support-argentina-over-england-in-world-cup-fake-captions.html) - **Leadstories.com**
+7. [The Wizards believe retaining Trae Young is the foundation for success](https://www.sportingnews.com/us/nba/washington-wizards/news/wizards-believe-retaining-trae-young-foundation-success/d0fe23a954b26f4bb3f250b2) - **Sporting News**
+8. [How to watch England vs Argentina live: Stream link, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-england-vs-argentina-live-stream-link-tv-channel-team-news-prediction) - **NBCSports.com**
+9. [From the Falklands War to Maradona: why Argentina vs England is soccer’s fiercest rivalry](https://theconversation.com/from-the-falklands-war-to-maradona-why-argentina-vs-england-is-soccers-fiercest-rivalry-287369) - **The Conversation Africa**
 
 
 ---
-*최근 업데이트: 2026-07-16 10:05:08 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-16 13:27:58 (KST) / (하루 100회 제한 준수 중)*
