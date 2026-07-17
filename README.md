@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Matt Ritchie: "I fell in love with the club as everyone does"](https://www.newcastleunited.com/en/news/matt-ritchie-retirement-feature) - **Newcastleunited.com**
-2. [The big questions facing Tuchel and England after World Cup exit](https://www.skysports.com/football/news/11095/13563938/england-out-of-the-world-cup-the-big-questions-facing-thomas-tuchel-and-the-three-lions-after-losing-to-argentina) - **Sky Sports**
-3. [‘Agreement in place’ – Dominik Szoboszlai set to pen bumper new contract at Liverpool](https://www.empireofthekop.com/2026/07/16/dominik-szoboszlai-set-to-pen-bumper-new-contract-at-liverpool/) - **Empire of The Kop**
-4. [Tactical Tweaks: Meet the managers masterminding new RSL eras](https://www.spl.com.sa/en/news/1078643/tactical-tweaks-meet-the-managers-masterminding-new-rsl-eras) - **Spl.com.sa**
-5. [Arsenal youngster agrees 2 new contracts](https://dailycannon.com/2026/07/arsenal-emerson-nwaneri-new-contracts/) - **Dailycannon.com**
-6. [Official: Coppola joins Paris FC from Brighton for €20m](https://football-italia.net/official-coppola-joins-paris-fc-brighton/) - **Football Italia**
-7. [Amad: AC Milan zero in on Man United star as new clubs enter race](https://thepeoplesperson.com/2026/07/16/amad-ac-milan-zero-in-on-man-united-star-as-new-clubs-enter-race-312793/) - **The Peoples Person**
-8. [Minute-by-minute, how England unravelled: Stats that prove Three Lions lost control BEFORE Thomas Tuchel's disastrous substitutions - then beleaguered coach made it worse](https://www.dailymail.com/sport/football/article-15981415/england-argentina-tuchel-semi-final-collapse.html) - **Dailymail.com**
-9. [Report: Man City considering move to sign PSG forward](https://eplindex.com/148429/report-man-city-considering-move-to-sign-psg-forward.html) - **English Premier League Index - Opta Stats**
-10. [Roma’s Summerville Pursuit Enters a Decisive Week](https://www.chiesaditotti.com/as-roma-transfer-news-rumors/41769/roma-july-21-deadline-crysencio-summerville-transfer) - **Chiesa Di Totti**
+1. [Minutes from Irish fans meeting with Celtic bosses make grim reading](https://celticshorts.com/2026/07/minutes-from-irish-fans-meeting-with-celtic-bosses-make-grim-reading/) - **Celticshorts.com**
+2. [Galway's Slevin expects last-four shootout against Armagh](https://www.rte.ie/sport/womens-football/2026/0716/1583706-galways-slevin-expects-last-four-shootout-against-armagh/) - **RTE**
+3. [Eagles have the second-most top-10 players in the NFL entering 2026](https://theeagleswire.usatoday.com/story/sports/nfl/eagles/2026/07/16/eagles-news-second-most-top-10-players-nfl-espn-rankings-2026/90942441007/) - **USA Today**
+4. [‘What he needs…’ – Claude Makelele explains what Liverpool must do to get the best out of Isak](https://www.empireofthekop.com/2026/07/16/makelele-explains-what-liverpool-must-do-to-get-the-best-out-of-isak/) - **Empire of The Kop**
+5. [Never give up! Liverpool still want deal for €100m midfielder](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-lille-morocco-ayyoub-bouaddi-manchester-city-100m-midfielder/) - **Anfieldwatch.co.uk**
+6. [Puka Nacua named among NFL's top building block players entering 2026](https://theramswire.usatoday.com/story/sports/nfl/rams/2026/07/16/puka-nacua-nfl-top-building-block-players-2026/90937639007/) - **USA Today**
+7. [Detroit Lions Safeties Get MAJOR LOVE From NFL Execs, Scouts, Coaches](https://detroitsportsnation.com/detroit-lions-safeties-rankings-espn-2026/ddrysdale/detroit-lions/07/16/2026/488185/) - **Detroit Sports Nation**
+8. [Report: Liverpool in contact over move for electric Premier League forward](https://anfieldindex.com/95804/report-liverpool-in-contact-over-move-for-electric-premier-league-forward.html) - **Anfieldindex.com**
+9. [Roma prepare €45m offer for West Ham forward Summerville amid Aston Villa links](https://football-italia.net/roma-prepare-offer-for-west-ham-summerville/) - **Football Italia**
+10. [FAI Cup preview: Final rematch to ignite second round](https://www.rte.ie/sport/soccer/2026/0716/1583450-fai-cup-preview-final-rematch-to-ignite-second-round/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-07-17 22:48:08 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-18 00:15:59 (KST) / (하루 100회 제한 준수 중)*
