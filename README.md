@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [When does Australia play its next Test match? Opponents, dates, venues for Australia’s upcoming Test schedule](https://www.sportingnews.com/au/cricket/news/when-australia-cricket-team-next-test-match-2026-schedule/9ee0435d69e3d5dfbdbf890b) - **Sporting News**
-2. [Houston Texans' Nico Collins Earns Another Major Honor Ahead Of The 2026 Season](https://roundtable.io/sports/nfl/texans/opinion/houston-texans-nico-collins-earns-another-major-honor-ahead-of-the-2026-season) - **Roundtable.io**
-3. [Don’t be surprised If Mykel Williams becomes the NFL’s next breakout defensive star](https://www.sportingnews.com/us/nfl/san-francisco-49ers/news/dont-be-surprised-if-mykel-williams-becomes-nfls-next-star/7b5673d694169834591c34a3) - **Sporting News**
-4. [How VAR is changing soccer – and its referees](https://theconversation.com/how-var-is-changing-soccer-and-its-referees-286637) - **The Conversation Africa**
-5. ['Passive' and 'crumbled' - did Tuchel's defensive tactics cost England?](https://www.bbc.com/sport/football/articles/ce8l15903k8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Detroit Lions 2026 Player Profile: Penei Sewell](https://roundtable.io/sports/nfl/lions/players/detroit-lions-2026-player-profile-penei-sewell) - **Roundtable.io**
-7. [Albert Smits’ Rangers odyssey begins with first NHL contract](https://nypost.com/2026/07/15/sports/albert-smits-rangers-odyssey-begins-with-first-nhl-contract/) - **New York Post**
-8. [New York Knicks star Josh Hart heaps praise on ‘inevitable’ Lionel Messi after World Cup semi-final win](https://www.hitc.com/new-york-knicks-star-josh-hart-heaps-praise-on-inevitable-lionel-messi-after-world-cup-semi-final-win/) - **HITC - Football, Gaming, Movies, TV, Music**
-9. ['Passive' and 'crumbled' - did Tuchel's defensive tactics cost England?](https://www.bbc.co.uk/sport/football/articles/ce8l15903k8o) - **BBC News**
-10. [William Saliba’s 4-5 month injury absence spawns Solana meme token, highlighting crypto’s obsession with real-world events](https://cryptobriefing.com/saliba-injury-solana-meme-token/) - **Crypto Briefing**
+1. [Breaking away: Why the Frauen-Bundesliga is taking control of its own future](https://bulinews.com/breaking-away-why-the-frauen-bundesliga-taking-control-its-own-future) - **Bulinews.com**
+2. [Andoni Iraola hold showdown transfer talks with £35m midfielder](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-inter-milan-curtis-jones-andoni-iraola-hold-showdown-transfer-talks-with-ps35m-midfielder/) - **Anfieldwatch.co.uk**
+3. [Arsenal defender William Saliba out for 4-5 months after suffering a back injury with France](https://footballtoday.com/2026/07/16/arsenal-defender-william-saliba-out-for-4-5-months-after-suffering-a-back-injury-with-france/) - **Footballtoday.com**
+4. [Explained: Roma’s Summerville stance, Man United’s reluctance, and the Tzolis connection](https://www.getfootballnewsitaly.com/2026/explained-romas-summerville-stance-man-uniteds-reluctance-and-the-tzolis-connection/) - **Getfootballnewsitaly.com**
+5. [Celtics' Jayson Tatum breaks silence on no longer being teammates with 76ers' Jaylen Brown](https://www.sportingnews.com/us/nba/boston-celtics/news/celtics-jayson-tatum-breaks-silence-no-longer-being-teammates-76ers-jaylen-brown/cc9c447466d792eb51935e7f) - **Sporting News**
+6. [Gabriel Martinelli emerges as surprise target for United](https://thepeoplesperson.com/2026/07/16/gabriel-martinelli-emerges-as-surprise-target-for-united-312771/) - **The Peoples Person**
+7. [Bohemians need to hold nerve in Gibraltar as Derry City’s opponents face visa issues](https://www.irishtimes.com/sport/soccer/2026/07/16/bohemians-need-to-hold-nerve-in-gibraltar-as-derry-citys-opponents-face-visa-issues/) - **The Irish Times**
+8. [What Is Sunderland’s Next Priority In The Transfer Market?](https://rokerreport.sbnation.com/opinion/144926/what-is-sunderlands-next-priority-in-the-transfer-market) - **SB Nation**
+9. [From Roker Park to Europe – A Sunderland Love Story](https://rokerreport.sbnation.com/opinion/144847/from-roker-park-to-europe-a-sunderland-love-story) - **SB Nation**
+10. [Who is Dayann Méthalie? Sunderland’s Latest Left-Back Target](https://rokerreport.sbnation.com/opinion/144958/who-is-dayann-methalie-sunderlands-latest-left-back-target) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-07-17 12:42:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-17 15:18:59 (KST) / (하루 100회 제한 준수 중)*
