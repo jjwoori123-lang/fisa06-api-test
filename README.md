@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Breaking away: Why the Frauen-Bundesliga is taking control of its own future](https://bulinews.com/breaking-away-why-the-frauen-bundesliga-taking-control-its-own-future) - **Bulinews.com**
-2. [Andoni Iraola hold showdown transfer talks with £35m midfielder](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-inter-milan-curtis-jones-andoni-iraola-hold-showdown-transfer-talks-with-ps35m-midfielder/) - **Anfieldwatch.co.uk**
-3. [Arsenal defender William Saliba out for 4-5 months after suffering a back injury with France](https://footballtoday.com/2026/07/16/arsenal-defender-william-saliba-out-for-4-5-months-after-suffering-a-back-injury-with-france/) - **Footballtoday.com**
-4. [Explained: Roma’s Summerville stance, Man United’s reluctance, and the Tzolis connection](https://www.getfootballnewsitaly.com/2026/explained-romas-summerville-stance-man-uniteds-reluctance-and-the-tzolis-connection/) - **Getfootballnewsitaly.com**
-5. [Celtics' Jayson Tatum breaks silence on no longer being teammates with 76ers' Jaylen Brown](https://www.sportingnews.com/us/nba/boston-celtics/news/celtics-jayson-tatum-breaks-silence-no-longer-being-teammates-76ers-jaylen-brown/cc9c447466d792eb51935e7f) - **Sporting News**
-6. [Gabriel Martinelli emerges as surprise target for United](https://thepeoplesperson.com/2026/07/16/gabriel-martinelli-emerges-as-surprise-target-for-united-312771/) - **The Peoples Person**
-7. [Bohemians need to hold nerve in Gibraltar as Derry City’s opponents face visa issues](https://www.irishtimes.com/sport/soccer/2026/07/16/bohemians-need-to-hold-nerve-in-gibraltar-as-derry-citys-opponents-face-visa-issues/) - **The Irish Times**
-8. [What Is Sunderland’s Next Priority In The Transfer Market?](https://rokerreport.sbnation.com/opinion/144926/what-is-sunderlands-next-priority-in-the-transfer-market) - **SB Nation**
-9. [From Roker Park to Europe – A Sunderland Love Story](https://rokerreport.sbnation.com/opinion/144847/from-roker-park-to-europe-a-sunderland-love-story) - **SB Nation**
-10. [Who is Dayann Méthalie? Sunderland’s Latest Left-Back Target](https://rokerreport.sbnation.com/opinion/144958/who-is-dayann-methalie-sunderlands-latest-left-back-target) - **SB Nation**
+1. [The biggest club soccer matches draw audiences that dwarf most American sports finals — and only recently have U.S. investors begun treating soccer not as a niche, but as the world’s dominant sports market](https://spacedaily.com/d-the-biggest-club-soccer-matches-draw-audiences-that-dwarf-most-american-sports-finals-and-only-recently-have-u-s-investors-begun-treating-soccer-not-as-a-niche-but-as-the-worlds-d/) - **Space Daily**
+2. [Real Madrid urged to seize Newcastle opportunity with €60 million Eduardo Camavinga sale](https://madriduniversal.com/real-madrid-urged-to-seize-newcastle-opportunity-with-e60-million-eduardo-camavinga-sale/) - **Madriduniversal.com**
+3. [Winger wants to leave as new club come forward for deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-federico-chiesa-winger-wants-to-leave-as-new-club-come-forward-for-deal/) - **Anfieldwatch.co.uk**
+4. [Trossard completes move to Besiktas for reported £15.3m](https://www.vanguardngr.com/2026/07/trossard-completes-move-to-besiktas-for-reported-15-3m/) - **Vanguard**
+5. ['It's the middle of the goal!': Jude Bellingham left fuming with Jordan Pickford for Argentina's equaliser in World Cup nightmare - as Lionel Messi discovers England star's penalty 'cheat sheet'](https://www.dailymail.com/sport/football/article-15981357/Its-middle-goal-Jude-Bellingham-left-fuming-Jordan-Pickford-Argentinas-equaliser-World-Cup-nightmare-Lionel-Messi-discovers-England-stars-penalty-cheat-sheet.html) - **Dailymail.com**
+6. [AC Milan plot move for Man United defender Noussair Mazraoui](https://footballtoday.com/2026/07/16/ac-milan-plot-move-for-man-united-defender-noussair-mazraoui/) - **Footballtoday.com**
+7. [Does England owe Djed Spence an apology? Redemption shines despite Argentina heartbreak](https://www.footballmuse.com/features/does-england-owe-djed-spence-an-apology-redemption-shines-despite-argentina-heartbreak) - **Footballmuse.com**
+8. [Rico Lewis breaks silence on Man City future after Elliot Anderson exchange discussions](https://cityxtra.co.uk/49930/rico-lewis-breaks-silence-on-man-city-future-after-elliot-anderson-exchange-discussions/) - **Cityxtra.co.uk**
+9. [Manchester United’s Eduardo Camavinga pursuit hits immediate roadblock](https://madriduniversal.com/manchester-uniteds-eduardo-camavinga-pursuit-hits-immediate-roadblock/) - **Madriduniversal.com**
+10. [“I’d love it!” – Fernando Morientes begs Liverpool to make blockbuster raid for World Cup finalist](https://www.empireofthekop.com/2026/07/16/morientes-begs-liverpool-to-make-blockbuster-raid-for-world-cup-finalist/) - **Empire of The Kop**
 
 
 ---
-*최근 업데이트: 2026-07-17 15:18:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-17 17:30:56 (KST) / (하루 100회 제한 준수 중)*
