@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The biggest club soccer matches draw audiences that dwarf most American sports finals — and only recently have U.S. investors begun treating soccer not as a niche, but as the world’s dominant sports market](https://spacedaily.com/d-the-biggest-club-soccer-matches-draw-audiences-that-dwarf-most-american-sports-finals-and-only-recently-have-u-s-investors-begun-treating-soccer-not-as-a-niche-but-as-the-worlds-d/) - **Space Daily**
-2. [Real Madrid urged to seize Newcastle opportunity with €60 million Eduardo Camavinga sale](https://madriduniversal.com/real-madrid-urged-to-seize-newcastle-opportunity-with-e60-million-eduardo-camavinga-sale/) - **Madriduniversal.com**
-3. [Winger wants to leave as new club come forward for deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-federico-chiesa-winger-wants-to-leave-as-new-club-come-forward-for-deal/) - **Anfieldwatch.co.uk**
-4. [Trossard completes move to Besiktas for reported £15.3m](https://www.vanguardngr.com/2026/07/trossard-completes-move-to-besiktas-for-reported-15-3m/) - **Vanguard**
-5. ['It's the middle of the goal!': Jude Bellingham left fuming with Jordan Pickford for Argentina's equaliser in World Cup nightmare - as Lionel Messi discovers England star's penalty 'cheat sheet'](https://www.dailymail.com/sport/football/article-15981357/Its-middle-goal-Jude-Bellingham-left-fuming-Jordan-Pickford-Argentinas-equaliser-World-Cup-nightmare-Lionel-Messi-discovers-England-stars-penalty-cheat-sheet.html) - **Dailymail.com**
-6. [AC Milan plot move for Man United defender Noussair Mazraoui](https://footballtoday.com/2026/07/16/ac-milan-plot-move-for-man-united-defender-noussair-mazraoui/) - **Footballtoday.com**
-7. [Does England owe Djed Spence an apology? Redemption shines despite Argentina heartbreak](https://www.footballmuse.com/features/does-england-owe-djed-spence-an-apology-redemption-shines-despite-argentina-heartbreak) - **Footballmuse.com**
-8. [Rico Lewis breaks silence on Man City future after Elliot Anderson exchange discussions](https://cityxtra.co.uk/49930/rico-lewis-breaks-silence-on-man-city-future-after-elliot-anderson-exchange-discussions/) - **Cityxtra.co.uk**
-9. [Manchester United’s Eduardo Camavinga pursuit hits immediate roadblock](https://madriduniversal.com/manchester-uniteds-eduardo-camavinga-pursuit-hits-immediate-roadblock/) - **Madriduniversal.com**
-10. [“I’d love it!” – Fernando Morientes begs Liverpool to make blockbuster raid for World Cup finalist](https://www.empireofthekop.com/2026/07/16/morientes-begs-liverpool-to-make-blockbuster-raid-for-world-cup-finalist/) - **Empire of The Kop**
+1. [Ligue 1 side Paris FC signs defender Diego Coppola from Premier League Brighton](https://sports.yahoo.com/articles/ligue-1-side-paris-fc-102321968.html) - **Yahoo Entertainment**
+2. [Experience every moment: Matchday Hospitality now on sale!](https://www.mancity.com/news/mens/man-city-matchday-hospitality-now-on-sale-2026-27-63919788) - **Manchester City FC**
+3. [Arsenal’s eliminated England stars can’t return home yet](https://dailycannon.com/2026/07/arsenal-england-world-cup-elimination/) - **Dailycannon.com**
+4. [Aston Villa in talks to sign Bayern Munich midfielder Joao Palhinha on loan](https://sportsview.co.uk/2026/07/aston-villa-in-talks-to-sign-bayern-munich-midfielder-joao-palhinha-on-loan?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=aston-villa-in-talks-to-sign-bayern-munich-midfielder-joao-palhinha-on-loan) - **Sportsview.co.uk**
+5. [Forget Barcola: Liverpool could move for another PSG star instead](https://anfieldindex.com/95794/forget-barcola-liverpool-could-move-for-another-psg-star-instead.html) - **Anfieldindex.com**
+6. [Bruno Gives Arsenal ‘Green Light’ After Newcastle Exit Request: Report](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/22726/bruno-gives-arsenal-green-light-after-newcastle-exit-request-report) - **SB Nation**
+7. [Report: Arsenal ready to pay £34m to sign World Cup star](https://eplindex.com/148426/report-arsenal-ready-to-pay-34m-to-sign-world-cup-star.html) - **English Premier League Index - Opta Stats**
+8. [Official | Diego Coppola completes Paris FC move](https://www.getfootballnewsfrance.com/2026/official-diego-coppola-completes-paris-fc-move/) - **Get French Football News**
+9. [Arsenal fear 4-5 month absence for key starter](https://dailycannon.com/2026/07/arsenal-saliba-injury-fears/) - **Dailycannon.com**
+10. [Is Arsenal leading the race for Ayyoub Bouaddi?](https://www.justarsenal.com/is-arsenal-leading-the-race-for-ayyoub-bouaddi/418663) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-07-17 17:30:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-17 19:23:50 (KST) / (하루 100회 제한 준수 중)*
