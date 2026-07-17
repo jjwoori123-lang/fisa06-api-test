@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [William Saliba 'facing FIVE MONTHS out' with Arsenal star 'set for surgery' on back injury that ended his World Cup](https://www.dailymail.com/sport/football/article-15980907/William-Saliba-Arsenal-surgery-injury.html) - **Dailymail.com**
-2. [Lisandro Martinez helps Argentina storm into World Cup final](https://thepeoplesperson.com/2026/07/15/lisandro-martinez-helps-argentina-storm-into-world-cup-final-312768/) - **The Peoples Person**
-3. [Report: Gabriel Slonina to join Strasbourg on preseason trial](https://sbisoccer.com/2026/07/report-gabriel-slonina-to-join-strasbourg-on-preseason-trial) - **Sbisoccer.com**
-4. [Argentina boss Lionel Scaloni stuck to his tactical plan after conceding first and earned his side a place in another World Cup final... unlike England, he will have no regrets, writes JACK GAUGHAN](https://www.dailymail.com/sport/football/article-15980831/Argentina-boss-Lionel-Scaloni-stuck-tactical-plan-conceding-earned-place-World-Cup-final-unlike-England-no-regrets-writes-JACK-GAUGHAN.html) - **Dailymail.com**
-5. [NFL decision makers still view Roquan Smith among the elite linebackers](https://ravenswire.usatoday.com/story/sports/nfl/ravens/2026/07/15/ravens-news-roquan-smith-second-espn-linebacker-rankings/90916511007/) - **USA Today**
-6. [Chargers' Ladd McConkey just misses ESPN's top 10 WR rankings](https://chargerswire.usatoday.com/story/sports/nfl/chargers/2026/07/15/chargers-ladd-mcconkey-wide-receiver-rankings/90930532007/) - **USA Today**
-7. [Noussair Mazraoui: United working on replacing Milan target with PL star](https://thepeoplesperson.com/2026/07/15/noussair-mazraoui-united-working-on-replacing-milan-target-with-pl-star-312766/) - **The Peoples Person**
-8. [A nutritionist's guide to protein on a plant-based diet, including plant-based alternatives and expert tips](https://www.dailymail.com/lifestyle/food-drink/article-15951035/A-nutritionists-guide-protein-plant-based-diet-including-plant-based-alternatives-expert-tips.html) - **Dailymail.com**
-9. [Aston Villa Target £25m Galatasaray Midfielder As Tielemans Replacement](https://eplindex.com/148418/aston-villa-target-25m-galatasaray-midfielder-as-tielemans-replacement.html) - **English Premier League Index - Opta Stats**
-10. [A Comeback For The Ages: 4 Takeaways From Argentina's Semifinal Win Over England](https://www.foxsports.com/stories/soccer/4-takeaways-after-argentina-comes-back-beat-england-world-cup-semifinal-ages) - **Fox Sports**
+1. [Thomas Tuchel replacements: Pep Guardiola leads list of candidates for England job if Three Lions sack boss](https://www.sportingnews.com/us/soccer/news/thomas-tuchel-replacements-pep-guardiola-candidates-england-job/304eafba2766774104bfd851) - **Sporting News**
+2. [NFF: Need for a new beginning](https://www.vanguardngr.com/2026/07/nff-need-for-a-new-beginning/) - **Vanguard**
+3. [‘We felt it’ – Emi Martinez shares what Argentina noticed about England tactics in World Cup semi-final](https://www.hitc.com/we-felt-it-emi-martinez-shares-what-argentina-noticed-about-england-tactics-in-world-cup-semi-final/) - **HITC - Football, Gaming, Movies, TV, Music**
+4. [Why college football needs a moratorium on conference realignment](https://fansided.com/college-football/why-college-football-needs-moratorium-conference-realignment) - **FanSided**
+5. [Arsenal fear lengthy William Saliba absence amid major injury update](https://www.sportingnews.com/us/soccer/news/arsenal-fear-lengthy-william-saliba-absence-amid-major-injury-update/193b4224c74224f271309fdf) - **Sporting News**
+6. [Josh Hart compares Argentina to Knicks after thrilling World Cup comeback over England](https://nypost.com/2026/07/15/sports/josh-hart-compares-argentina-to-knicks-after-thrilling-world-cup-comeback/?utm_source=yahoo&amp;utm_campaign=nypost&amp;utm_medium=referral) - **New York Post**
+7. [Josh Hart compares Argentina to Knicks after thrilling World Cup comeback over England](https://nypost.com/2026/07/15/sports/josh-hart-compares-argentina-to-knicks-after-thrilling-world-cup-comeback/) - **New York Post**
+8. [MLB trade deadline: Ranking the best trade targets for contenders](https://www.usatoday.com/story/sports/mlb/2026/07/15/mlb-power-rankings-best-trade-deadline-targets/90931432007/) - **USA Today**
+9. [Gloating Argentina boss Lionel Scaloni boasts 'we smelled blood' after dumping England out of the World Cup](https://www.dailymail.com/sport/football/article-15980951/Gloating-Argentina-boss-World-Cup-boasts-England.html) - **Dailymail.com**
+10. [Coach Thomas Tuchel takes 'responsibility' for England defeat in World Cup semis -- and he should](https://www.sportingnews.com/us/soccer/news/coach-thomas-tuchel-takes-responsibility-england-defeat-world-cup-semis-and-he-should/30b9ba1e2707679381824d44) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-07-17 07:58:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-17 09:06:46 (KST) / (하루 100회 제한 준수 중)*
