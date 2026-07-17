@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manu Kone: Liverpool, Arsenal threaten United’s pursuit](https://thepeoplesperson.com/2026/07/16/manu-kone-liverpool-arsenal-threaten-uniteds-pursuit-312815/) - **The Peoples Person**
-2. [Tottenham Hotspur Are In The Running To Land This Paris Saint-Germain Winger: Should De Zerbi Snap Him Up?](https://the4thofficial.net/2026/07/tottenham-hotspur-are-in-the-running-to-land-this-paris-saint-germain-winger/) - **The4thofficial.net**
-3. [Fabrizio Romano confirms amazing £35m midfielder transfer news](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-curtis-jones-fabrizio-romano-confirms-amazing-ps35m-midfielder-transfer-news/) - **Anfieldwatch.co.uk**
-4. [Should Arsenal give their World Cup stars a proper rest?](https://www.justarsenal.com/should-arsenal-give-their-world-cup-stars-a-proper-rest/418709) - **Just Arsenal News**
-5. [Venezia offers three-year contract to free agent Takehiro Tomiyasu](https://cryptobriefing.com/venezia-tomiyasu-contract-offer/) - **Crypto Briefing**
-6. [Sunderland Are Eyeing A Move For This Ligue 1 Full-Back: What Will He Add To Le Bris’ Side?](https://the4thofficial.net/2026/07/sunderland-are-eyeing-a-move-for-this-ligue-1-full-back/) - **The4thofficial.net**
-7. [Grading the 'Yzerplan': The Best and Worst Moves of Steve Yzerman's Red Wings Tenure](https://thehockeynews.com/nhl/detroit-red-wings/latest-news/grading-the-yzerplan-the-best-and-worst-moves-of-steve-yzermans-red-wings-tenure) - **The Hockey News**
-8. [Ayyoub Bouaddi briefed on Man City pathway as Enzo Maresca and Hugo Viana pursue Lille midfielder](https://cityxtra.co.uk/49924/ayyoub-bouaddi-briefed-on-man-city-pathway-as-enzo-maresca-and-hugo-viana-pursue-lille-midfielder/) - **Cityxtra.co.uk**
-9. [Hugo Larsson: Manchester United open talks for the next Rodri](https://thepeoplesperson.com/2026/07/16/hugo-larsson-manchester-united-open-talks-for-the-next-rodri-312816/) - **The Peoples Person**
-10. [Liverpool Are Keeping A Keen Eye On This Bundesliga Midfielder: Should Iraola Move In For Him?](https://the4thofficial.net/2026/07/liverpool-are-keeping-a-keen-eye-on-this-bundesliga-midfielder/) - **The4thofficial.net**
+1. [Real Salt Lake founder Dave Checketts returned to Utah with a surprising pitch for fans](https://www.deseret.com/sports/2026/07/16/dave-checketts-jj-watt-kealia-watt-praise-utah-royals-fc/) - **Deseret News**
+2. [Motherwell consider legal action after SFA hammer midfielder Elliot Watt with four-match ban for VAR criticism](https://www.dailymail.com/sport/football/article-15983391/Motherwell-consider-legal-action-SFA-hammer-midfielder-Elliot-Watt-four-match-ban-VAR-criticism.html) - **Dailymail.com**
+3. [Arsenal to assess Saliba back injury with surgery an option](https://www.bbc.com/sport/football/articles/cp87np4282po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Arsenal to assess Saliba back injury with surgery an option](https://www.bbc.co.uk/sport/football/articles/cp87np4282po) - **BBC News**
+5. [How to watch the World Cup final online for free from anywhere: Argentina vs. Spain](https://www.businessinsider.com/guides/streaming/how-to-watch-world-cup-2026-final#article) - **Business Insider**
+6. [Papers: Tuchel unhappy with Mainoo training during World Cup](https://www.skysports.com/football/transfer-paper-talk/12709/13564202/kobbie-mainoo-england-boss-thomas-tuchel-was-unimpressed-by-unused-manchester-united-midfielder-during-world-cup-training-paper-talk) - **Sky Sports**
+7. [Rangers Might Let 27-Year-Old Leave On Loan: Right Decision From Ibrox?](https://the4thofficial.net/2026/07/rangers-might-let-27-year-old-leave-on-loan-right-decision-from-ibrox/) - **The4thofficial.net**
+8. [Papers: Tuchel unhappy with Mainoo training during World Cup](https://www.skysports.com/football/transfer-paper-talk/12709/13564202/kobbie-mainoo-england-boss-thomas-tuchel-was-unimpressed-by-unused-manchester-united-midfielder-during-world-cup-training-paper-talk) - **Sky Sports**
+9. [New York City's Etihad Park to open on July 17, 2027](https://sports.yahoo.com/articles/york-citys-etihad-park-open-211957437.html) - **Yahoo Entertainment**
+10. [Marcus Rashford’s £40M exit clause expires, forcing Manchester United into open negotiations](https://cryptobriefing.com/rashford-exit-clause-expires-negotiation/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-07-18 06:10:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-18 07:08:43 (KST) / (하루 100회 제한 준수 중)*
