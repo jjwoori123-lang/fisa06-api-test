@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Thomas Tuchel replacements: Pep Guardiola leads list of candidates for England job if Three Lions sack boss](https://www.sportingnews.com/us/soccer/news/thomas-tuchel-replacements-pep-guardiola-candidates-england-job/304eafba2766774104bfd851) - **Sporting News**
-2. [NFF: Need for a new beginning](https://www.vanguardngr.com/2026/07/nff-need-for-a-new-beginning/) - **Vanguard**
-3. [‘We felt it’ – Emi Martinez shares what Argentina noticed about England tactics in World Cup semi-final](https://www.hitc.com/we-felt-it-emi-martinez-shares-what-argentina-noticed-about-england-tactics-in-world-cup-semi-final/) - **HITC - Football, Gaming, Movies, TV, Music**
-4. [Why college football needs a moratorium on conference realignment](https://fansided.com/college-football/why-college-football-needs-moratorium-conference-realignment) - **FanSided**
-5. [Arsenal fear lengthy William Saliba absence amid major injury update](https://www.sportingnews.com/us/soccer/news/arsenal-fear-lengthy-william-saliba-absence-amid-major-injury-update/193b4224c74224f271309fdf) - **Sporting News**
-6. [Josh Hart compares Argentina to Knicks after thrilling World Cup comeback over England](https://nypost.com/2026/07/15/sports/josh-hart-compares-argentina-to-knicks-after-thrilling-world-cup-comeback/?utm_source=yahoo&amp;utm_campaign=nypost&amp;utm_medium=referral) - **New York Post**
-7. [Josh Hart compares Argentina to Knicks after thrilling World Cup comeback over England](https://nypost.com/2026/07/15/sports/josh-hart-compares-argentina-to-knicks-after-thrilling-world-cup-comeback/) - **New York Post**
-8. [MLB trade deadline: Ranking the best trade targets for contenders](https://www.usatoday.com/story/sports/mlb/2026/07/15/mlb-power-rankings-best-trade-deadline-targets/90931432007/) - **USA Today**
-9. [Gloating Argentina boss Lionel Scaloni boasts 'we smelled blood' after dumping England out of the World Cup](https://www.dailymail.com/sport/football/article-15980951/Gloating-Argentina-boss-World-Cup-boasts-England.html) - **Dailymail.com**
-10. [Coach Thomas Tuchel takes 'responsibility' for England defeat in World Cup semis -- and he should](https://www.sportingnews.com/us/soccer/news/coach-thomas-tuchel-takes-responsibility-england-defeat-world-cup-semis-and-he-should/30b9ba1e2707679381824d44) - **Sporting News**
+1. [When does Australia play its next Test match? Opponents, dates, venues for Australia’s upcoming Test schedule](https://www.sportingnews.com/au/cricket/news/when-australia-cricket-team-next-test-match-2026-schedule/9ee0435d69e3d5dfbdbf890b) - **Sporting News**
+2. [Houston Texans' Nico Collins Earns Another Major Honor Ahead Of The 2026 Season](https://roundtable.io/sports/nfl/texans/opinion/houston-texans-nico-collins-earns-another-major-honor-ahead-of-the-2026-season) - **Roundtable.io**
+3. [Don’t be surprised If Mykel Williams becomes the NFL’s next breakout defensive star](https://www.sportingnews.com/us/nfl/san-francisco-49ers/news/dont-be-surprised-if-mykel-williams-becomes-nfls-next-star/7b5673d694169834591c34a3) - **Sporting News**
+4. [How VAR is changing soccer – and its referees](https://theconversation.com/how-var-is-changing-soccer-and-its-referees-286637) - **The Conversation Africa**
+5. ['Passive' and 'crumbled' - did Tuchel's defensive tactics cost England?](https://www.bbc.com/sport/football/articles/ce8l15903k8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Detroit Lions 2026 Player Profile: Penei Sewell](https://roundtable.io/sports/nfl/lions/players/detroit-lions-2026-player-profile-penei-sewell) - **Roundtable.io**
+7. [Albert Smits’ Rangers odyssey begins with first NHL contract](https://nypost.com/2026/07/15/sports/albert-smits-rangers-odyssey-begins-with-first-nhl-contract/) - **New York Post**
+8. [New York Knicks star Josh Hart heaps praise on ‘inevitable’ Lionel Messi after World Cup semi-final win](https://www.hitc.com/new-york-knicks-star-josh-hart-heaps-praise-on-inevitable-lionel-messi-after-world-cup-semi-final-win/) - **HITC - Football, Gaming, Movies, TV, Music**
+9. ['Passive' and 'crumbled' - did Tuchel's defensive tactics cost England?](https://www.bbc.co.uk/sport/football/articles/ce8l15903k8o) - **BBC News**
+10. [William Saliba’s 4-5 month injury absence spawns Solana meme token, highlighting crypto’s obsession with real-world events](https://cryptobriefing.com/saliba-injury-solana-meme-token/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-07-17 09:06:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-17 12:42:27 (KST) / (하루 100회 제한 준수 중)*
