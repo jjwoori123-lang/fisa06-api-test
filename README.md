@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [England manager favourite Guardiola reveals what would tempt him back: ‘I have a real connection with the UK’](https://www.101greatgoals.com/football/england-manager-guardiola-uk/) - **101 Great Goals**
-2. [Tarik Muharemović: I will give everything for this club](https://www.leedsunited.com/en/news/tarik-muharemovic-i-will-give-everything-for-this-club) - **Leedsunited.com**
-3. [Mauricio Pochettino confirms offer to stay as USMNT head coach](https://www.usatoday.com/story/sports/soccer/worldcup/2026/07/17/usmnt-coach-mauricio-pochettino-new-contract-offer/90956194007/) - **USA Today**
-4. [Arsenal expected to make formal approach for £100m Premier League forward](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5e0f4aa1-f90f-49a5-9949-08c5bb0b84f7) - **Yahoo Entertainment**
-5. [Official: Muharemovic joins Leeds United in €40m agreement from Sassuolo](https://football-italia.net/official-muharemovic-leeds-united-sassuolo/) - **Football Italia**
-6. [England vs. France odds, prediction, time: 2026 World Cup third-place match picks by expert on 27-18 roll](https://www.cbssports.com/betting/news/england-france-odds-prediction-time-2026-world-cup-third-place-match-picks/) - **CBS Sports**
-7. [Snail-paced Celtic miss out on Kelechi Iheanacho and probably Marcelo Saracchi](https://celticshorts.com/2026/07/snail-paced-celtic-miss-out-on-kelechi-iheanacho/) - **Celticshorts.com**
-8. [Official: Dominik Szoboszlai Signs New Contract at Liverpool](https://liverpooloffside.sbnation.com/liverpool-fc-transfer-news/81977/official-dominik-szoboszlai-signs-new-contract-at-liverpool) - **SB Nation**
-9. [Man United stars under the pre-season spotlight: Two key men playing for new contracts, the forward in the last-chance saloon and the midfielder who must finally put down a marker](https://www.dailymail.com/sport/football/article-15984741/Manchester-United-pre-season.html) - **Dailymail.com**
-10. [Szoboszlai agrees to new 5-year contract with Liverpool](https://sports.yahoo.com/articles/szoboszlai-agrees-5-contract-liverpool-155752211.html) - **Yahoo Entertainment**
+1. [Good news as Curtis Jones moves one step closer to Liverpool stay](https://www.anfieldwatch.co.uk/liverpool-fc/news/good-news-as-curtis-jones-moves-one-step-closer-to-liverpool-stay/) - **Anfieldwatch.co.uk**
+2. [A hit movie and a cricket festival power profits at JioStar](https://www.livemint.com/industry/a-hit-movie-and-a-cricket-jamboree-power-profits-at-jiostar-11784301317917.html) - **Livemint**
+3. [Leeds sign Bosnia defender Muharemovic for $45m](https://punchng.com/leeds-sign-bosnia-defender-muharemovic-for-45m/) - **The Punch**
+4. [Ederson: Maurizio Sarri provides update on United target’s future](https://thepeoplesperson.com/2026/07/17/ederson-maurizio-sarri-provides-update-on-united-targets-future-312850/) - **The Peoples Person**
+5. [Leeds sign defender Tarik Muharemovic from Sassuolo](https://www.channelnewsasia.com/sport/leeds-sign-defender-tarik-muharemovic-sassuolo-6261811) - **CNA**
+6. [Jamie Mackenzie wins French Open junior doubles title at Roland Garros](https://www.nzherald.co.nz/the-country/news/jamie-mackenzie-wins-french-open-junior-doubles-title-at-roland-garros/TB4LKYCEGRE3BMQS75H7KBBABA/) - **New Zealand Herald**
+7. [Report: Newcastle United considering free transfer move for striker](https://eplindex.com/148482/report-newcastle-united-considering-free-transfer-move-for-striker.html) - **English Premier League Index - Opta Stats**
+8. [MLS team apologizes after JJ Watt called them out for snubbing his soccer star wife](https://www.the-independent.com/life-style/jj-watt-wife-kealia-real-salt-lake-b3017092.html) - **The-independent.com**
+9. [ Premier clubs after Tomori, Juve-Brandt, Romero  Inter and Lazio coup ](https://onefootball.com/en/news/premier-clubs-after-tomori-juve-brandt-romero-inter-and-lazio-coup-43151946) - **Onefootball.com**
 
 
 ---
-*최근 업데이트: 2026-07-19 01:34:39 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-19 02:38:41 (KST) / (하루 100회 제한 준수 중)*
