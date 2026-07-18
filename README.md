@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal Are Leading The Race For This Atletico Madrid Star: Should Arteta Get Him On Board?](https://the4thofficial.net/2026/07/arsenal-are-leading-the-race-for-this-atletico-madrid-star/) - **The4thofficial.net**
-2. [Wildfire smoke from Canada and Minnesota pushes further into US, engulfing DC in eerie haze](https://www.news4jax.com/health/2026/07/17/wildfire-smoke-from-canada-and-minnesota-pushes-further-into-us-engulfing-dc-in-eerie-haze/) - **WJXT News4JAX**
-3. [Leeds United Linked To 28-Year-Old Serie A Goalkeeper: Right Option For Farke?](https://the4thofficial.net/2026/07/leeds-united-linked-to-28-year-old-serie-a-goalkeeper-right-option-for-farke/) - **The4thofficial.net**
-4. [Liverpool Transfer News: Fabrizio Romano confirms dream agreement takes giant step closer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-fabrizio-romano-confirms-dream-agreement-takes-giant-step-closer/) - **Anfieldwatch.co.uk**
-5. [Everton Make Their First €15m Bid For Full-Back Target: Should They Pay The Asked €20m?](https://the4thofficial.net/2026/07/everton-make-their-first-e15m-bid-for-full-back-target-should-they-pay-the-asked-e20m/) - **The4thofficial.net**
-6. [None shall pass: Spain's defence ready to thwart Messi in World Cup final](https://sports.yahoo.com/articles/none-pass-spains-defence-ready-201901191.html) - **Yahoo Entertainment**
-7. [After a Health Scare, This Lifelong Lions Fan Has One Wish Left](https://detroitsportsnation.com/will-the-lions-win-a-super-bowl-before-i-die/richardknight/detroit-lions/07/17/2026/488227/) - **Detroit Sports Nation**
-8. [JJ Gabriel: Why wonderkid misses Wrexham clash revealed](https://thepeoplesperson.com/2026/07/17/jj-gabriel-why-wonderkid-misses-wrexham-clash-revealed-312856/) - **The Peoples Person**
-9. [Aston Villa Linked With €40m Ligue 1 Midfielder: Why Should They Not Pay That Price?](https://the4thofficial.net/2026/07/aston-villa-linked-with-e40m-ligue-1-midfielder-why-should-they-not-pay-that-price/) - **The4thofficial.net**
-10. [Nick Robertson Doesn’t Hold Back On Time With Maple Leafs](https://heavy.com/sports/nhl/toronto-maple-leafs/nick-robertson-doesnt-hold-back-leafs/) - **Heavy.com**
+1. [FAI Cup: Shamrock Rovers overcome Cork City after extra-time](https://www.irishtimes.com/sport/soccer/2026/07/17/fai-cup-shamrock-rovers-overcome-cork-city-after-extra-time/) - **The Irish Times**
+2. [Papers: Arsenal preparing offer for Aston Villa defender Konsa](https://www.skysports.com/football/transfer-paper-talk/12709/13564545/ezri-konsa-arsenal-preparing-offer-for-aston-villa-defender-as-morgan-rogers-talks-continue-paper-talk) - **Sky Sports**
+3. [Papers: Arsenal preparing offer for Aston Villa defender Konsa](https://www.skysports.com/football/transfer-paper-talk/12709/13564545/ezri-konsa-arsenal-preparing-offer-for-aston-villa-defender-as-morgan-rogers-talks-continue-paper-talk) - **Sky Sports**
+4. [Ederson puts pen to paper on new long-term deal](https://thepeoplesperson.com/2026/07/17/ederson-puts-pen-to-paper-on-new-long-term-deal-312860/) - **The Peoples Person**
+5. [World Cup fever in America: Here’s what it means for Real Salt Lake, Utah Royals FC](https://www.deseret.com/sports/2026/07/17/what-the-2026-fifa-world-cup-means-for-real-salt-lake-and-utah-royals-fc/) - **Deseret News**
+6. [Lille president hands Man City major Ayyoub Bouaddi transfer blow in press conference](https://cityxtra.co.uk/49979/lille-president-hands-man-city-major-ayyoub-bouaddi-transfer-blow-in-press-conference/) - **Cityxtra.co.uk**
+7. [Donald Trump's World Cup chief backs Argentina players in row over Falklands banner after World Cup semi-final win over England](https://www.dailymail.com/sport/football/article-15986283/Donald-Trumps-World-Cup-chief-backs-Argentina.html) - **Dailymail.com**
+8. [Ayyoub Bouaddi: Man United must beat Man City to Moroccan wonderkid](https://thepeoplesperson.com/2026/07/17/ayyoub-bouaddi-man-united-must-beat-man-city-to-moroccan-wonderkid-312808/) - **The Peoples Person**
+9. [Chelsea Are In Talks To Land This Serie A Midfielder: Should Alonso Move In For Him?](https://the4thofficial.net/2026/07/chelsea-are-in-talks-to-land-this-serie-a-midfielder/) - **The4thofficial.net**
+10. [Soccer returns to Los Angeles in ‘El Tráfico’ matchup between Galaxy, LAFC](https://nypost.com/2026/07/17/sports/mls-resumes-in-los-angeles-with-lafc-vs-la-galaxy-matchup/) - **New York Post**
 
 
 ---
-*최근 업데이트: 2026-07-19 05:52:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-19 06:53:32 (KST) / (하루 100회 제한 준수 중)*
