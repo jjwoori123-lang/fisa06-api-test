@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Good news as Curtis Jones moves one step closer to Liverpool stay](https://www.anfieldwatch.co.uk/liverpool-fc/news/good-news-as-curtis-jones-moves-one-step-closer-to-liverpool-stay/) - **Anfieldwatch.co.uk**
-2. [A hit movie and a cricket festival power profits at JioStar](https://www.livemint.com/industry/a-hit-movie-and-a-cricket-jamboree-power-profits-at-jiostar-11784301317917.html) - **Livemint**
-3. [Leeds sign Bosnia defender Muharemovic for $45m](https://punchng.com/leeds-sign-bosnia-defender-muharemovic-for-45m/) - **The Punch**
-4. [Ederson: Maurizio Sarri provides update on United target’s future](https://thepeoplesperson.com/2026/07/17/ederson-maurizio-sarri-provides-update-on-united-targets-future-312850/) - **The Peoples Person**
-5. [Leeds sign defender Tarik Muharemovic from Sassuolo](https://www.channelnewsasia.com/sport/leeds-sign-defender-tarik-muharemovic-sassuolo-6261811) - **CNA**
-6. [Jamie Mackenzie wins French Open junior doubles title at Roland Garros](https://www.nzherald.co.nz/the-country/news/jamie-mackenzie-wins-french-open-junior-doubles-title-at-roland-garros/TB4LKYCEGRE3BMQS75H7KBBABA/) - **New Zealand Herald**
-7. [Report: Newcastle United considering free transfer move for striker](https://eplindex.com/148482/report-newcastle-united-considering-free-transfer-move-for-striker.html) - **English Premier League Index - Opta Stats**
-8. [MLS team apologizes after JJ Watt called them out for snubbing his soccer star wife](https://www.the-independent.com/life-style/jj-watt-wife-kealia-real-salt-lake-b3017092.html) - **The-independent.com**
-9. [ Premier clubs after Tomori, Juve-Brandt, Romero  Inter and Lazio coup ](https://onefootball.com/en/news/premier-clubs-after-tomori-juve-brandt-romero-inter-and-lazio-coup-43151946) - **Onefootball.com**
+1. [Confirmed: Barcelona face Udinese, Nottingham Forest in pre-season triangular tournament](https://barcauniversal.com/confirmed-barcelona-face-udinese-nottingham-forest-in-pre-season-triangular-tournament/) - **Barcauniversal.com**
+2. ['We only want players who want to play for Newcastle'](https://www.bbc.com/sport/football/articles/c151339xvj0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Sunderland Are Facing Tough Competition For This La Liga Midfielder: Good Option For Le Bris?](https://the4thofficial.net/2026/07/sunderland-are-facing-tough-competition-for-this-la-liga-midfielder/) - **The4thofficial.net**
+4. [49ers exec reportedly a finalist to become MLS commissioner](https://ninerswire.usatoday.com/story/sports/nfl/niners/2026/07/17/49ers-exec-paraag-marathe-reportedly-a-finalist-for-mls-commissioner/90958653007/) - **USA Today**
+5. [Kelechi Iheanacho snubs Celtic in favour of move to Turkish second tier](https://www.dailymail.com/sport/football/article-15985999/Kelechi-Iheanacho-snubs-Celtic-favour-Turkish-second-tier.html) - **Dailymail.com**
+6. [Arsenal eyeing London-based French defender after Saliba injury](https://www.justarsenal.com/arsenal-eyeing-london-based-french-defender-after-saliba-injury/418770) - **Just Arsenal News**
+7. [SMU Head Coach Rhett Lashlee Unleashes Defense of ACC](https://heavy.com/sports/college-football/smu-rhett-lashlee-defense-acc-duke/) - **Heavy.com**
+8. [Swiss World Cup hero Manzambi joins Aston Villa from Freiburg](https://www.channelnewsasia.com/sport/swiss-world-cup-hero-manzambi-joins-aston-villa-freiburg-6261861) - **CNA**
+9. [Five Liverpool stars set to return to training next week in major boost](https://anfieldindex.com/95883/five-liverpool-stars-could-return-to-training-next-week-in-major-boost.html) - **Anfieldindex.com**
+10. [Soccer Team Apologizes After JJ Watt Slams Its Description Of His Wife, Soccer Icon Kealia Watt](https://www.today.com/news/sports/jj-watt-kealia-watt-real-salt-lake-apology-rcna587851) - **TODAY**
 
 
 ---
-*최근 업데이트: 2026-07-19 02:38:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-19 03:36:24 (KST) / (하루 100회 제한 준수 중)*
