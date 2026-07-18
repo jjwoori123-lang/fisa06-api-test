@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Confirmed: Barcelona face Udinese, Nottingham Forest in pre-season triangular tournament](https://barcauniversal.com/confirmed-barcelona-face-udinese-nottingham-forest-in-pre-season-triangular-tournament/) - **Barcauniversal.com**
-2. ['We only want players who want to play for Newcastle'](https://www.bbc.com/sport/football/articles/c151339xvj0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Sunderland Are Facing Tough Competition For This La Liga Midfielder: Good Option For Le Bris?](https://the4thofficial.net/2026/07/sunderland-are-facing-tough-competition-for-this-la-liga-midfielder/) - **The4thofficial.net**
-4. [49ers exec reportedly a finalist to become MLS commissioner](https://ninerswire.usatoday.com/story/sports/nfl/niners/2026/07/17/49ers-exec-paraag-marathe-reportedly-a-finalist-for-mls-commissioner/90958653007/) - **USA Today**
-5. [Kelechi Iheanacho snubs Celtic in favour of move to Turkish second tier](https://www.dailymail.com/sport/football/article-15985999/Kelechi-Iheanacho-snubs-Celtic-favour-Turkish-second-tier.html) - **Dailymail.com**
-6. [Arsenal eyeing London-based French defender after Saliba injury](https://www.justarsenal.com/arsenal-eyeing-london-based-french-defender-after-saliba-injury/418770) - **Just Arsenal News**
-7. [SMU Head Coach Rhett Lashlee Unleashes Defense of ACC](https://heavy.com/sports/college-football/smu-rhett-lashlee-defense-acc-duke/) - **Heavy.com**
-8. [Swiss World Cup hero Manzambi joins Aston Villa from Freiburg](https://www.channelnewsasia.com/sport/swiss-world-cup-hero-manzambi-joins-aston-villa-freiburg-6261861) - **CNA**
-9. [Five Liverpool stars set to return to training next week in major boost](https://anfieldindex.com/95883/five-liverpool-stars-could-return-to-training-next-week-in-major-boost.html) - **Anfieldindex.com**
-10. [Soccer Team Apologizes After JJ Watt Slams Its Description Of His Wife, Soccer Icon Kealia Watt](https://www.today.com/news/sports/jj-watt-kealia-watt-real-salt-lake-apology-rcna587851) - **TODAY**
+1. [“If they need me, I will be there” – Pep Guardiola makes Man City return promise as ambassador role begins](https://cityxtra.co.uk/49966/if-they-need-me-i-will-be-there-pep-guardiola-makes-man-city-return-promise-as-ambassador-role-begins/) - **Cityxtra.co.uk**
+2. [Where does PFF rank Justin Jefferson among other WRs in the NFL?](https://vikingswire.usatoday.com/story/sports/nfl/vikings/2026/07/17/vikings-justin-jefferson-places-third-in-new-rankings-by-pff/90955778007/) - **USA Today**
+3. [A Suffocating Defense Has Been The Key To Spain's World Cup Success](https://www.forbes.com/sites/michaellewis/2026/07/17/a-suffocating-defense-has-been-the-key-to-spains-world-cup-success/) - **Forbes**
+4. [Tottenham reject £46m offer from Newcastle for Lucas Bergvall](https://sportsview.co.uk/2026/07/tottenham-reject-46m-offer-from-newcastle-for-lucas-bergvall?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-reject-46m-offer-from-newcastle-for-lucas-bergvall) - **Sportsview.co.uk**
+5. [Aston Villa signs Swiss World Cup breakout star Johan Manzambi in record deal](https://cryptobriefing.com/aston-villa-manzambi-record-transfer/) - **Crypto Briefing**
+6. [Souness assesses Tuchel’s use of Kobbie Mainoo at the World Cup](https://thepeoplesperson.com/2026/07/17/souness-assesses-tuchels-use-of-kobbie-mainoo-at-the-world-cup-312854/) - **The Peoples Person**
+7. [Atherton joins Ipswich Town from Chelsea](https://www.bbc.com/sport/football/articles/c05qgmyqnjmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Reigan Heskey joins FC Koln](https://www.mancity.com/news/mens/reigan-heskey-leaves-manchester-city-63919909) - **Manchester City FC**
+9. [Infantino's hydration breaks? Nah, the real pioneer was our own Brian O'Driscoll](https://www.thejournal.ie/brian-odriscoll-infantino-powerade-hydration-breaks-7105385-Jul2026/) - **TheJournal.ie**
+10. ['Get the players in before a big sale' - fans on midfield reinforcements](https://www.bbc.com/sport/football/articles/cedj0l1221yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-07-19 03:36:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-19 04:48:56 (KST) / (하루 100회 제한 준수 중)*
