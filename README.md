@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Global Times: Head-of-state diplomacy shines at WAIC, fostering ties and advancing global governance consensus](https://www.prnewswire.com/news-releases/global-times-head-of-state-diplomacy-shines-at-waic-fostering-ties-and-advancing-global-governance-consensus-302828946.html) - **PRNewswire**
-2. [Canada wildfire smoke blankets US Northeast, triggers air quality alerts](https://www.thehindubusinessline.com/news/world/canada-wildfire-smoke-blankets-us-northeast-triggers-air-quality-alerts/article71236915.ece) - **BusinessLine**
-3. [Goshen area part of sport’s Midwest hotbed for disc golf](https://www.goshennews.com/sports/goshen-area-part-of-sport-s-midwest-hotbed-for-disc-golf/article_60453a39-8ca2-498e-aa56-5a2860e5f1cd.html) - **Goshen News**
-4. [Christos Tzolis to Arsenal unpacked: The problem insiders insist the Greece star will solve, the similarities with Leandro Trossard, how he caused havoc in Belgium and what it means for Gunners' forward hunt](https://www.dailymail.com/sport/football/article-15985515/christos-tzolis-arsenal-transfer.html) - **Dailymail.com**
-5. [Canadian wildfire smoke unlikely to postpone World Cup final, expert says](https://toronto.citynews.ca/2026/07/17/canadian-wildfire-smoke-unlikely-to-postpone-world-cup-final-expert-says/) - **Citynews.ca**
-6. [Arkansas Football's Most Important Players for 2026: No. 7, Kobe Branham](https://www.si.com/college/arkansas/football/arkansas-football-s-most-important-players-for-2026-no-7-kobe-branham) - **Sports Illustrated**
-7. [Scoop B Weighs in on LeBron James’ Chances of Signings with Timberwolves](https://theleadsm.com/scoop-b-weighs-in-on-lebron-james-chances-of-signings-with-timberwolves/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=scoop-b-weighs-in-on-lebron-james-chances-of-signings-with-timberwolves) - **Theleadsm.com**
-8. [Cómo ver gratis la final de la Copa Mundial de la FIFA 2026 en español](http://www.billboard.com/espanol/cultura-entretenimiento/copa-mundial-final-espana-argentina-como-ver-online-espanol-1236296487/) - **Billboard**
-9. [Polymarket Promo Code TSNEWS: Claim $50 Prediction Bonus for Full MLB Weekend](https://www.sportingnews.com/us/predictions-markets/news/polymarket-promo-code-tsnews-claim-50-prediction-bonus-full-mlb-weekend/235cf995343f50a6aea32d41) - **Sporting News**
-10. [Bayern Munich’s João Palhinha on ‘verge’ of joining Aston Villa](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/232351/bayern-munichs-joao-palhinha-on-verge-of-joining-aston-villa) - **Bavarian Football Works**
+1. [Youri Tielemans: Man United’s reaction to deal with Aston Villa unveiled](https://thepeoplesperson.com/2026/07/18/youri-tielemans-man-uniteds-reaction-to-deal-with-aston-villa-unveiled-312862/) - **The Peoples Person**
+2. [Mohamed Salah’s agent reveals the truth behind latest transfer rumours](https://anfieldindex.com/95916/mohamed-salahs-agent-reveals-the-truth-behind-latest-transfer-rumours.html) - **Anfieldindex.com**
+3. [Sky Sports: Arsenal ready to make move for Premier League star](https://eplindex.com/148494/sky-sports-arsenal-ready-to-make-move-for-premier-league-star.html) - **English Premier League Index - Opta Stats**
+4. [JSU, USM ADs Discuss Competitive Balance in New NIL Environment](https://www.wjtv.com/sports/jsu-usm-ads-discuss-competitive-balance-in-new-nil-environment/) - **WJTV**
+5. [Chelsea prepared to let Mamadou Sarr join Premier League rivals on loan](https://sportsview.co.uk/2026/07/chelsea-prepared-to-let-mamadou-sarr-join-premier-league-rivals-on-loan?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-prepared-to-let-mamadou-sarr-join-premier-league-rivals-on-loan) - **Sportsview.co.uk**
+6. [Crystal Palace eye move for Chrislain Matsima to replace Maxence Lacroix as Chelsea interest grows](https://sportsview.co.uk/2026/07/crystal-palace-eye-move-for-chrislain-matsima-to-replace-maxence-lacroix-as-chelsea-interest-grows?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=crystal-palace-eye-move-for-chrislain-matsima-to-replace-maxence-lacroix-as-chelsea-interest-grows) - **Sportsview.co.uk**
+7. [Ederson signs new contract with Atalanta after Manchester United transfer collapse](https://footballtoday.com/2026/07/18/ederson-signs-new-contract-with-atalanta-after-manchester-united-transfer-collapse/) - **Footballtoday.com**
+8. [Is the US AI bonanza a fundamentally secure investment or an old-fashioned bubble?](https://www.irishtimes.com/opinion/2026/07/18/is-the-us-ai-bonanza-a-fundamentally-secure-investment-or-an-old-fashioned-bubble/) - **The Irish Times**
+9. [Cruel World Cup third-place game is torture for England and France | Opinion](https://www.usatoday.com/story/sports/soccer/worldcup/2026/07/18/world-cup-third-place-game-england-france/90964320007/) - **USA Today**
 
 
 ---
-*최근 업데이트: 2026-07-19 12:24:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-19 15:14:29 (KST) / (하루 100회 제한 준수 중)*
