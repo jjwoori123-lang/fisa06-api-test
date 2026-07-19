@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Youri Tielemans: Man United’s reaction to deal with Aston Villa unveiled](https://thepeoplesperson.com/2026/07/18/youri-tielemans-man-uniteds-reaction-to-deal-with-aston-villa-unveiled-312862/) - **The Peoples Person**
-2. [Mohamed Salah’s agent reveals the truth behind latest transfer rumours](https://anfieldindex.com/95916/mohamed-salahs-agent-reveals-the-truth-behind-latest-transfer-rumours.html) - **Anfieldindex.com**
-3. [Sky Sports: Arsenal ready to make move for Premier League star](https://eplindex.com/148494/sky-sports-arsenal-ready-to-make-move-for-premier-league-star.html) - **English Premier League Index - Opta Stats**
-4. [JSU, USM ADs Discuss Competitive Balance in New NIL Environment](https://www.wjtv.com/sports/jsu-usm-ads-discuss-competitive-balance-in-new-nil-environment/) - **WJTV**
-5. [Chelsea prepared to let Mamadou Sarr join Premier League rivals on loan](https://sportsview.co.uk/2026/07/chelsea-prepared-to-let-mamadou-sarr-join-premier-league-rivals-on-loan?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-prepared-to-let-mamadou-sarr-join-premier-league-rivals-on-loan) - **Sportsview.co.uk**
-6. [Crystal Palace eye move for Chrislain Matsima to replace Maxence Lacroix as Chelsea interest grows](https://sportsview.co.uk/2026/07/crystal-palace-eye-move-for-chrislain-matsima-to-replace-maxence-lacroix-as-chelsea-interest-grows?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=crystal-palace-eye-move-for-chrislain-matsima-to-replace-maxence-lacroix-as-chelsea-interest-grows) - **Sportsview.co.uk**
-7. [Ederson signs new contract with Atalanta after Manchester United transfer collapse](https://footballtoday.com/2026/07/18/ederson-signs-new-contract-with-atalanta-after-manchester-united-transfer-collapse/) - **Footballtoday.com**
-8. [Is the US AI bonanza a fundamentally secure investment or an old-fashioned bubble?](https://www.irishtimes.com/opinion/2026/07/18/is-the-us-ai-bonanza-a-fundamentally-secure-investment-or-an-old-fashioned-bubble/) - **The Irish Times**
-9. [Cruel World Cup third-place game is torture for England and France | Opinion](https://www.usatoday.com/story/sports/soccer/worldcup/2026/07/18/world-cup-third-place-game-england-france/90964320007/) - **USA Today**
+1. [Eric Bailly: Former Man United man finds new club](https://thepeoplesperson.com/2026/07/18/eric-bailly-former-man-united-man-finds-new-club-312870/) - **The Peoples Person**
+2. [Exclusive: Liverpool praised for pulling off ‘real coup’ for £60m gem dubbed ‘the next big thing’](https://www.empireofthekop.com/2026/07/18/liverpool-praised-for-real-coup-60m-gem-the-next-big-thing/) - **Empire of The Kop**
+3. [Saracchi 'gutted' to be the latest Celtic player to exit](https://www.rte.ie/sport/soccer/2026/0718/1583971-saracchi-gutted-to-be-the-latest-celtic-player-to-exit/) - **RTE**
+4. [Liverpool have the chance to sign PSG forward as Fabrizio Romano confirms exit](https://anfieldindex.com/95918/liverpool-have-the-chance-to-sign-psg-forward-as-fabrizio-romano-confirms-exit.html) - **Anfieldindex.com**
+5. [World Cup earnings revealed: Milan best in Serie A, Man City first overall](https://football-italia.net/world-cup-earning-milan-best-serie-a-man-city/) - **Football Italia**
+6. [Andrey Santos: Da Silva twins’ special message for United star](https://thepeoplesperson.com/2026/07/18/andrey-santos-da-silva-twins-special-message-for-united-star-312863/) - **The Peoples Person**
+7. [Report: Chelsea must pay £55m to sign Premier League star](https://eplindex.com/148496/report-chelsea-must-pay-55m-to-sign-premier-league-star.html) - **English Premier League Index - Opta Stats**
+8. [Transfer rumour roundup: Amorim wants Amad at AC Milan; Morgan Rogers exit looms](https://www.footballmuse.com/features/transfer-rumour-roundup-amorim-wants-amad-at-ac-milan-morgan-rogers-exit-looms) - **Footballmuse.com**
+9. [Where to watch Man United vs. Wrexham live stream, TV channel, start time for summer friendly](https://www.sportingnews.com/us/soccer/news/watch-man-united-vs-wrexham-live-stream-tv-channel-time-friendly/a1c0ca090663b93ce668ede6) - **Sporting News**
+10. [Real Madrid’s stance on Premier League star unchanged despite World Cup heroics](https://madriduniversal.com/real-madrids-stance-on-premier-league-star-unchanged-despite-world-cup-heroics/) - **Madriduniversal.com**
 
 
 ---
-*최근 업데이트: 2026-07-19 15:14:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-19 17:37:11 (KST) / (하루 100회 제한 준수 중)*
