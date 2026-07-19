@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [David Ornstein: Chelsea Agree £117m Deal For Aston Villa Star](https://eplindex.com/148522/david-ornstein-chelsea-agree-117m-deal-for-aston-villa-star.html) - **English Premier League Index - Opta Stats**
-2. [England star agrees to £117m transfer to Chelsea ahead of World Cup third place play-off](https://www.hitc.com/england-star-agrees-to-117m-transfer-to-chelsea-ahead-of-world-cup-third-place-play-off/) - **HITC - Football, Gaming, Movies, TV, Music**
-3. [Chelsea agree deal to sign top Arsenal target Rogers from Aston Villa](https://hayters.com/chelsea-agree-deal-to-sign-top-arsenal-target-rogers-from-aston-villa/) - **Hayters.com**
-4. [Deportivo Eyeing a Move for Fringe Lazio Full-Back Wanted at Hull City](https://thelaziali.com/2026/07/18/deportivo-la-coruna-move-lazio-luca-pellegrini/) - **Thelaziali.com**
-5. [Chelsea agree British record £117m deal for Villa's Rogers](https://www.skysports.com/football/news/11668/13564758/morgan-rogers-transfer-news-chelsea-agree-british-record-lb117m-deal-for-aston-villa-forward-and-arsenals-no-1-target) - **Sky Sports**
-6. [Chelsea agree record £117m deal for Villa's Rogers](https://www.skysports.com/football/news/11668/13564758/morgan-rogers-transfer-news-chelsea-agree-record-lb117m-deal-for-aston-villa-forward-and-arsenals-no-1-target) - **Sky Sports**
-7. [Chelsea agree £117m deal for Villa midfielder Rogers](https://www.bbc.com/sport/football/articles/c0ej1jyy8yyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Chelsea agree £117m deal for Villa midfielder Rogers](https://www.bbc.co.uk/sport/football/articles/c0ej1jyy8yyo) - **BBC News**
-9. [Newcastle 3-0 Darlington — Match Report: Start On the Right Foot](https://cominghomenewcastle.sbnation.com/newcastle-united-match-reports/22842/newcastle-3-0-darlington-match-report-start-on-the-right-foot) - **SB Nation**
-10. [Report: Arsenal make breakthrough in talks to sign Premier League star](https://eplindex.com/148515/report-arsenal-make-breakthrough-in-talks-to-sign-premier-league-star.html) - **English Premier League Index - Opta Stats**
+1. [Arsenal Have Set Their Sights On This Aston Villa Defender: Should Arteta Go For Him?](https://the4thofficial.net/2026/07/arsenal-have-set-their-sights-on-this-aston-villa-defender/) - **The4thofficial.net**
+2. [Aston Villa reportedly accepts $157M bid from Chelsea for England midfielder Morgan Rogers](https://sports.yahoo.com/articles/aston-villa-reportedly-accepts-157m-193723698.html) - **Yahoo Entertainment**
+3. [Manchester United Set To Part Ways With This Celtic Target: Why The Hoops Must Reignite Their Interest](https://the4thofficial.net/2026/07/manchester-united-set-to-part-ways-with-this-celtic-target-why-the-hoops-must-reignite-their-interest/) - **The4thofficial.net**
+4. [Chelsea agree club-record £117m deal to sign Rogers from Villa, reports say](https://www.channelnewsasia.com/sport/chelsea-agree-club-record-ps117m-deal-sign-rogers-villa-reports-say-6263091) - **CNA**
+5. [England vs. France odds, prediction, time: 2026 World Cup third-place match picks by expert on 27-18 roll](https://www.cbssports.com/betting/news/england-france-odds-prediction-line-time-2026-world-cup-third-place-match-picks-best-bets/) - **CBS Sports**
+6. [Chelsea plans to retain João Pedro despite Barcelona’s reported 100M euro bid](https://cryptobriefing.com/chelsea-joao-pedro-barcelona-bid-fan-tokens/) - **Crypto Briefing**
+7. [Kylian Mbappe odds, picks, predictions: Best bets for France vs. England in 2026 World Cup third-place match](https://www.cbssports.com/soccer/news/kylian-mbappe-odds-picks-predictions-best-bets-france-england-2026-world-cup-third-place-match/) - **CBS Sports**
+8. [Celtic eyes £4M transfer as football clubs increasingly explore crypto and blockchain partnerships](https://cryptobriefing.com/celtic-transfer-football-crypto-intersection/) - **Crypto Briefing**
+9. [2026 World Cup picks, odds, predictions: Best bets for France-England in third-place match on Saturday](https://www.cbssports.com/soccer/news/2026-world-cup-picks-odds-predictions-best-bets-france-vs-england-third-place-match-saturday/) - **CBS Sports**
 
 
 ---
-*최근 업데이트: 2026-07-20 03:38:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-20 04:52:47 (KST) / (하루 100회 제한 준수 중)*
