@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Eric Bailly: Former Man United man finds new club](https://thepeoplesperson.com/2026/07/18/eric-bailly-former-man-united-man-finds-new-club-312870/) - **The Peoples Person**
-2. [Exclusive: Liverpool praised for pulling off ‘real coup’ for £60m gem dubbed ‘the next big thing’](https://www.empireofthekop.com/2026/07/18/liverpool-praised-for-real-coup-60m-gem-the-next-big-thing/) - **Empire of The Kop**
-3. [Saracchi 'gutted' to be the latest Celtic player to exit](https://www.rte.ie/sport/soccer/2026/0718/1583971-saracchi-gutted-to-be-the-latest-celtic-player-to-exit/) - **RTE**
-4. [Liverpool have the chance to sign PSG forward as Fabrizio Romano confirms exit](https://anfieldindex.com/95918/liverpool-have-the-chance-to-sign-psg-forward-as-fabrizio-romano-confirms-exit.html) - **Anfieldindex.com**
-5. [World Cup earnings revealed: Milan best in Serie A, Man City first overall](https://football-italia.net/world-cup-earning-milan-best-serie-a-man-city/) - **Football Italia**
-6. [Andrey Santos: Da Silva twins’ special message for United star](https://thepeoplesperson.com/2026/07/18/andrey-santos-da-silva-twins-special-message-for-united-star-312863/) - **The Peoples Person**
-7. [Report: Chelsea must pay £55m to sign Premier League star](https://eplindex.com/148496/report-chelsea-must-pay-55m-to-sign-premier-league-star.html) - **English Premier League Index - Opta Stats**
-8. [Transfer rumour roundup: Amorim wants Amad at AC Milan; Morgan Rogers exit looms](https://www.footballmuse.com/features/transfer-rumour-roundup-amorim-wants-amad-at-ac-milan-morgan-rogers-exit-looms) - **Footballmuse.com**
-9. [Where to watch Man United vs. Wrexham live stream, TV channel, start time for summer friendly](https://www.sportingnews.com/us/soccer/news/watch-man-united-vs-wrexham-live-stream-tv-channel-time-friendly/a1c0ca090663b93ce668ede6) - **Sporting News**
-10. [Real Madrid’s stance on Premier League star unchanged despite World Cup heroics](https://madriduniversal.com/real-madrids-stance-on-premier-league-star-unchanged-despite-world-cup-heroics/) - **Madriduniversal.com**
+1. [How to watch WWE Saturday Night’s Main Event 2026 (July 18): Start time, live stream for event featuring Jalen Brunson](https://www.sportingnews.com/us/wwe/news/watch-wwe-saturday-nights-main-event-2026-live-stream-jalen-brunson/319682092d7778954f2f4489) - **Sporting News**
+2. [Report: Man United keen on move to sign Bundesliga midfielder](https://eplindex.com/148498/report-man-united-keen-on-move-to-sign-bundesliga-midfielder.html) - **English Premier League Index - Opta Stats**
+3. [Mahanama explains about the conflict between cricket aspirations](https://english.gossiplankanews.com/2026/07/mahanama-explains-about-conflict.html) - **Gossiplankanews.com**
+4. [How Villa's record signing Manzambi can spearhead new era](https://www.bbc.co.uk/sport/football/articles/c5yzyg028gxo) - **BBC News**
+5. [‘Head-scratcher…’ – Steve Nicol left ‘completely befuddled’ by Liverpool transfer activity](https://www.empireofthekop.com/2026/07/18/steve-nicol-left-completely-befuddled-by-liverpool-transfer-activity/) - **Empire of The Kop**
+6. [Germany’s Sandro Wagner (38) speaks on Arsenal tactics and Premier League links](https://www.getfootballnewsgermany.com/2026/sandro-wagner-arsenal/) - **Getfootballnewsgermany.com**
+7. [Should Newcastle United be shamed into following this Brentford strategy?](https://www.themag.co.uk/2026/07/should-newcastle-united-be-shamed-into-following-this-brentford-strategy/) - **The Mag**
+8. [More games and more controversy - has World Cup been a success?](https://www.bbc.com/sport/football/articles/ce8k0njm23yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Where to watch U.S. Classic gymnastics: TV schedule, times, channels, live streams for 2026 women's meet](https://www.sportingnews.com/us/tsn/news/watch-us-classic-gymnastics-schedule-times-channels-streams/ce6c9ca425d151e5893aa20c) - **Sporting News**
+10. [Report: Tottenham Hotspur interested in move for World Cup star](https://eplindex.com/148497/report-tottenham-hotspur-interested-in-move-for-world-cup-star.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-07-19 17:37:11 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-19 19:14:06 (KST) / (하루 100회 제한 준수 중)*
