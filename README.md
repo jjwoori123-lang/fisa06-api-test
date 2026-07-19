@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal Have Set Their Sights On This Aston Villa Defender: Should Arteta Go For Him?](https://the4thofficial.net/2026/07/arsenal-have-set-their-sights-on-this-aston-villa-defender/) - **The4thofficial.net**
-2. [Aston Villa reportedly accepts $157M bid from Chelsea for England midfielder Morgan Rogers](https://sports.yahoo.com/articles/aston-villa-reportedly-accepts-157m-193723698.html) - **Yahoo Entertainment**
-3. [Manchester United Set To Part Ways With This Celtic Target: Why The Hoops Must Reignite Their Interest](https://the4thofficial.net/2026/07/manchester-united-set-to-part-ways-with-this-celtic-target-why-the-hoops-must-reignite-their-interest/) - **The4thofficial.net**
-4. [Chelsea agree club-record £117m deal to sign Rogers from Villa, reports say](https://www.channelnewsasia.com/sport/chelsea-agree-club-record-ps117m-deal-sign-rogers-villa-reports-say-6263091) - **CNA**
-5. [England vs. France odds, prediction, time: 2026 World Cup third-place match picks by expert on 27-18 roll](https://www.cbssports.com/betting/news/england-france-odds-prediction-line-time-2026-world-cup-third-place-match-picks-best-bets/) - **CBS Sports**
-6. [Chelsea plans to retain João Pedro despite Barcelona’s reported 100M euro bid](https://cryptobriefing.com/chelsea-joao-pedro-barcelona-bid-fan-tokens/) - **Crypto Briefing**
-7. [Kylian Mbappe odds, picks, predictions: Best bets for France vs. England in 2026 World Cup third-place match](https://www.cbssports.com/soccer/news/kylian-mbappe-odds-picks-predictions-best-bets-france-england-2026-world-cup-third-place-match/) - **CBS Sports**
-8. [Celtic eyes £4M transfer as football clubs increasingly explore crypto and blockchain partnerships](https://cryptobriefing.com/celtic-transfer-football-crypto-intersection/) - **Crypto Briefing**
-9. [2026 World Cup picks, odds, predictions: Best bets for France-England in third-place match on Saturday](https://www.cbssports.com/soccer/news/2026-world-cup-picks-odds-predictions-best-bets-france-vs-england-third-place-match-saturday/) - **CBS Sports**
+1. [Premier League pre-season: Glasner's Forest off to winning start](https://www.skysports.com/football/live-blog/11095/13564293/premier-league-pre-season-friendlies-2026-latest-news-goals-and-highlights) - **Sky Sports**
+2. [Stunning development: Liverpool midfielder offered to Real Madrid in £85m deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-alexis-mac-allister-midfielder-offered-to-real-madrid-in-ps85m-deal/) - **Anfieldwatch.co.uk**
+3. [Update On Chelsea And Their Pursuit Of This Crystal Palace Defender: What Should Alonso Do?](https://the4thofficial.net/2026/07/update-on-chelsea-and-their-pursuit-of-this-crystal-palace-defender/) - **The4thofficial.net**
+4. [Do Timberwolves Fans Even Want LeBron?](https://www.canishoopus.com/timberwolves-analysis/67959/do-timberwolves-fans-even-want-lebron) - **Canis Hoopus**
+5. [Bayern Munich top 10 most expensive transfers of all time (adjusted for inflation)](https://www.bavarianfootballworks.com/bavarian-financial-works/231704/bayern-munich-top-ten-most-expensive-transfers) - **Bavarian Football Works**
+6. [Aston Villa Accepts Bid For Morgan Rogers, England Midfielder Heads To Chelsea](https://www.foxsports.com/stories/soccer/aston-villa-reportedly-accepts-157m-bid-from-chelsea-for-england-midfielder-morgan-rogers) - **Fox Sports**
+7. [Sunderland Are In The Mix To Sign This Ligue 1 Striker: What Will He Add To Le Bris’ Side?](https://the4thofficial.net/2026/07/sunderland-are-in-the-mix-to-sign-this-ligue-1-striker-what-will-he-add-to-le-bris-side/) - **The4thofficial.net**
+8. [ Where does Morgan Rogers rank in the transfer pecking order?](https://onefootball.com/en/news/where-does-morgan-rogers-rank-in-the-transfer-pecking-order-43156420) - **Onefootball.com**
+9. [Chelsea in talks to tie Shim Mheuka to new contract](https://sportsview.co.uk/2026/07/chelsea-in-talks-to-tie-shim-mheuka-to-new-contract?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-in-talks-to-tie-shim-mheuka-to-new-contract) - **Sportsview.co.uk**
+10. [Eduardo Camavinga: Man City transfer nightmare may swing door open for Man United’s Bernabeu raid](https://thepeoplesperson.com/2026/07/18/eduardo-camavinga-man-city-transfer-nightmare-may-swing-door-open-for-man-uniteds-bernabeu-raid-312885/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-07-20 04:52:47 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-20 05:53:24 (KST) / (하루 100회 제한 준수 중)*
