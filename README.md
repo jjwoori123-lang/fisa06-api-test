@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Kylian Mbappe odds, picks, predictions: Best bets for France vs. England in 2026 World Cup third-place match](https://www.cbssports.com/soccer/news/kylian-mbappe-odds-picks-predictions-best-bets-france-vs-england-2026-world-cup-third-place-match/) - **CBS Sports**
-2. [AstroTurf Celebrates 50 years of Elite Field Hockey on our surface](https://www.globenewswire.com/news-release/2026/07/18/3329366/0/en/AstroTurf-Celebrates-50-years-of-Elite-Field-Hockey-on-our-surface.html) - **GlobeNewswire**
-3. [Palhinha expected back at Bayern as Villa links cooled](https://thefootballfaithful.com/palhinha-expected-back-at-bayern-as-villa-links-cooled/) - **The Football Faithful**
-4. [Arsenal sign teenage defender Upson from rivals Spurs](https://thefootballfaithful.com/arsenal-sign-teenage-defender-upson-from-rivals-spurs/) - **The Football Faithful**
-5. [Wildfire Smoke From Canada And Minnesota Pushes Farther Into U.S., Engulfs DC In Haze](https://www.huffpost.com/entry/wildfire-smoke-from-canada-and-minnesota-pushes-farther-into-the-us-and-engulfs-dc-in-haze_n_6a5b717de4b0f033db1d27d1) - **HuffPost**
-6. [England vs. France odds, prediction, time: 2026 World Cup third-place match picks by expert on 27-18 roll](https://www.cbssports.com/betting/news/england-france-odds-prediction-time-2026-world-cup-third-place-match-picks-bets/) - **CBS Sports**
-7. [2027 NFL Mock Draft: Dante Moore Goes Ahead of Arch Manning, Browns Land Myles Garrett and Shedeur Sanders’ Replacements](https://www.profootballnetwork.com/2027-nfl-mock-draft-weil-july/?utm_medium=rss&amp;utm_source=nordot) - **Pro Football Network**
-8. [Barcelona’s search for Julian Alvarez alternative hits immediate roadblock as Chelsea declare striker untouchable](https://barcauniversal.com/barcelonas-search-for-julian-alvarez-alternative-hits-immediate-roadblock-as-chelsea-declare-striker-untouchable/) - **Barcauniversal.com**
-9. [Report: Aston Villa considering moves for two forwards](https://eplindex.com/148500/report-aston-villa-considering-moves-for-two-forwards.html) - **English Premier League Index - Opta Stats**
+1. [“He is ready” – Andoni Iraola backed for major success at Liverpool](https://anfieldindex.com/95976/he-is-ready-andoni-iraola-backed-for-major-success-at-liverpool.html) - **Anfieldindex.com**
+2. [Auxerre and Paris FC agree on transfer of Hull City target Lassine Sinayoko, but…](https://www.getfootballnewsfrance.com/2026/auxerre-and-paris-fc-agree-on-transfer-of-hull-city-target-lassine-sinayoko-but/) - **Get French Football News**
+3. [Why the world cup and club finances will change, but the question is still “how?”](https://untold-arsenal.com/archives/121872) - **Untold-arsenal.com**
+4. [Former Real Madrid coach pushing for César Palacios move](https://siempremadrid.com/former-real-madrid-coach-pushing-for-cesar-palacios-move/) - **Siempremadrid.com**
+5. [No panic, but Celtic not good enough yet - Lambert](https://www.bbc.com/sport/football/articles/cz7dj84x49po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [How Betpawa’s Locker Room Bonus Is Building A Repeatable Model For Performance-Based Payments In African Football](https://punchng.com/how-betpawas-locker-room-bonus-is-building-a-repeatable-model-for-performance-based-payments-in-african-football/) - **The Punch**
+7. [Will the World Cup affect Arsenal's transfer plans?](https://www.bbc.com/sport/football/articles/c4gj5z33e2lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Will the World Cup affect Arsenal's transfer plans?](https://www.bbc.co.uk/sport/football/articles/c4gj5z33e2lo) - **BBC News**
+9. [Use BetMGM bonus code CBSSPORTS to get $1,500 bonus bets for France-England, 2026 World Cup third-place match](https://www.cbssports.com/betting/news/use-betmgm-bonus-code-cbssports-get-1500-bonus-bets-france-england-world-cup-third-place/) - **CBS Sports**
+10. [Use DraftKings promo code for $200 bonus bets by targeting France-England in 2026 World Cup third-place match](https://www.cbssports.com/betting/news/use-draftkings-promo-code-for-200-bonus-bets-by-targeting-france-england-2026-world-cup/) - **CBS Sports**
 
 
 ---
-*최근 업데이트: 2026-07-19 23:09:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-20 00:26:21 (KST) / (하루 100회 제한 준수 중)*
