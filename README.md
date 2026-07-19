@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [“He is ready” – Andoni Iraola backed for major success at Liverpool](https://anfieldindex.com/95976/he-is-ready-andoni-iraola-backed-for-major-success-at-liverpool.html) - **Anfieldindex.com**
-2. [Auxerre and Paris FC agree on transfer of Hull City target Lassine Sinayoko, but…](https://www.getfootballnewsfrance.com/2026/auxerre-and-paris-fc-agree-on-transfer-of-hull-city-target-lassine-sinayoko-but/) - **Get French Football News**
-3. [Why the world cup and club finances will change, but the question is still “how?”](https://untold-arsenal.com/archives/121872) - **Untold-arsenal.com**
-4. [Former Real Madrid coach pushing for César Palacios move](https://siempremadrid.com/former-real-madrid-coach-pushing-for-cesar-palacios-move/) - **Siempremadrid.com**
-5. [No panic, but Celtic not good enough yet - Lambert](https://www.bbc.com/sport/football/articles/cz7dj84x49po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [How Betpawa’s Locker Room Bonus Is Building A Repeatable Model For Performance-Based Payments In African Football](https://punchng.com/how-betpawas-locker-room-bonus-is-building-a-repeatable-model-for-performance-based-payments-in-african-football/) - **The Punch**
-7. [Will the World Cup affect Arsenal's transfer plans?](https://www.bbc.com/sport/football/articles/c4gj5z33e2lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Will the World Cup affect Arsenal's transfer plans?](https://www.bbc.co.uk/sport/football/articles/c4gj5z33e2lo) - **BBC News**
-9. [Use BetMGM bonus code CBSSPORTS to get $1,500 bonus bets for France-England, 2026 World Cup third-place match](https://www.cbssports.com/betting/news/use-betmgm-bonus-code-cbssports-get-1500-bonus-bets-france-england-world-cup-third-place/) - **CBS Sports**
-10. [Use DraftKings promo code for $200 bonus bets by targeting France-England in 2026 World Cup third-place match](https://www.cbssports.com/betting/news/use-draftkings-promo-code-for-200-bonus-bets-by-targeting-france-england-2026-world-cup/) - **CBS Sports**
+1. [Juve-Richarlison, Milan exit and Romero fee: today's market ](https://onefootball.com/en/news/juve-richarlison-milan-exit-and-romero-fee-todays-market-43155670) - **Onefootball.com**
+2. [Davante Adams ranked as one of the NFL’s best No. 2 WRs](https://theramswire.usatoday.com/story/sports/nfl/rams/2026/07/18/rams-davante-adams-ranked-as-one-of-the-nfls-best-no-2-wrs/90962806007/) - **USA Today**
+3. [Alexi Lalas says there is mutual respect with Zlatan Ibrahimović, Thierry Henry](https://awfulannouncing.com/soccer/alexi-lalas-zlatan-ibrahimovic-thierry-henry-first-things-first.html) - **Awful Announcing**
+4. [Inside Iraola's first week at Liverpool and big decisions he faces](https://www.bbc.com/sport/football/articles/ce34zpppy6qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Celtic look to be making it up as they go along... and there's NO sign of any truce between fans and boardroom amid another summer of transfer inactivity](https://www.dailymail.com/sport/football/article-15987127/Celtic-look-making-theres-NO-sign-truce-fans-boardroom-amid-summer-transfer-inactivity.html) - **Dailymail.com**
+6. [Barcelona winger’s future remains unresolved as club prefer permanent transfer](https://barcauniversal.com/barcelona-wingers-future-remains-unresolved-as-club-prefer-permanent-transfer/) - **Barcauniversal.com**
+7. [Report: Chelsea star could be set for loan exit this summer](https://eplindex.com/148513/report-chelsea-star-could-be-set-for-loan-exit-this-summer.html) - **English Premier League Index - Opta Stats**
+8. [Seth Green Joins Global Gaming League Followed With a Tournament](https://bleedingcool.com/games/seth-green-joins-global-gaming-league-followed-with-a-tournament/) - **Bleeding Cool News**
+9. [“He is ready” – Andoni Iraola backed for major success at Liverpool](https://anfieldindex.com/95976/he-is-ready-andoni-iraola-backed-for-major-success-at-liverpool.html) - **Anfieldindex.com**
+10. [Auxerre and Paris FC agree on transfer of Hull City target Lassine Sinayoko, but…](https://www.getfootballnewsfrance.com/2026/auxerre-and-paris-fc-agree-on-transfer-of-hull-city-target-lassine-sinayoko-but/) - **Get French Football News**
 
 
 ---
-*최근 업데이트: 2026-07-20 00:26:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-20 01:32:40 (KST) / (하루 100회 제한 준수 중)*
