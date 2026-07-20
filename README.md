@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sky Sports: Hull City in talks to sign Premier League forward](https://eplindex.com/148550/sky-sports-hull-city-in-talks-to-sign-premier-league-forward.html) - **English Premier League Index - Opta Stats**
-2. [15 most intriguing free agents as NFL training camps open](https://www.thebiglead.com/15-most-intriguing-free-agents-as-nfl-training-camps-open/) - **The Big Lead**
-3. [Tottenham Hotspur Are Showing Interest In This Talented Winger: Good Fit For De Zerbi?](https://the4thofficial.net/2026/07/tottenham-hotspur-are-showing-interest-in-this-talented-winger/) - **The4thofficial.net**
-4. [Spain vs. Argentina odds, prediction, time: 2026 World Cup final picks from expert on 27-18 roll](https://www.cbssports.com/betting/news/spain-argentina-odds-prediction-time-line-2026-world-cup-final-picks-soccer-best-bets/) - **CBS Sports**
-5. [Mamadou Sangare: Why RC Lens star will fix Man United’s midfield](https://thepeoplesperson.com/2026/07/19/mamadou-sangare-why-rc-lens-star-will-fix-man-uniteds-midfield-312937/) - **The Peoples Person**
-6. [Klopp set to be named Germany coach after 'generous' Red Bull deal](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260719-99-102461/) - **Dpa-international.com**
-7. [Liverpool dodge bullet after surprise transfer news emerges from Anfield](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-dodge-bullet-after-surprise-transfer-news-emerges-from-anfield/) - **Anfieldwatch.co.uk**
-8. [Telemundo Lands UEFA Champions League Rights As World Cup Final Kicks Off](https://www.forbes.com/sites/veronicavillafane/2026/07/19/telemundo-lands-uefa-champions-league-rights-as-world-cup-final-kicks-off/) - **Forbes**
-9. [Newcastle’s UEFA Settlement Reveals Why More Player Sales Could Follow](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/22799/newcastles-uefa-settlement-reveals-why-more-player-sales-could-follow) - **SB Nation**
-10. [Report: Chelsea closing in on new signing with personal terms agreed](https://eplindex.com/148547/report-chelsea-closing-in-on-new-signing-with-personal-terms-agreed.html) - **English Premier League Index - Opta Stats**
+1. [Rangers Scouts Left Frustrated Amid Interest In This Blackburn Rovers Defender: Why McInnes Must Sanction Another Reunion](https://the4thofficial.net/2026/07/rangers-scouts-left-frustrated-amid-interest-in-this-blackburn-rovers-defender-why-mcinnes-must-sanction-another-reunion/) - **The4thofficial.net**
+2. [Two former Seminoles earn early spots on NFL Top 100 list](https://fsuwire.usatoday.com/story/sports/college/fsu/football/2026/07/19/fsu-football-josh-sweat-jalen-ramsey-2026-nfl-top-100/90974266007/) - **USA Today**
+3. [OFFICIAL: Fiorentina signs Christ Inao Oulaï](https://www.violanation.com/fiorentina-latest-news-updates/22352/fiorentina-christ-inao-oulai-trabzonspor-official-transfer-buy-sell-fee-clause-kidnap-disappear-plane) - **Violanation.com**
+4. [❌ Tough stuff, little sparkle: Argentina take the sting out of Spain](https://onefootball.com/en/news/tough-stuff-little-sparkle-argentina-take-the-sting-out-of-spain-43159781) - **Onefootball.com**
+5. [Report: Arsenal set to battle Chelsea in the race for World Cup star](https://eplindex.com/148551/report-arsenal-set-to-battle-chelsea-in-the-race-for-world-cup-star.html) - **English Premier League Index - Opta Stats**
+6. [Stuttgart attacker turns down Bournemouth interest again](https://bulinews.com/stuttgart-attacker-turns-down-bournemouth-interest-again) - **Bulinews.com**
+7. [FIFA World Cup 2026 Halftime Show: USMNT Great Sides with BBC](https://heavy.com/sports/soccer/fifa-world-cup-2026-halftime-show-usmnt-great-sides-with-bbc/) - **Heavy.com**
+8. [Stuttgart reject Hull City approach for defender](https://bulinews.com/stuttgart-reject-hull-city-approach-for-defender) - **Bulinews.com**
+9. [Liverpool Are Showing Interest In This Paris Saint-Germain Defender: Should Iraola Get Him On Board?](https://the4thofficial.net/2026/07/liverpool-are-showing-interest-in-this-paris-saint-germain-defender/) - **The4thofficial.net**
+10. [Sunderland Are Locked In A Three-Way Battle For This Eredivisie Winger: Good Choice For Le Bris?](https://the4thofficial.net/2026/07/sunderland-are-locked-in-a-three-way-battle-for-this-eredivisie-winger/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-07-21 03:53:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-21 05:22:48 (KST) / (하루 100회 제한 준수 중)*
