@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Serie A defender would choose Real Madrid if the decision were his – report](https://madriduniversal.com/serie-a-defender-would-choose-real-madrid-if-the-decision-were-his-report/) - **Madriduniversal.com**
-2. [Lazio Make ‘Insulting’ €10M Offer for West Ham Outcast](https://thelaziali.com/2026/07/19/lazio-insulting-offer-west-ham-aaron-wan-bissaka/) - **Thelaziali.com**
-3. [This is Spain's World Cup final, no matter who wins. Its DNA runs through both teams.](https://www.usatoday.com/story/sports/soccer/worldcup/2026/07/19/spain-world-cup-final-dna-argentina-messi/90965858007/) - **USA Today**
-4. [What Would U.S. Families Sacrifice To End “Pay-To-Play” Youth Soccer?](https://www.forbes.com/sites/beaudure/2026/07/19/what-would-us-families-sacrifice-to-end-pay-to-play-youth-soccer/) - **Forbes**
-5. [Nostalgia is alive and well at Kilsyth Rangers as glorious Junior Cup memories fill the air at Duncansfield](https://www.dailymail.com/sport/football/article-15988569/Nostalgia-alive-Kilsyth-Rangers-glorious-Junior-Cup-memories-air-Duncansfield.html) - **Dailymail.com**
-6. [Pressley 'happy with exercise' despite 4-0 loss](https://www.bbc.com/sport/articles/c0km8x4glryo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [‘Bid submitted today’: Liverpool launch another transfer offensive after Martinez medical](https://www.empireofthekop.com/2026/07/19/bid-submitted-today-liverpool-launch-another-transfer-offensive-after-martinez-medical/) - **Empire of The Kop**
-8. [Botafogo Midfielder Linked to Newcastle as Bruno Replacement](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/22612/botafogo-midfielder-linked-to-newcastle-as-bruno-replacement) - **SB Nation**
-9. [Joking aside Martin O’Neill drops imminent transfer hints](https://celticshorts.com/2026/07/joking-aside-martin-oneill-drops-imminent-transfer-hints/) - **Celticshorts.com**
+1. [Man United shut down AC Milan interest in Amad Diallo](https://thefootballfaithful.com/man-united-shut-down-ac-milan-interest-in-amad-diallo/) - **The Football Faithful**
+2. [Liverpool linked with PSG defender as Iraola eyes reunion](https://thefootballfaithful.com/liverpool-are-considering-a-move-to-sign-paris-saint-germain-defender-illia-zabarnyi/) - **The Football Faithful**
+3. [Liverpool could be closing in on next signing with bid already submitted](https://anfieldindex.com/96109/liverpool-could-be-closing-in-on-next-signing-with-bid-already-submitted.html) - **Anfieldindex.com**
+4. [Report: European giants interested in move for Tottenham Hotspur forward](https://eplindex.com/148543/report-european-giants-interested-in-move-for-tottenham-hotspur-forward.html) - **English Premier League Index - Opta Stats**
+5. [Nico Williams: Man United rival Chelsea for Athletic Club star](https://thepeoplesperson.com/2026/07/19/nico-williams-man-united-rival-chelsea-for-athletic-club-star-312922/) - **The Peoples Person**
+6. [Celtic reignite interest in £7m-rated Danish striker](https://celticshorts.com/2026/07/celtic-reignite-interest-in-7m-rated-danish-striker/) - **Celticshorts.com**
+7. [Wayne and Coleen Rooney's son Cass takes inspiration from legendary Brazilian player Ronaldo as he copies his iconic 2002 World Cup haircut](https://www.dailymail.com/tvshowbiz/article-15988729/Wayne-Coleen-Rooneys-son-Cass-Brazilian-Ronaldo-2002-World-Cup-haircut.html) - **Dailymail.com**
+8. [Robinson not a fan but can League Cup groups help build momentum?](https://www.bbc.com/sport/football/articles/c304pmj70pno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Robinson not a fan but can League Cup groups help build momentum?](https://www.bbc.co.uk/sport/football/articles/c304pmj70pno) - **BBC News**
+10. [Stuttgart cruise to emphatic victory in first pre-season friendly](https://bulinews.com/stuttgart-cruise-emphatic-victory-first-pre-season-friendly) - **Bulinews.com**
 
 
 ---
-*최근 업데이트: 2026-07-20 21:53:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-21 00:12:34 (KST) / (하루 100회 제한 준수 중)*
