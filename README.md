@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [NWSL Week 12 round-up: Rivalry week sees Washington keep climbing, Seattle win second leg of Cascadia clash](https://herfootballhub.com/nwsl-week-12-round-up-rivalry-week-sees-washington-keep-climbing-seattle-win-second-leg-of-cascadia-clash/) - **Herfootballhub.com**
-2. [Report: Another Liverpool star could be set to follow Ibrahima Konate to Real Madrid](https://anfieldindex.com/96035/report-another-liverpool-star-could-be-set-to-follow-ibrahima-konate-to-real-madrid.html) - **Anfieldindex.com**
-3. [Vozinha, Saibari, Barton etc - The new faces at the World Cup](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260719-99-99960/) - **Dpa-international.com**
-4. [I've been a World Cup official - I promise you there is no favouritism](https://www.bbc.com/sport/football/articles/cm2g9g3v5gmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [I've been a World Cup official - I promise you there is no favouritism](https://www.bbc.co.uk/sport/football/articles/cm2g9g3v5gmo) - **BBC News**
-6. [Arsenal stars shine as England beat France in 10-goal World Cup thriller](https://www.justarsenal.com/arsenal-stars-shine-as-england-beat-france-in-10-goal-world-cup-thriller/418856) - **Just Arsenal News**
-7. [England's hat-trick hero Bukayo Saka tells Thomas Tuchel he is 'fit and would love to have played more' - as Three Lions boss reveals why he snubbed him during Argentina implosion](https://www.dailymail.com/sport/football/article-15988435/England-Bukayo-Saka-Thomas-Tuchel-World-Cup.html) - **Dailymail.com**
-8. [Arsenal 20yo finds new club after rejecting contract](https://dailycannon.com/2026/07/alexei-rojas-penafiel/) - **Dailycannon.com**
-9. [Messi vs. Ronaldo GOAT scorecard: The ultimate year-by-year comparison](https://www.sportingnews.com/us/soccer/news/messi-ronaldo-goat-scorecard-year-year-comparison/17b9a14505707a53200dfc3e) - **Sporting News**
-10. [Ginsburg and Biden’s blind spot: when leaders don’t know when to leave](https://fortune.com/2026/07/19/indispensability-delusion-ginsburg-biden-washington-succession/) - **Fortune**
+1. [Serie A defender would choose Real Madrid if the decision were his – report](https://madriduniversal.com/serie-a-defender-would-choose-real-madrid-if-the-decision-were-his-report/) - **Madriduniversal.com**
+2. [Lazio Make ‘Insulting’ €10M Offer for West Ham Outcast](https://thelaziali.com/2026/07/19/lazio-insulting-offer-west-ham-aaron-wan-bissaka/) - **Thelaziali.com**
+3. [This is Spain's World Cup final, no matter who wins. Its DNA runs through both teams.](https://www.usatoday.com/story/sports/soccer/worldcup/2026/07/19/spain-world-cup-final-dna-argentina-messi/90965858007/) - **USA Today**
+4. [What Would U.S. Families Sacrifice To End “Pay-To-Play” Youth Soccer?](https://www.forbes.com/sites/beaudure/2026/07/19/what-would-us-families-sacrifice-to-end-pay-to-play-youth-soccer/) - **Forbes**
+5. [Nostalgia is alive and well at Kilsyth Rangers as glorious Junior Cup memories fill the air at Duncansfield](https://www.dailymail.com/sport/football/article-15988569/Nostalgia-alive-Kilsyth-Rangers-glorious-Junior-Cup-memories-air-Duncansfield.html) - **Dailymail.com**
+6. [Pressley 'happy with exercise' despite 4-0 loss](https://www.bbc.com/sport/articles/c0km8x4glryo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [‘Bid submitted today’: Liverpool launch another transfer offensive after Martinez medical](https://www.empireofthekop.com/2026/07/19/bid-submitted-today-liverpool-launch-another-transfer-offensive-after-martinez-medical/) - **Empire of The Kop**
+8. [Botafogo Midfielder Linked to Newcastle as Bruno Replacement](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/22612/botafogo-midfielder-linked-to-newcastle-as-bruno-replacement) - **SB Nation**
+9. [Joking aside Martin O’Neill drops imminent transfer hints](https://celticshorts.com/2026/07/joking-aside-martin-oneill-drops-imminent-transfer-hints/) - **Celticshorts.com**
 
 
 ---
-*최근 업데이트: 2026-07-20 19:28:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-20 21:53:27 (KST) / (하루 100회 제한 준수 중)*
