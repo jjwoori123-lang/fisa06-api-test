@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [What are the top 25 college football programs? Ohio State, Alabama lead rankings](https://www.usatoday.com/story/sports/ncaaf/2026/07/20/college-football-program-rankings-top-25-ohio-state-alabama/90899793007/) - **USA Today**
-2. [USA250: 10 greatest college athletes from California](https://www.usatoday.com/story/sports/college/2026/07/20/california-10-greatest-college-athletes-usa250/89585685007/) - **USA Today**
-3. [Liverpool are interested in Premier League Barcola alternative](https://anfieldindex.com/96152/liverpool-are-interested-in-premier-league-barcola-alternative.html) - **Anfieldindex.com**
-4. [Ipswich in talks over swoop for defender from Premier League rival - as new boss Gary O'Neil looks to build a side capable of surviving in top-flight: WINDOW WATCH](https://www.dailymail.com/sport/football/article-15990243/Ipswich-talks-swoop-defender-Premier-League-rival-new-boss-Gary-ONeil-looks-build-capable-surviving-flight-WINDOW-WATCH.html) - **Dailymail.com**
-5. [Leeds United showing interest in Royal Union Saint-Gilloise goalkeeper Kjell Scherpen](https://sportsview.co.uk/2026/07/leeds-united-showing-interest-in-royal-union-saint-gilloise-goalkeeper-kjell-scherpen?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=leeds-united-showing-interest-in-royal-union-saint-gilloise-goalkeeper-kjell-scherpen) - **Sportsview.co.uk**
-6. [Barcelona expect teenage winger to arrive in the coming days to finalise €10m transfer](https://barcauniversal.com/barcelona-expect-teenage-winger-to-arrive-in-the-coming-days-to-finalise-e10m-transfer/) - **Barcauniversal.com**
-7. [Report: Premier League rivals moving for Liverpool midfielder target](https://anfieldindex.com/96149/report-premier-league-rivals-moving-for-liverpool-midfielder-target.html) - **Anfieldindex.com**
-8. [‘Agreed personal terms’ – Fabrizio hints at surprise Liverpool transfer twist on Monday morning](https://www.empireofthekop.com/2026/07/20/agreed-personal-terms-fabrizio-hints-at-surprise-liverpool-transfer-twist-on-monday-morning/) - **Empire of The Kop**
-9. ['We need to strengthen the foundations' - Le Bris reacts to York win](https://www.bbc.com/sport/football/articles/c4gdmyrpe0no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Fulham’s Issa Diop set for Ipswich Town move](https://www.getfootballnewsfrance.com/2026/fulhams-issa-diop-set-for-ipswich-town-move/) - **Get French Football News**
+2. [Aston Villa sign £38m Joao Gomes from Wolves](https://www.vanguardngr.com/2026/07/aston-villa-sign-38m-joao-gomes-from-wolves/) - **Vanguard**
+3. [The Hundred 2026: Everything that's changed for the new season](https://www.cricketnews.com/en/cricket/news/hundred-2026-everything-changed-new-season/5b49ce444faf59d529c5b824) - **Cricketnews.com**
+4. [Aston Villa sign Joao Gomes from Wolves](https://www.channelnewsasia.com/sport/aston-villa-sign-joao-gomes-wolves-6265656) - **CNA**
+5. [Lazio will challenge Arsenal for relegated star](https://www.justarsenal.com/lazio-will-challenge-arsenal-for-relegated-star/418925) - **Just Arsenal News**
+6. [Cubs Castoff Returns To World Series Favorite After Very Short Stint](https://www.forbes.com/sites/peterchawaga/2026/07/20/cubs-castoff-returns-to-world-series-favorite-after-very-short-stint/) - **Forbes**
+7. [Liverpool youngsters set for huge US opportunity](https://anfieldindex.com/96154/liverpool-youngsters-set-for-huge-us-opportunity.html) - **Anfieldindex.com**
+8. [Hull City see Kévin Danois bid rejected](https://www.getfootballnewsfrance.com/2026/hull-city-see-kevin-danois-bid-rejected/) - **Get French Football News**
+9. [Manchester United signs Tynan Thompson with performance add-ons and 15% sell-on clause](https://cryptobriefing.com/manchester-united-tynan-thompson-transfer-2/) - **Crypto Briefing**
+10. [Kelleher: We're being pushed to our limits](https://www.brentfordfc.com/en/news/article/interviews-caoimhin-kelleher-pre-season-portugal-2026) - **Brentfordfc.com**
 
 
 ---
-*최근 업데이트: 2026-07-21 18:14:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-21 20:20:19 (KST) / (하루 100회 제한 준수 중)*
