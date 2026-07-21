@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['We have to keep momentum going' - McLeish excited for first home game](https://www.bbc.com/sport/articles/ce3q1d24enjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Kevin Keegan: The 'Mighty Mouse' who conquered Europe](https://sports.yahoo.com/articles/kevin-keegan-mighty-mouse-conquered-151740742.html) - **Yahoo Entertainment**
-3. [Because Inquiring Minds Want to Know: Is Spanish World Cup Hero Ferran Torres Single?](https://www.cosmopolitan.com/entertainment/celebs/a73191462/is-ferran-torres-single/) - **Cosmopolitan.com**
-4. [Gifted, charismatic and passionate amid highs and lows - Keegan obituary](https://www.bbc.com/sport/football/articles/c20z4d87vp3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [What will Rogers bring to Alonso's Chelsea?](https://www.bbc.com/sport/football/articles/cy8enwn2xq4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Report: Dream Liverpool target seeking move to La Liga giants](https://anfieldindex.com/96215/report-dream-liverpool-target-seeking-move-to-la-liga-giants.html) - **Anfieldindex.com**
-7. [Aston Villa signs João Gomes as star Morgan Rogers completes British record move to Chelsea](https://sports.yahoo.com/articles/aston-villa-signs-jo-o-145307458.html) - **Yahoo Entertainment**
-8. [Argentina's Cristian Romero skips Trump handshake at World Cup final](https://www.usatoday.com/story/sports/soccer/worldcup/2026/07/20/argentina-cristian-romero-trump-handshake-world-cup/90980383007/) - **USA Today**
-9. [Lazio make fresh Musah offer, as Milan hope for Leeds United or Ipswich Town](https://football-italia.net/lazio-musah-milan-leeds-united-or-ipswich-town/) - **Football Italia**
-10. [Manchester United confirm the signing of £8m star](https://eplindex.com/148569/manchester-united-confirm-the-signing-of-8m-star.html) - **English Premier League Index - Opta Stats**
+1. [Liverpool and Arsenal’s Swedish striker arms race is reshaping Premier League economics](https://cryptobriefing.com/liverpool-arsenal-swedish-striker-race/) - **Crypto Briefing**
+2. [Brady Harty loving his choice of school, back home for the summer](https://www.jamestownsun.com/sports/brady-harty-loving-his-choice-of-school-back-home-for-the-summer) - **Jamestownsun.com**
+3. [Way too early 2030 World Cup Power Rankings: Can Spain repeat as champion?](https://www.usatoday.com/story/sports/soccer/worldcup/2026/07/20/2030-world-cup-power-rankings-spain-france-argentina-england-usa/90974768007/) - **USA Today**
+4. [Aston Villa and Chelsea keep Bologna’s Jonathan Rowe on radar](https://thefootballfaithful.com/aston-villa-and-chelsea-keep-bolognas-jonathan-rowe-on-radar/) - **The Football Faithful**
+5. [Could Argentina face action after post-final trouble?](https://www.bbc.com/sport/football/articles/clyxjk0z5y7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Bigger, older, hotter: The trends that defined World Cup 2026](https://www.skysports.com/football/news/11095/13563675/world-cup-2026-data-analysis-record-goals-bigger-fifa-ranking-gaps-older-starting-xis-travel-heat-penalties-substitutes-and-how-spain-won-it) - **Sky Sports**
+7. [Kevin De Bruyne’s Napoli stint could end after one season as Turkish and Saudi clubs circle](https://cryptobriefing.com/de-bruyne-napoli-exit-turkey-saudi-arabia/) - **Crypto Briefing**
+8. [Wrexham could link with world-famous US sports franchise as $3bn deal on cards](https://www.hitc.com/wrexham-could-link-with-world-famous-us-sports-franchise-as-3bn-deal-on-cards/) - **HITC - Football, Gaming, Movies, TV, Music**
+9. [With New AI Governance Organization, China Seeks to Formalize Its Global AI Influence](https://thediplomat.com/2026/07/with-new-ai-governance-organization-china-seeks-to-formalize-its-global-ai-influence/) - **The Diplomat**
 
 
 ---
-*최근 업데이트: 2026-07-22 00:18:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-22 01:49:46 (KST) / (하루 100회 제한 준수 중)*
