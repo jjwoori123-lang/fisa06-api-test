@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Arsenal have set their sights on move for £77m World Cup winner](https://eplindex.com/148577/report-arsenal-have-set-their-sights-on-move-for-77m-world-cup-winner.html) - **English Premier League Index - Opta Stats**
-2. [Liverpool Are Set To Join Manchester United For This Serie A Midfielder: Good Option For Iraola?](https://the4thofficial.net/2026/07/liverpool-are-set-to-join-manchester-united-for-this-serie-a-midfielder/) - **The4thofficial.net**
-3. [A guide to World Cup watch-partying](https://dailyutahchronicle.com/2026/07/20/a-guide-to-world-cup-watch-partying/) - **Dailyutahchronicle.com**
-4. [World Cup 2026 Wraps Up But Cultural Impacts Will Linger](https://www.forbes.com/sites/howardhomonoff/2026/07/20/world-cup-2026-wraps-up-but-cultural-impacts-will-linger/) - **Forbes**
-5. [Tottenham Hotspur have sent a verbal bid to Chelsea for Pedro Neto](https://sportsview.co.uk/2026/07/tottenham-hotspur-have-sent-a-verbal-bid-to-chelsea-for-pedro-neto?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-hotspur-have-sent-a-verbal-bid-to-chelsea-for-pedro-neto) - **Sportsview.co.uk**
-6. [Chelsea’s Nicolas Jackson fire sale mirrors crypto’s oldest problem: too many tokens, not enough demand](https://cryptobriefing.com/chelsea-jackson-sale-crypto-oversupply/) - **Crypto Briefing**
-7. [Biggest World Cup risers and fallers: Folarin Balogun, Vozinha and 10 more who helped or hurt transfer stock](https://www.sportingnews.com/us/soccer/news/world-cup-risers-fallers-transfer-stock-folarin-balogun-vozinha/eded3bcc94b3c6db01a542a0) - **Sporting News**
-8. [Sunderland Identify This Talented Winger As A Target: What Will He Bring To The Stadium Of Light?](https://the4thofficial.net/2026/07/sunderland-identify-this-talented-winger-as-a-target/) - **The4thofficial.net**
-9. [Premier League side open talks with Celtic over Daizen Maeda](https://celticshorts.com/2026/07/premier-league-side-open-talks-with-celtic-over-daizen-maeda/) - **Celticshorts.com**
-10. [From Messi To Ronaldo, The 2026 World Cup Marked The End Of A Legendary Era](https://www.foxsports.com/stories/soccer/from-messi-ronaldo-2026-world-cup-marked-end-legendary-era) - **Fox Sports**
+1. [Manchester City Are Ready To Move In For This Barcelona Ace: What Will He Add To Maresca’s Side?](https://the4thofficial.net/2026/07/manchester-city-are-ready-to-move-in-for-this-barcelona-ace-what-will-he-add-to-marescas-side/) - **The4thofficial.net**
+2. [Liverpool the latest club linked with move for Barcelona star](https://getfootballnewsspain.com/liverpool-the-latest-club-linked-with-move-for-barcelona-star/) - **Getfootballnewsspain.com**
+3. [Rebecca Lowe wasn’t surprised by Zlatan Ibrahimović’s on-air announcement](https://awfulannouncing.com/fox/rebecca-lowe-zlatan-ibrahimovic-retirement-reaction.html) - **Awful Announcing**
+4. [Liverpool appoint Alejandro Rosalen as new first-team goalkeeping coach](https://footballtoday.com/2026/07/20/liverpool-appoint-alejandro-rosalen-as-new-first-team-goalkeeping-coach/) - **Footballtoday.com**
+5. [London sports team set to sell for $1bn-plus as six bidders identified after World Cup final talks](https://www.hitc.com/london-sports-team-set-to-sell-for-1bn-plus-as-six-bidders-identified-after-world-cup-final-talks/) - **HITC - Football, Gaming, Movies, TV, Music**
+6. [Goodbye World Cup, hello MLS! How to buy MLS tickets for each team](https://www.usatoday.com/story/sports/soccer/worldcup/2026/07/20/how-to-buy-mls-tickets-for-every-team/90983311007/) - **USA Today**
+7. [Spain hero Ferran Torres reportedly nears a transfer from Barcelona to PSG within less than two weeks margin](https://worldsoccertalk.com/news/spain-hero-ferran-torres-reportedly-nears-a-transfer-from-barcelona-to-psg-within-less-than-two-weeks-margin/) - **Worldsoccertalk.com**
+8. [Aston Villa Eye €50m Serie A Star To Replace Morgan Rogers: Right Choice?](https://the4thofficial.net/2026/07/aston-villa-eye-e50m-serie-a-star-to-replace-morgan-rogers-right-choice/) - **The4thofficial.net**
+9. [Shearer leads tributes to 'hero' and 'friend' Keegan](https://www.rte.ie/sport/soccer/2026/0720/1584304-kevin-keegan-tributes/) - **RTE**
+10. [Manchester United Have Joined The Race For This Real Madrid Midfielder: Good Signing For Carrick?](https://the4thofficial.net/2026/07/manchester-united-have-joined-the-race-for-this-real-madrid-midfielder-good-signing-for-carrick/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-07-22 04:55:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-22 06:14:04 (KST) / (하루 100회 제한 준수 중)*
