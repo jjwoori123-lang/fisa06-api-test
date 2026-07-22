@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Joao Gomes Will Ignite Aston Villa’s Midfield Revival](https://easysportz.com/2026/07/joao-gomes-will-ignite-aston-villas-midfield-revival/) - **Easysportz.com**
-2. [To turn the Socceroos into World Cup contenders, we need to start with the junior game](https://theconversation.com/to-turn-the-socceroos-into-world-cup-contenders-we-need-to-start-with-the-junior-game-287486) - **The Conversation Africa**
-3. [Inside Liverpool's US tour: LEWIS STEELE reveals the wonderkids ready to burst into Andoni Iraola's first team, the solutions in defence and up front and the new faces coaches are raving about](https://www.dailymail.com/sport/football/article-15990441/Liverpool-tour-wonderkids-Iraola.html) - **Dailymail.com**
-4. [Inside Liverpool's US tour: LEWIS STEELE reveals the wonderkids ready to burst into Andoni Iraola's first team, the solutions in defence and up front and the new faces coaches are raving about](https://www.dailymail.com/sport/football/article-15990441/Liverpool-tour-wonderkids-Iraola.html) - **Dailymail.com**
-5. [Jürgen Klopp acknowledges a move to Germany is close](https://www.bavarianfootballworks.com/fifa-world-cup/233788/jurgen-klopp-acknowledges-a-move-to-germany-is-close) - **Bavarian Football Works**
-6. [Jared Goff Doesn’t Mince Words When Talking About Amon-Ra St. Brown](https://detroitsportsnation.com/jared-goff-bold-statement-amon-ra-st-brown/ddrysdale/detroit-lions/07/20/2026/488352/) - **Detroit Sports Nation**
-7. [Andy Burnham vows the biggest changes in 40 years - but not yet: Critics attack over delay to PM's blueprint for reform](https://www.dailymail.com/news/article-15991959/Andy-Burnham-vows-biggest-changes-40-years.html) - **Dailymail.com**
-8. [How Michigan Basketball Took Over the 2026 NBA Summer League](https://roundtable.io/sports/ncaa/michigan/players/how-michigan-basketball-took-over-the-2026-nba-summer-league) - **Roundtable.io**
-9. [Ballon d’Or power rankings: Rodri, Messi, Harry Kane among favorites to win soccer's MVP after 2026 World Cup](https://www.sportingnews.com/us/soccer/news/ballon-dor-power-rankings-messi-rodri-harry-kane-2026-world-cup/3c67c0e031087f0cc9f42b34) - **Sporting News**
-10. [US prosecutors investigating firms run by billionaire owner of LA Dodgers, Lakers and Chelsea](https://www.dailymail.com/sport/football/article-15991971/mark-walter-prosecutors-investigation-chelsea-lakers-dodgers.html) - **Dailymail.com**
+1. [The King is dead](https://www.themag.co.uk/2026/07/the-king-is-dead-kevin-keegan-newcastle-united/) - **The Mag**
+2. [Chelsea set to keep Tosin Adarabioyo as he is part of Xabi Alonso’s plans](https://sportsview.co.uk/2026/07/chelsea-set-to-keep-tosin-adarabioyo-as-he-is-part-of-xabi-alonsos-plans?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-set-to-keep-tosin-adarabioyo-as-he-is-part-of-xabi-alonsos-plans) - **Sportsview.co.uk**
+3. [Napoli could offer Milinkovic-Savic to land Tottenham goalkeeper Vicario](https://sportsview.co.uk/2026/07/napoli-could-offer-milinkovic-savic-to-land-tottenham-goalkeeper-vicario?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=napoli-could-offer-milinkovic-savic-to-land-tottenham-goalkeeper-vicario) - **Sportsview.co.uk**
+4. [Coleen Rooney's son Cass, 8, makes his modelling debut as he joins her new Primark campaign in 'special moment'](https://www.dailymail.com/tvshowbiz/article-15990309/Coleen-Rooney-son-Cass-modelling-debut-Primark.html) - **Dailymail.com**
+5. [Pedro Porro defends Argentina’s playing style after Spain’s 2026 World Cup triumph: ‘They deserved to be in the final’](https://worldsoccertalk.com/world-cup/pedro-porro-defends-argentinas-playing-style-after-spains-2026-world-cup-triumph-they-deserved-to-be-in-the-final/) - **Worldsoccertalk.com**
+6. [Who am I? Guess Premier League star No 1](https://www.bbc.co.uk/sport/football/articles/clyjly9484go) - **BBC News**
+7. [Introducing football to the country with one pitch](https://www.bbc.com/sport/football/articles/c5y03dermmeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Fake kits worth £18m seized by police during World Cup](https://www.bbc.co.uk/sport/football/articles/c0rdgrkx552o) - **BBC News**
+9. [LA Dodgers Owner’s Insurers Being Probed by Prosecutors](https://www.insurancejournal.com/news/west/2026/07/21/878278.htm) - **Insurance Journal**
+10. [Which Of Sunderland’s Fringe Players Could Be In The Spotlight This Pre-Season?](https://rokerreport.sbnation.com/opinion/145401/which-of-sunderlands-fringe-players-could-be-in-the-spotlight-this-pre-season) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-07-22 12:51:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-22 15:31:01 (KST) / (하루 100회 제한 준수 중)*
