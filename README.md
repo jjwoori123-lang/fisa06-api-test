@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The King is dead](https://www.themag.co.uk/2026/07/the-king-is-dead-kevin-keegan-newcastle-united/) - **The Mag**
-2. [Chelsea set to keep Tosin Adarabioyo as he is part of Xabi Alonso’s plans](https://sportsview.co.uk/2026/07/chelsea-set-to-keep-tosin-adarabioyo-as-he-is-part-of-xabi-alonsos-plans?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-set-to-keep-tosin-adarabioyo-as-he-is-part-of-xabi-alonsos-plans) - **Sportsview.co.uk**
-3. [Napoli could offer Milinkovic-Savic to land Tottenham goalkeeper Vicario](https://sportsview.co.uk/2026/07/napoli-could-offer-milinkovic-savic-to-land-tottenham-goalkeeper-vicario?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=napoli-could-offer-milinkovic-savic-to-land-tottenham-goalkeeper-vicario) - **Sportsview.co.uk**
-4. [Coleen Rooney's son Cass, 8, makes his modelling debut as he joins her new Primark campaign in 'special moment'](https://www.dailymail.com/tvshowbiz/article-15990309/Coleen-Rooney-son-Cass-modelling-debut-Primark.html) - **Dailymail.com**
-5. [Pedro Porro defends Argentina’s playing style after Spain’s 2026 World Cup triumph: ‘They deserved to be in the final’](https://worldsoccertalk.com/world-cup/pedro-porro-defends-argentinas-playing-style-after-spains-2026-world-cup-triumph-they-deserved-to-be-in-the-final/) - **Worldsoccertalk.com**
-6. [Who am I? Guess Premier League star No 1](https://www.bbc.co.uk/sport/football/articles/clyjly9484go) - **BBC News**
-7. [Introducing football to the country with one pitch](https://www.bbc.com/sport/football/articles/c5y03dermmeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Fake kits worth £18m seized by police during World Cup](https://www.bbc.co.uk/sport/football/articles/c0rdgrkx552o) - **BBC News**
-9. [LA Dodgers Owner’s Insurers Being Probed by Prosecutors](https://www.insurancejournal.com/news/west/2026/07/21/878278.htm) - **Insurance Journal**
-10. [Which Of Sunderland’s Fringe Players Could Be In The Spotlight This Pre-Season?](https://rokerreport.sbnation.com/opinion/145401/which-of-sunderlands-fringe-players-could-be-in-the-spotlight-this-pre-season) - **SB Nation**
+1. [Sir Alex Ferguson recalls spending 'a night on the piano' with Kevin Keegan just weeks after his infamous 'I would love it if we beat them' rant - when he bumped into his old rival at a bar](https://www.dailymail.com/sport/football/article-15992885/Sir-Alex-Ferguson-recalls-spending-night-piano-Kevin-Keegan.html) - **Dailymail.com**
+2. [Araujo Celtic return shot down, but an offer for AJ will see door open](https://celticshorts.com/2026/07/araujo-celtic-return-shot-down-but-an-offer-for-aj-will-see-door-open/) - **Celticshorts.com**
+3. ["NASCAR Americana" - A Three-Part Docuseries Exploring NASCAR's Unique Place in the American Story - Premieres on USA Network August 9 Following NASCAR Cup Series Iowa Corn 350](http://www.thefutoncritic.com/news/2026/07/21/nascar-americana-a-three-part-docuseries-exploring-nascars-unique-place-in-the-american-story-premieres-on-usa-network-august-9-following-nascar-cup-series-iowa-corn-350-420214/20260721usa01/) - **Thefutoncritic.com**
+4. [Arminia Bielefeld’s goalkeeper draws interest from several clubs outside Germany](https://bulinews.com/arminia-bielefeld-goalkeeper-draws-interest-several-clubs-outside-germany) - **Bulinews.com**
+5. [Liverpool to miss out on £55m defender with formal talks already held](https://anfieldindex.com/96261/liverpool-to-miss-out-on-55m-defender-with-formal-talks-already-held.html) - **Anfieldindex.com**
+6. [Report: Ipswich Town agree deal to sign Premier League defender](https://eplindex.com/148583/report-ipswich-town-agree-deal-to-sign-premier-league-defender.html) - **English Premier League Index - Opta Stats**
+7. [Italy await Guardiola’s response after Maldini meeting: Reasons he could say yes, or no](https://football-italia.net/italy-await-guardiola-maldini-yes-or-no/) - **Football Italia**
+8. [Liverpool plot swoop for Spain’s World Cup hero Ferran Torres as Barcelona contract ticks down](https://www.footballmuse.com/transfers/liverpool-plot-swoop-for-spains-world-cup-hero-ferran-torres-as-barcelona-contract-ticks-down) - **Footballmuse.com**
+9. [Bombshell Tuesday morning contract news breaks affecting Szoboszlai & Gravenberch](https://www.empireofthekop.com/2026/07/21/bombshell-tuesday-morning-contract-news-breaks-affecting-szoboszlai-gravenberch/) - **Empire of The Kop**
+10. [Bournemouth midfielder Scott rejects new contract](https://www.bbc.com/sport/football/articles/c0rdn1p2z45o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-07-22 15:31:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-22 18:13:24 (KST) / (하루 100회 제한 준수 중)*
