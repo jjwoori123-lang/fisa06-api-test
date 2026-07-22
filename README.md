@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Potts determined to seize West Ham chance](https://www.bbc.com/sport/football/articles/c9v4krvm4jgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Potts determined to seize West Ham chance](https://www.bbc.co.uk/sport/football/articles/c9v4krvm4jgo) - **BBC News**
-3. [Antonio Silva set for Bournemouth move after Milan speculation](https://football-italia.net/antonio-silva-bournemouth-milan-speculation/) - **Football Italia**
-4. [ Inter, pre-season is here! All friendlies on OneFootball ](https://onefootball.com/en/news/inter-pre-season-is-here-all-friendlies-on-onefootball-43166270) - **Onefootball.com**
-5. [Real Madrid reconsider position on move for Man City superstar despite Perez reluctance](https://madriduniversal.com/real-madrid-reconsider-position-on-move-for-man-city-superstar-despite-perez-reluctance/) - **Madriduniversal.com**
-6. [Arsenal agree shirt & stadium sponsorship deal extension](https://dailycannon.com/2026/07/arsenal-emirates-deal-extension/) - **Dailycannon.com**
-7. [Meghoma: I’ve come back from Rangers loan a different player](https://www.brentfordfc.com/en/news/article/interviews-jayden-meghoma-pre-season-portugal-2026-rangers-loan) - **Brentfordfc.com**
-8. [Manchester United reluctant to sell Marcus Rashford to Premier League rivals](https://cryptobriefing.com/manchester-united-reluctant-sell-rashford-rivals/) - **Crypto Briefing**
-9. [Opinion: Why this will be a tougher season for Arsenal to win the league](https://www.justarsenal.com/opinion-why-this-will-be-a-tougher-season-for-arsenal-to-win-the-league/418955) - **Just Arsenal News**
-10. [Xabi Alonso interested in bringing Bayer Leverkusen talent to Chelsea](https://bulinews.com/xabi-alonso-interested-bringing-bayer-leverkusen-talent-chelsea) - **Bulinews.com**
+1. [Manchester United enters race to sign Bologna defender Jhon Lucumi in crowded transfer battle](https://cryptobriefing.com/manchester-united-jhon-lucumi-bologna-transfer/) - **Crypto Briefing**
+2. ['He held no grudges' - Sir Alex pays tribute to Keegan](https://www.bbc.com/sport/football/articles/cjd4nym2mj7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [“Seriously Good Player” – Sheffield United Capture Experienced International](https://sheffunitedway.co.uk/2026/07/21/seriously-good-player-sheffield-united-capture-experienced-international/) - **Sheffunitedway.co.uk**
+4. [Guernsey veteran squad captain 'World Cup ready'](https://www.bbc.com/news/articles/cy4k70rnv7do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Report Summerville will join Roma for under €50m, despite Aston Villa interest](https://football-italia.net/report-summerville-will-join-roma-under-e50m/) - **Football Italia**
+6. [Aston Villa ready to get serious about €50m deal following record outgoing transfer](https://psgtalk.com/2026/07/aston-villa-ready-to-get-serious-about-e50m-winger-psg/) - **Psgtalk.com**
+7. [10 clubs paid the most by FIFA for releasing players to the 2026 World Cup](https://www.vanguardngr.com/2026/07/10-clubs-paid-the-most-by-fifa-for-releasing-players-to-the-2026-world-cup/) - **Vanguard**
+8. [Chelsea join Arsenal in transfer battle for John Stones](https://footballtoday.com/2026/07/21/chelsea-join-arsenal-in-transfer-battle-for-john-stones/) - **Footballtoday.com**
+9. [Van Oevelen will 'strengthen' us - O'Neil on goalkeeper signing](https://www.bbc.com/sport/football/articles/cwyrd1krn09o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Ipswich Town confirm signing of Kayne van Oevelen](https://www.playmakerstats.com/news/ipswich-town-confirm-signing-of-kayne-van-oevelen/1160038) - **Playmakerstats.com**
 
 
 ---
-*최근 업데이트: 2026-07-22 20:21:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-22 22:07:39 (KST) / (하루 100회 제한 준수 중)*
