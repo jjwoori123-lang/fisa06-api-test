@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Rafael Leao drops Galatasaray and Fenerbahce hints, scrubs Milan from profile](https://football-italia.net/rafael-leao-drops-galatasaray-fenerbahce-hints/) - **Football Italia**
-2. [Everton Receive Boost In Signing £40m Defender: Why Is It A Big Risk?](https://the4thofficial.net/2026/07/everton-receive-boost-in-signing-40m-defender-why-is-it-a-big-risk/) - **The4thofficial.net**
-3. [Looking at Tarik Skubal’s trade value](https://www.blessyouboys.com/detroit-tigers-opinions-analysis/94727/detroit-tigers-tarik-skubal-trade-value) - **Bless You Boys**
-4. [Liverpool FC in talks to sell minority stake to Mittal-backed consortium](https://www.aljazeera.com/sports/2026/7/21/liverpool-fc-in-talks-to-sell-minority-stake-to-mittal-backed-consortium) - **Al Jazeera English**
-5. [Liverpool owners in talks with consortium over minority stake](https://footballtoday.com/2026/07/21/liverpool-owners-in-talks-with-consortium-over-minority-stake/) - **Footballtoday.com**
-6. [Morato out, Bergvall in? Your Nottingham Forest squad tweaks](https://www.bbc.com/sport/football/articles/cz7dqnn3yppo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [What made the 2026 FIFA World Cup so special?](https://www.bavarianfootballworks.com/fifa-world-cup/233970/what-made-the-2026-fifa-world-cup-so-special-usa-canada-mexico-spain) - **Bavarian Football Works**
-8. [Spain dominate the defence, there's a surprise name in goal... but Harry Kane is edged out: Stats boffins reveal their World Cup team of the tournament](https://www.dailymail.com/sport/football/article-15992831/Spain-dominate-defence-theres-surprise-goal-Harry-Kane-edged-Stats-boffins-reveal-World-Cup-team-tournament.html) - **Dailymail.com**
-9. [Spain dominate the defence, there's a surprise name in goal... but Harry Kane is edged out: Stats boffins reveal their World Cup team of the tournament](https://www.dailymail.com/sport/football/article-15992831/Spain-dominate-defence-theres-surprise-goal-Harry-Kane-edged-Stats-boffins-reveal-World-Cup-team-tournament.html) - **Dailymail.com**
+1. [Red Sox Release Fireball Pitching Gem After Inspiring Journey](https://www.forbes.com/sites/peterchawaga/2026/07/21/red-sox-release-fireball-pitching-gem-after-inspiring-journey/) - **Forbes**
+2. [It’s Coming Home: The Story of English Footall’s Unofficial Anthem](https://anglotopia.net/british-sport/its-coming-home-the-story-of-english-footalls-unofficial-anthem/) - **Anglotopia.net**
+3. [Man City striker exits for League Two club in six-figure transfer – Future clause included](https://cityxtra.co.uk/50072/man-city-striker-exits-for-league-two-club-in-six-figure-transfer-future-clause-included/) - **Cityxtra.co.uk**
+4. [West Ham’s Summerville set for Saudi switch amid Aston Villa interest](https://www.101greatgoals.com/football/premier-league/west-hams-summerville-saudi-switch-aston-villa-interest/) - **101 Great Goals**
+5. [Liverpool targets Manchester United’s Connor Hunter as new academy head](https://cryptobriefing.com/liverpool-targets-hunter-manchester-united-academy/) - **Crypto Briefing**
+6. [Disasi targeted by Roma, but Chelsea want €20m for defender](https://football-italia.net/disasi-targeted-by-roma-but-chelsea-want-e20m/) - **Football Italia**
+7. [Update On The Future Of This Manchester City Midfielder: What Should Maresca Do?](https://the4thofficial.net/2026/07/update-on-the-future-of-this-manchester-city-midfielder-3/) - **The4thofficial.net**
+8. [Chelsea consider move for free agent John Stones](https://sportsview.co.uk/2026/07/chelsea-consider-move-for-free-agent-john-stones?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-consider-move-for-free-agent-john-stones) - **Sportsview.co.uk**
+9. [‘As a true competitor, he wanted to move on’ – Lens owner Joseph Oughourlian opens up on Pierre Sage’s move to Crystal Palace](https://www.getfootballnewsfrance.com/2026/as-a-true-competitor-he-wanted-to-move-on-lens-owner-joseph-oughourlian-opens-up-on-pierre-sages-move-to-crystal-palace/) - **Get French Football News**
+10. [Romero entourage in Inter talks, but Tottenham Hotspur want €50m](https://football-italia.net/romero-entourage-in-inter-talks-but-tottenham/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-07-23 03:08:11 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-23 04:48:14 (KST) / (하루 100회 제한 준수 중)*
