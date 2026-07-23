@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Garnacho to Aston Villa, Akliouche to Liverpool: Latest Premier League transfer news](https://www.nbcsports.com/soccer/news/garnacho-to-aston-villa-akliouche-to-liverpool-latest-premier-league-transfer-news) - **NBCSports.com**
-2. [Tierney strikes late as Bohemians seal comeback win](https://www.rte.ie/sport/soccer/2026/0722/1584511-tierney-strikes-late-as-bohemians-seal-comeback-win/) - **RTE**
-3. [Jon Sumrall Isn’t Here to Complain About the SEC](https://easysportz.com/2026/07/jon-sumrall-isnt-here-to-complain-about-the-sec/) - **Easysportz.com**
-4. [Villa agree loan deal for Chelsea winger Garnacho](https://www.bbc.com/sport/football/articles/cly9nrel0pyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Villa agree loan deal for Chelsea winger Garnacho](https://www.bbc.co.uk/sport/football/articles/cly9nrel0pyo) - **BBC News**
-6. [Liverpool issue over 400 lifetime bans in conjuction with Merseyside Police](https://anfieldindex.com/96379/liverpool-issue-over-400-lifetime-bans-in-conjuction-with-merseyside-police.html) - **Anfieldindex.com**
-7. [Premier League club not pursuing loan deal for Real Madrid wonderkid despite rumours](https://madriduniversal.com/premier-league-club-not-pursuing-loan-deal-for-real-madrid-wonderkid-despite-rumours/) - **Madriduniversal.com**
-8. [Manchester City ace commits to club until 2030 with new 4-year deal](https://eplindex.com/148635/manchester-city-ace-commits-to-club-until-2030-with-new-4-year-deal.html) - **English Premier League Index - Opta Stats**
-9. [Everton Have Stepped Up For €25m Forward: Why Is It A Gamble?](https://the4thofficial.net/2026/07/everton-have-stepped-up-for-e25m-forward-why-is-it-a-gamble/) - **The4thofficial.net**
-10. [Jeff Bezos Reportedly Might Join Bid for Liverpool Stake](https://frontofficesports.com/jeff-bezos-reportedly-might-join-bid-for-liverpool-stake/) - **Frontofficesports.com**
+1. [Saliba to miss extended period with back injury](https://www.bbc.com/sport/football/articles/c5yveezg9q3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Saliba to miss extended period with back injury](https://www.bbc.co.uk/sport/football/articles/c5yveezg9q3o) - **BBC News**
+3. [Official | William Saliba set to be out for extended period but will not undergo surgery](https://www.getfootballnewsfrance.com/2026/official-william-saliba-set-to-be-out-for-extended-period-but-will-not-undergo-surgery/) - **Get French Football News**
+4. [Liverpool Are Facing Stiff Competition For This Bournemouth Midfielder: Is He Worth The Fight?](https://the4thofficial.net/2026/07/liverpool-are-facing-stiff-competition-for-this-bournemouth-midfielder/) - **The4thofficial.net**
+5. [BREAKING: Saliba out for ‘extended period’ after back injury for France at World Cup](https://www.101greatgoals.com/football/premier-league/saliba-injury-arsenal-france-world-cup/) - **101 Great Goals**
+6. [ Arsenal offer medical update on William Saliba](https://onefootball.com/en/news/arsenal-offer-concerning-medical-update-on-william-saliba-43172737) - **Onefootball.com**
+7. [Manchester City are backing one of their own to get back to his scintillating best](https://esteemedkompany.com/2026/07/22/manchester-city-are-backing-one-of-their-own-to-get-back-to-his-scintillating-best/) - **Esteemedkompany.com**
+8. [Arsenal dealt major injury blow with Saliba set for lengthy spell out](https://hayters.com/arsenal-dealt-major-injury-blow-with-saliba-set-for-lengthy-spell-out/) - **Hayters.com**
+9. [Wrexham Women win on Champions League debut](https://www.bbc.com/sport/articles/c5yveexxz5do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Wrexham win on Women's Champions League debut](https://www.bbc.co.uk/sport/articles/c5yveexxz5do) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-07-24 04:21:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-24 05:39:47 (KST) / (하루 100회 제한 준수 중)*
