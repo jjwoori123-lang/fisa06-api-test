@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Jeff Bezos 'holds talks about investing in Liverpool' as Amazon founder considers joining bid for Premier League giants](https://www.dailymail.com/sport/football/article-15995221/jeff-bezos-liverpool-investment-talks.html) - **Dailymail.com**
-2. [Lucas Chevalier Makes PSG Future Decision After Difficult Season](https://psgworld.io/news/news/lucas-chevalier-makes-psg-future-decision-after-difficult-season) - **Psgworld.io**
-3. [Guest Post: A Gen Z Look at Fanatics Fest…](https://joefavorito.com/2026/07/22/guest-post-a-gen-z-look-at-fanatics-fest/) - **Joefavorito.com**
-4. [Chelsea sign Rogers from Villa for reported UK record fee](https://sports.yahoo.com/articles/chelsea-sign-rogers-villa-reported-213429553.html) - **Yahoo Entertainment**
-5. [Missouri Valley's top quarterbacks set stage for exciting 2026 conference title race](https://www.mitchellrepublic.com/sports/college/missouri-valleys-top-quarterbacks-set-stage-for-exciting-2026-conference-title-race) - **Mitchellrepublic.com**
-6. [Former Germany international Holtby retires from professional football](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260722-99-124286/) - **Dpa-international.com**
-7. [Northwestern's Ryan Field Nearly Ready for Penn State's Inaugural Visit](https://www.si.com/college/pennstate/football/northwestern-ryan-field-nearly-ready-for-penn-state-inaugural-visit) - **Sports Illustrated**
-8. [Liverpool Ownership Talks Take Twist as Jeff Bezos Enters Picture](https://anfieldindex.com/96344/liverpool-ownership-talks-take-twist-as-jeff-bezos-enters-picture.html) - **Anfieldindex.com**
-9. [Wayne Rooney's best one-liners and funny moments after he left World Cup viewers in hysterics with his cutting review of 'c**p' halftime show](https://www.dailymail.com/tvshowbiz/article-15992781/Wayne-Rooney-one-liners-funny-moments-World-Cup.html) - **Dailymail.com**
-10. [Chelsea, Arsenal and Spurs all want Rashford - Wednesday's gossip](https://www.bbc.com/sport/football/articles/c70g8j875klo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Aston Villa's Morgan Rogers Joins Chelsea In Record-Breaking $157 Million Deal](https://www.rediff.com/sports/report/england-premier-league-aston-villa-morgan-rogers-becomes-most-expensive-british-player-joins-chelsea-in-record-breaking-157-million-deal/20260722.htm) - **Rediff.com**
+2. [Emiliano Martinez Post Heartfelt Message Following World Cup Final Loss](https://heavy.com/sports/soccer/emiliano-martinez-heartfelt-message-wc-loss/) - **Heavy.com**
+3. [Lalit Modi gets relief as Tribunal quashes ED penalty in 2009 IPL South Africa FEMA case](https://www.thehindubusinessline.com/news/lalit-modi-gets-relief-as-tribunal-quashes-ed-penalty-in-2009-ipl-south-africa-fema-case/article71251957.ece) - **BusinessLine**
+4. [Durosinmi set to become Genk’s record signing](https://punchng.com/durosinmi-set-to-become-genks-record-signing/) - **The Punch**
+5. [Osimhen still on Man United radar](https://punchng.com/osimhen-still-on-man-united-radar/) - **The Punch**
+6. [Nigerian stars spark ‘lesser clubs’ transfer debate](https://punchng.com/nigerian-stars-spark-lesser-clubs-transfer-debate/) - **The Punch**
+7. [I’m too old for Arsenal – Aina](https://punchng.com/im-too-old-for-arsenal-aina/) - **The Punch**
+8. [NW 509 Stars reach Connie Mack World Series; American Legion state tourneys in Spokane](http://www.spokesman.com/stories/2026/jul/21/nw-509-stars-reach-connie-mack-world-series-americ/) - **The Spokesman-Review**
+9. [Recap of what Will Stein had to say at SEC Media Days](https://www.aseaofblue.com/kentucky-wildcats-football/176378/recap-will-stein-sec-media-days) - **A Sea Of Blue**
+10. [Why Football Clubs Perform Thorough Medical Exams Before Signing Players: Lessons From Morgan Rogers' Transfer](https://www.medicaldaily.com/morgan-rogers-transfer-medical-football-club-physical-exam-476228) - **Medical Daily**
 
 
 ---
-*최근 업데이트: 2026-07-23 10:11:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-23 13:40:06 (KST) / (하루 100회 제한 준수 중)*
