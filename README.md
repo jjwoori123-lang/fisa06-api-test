@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Saliba to miss extended period with back injury](https://www.bbc.com/sport/football/articles/c5yveezg9q3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Saliba to miss extended period with back injury](https://www.bbc.co.uk/sport/football/articles/c5yveezg9q3o) - **BBC News**
-3. [Official | William Saliba set to be out for extended period but will not undergo surgery](https://www.getfootballnewsfrance.com/2026/official-william-saliba-set-to-be-out-for-extended-period-but-will-not-undergo-surgery/) - **Get French Football News**
-4. [Liverpool Are Facing Stiff Competition For This Bournemouth Midfielder: Is He Worth The Fight?](https://the4thofficial.net/2026/07/liverpool-are-facing-stiff-competition-for-this-bournemouth-midfielder/) - **The4thofficial.net**
-5. [BREAKING: Saliba out for ‘extended period’ after back injury for France at World Cup](https://www.101greatgoals.com/football/premier-league/saliba-injury-arsenal-france-world-cup/) - **101 Great Goals**
-6. [ Arsenal offer medical update on William Saliba](https://onefootball.com/en/news/arsenal-offer-concerning-medical-update-on-william-saliba-43172737) - **Onefootball.com**
-7. [Manchester City are backing one of their own to get back to his scintillating best](https://esteemedkompany.com/2026/07/22/manchester-city-are-backing-one-of-their-own-to-get-back-to-his-scintillating-best/) - **Esteemedkompany.com**
-8. [Arsenal dealt major injury blow with Saliba set for lengthy spell out](https://hayters.com/arsenal-dealt-major-injury-blow-with-saliba-set-for-lengthy-spell-out/) - **Hayters.com**
-9. [Wrexham Women win on Champions League debut](https://www.bbc.com/sport/articles/c5yveexxz5do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Wrexham win on Women's Champions League debut](https://www.bbc.co.uk/sport/articles/c5yveexxz5do) - **BBC News**
+1. [Arsenal defender Saliba out for extended period, says club](https://www.channelnewsasia.com/sport/arsenal-defender-saliba-out-extended-period-says-club-6272001) - **CNA**
+2. [Revealed: How gruelling World Cup affects YOUR club as new stats show which Premier League team's stars have played the most minutes - with new season just 30 DAYS away](https://www.dailymail.com/sport/football/article-15990511/How-World-Cup-Affects-PL-Club.html) - **Dailymail.com**
+3. [Ruben Amorim’s AC Milan are reportedly open to part ways with Samuele Ricci in €20M transfer move](https://worldsoccertalk.com/news/ruben-amorims-ac-milan-are-reportedly-open-to-part-ways-with-samuele-ricci-in-eur20m-transfer-move/) - **Worldsoccertalk.com**
+4. [Chelsea Are Showing Interest In This Talented Full-Back: Should Alonso Get Him On Board?](https://the4thofficial.net/2026/07/chelsea-are-showing-interest-in-this-talented-full-back/) - **The4thofficial.net**
+5. [Apple TV's New 10-Part Dystopian Sci-Fi Adventure Succeeds In Its Hardest Task](https://screenrant.com/apple-tv-silo-season-3-juliette-memory-loss-hardest-task/) - **Screen Rant**
+6. [Arsenal: Noble Or Naive To Refuse Inflated Transfer Fees?](https://www.justarsenal.com/arsenal-noble-or-naive-to-refuse-inflated-transfer-fees/419049) - **Just Arsenal News**
+7. [Topps unveils one-of-a-kind Shohei Ohtani Gold Logoman card](https://www.usatoday.com/story/sports/mlb/dodgers/2026/07/22/shohei-ohtani-dodgers-exclusive-topps-gold-logoman-card/91012329007/) - **USA Today**
+8. [Arsenal Are Keeping Tabs On This Talented Centre-Forward: One For The Future?](https://the4thofficial.net/2026/07/arsenal-are-keeping-tabs-on-this-talented-centre-forward/) - **The4thofficial.net**
+9. [Two more key pieces are set to sign contract extensions at Manchester City](https://esteemedkompany.com/2026/07/22/two-more-key-pieces-are-set-to-sign-contract-extensions-at-manchester-city/) - **Esteemedkompany.com**
+10. [Arsenal searching for a new centre back with William Saliba out for ‘extend period’](https://www.getfootballnewsfrance.com/2026/arsenal-searching-for-a-new-centre-back-with-william-saliba-out-for-extend-period/) - **Get French Football News**
 
 
 ---
-*최근 업데이트: 2026-07-24 05:39:47 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-24 06:43:06 (KST) / (하루 100회 제한 준수 중)*
