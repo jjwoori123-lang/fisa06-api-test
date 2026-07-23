@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [2026 Lanka Premier League Winner Odds — Predictions, Schedule](https://www.sportingnews.com/in/cricket/news/2026-lanka-premier-league-winner-odds-predictions-schedule/e8710538166ebf05e9230519) - **Sporting News**
-2. [How Spain Became Football’s New Global Superpower](https://footballtoday.com/2026/07/22/spain-world-cup-barcelona-real-madrid-champions-league/) - **Footballtoday.com**
-3. [Vinicius Jr’s birthday message to Erling Haaland sparks Man City transfer talk amid uncertain Real Madrid future](https://cityxtra.co.uk/50091/vinicius-jrs-birthday-message-to-erling-haaland-sparks-man-city-transfer-talk-amid-uncertain-real-madrid-future/) - **Cityxtra.co.uk**
-4. [Nottingham Forest submits €40M bid for Ousmane Diomandé from Sporting CP](https://cryptobriefing.com/nottingham-forest-diomande-bid-sporting/) - **Crypto Briefing**
-5. [Crystal Palace have now refused to sign Evann Guessand despite clear pathway to a deal](https://sportsview.co.uk/2026/07/crystal-palace-have-now-refused-to-sign-evann-guessand-despite-clear-pathway-to-a-deal?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=crystal-palace-have-now-refused-to-sign-evann-guessand-despite-clear-pathway-to-a-deal) - **Sportsview.co.uk**
-6. [Erling Haaland buys historic Christian manuscript, donates it to local library](https://www.christiantoday.com/news/erling-haaland-buys-historic-christian-manuscript-donates-it-to-local-library) - **Christiantoday.com**
-7. [Morgan Rogers ‘really excited’ as Chelsea beat Arsenal to record-breaking transfer](https://thefootballfaithful.com/morgan-rogers-chelsea-transfer-aston-villa-arsenal/) - **The Football Faithful**
-8. [Jose Mourinho informs 23-year-old Real Madrid star he has no place in next season’s plans](https://madriduniversal.com/jose-mourinho-informs-23-year-old-real-madrid-star-he-has-no-place-in-next-seasons-plans/) - **Madriduniversal.com**
-9. [Chelsea break British transfer record to sign Aston Villa's Morgan Rogers in €137 million deal](https://www.the42.ie/morgan-rogers-becomes-chelseas-record-signing-in-e137-million-deal-7109725-Jul2026/) - **The42**
+1. [Bezos holds talks with group interested in buying Liverpool stake – Reports](https://www.vanguardngr.com/2026/07/bezos-holds-talks-with-group-interested-in-buying-liverpool-stake-reports/) - **Vanguard**
+2. [Villa 'progressing' in deal to sign Alejandro Garnacho](https://www.playmakerstats.com/news/villa-progressing-in-deal-to-sign-alejandro-garnacho/1160440) - **Playmakerstats.com**
+3. [Barcelona growing increasingly concerned over World Cup hero’s future as PSG, Premier League lurk](https://barcauniversal.com/barcelona-growing-increasingly-concerned-over-world-cup-heros-future-as-psg-premier-league-lurk/) - **Barcauniversal.com**
+4. [FULL LIST: Top 10 most expensive British transfers in EPL history](https://punchng.com/full-list-top-10-most-expensive-british-transfers-in-epl-history/) - **The Punch**
+5. [Al-Hilal in direct contact with Roma for Manchester United target Kone](https://football-italia.net/al-hilal-direct-contact-with-roma-for-kone/) - **Football Italia**
+6. [Barcelona will consider move for Tottenham star only one one condition – Romano](https://barcauniversal.com/barcelona-will-consider-move-for-tottenham-star-only-one-one-condition-romano/) - **Barcauniversal.com**
+7. [Bezos holds talks with group interested in buying Liverpool stake: reports](https://sports.yahoo.com/articles/bezos-holds-talks-group-interested-090912038.html) - **Yahoo Entertainment**
+8. [Rockford youth football teams head to national stage](https://www.rrstar.com/story/news/local/2026/07/22/rockford-youth-teams-set-for-nfl-flag-championships/90999948007/) - **Rockford Register Star**
+9. ['More professional than Virat': Dinesh Karthik names Australian star who amazed him in the IPL](https://www.cricketnews.com/en/cricket/news/more-professional-virat-dinesh-karthik-australian-ipl/2dd5297f334dd0e4045f462b) - **Cricketnews.com**
 
 
 ---
-*최근 업데이트: 2026-07-23 16:19:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-23 18:42:56 (KST) / (하루 100회 제한 준수 중)*
