@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal defender Saliba out for extended period, says club](https://www.channelnewsasia.com/sport/arsenal-defender-saliba-out-extended-period-says-club-6272001) - **CNA**
-2. [Revealed: How gruelling World Cup affects YOUR club as new stats show which Premier League team's stars have played the most minutes - with new season just 30 DAYS away](https://www.dailymail.com/sport/football/article-15990511/How-World-Cup-Affects-PL-Club.html) - **Dailymail.com**
-3. [Ruben Amorim’s AC Milan are reportedly open to part ways with Samuele Ricci in €20M transfer move](https://worldsoccertalk.com/news/ruben-amorims-ac-milan-are-reportedly-open-to-part-ways-with-samuele-ricci-in-eur20m-transfer-move/) - **Worldsoccertalk.com**
-4. [Chelsea Are Showing Interest In This Talented Full-Back: Should Alonso Get Him On Board?](https://the4thofficial.net/2026/07/chelsea-are-showing-interest-in-this-talented-full-back/) - **The4thofficial.net**
-5. [Apple TV's New 10-Part Dystopian Sci-Fi Adventure Succeeds In Its Hardest Task](https://screenrant.com/apple-tv-silo-season-3-juliette-memory-loss-hardest-task/) - **Screen Rant**
-6. [Arsenal: Noble Or Naive To Refuse Inflated Transfer Fees?](https://www.justarsenal.com/arsenal-noble-or-naive-to-refuse-inflated-transfer-fees/419049) - **Just Arsenal News**
-7. [Topps unveils one-of-a-kind Shohei Ohtani Gold Logoman card](https://www.usatoday.com/story/sports/mlb/dodgers/2026/07/22/shohei-ohtani-dodgers-exclusive-topps-gold-logoman-card/91012329007/) - **USA Today**
-8. [Arsenal Are Keeping Tabs On This Talented Centre-Forward: One For The Future?](https://the4thofficial.net/2026/07/arsenal-are-keeping-tabs-on-this-talented-centre-forward/) - **The4thofficial.net**
-9. [Two more key pieces are set to sign contract extensions at Manchester City](https://esteemedkompany.com/2026/07/22/two-more-key-pieces-are-set-to-sign-contract-extensions-at-manchester-city/) - **Esteemedkompany.com**
-10. [Arsenal searching for a new centre back with William Saliba out for ‘extend period’](https://www.getfootballnewsfrance.com/2026/arsenal-searching-for-a-new-centre-back-with-william-saliba-out-for-extend-period/) - **Get French Football News**
+1. [Saliba set for 'extended period' on sidelines with back injury](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260723-99-134532/) - **Dpa-international.com**
+2. [Rangers 2 Saint-Etienne 1: McInnes off to a solid start as new Ibrox era kicks off with victory... and anger towards the SFA](https://www.dailymail.com/sport/football/article-15997931/Rangers-2-Saint-Etienne-1-McInnes-solid-start-new-Ibrox-era-kicks-victory-anger-SFA.html) - **Dailymail.com**
+3. [Andoni Iraola addresses Alexis Mac Allister’s Liverpool future after great 2026 World Cup performance](https://worldsoccertalk.com/news/andoni-iraola-addresses-alexis-mac-allisters-liverpool-future-after-great-2026-world-cup-performance/) - **Worldsoccertalk.com**
+4. ['No better person in the box to finish' - Robinson on Nisbet](https://www.bbc.com/sport/articles/c0km5gl6ky6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Star footballer's protest over transfer leads to training cancellation](https://www.abc.net.au/news/2026-07-23/tolu-arokodare-forces-wolves-training-cancellation/106947528) - **ABC News (AU)**
+6. [World Cup winners rewarded for heroics with bodyweight in tomatoes upon return home](https://www.alloutsoccer.com/news/world-cup-ruiz-gavi-tomatoes-1951173) - **Alloutsoccer.com**
+7. [Arsenal defender William Saliba to be sidelined for 'extended period' because of back injury](https://sports.yahoo.com/articles/arsenal-defender-william-saliba-sidelined-220500874.html) - **Yahoo Entertainment**
+8. [The U.S.'s World Cup final viewer numbers are validation of soccer's potential in country](https://ftw.usatoday.com/story/sports/soccer/2026/07/22/world-cup-final-united-states-tv-audience-viewers-soccer-growth/91015356007/) - **USA Today**
+9. [Papers: Rodri pushing for Real Madrid move](https://www.skysports.com/football/transfer-paper-talk/12709/13566135/man-city-transfer-news-rodri-pushing-for-real-madrid-move-despite-being-set-to-undergo-back-surgery) - **Sky Sports**
+10. [Arsenal defender Saliba out for extended period, says club](https://www.channelnewsasia.com/sport/arsenal-defender-saliba-out-extended-period-says-club-6272001) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-07-24 06:43:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-24 07:58:31 (KST) / (하루 100회 제한 준수 중)*
