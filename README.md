@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [USMNT midfielder Gianluca Busio to captain Venezia in Serie A](https://www.usatoday.com/story/sports/soccer/usmnt/2026/07/23/gianluca-busio-venezia-captain-usmnt/91024306007/) - **USA Today**
-2. [The 9 All‑Time Greatest Teen Superhero Teams Who Deserve a Film Adaptation ASAP](https://www.pfadvice.com/2026/07/23/the-9-all-time-greatest-teen-superhero-teams-who-deserve-a-film-adaptation-asap/) - **Pfadvice.com**
-3. [Transfer round-up: Milan done deal and double contract extension, Roma in Nusa talks](https://football-italia.net/transfer-round-up-roma-in-nusa-talks-milan/) - **Football Italia**
-4. [Darrelle Revis reflects on confidence with Jets in Hall of Fame career](https://jetswire.usatoday.com/story/sports/nfl/jets/2026/07/23/darrelle-revis-confidence-new-york-jets-hall-of-fame-career-nfl/90977536007/) - **USA Today**
-5. [Jeff Bezos has been approached to buy a stake in Liverpool FC. Amazon already holds the Premier League TV rights.](https://thenextweb.com/news/jeff-bezos-liverpool-fc-stake-consortium-fsg/) - **The Next Web**
-6. [Man United considering £35m move for Bournemouth star Tyler Adams to add to £85m midfield overhaul](https://www.dailymail.com/sport/football/article-16000677/Man-United-considering-35m-Bournemouth-star-Tyler-Adams-add-85m-midfield-overhaul.html) - **Dailymail.com**
-7. [Man United considering £35m move for Bournemouth star Tyler Adams to add to £85m midfield overhaul](https://www.dailymail.com/sport/football/article-16000677/Man-United-considering-35m-Bournemouth-star-Tyler-Adams-add-85m-midfield-overhaul.html) - **Dailymail.com**
-8. [10 transfer stories to keep an eye on in the coming weeks.](https://www.footballmuse.com/features/10-transfer-stories-to-keep-an-eye-on-in-the-coming-weeks) - **Footballmuse.com**
-9. [Garnacho will need to raise his game](https://www.bbc.com/sport/football/articles/clyjk9y3zgro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Update On The Future Of This Sunderland Striker: Should Le Bris Cut Him Loose?](https://the4thofficial.net/2026/07/update-on-the-future-of-this-sunderland-striker/) - **The4thofficial.net**
+2. [Fabrizio Romano confirms Chelsea are closing in on another new signing](https://eplindex.com/148687/fabrizio-romano-confirms-chelsea-are-closing-in-on-another-new-signing.html) - **English Premier League Index - Opta Stats**
+3. [Inter Milan, Bayern Munich, Crystal Palace among the best new kits ahead of the 2026/27 season](https://sports.yahoo.com/soccer/article/inter-milan-bayern-munich-crystal-palace-among-the-best-new-kits-ahead-of-the-202627-season-194259721.html) - **Yahoo Entertainment**
+4. [Arsenal announce $45 million signing of Greece international Christos Tzolis](https://www.alloutsoccer.com/news/arsenal-signing-greece-christos-tzolis-1952474) - **Alloutsoccer.com**
+5. [25-Year-Old Rangers Player Has Rejected Hull City: What Should The Ibrox Club Do Now?](https://the4thofficial.net/2026/07/25-year-old-rangers-player-has-rejected-hull-city-what-should-the-ibrox-club-do-now/) - **The4thofficial.net**
+6. [Said El Mala Emerges as Nusa Alternative](https://www.chiesaditotti.com/as-roma-transfer-news-rumors/41968/roma-said-el-mala-transfer) - **Chiesa Di Totti**
+7. [Leeds United Make A Big Decision On 25-Year-Old Winger: What’s The Best For The Whites?](https://the4thofficial.net/2026/07/leeds-united-make-a-big-decision-on-25-year-old-winger-whats-the-best-for-the-whites/) - **The4thofficial.net**
+8. [Inter.co Stadium Marks Next Chapter in Partnership with Orlando City SC & Orlando Pride](https://www.globenewswire.com/news-release/2026/07/23/3332508/0/en/Inter-co-Stadium-Marks-Next-Chapter-in-Partnership-with-Orlando-City-SC-Orlando-Pride.html) - **GlobeNewswire**
+9. [Italy confirm Ancelotti approach before Guardiola](https://www.bbc.com/sport/football/articles/c36d0291z6no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Report: Liverpool transfer target available for £68m this summer](https://anfieldindex.com/96459/report-liverpool-transfer-target-available-for-68m-this-summer.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-07-25 03:19:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-25 04:52:04 (KST) / (하루 100회 제한 준수 중)*
