@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United Are Facing Stiff Competition For This Serie A Winger: Should Carrick Snap Him Up?](https://the4thofficial.net/2026/07/manchester-united-are-facing-stiff-competition-for-this-serie-a-winger-should-carrick-snap-him-up/) - **The4thofficial.net**
-2. [Report: Arsenal submit £72.5m bid to sign Premier League star](https://eplindex.com/148688/report-arsenal-submit-72-5m-bid-to-sign-premier-league-star.html) - **English Premier League Index - Opta Stats**
-3. [Stuttgart divided over Ermedin Demirovic’s future amid interest from Leeds and others](https://www.getfootballnewsgermany.com/2026/ermedin-demirovic-leeds-link/) - **Getfootballnewsgermany.com**
-4. [Liverpool Moves Massive for Barcola as Salah Void Stuns Fans](https://easysportz.com/2026/07/liverpool-moves-massive-for-barcola-as-salah-void-stuns-fans/) - **Easysportz.com**
-5. [Hull City unveil retro-inspired white away kit](https://www.bbc.com/news/articles/clyx5ednjjeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Boston Red Sox’ Cool Winter Pitching Plan Made Red-Hot Summer Win Streak](https://www.forbes.com/sites/chuckmurr/2026/07/23/boston-red-sox-cool-winter-pitching-plan-made-red-hot-summer-streak/) - **Forbes**
-7. [Arsenal Are Showing Interest In This Bundesliga Winger: What Will He Bring To North London?](https://the4thofficial.net/2026/07/arsenal-are-showing-interest-in-this-bundesliga-winger/) - **The4thofficial.net**
-8. [Liverpool Have Launched A Move For This Ligue 1 Playmaker: Good Choice For Iraola?](https://the4thofficial.net/2026/07/liverpool-have-launched-a-move-for-this-ligue-1-playmaker-good-choice-for-iraola/) - **The4thofficial.net**
-9. [Major League Soccer Comes Roaring Back From The World Cup Break With The Most Embarrassing Own Goal](https://kotaku.com/major-league-soccer-comes-roaring-back-from-the-world-cup-break-with-the-most-embarrassing-own-goal-2000718854) - **Kotaku**
-10. [Update On The Future Of This Sunderland Striker: Should Le Bris Cut Him Loose?](https://the4thofficial.net/2026/07/update-on-the-future-of-this-sunderland-striker/) - **The4thofficial.net**
+1. [Chairman helping negotiate £52m-plus transfer for Liverpool target as deal nears completion](https://www.empireofthekop.com/2026/07/23/chairman-helping-negotiate-52m-plus-transfer-for-liverpool-target-as-deal-nears-completion/) - **Empire of The Kop**
+2. [Seahawks hold tryout with Australia’s tallest National Rugby League player](https://www.fieldgulls.com/seattle-seahawks-news/170884/seahawks-tryout-ben-te-kura-australia-tallest-ever-national-rugby-league-player-nfl-news) - **Field Gulls**
+3. [Arsenal’s famous footballing families – The brothers who wore the shirt](https://www.justarsenal.com/arsenals-famous-footballing-families-the-brothers-who-wore-the-shirt/419086) - **Just Arsenal News**
+4. [‘Michael Olise won’t move’ — pundit makes strong declaration on Bayern Munich star](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/234557/michael-olise-wont-move-pundit-makes-strong-declaration-on-bayern-munich-star) - **Bavarian Football Works**
+5. [Man Utd handed Tchouameni boost - Friday's gossip](https://www.bbc.com/sport/football/articles/cedjnz7wxy6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Man Utd handed Tchouameni boost - Friday's gossip](https://www.bbc.co.uk/sport/football/articles/cedjnz7wxy6o) - **BBC News**
+7. [Why Fanatics Should Launch The Disney World For Sports](https://www.thefourthquarter.co/p/why-fanatics-should-launch-the-disney-world-for-sports) - **Thefourthquarter.co**
+8. [Liverpool target agrees four-year deal as Ornstein confirms medical done on Tuesday](https://www.empireofthekop.com/2026/07/23/liverpool-target-agrees-four-year-deal-as-ornstein-confirms-medical-done-on-tuesday/) - **Empire of The Kop**
+9. [Papers: Valuations of several Man Utd midfield targets revealed](https://www.skysports.com/football/transfer-paper-talk/12709/13566448/man-utd-transfer-news-eduardo-camavinga-valuation-revealed-amid-interest-in-real-madrid-midfielder) - **Sky Sports**
+10. [Are Manchester City distorting the transfer market?](https://cityxtra.co.uk/50033/are-manchester-city-distorting-the-transfer-market/) - **Cityxtra.co.uk**
 
 
 ---
-*최근 업데이트: 2026-07-25 06:06:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-25 07:29:51 (KST) / (하루 100회 제한 준수 중)*
