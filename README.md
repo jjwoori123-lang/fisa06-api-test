@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United supporters blast club over season ticket clampdown](https://footballtoday.com/2026/07/23/manchester-united-supporters-blast-club-over-season-ticket-clampdown/) - **Footballtoday.com**
-2. [Arsenal's Saliba set for 'extended period' on sidelines](https://www.rte.ie/sport/soccer/2026/0723/1584718-arsenals-saliba-set-for-extended-period-on-sidelines/) - **RTE**
-3. [2026/27 Football Calendar: Every Key Date for the New Season](https://footballtoday.com/2026/07/23/football-calendar-2627/) - **Footballtoday.com**
-4. [Bournemouth turn down Chelsea bid for Alex Scott](https://sportsview.co.uk/2026/07/bournemouth-turn-down-chelsea-bid-for-alex-scott?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=bournemouth-turn-down-chelsea-bid-for-alex-scott) - **Sportsview.co.uk**
-5. [Thursday’s Everton News: Stones competition, Rowe, Hauge and Johnston links](https://royalbluemersey.sbnation.com/everton-news/81480/stones-chelsea-rumours-rowe-hauge-johnston-transfer-links) - **SB Nation**
-6. [Report: Arsenal favourites to sign 22-year-old Premier League star](https://eplindex.com/148653/report-arsenal-favourites-to-sign-22-year-old-premier-league-star.html) - **English Premier League Index - Opta Stats**
-7. [Who am I? Guess Premier League star No 3](https://www.bbc.co.uk/sport/football/articles/c5yw3yv2jxgo) - **BBC News**
-8. [Who is Mayank Yadav? LSG speedster, first in IPL history to win back-to-back player of the match awards on debut, could return for India vs Zimbabwe series](https://economictimes.indiatimes.com/news/new-updates/who-is-mayank-yadav-lsg-speedster-first-in-ipl-history-to-win-back-to-back-player-of-the-match-awards-on-debut-could-return-for-india-vs-zimbabwe-series/articleshow/132572365.cms) - **The Times of India**
+1. [Chelsea set to announce Barco signing imminently](https://thefootballfaithful.com/chelsea-are-due-to-announce-the-signing-of-valentin-barco-from-strasbourg/) - **The Football Faithful**
+2. [Garnacho obligation ‘almost guaranteed’ ahead of Villa loan](https://thefootballfaithful.com/garnacho-obligation-almost-guaranteed-ahead-of-villa-loan/) - **The Football Faithful**
+3. [Arsenal confirm Saliba out for ‘extended period’ with back issue](https://thefootballfaithful.com/arsenal-confirm-saliba-out-for-extended-period-with-back-issue/) - **The Football Faithful**
+4. [Lacroix and Scott ‘want’ Chelsea transfers as talks continue](https://thefootballfaithful.com/lacroix-and-scott-want-chelsea-transfers-as-talks-continue/) - **The Football Faithful**
+5. [Arsenal receive formal offer for 26yo midfielder](https://dailycannon.com/2026/07/hamburg-fabio-vieira-offer/) - **Dailycannon.com**
+6. [Phil Foden excited for Maresca era at Man City](https://thefootballfaithful.com/phil-foden-excited-for-maresca-era-at-man-city/) - **The Football Faithful**
+7. [DFB agree donation to Red Bull foundation as part of Klopp deal](https://bulinews.com/dfb-agree-donation-red-bull-foundation-part-klopp-deal) - **Bulinews.com**
+8. [Gil Tells Laporta to Stop: Atlético Won’t Sell Alvarez at Any Price](https://www.football-espana.net/2026/07/23/julian-alvarez-transfer-atletico-gil-laporta) - **Football Espana**
+9. [Camavinga Won’t Leave Real Madrid — But United Are Already Waiting](https://strettynews.com/2026/07/23/camavinga-transfer-manchester-united-waiting/) - **Strettynews.com**
+10. [Arsenal set to announce the signing of Christos Tzolis today, he will wear number 17](https://sportsview.co.uk/2026/07/arsenal-set-to-announce-the-signing-of-christos-tzolis-today-he-will-wear-number-17?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-set-to-announce-the-signing-of-christos-tzolis-today-he-will-wear-number-17) - **Sportsview.co.uk**
 
 
 ---
-*최근 업데이트: 2026-07-24 15:27:39 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-24 18:07:52 (KST) / (하루 100회 제한 준수 중)*
