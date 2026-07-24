@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bangladesh president, backed by ousted PM Sheikh Hasina, to resign on Friday, say sources](https://economictimes.indiatimes.com/news/international/world-news/bangladesh-president-backed-by-ousted-pm-sheikh-hasina-to-resign-on-friday-say-sources/articleshow/132587510.cms) - **The Times of India**
-2. [Bangladesh president, backed by ousted PM Hasina, to resign on Friday, say sources](https://economictimes.indiatimes.com/news/international/world-news/bangladesh-president-backed-by-ousted-pm-hasina-to-resign-on-friday-say-sources/articleshow/132587510.cms) - **The Times of India**
-3. [Unbeaten Nongkseh Enter SPL 2026 as Team to Beat](https://southasiaviews.com/featured/unbeaten-nongkseh-enter-spl-2026-as-team-to-beat/) - **Southasiaviews.com**
-4. [Jason Sudeikis’ staggering ‘Ted Lasso’ Season 4 paycheck revealed — and why he initially turned it down](https://pagesix.com/2026/07/23/entertainment/jason-sudeikis-staggering-ted-lasso-paychecks-revealed/) - **Page Six**
-5. [EPL: Newcastle, Liverpool plan Kevin Keegan tribute ahead of Premier League opener](https://punchng.com/epl-newcastle-liverpool-plan-kevin-keegan-tribute-ahead-of-premier-league-opener/) - **The Punch**
-6. [EA Reveals FC 27 With Mbappé and Bellingham on the Cover, Out September 25](https://me.pcmag.com/en/gaming/37722/ea-reveals-fc-27-with-mbappe-and-bellingham-on-the-cover-out-september-25) - **PCMag.com**
-7. [Rodri injury update: What back surgery means for Man City season and Real Madrid transfer](https://www.sportingnews.com/us/soccer/manchester-city/news/rodri-injury-update-back-surgery-man-city-transfer/ac1dba2811c042c4fcbc5baa) - **Sporting News**
-8. [Blow for Fulham as Jose Mourinho plans to keep young forward at Real Madrid](https://footballtoday.com/2026/07/23/blow-for-fulham-as-jose-mourinho-plans-to-keep-young-forward-at-real-madrid/) - **Footballtoday.com**
-9. [Stuttgart consider four keepers to replace injured No. 1 Dennis Seimen; Ørjan Nyland among candidates](https://www.getfootballnewsgermany.com/2026/stuttgart-orjan-nyland/) - **Getfootballnewsgermany.com**
+1. [USMNT midfielder Gianluca Busio to captain Venezia in Serie A](https://www.usatoday.com/story/sports/soccer/usmnt/2026/07/23/gianluca-busio-venezia-captain-usmnt/91024306007/) - **USA Today**
+2. [The 9 All‑Time Greatest Teen Superhero Teams Who Deserve a Film Adaptation ASAP](https://www.pfadvice.com/2026/07/23/the-9-all-time-greatest-teen-superhero-teams-who-deserve-a-film-adaptation-asap/) - **Pfadvice.com**
+3. [Transfer round-up: Milan done deal and double contract extension, Roma in Nusa talks](https://football-italia.net/transfer-round-up-roma-in-nusa-talks-milan/) - **Football Italia**
+4. [Darrelle Revis reflects on confidence with Jets in Hall of Fame career](https://jetswire.usatoday.com/story/sports/nfl/jets/2026/07/23/darrelle-revis-confidence-new-york-jets-hall-of-fame-career-nfl/90977536007/) - **USA Today**
+5. [Jeff Bezos has been approached to buy a stake in Liverpool FC. Amazon already holds the Premier League TV rights.](https://thenextweb.com/news/jeff-bezos-liverpool-fc-stake-consortium-fsg/) - **The Next Web**
+6. [Man United considering £35m move for Bournemouth star Tyler Adams to add to £85m midfield overhaul](https://www.dailymail.com/sport/football/article-16000677/Man-United-considering-35m-Bournemouth-star-Tyler-Adams-add-85m-midfield-overhaul.html) - **Dailymail.com**
+7. [Man United considering £35m move for Bournemouth star Tyler Adams to add to £85m midfield overhaul](https://www.dailymail.com/sport/football/article-16000677/Man-United-considering-35m-Bournemouth-star-Tyler-Adams-add-85m-midfield-overhaul.html) - **Dailymail.com**
+8. [10 transfer stories to keep an eye on in the coming weeks.](https://www.footballmuse.com/features/10-transfer-stories-to-keep-an-eye-on-in-the-coming-weeks) - **Footballmuse.com**
+9. [Garnacho will need to raise his game](https://www.bbc.com/sport/football/articles/clyjk9y3zgro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-07-25 01:48:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-25 03:19:48 (KST) / (하루 100회 제한 준수 중)*
