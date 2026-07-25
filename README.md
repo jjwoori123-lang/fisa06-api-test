@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle sign Monaco midfielder Bamba on five-year deal](https://sports.yahoo.com/articles/newcastle-sign-monaco-midfielder-bamba-104559011.html) - **Yahoo Entertainment**
-2. [Anderson's rise to become Man City's record signing](https://www.bbc.com/sport/football/articles/cd695vdjy6eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [David Beckham, 51, looks just like son Cruz, 21, in throwback snap as he celebrates his father Ted's birthday](https://www.dailymail.com/tvshowbiz/article-16002235/David-Beckham-son-Cruz-throwback-snap-father-Ted-birthday.html) - **Dailymail.com**
-4. [Laxmi Mittal’s Rajasthan Royals deal sparks a shareholder feud in UK](https://economictimes.indiatimes.com/news/sports/cricket/laxmi-mittals-rajasthan-royals-deal-sparks-a-shareholder-feud-in-uk/articleshow/132602072.cms) - **The Times of India**
-5. [Fantasy Premier League is back: 40 best FPL team names for 2026-27](https://www.footballmuse.com/news/fantasy-premier-league-is-back-40-best-fpl-team-names-for-2026-27) - **Footballmuse.com**
-6. [Can Emery transform Aston Villa again?](https://www.bbc.com/sport/football/articles/cvgl819p188o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Klopp fires warning after signing as Germany coach until 2030](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260724-99-149357/) - **Dpa-international.com**
-8. ['Let's keep everything crossed' - why Trafford 'would be a top-tier signing'](https://www.bbc.com/sport/football/articles/cgew70rvq7yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Report: Newcastle United hold firm Bruno Gimaraes stance despite £70m offer](https://eplindex.com/148698/report-newcastle-united-hold-firm-bruno-gimaraes-stance-despite-70m-offer.html) - **English Premier League Index - Opta Stats**
-10. [Klopp fires warning after signing as Germany coach until 2030](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260724-99-149134/) - **Dpa-international.com**
+1. [Roger Bennett and ‘Men in Blazers’ look to harness ‘splintered’ American soccer audience](https://awfulannouncing.com/soccer/roger-bennett-men-in-blazers-splintered-american-audience.html) - **Awful Announcing**
+2. [LOI Preview: Big day in the battle to avoid the drop](https://www.rte.ie/sport/soccer/2026/0724/1584946-loi-preview-big-day-in-the-battle-to-avoid-the-drop/) - **RTE**
+3. [Grealish brings 'experience' and 'something different' - Lake](https://www.bbc.com/sport/football/articles/cj4knvqxvwlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Report: Liverpool still in the race for €100m forward](https://anfieldindex.com/96483/report-liverpool-still-in-the-race-for-e100m-forward.html) - **Anfieldindex.com**
+5. [Arsenal and Hamburger SV negotiate over Fabio Vieira transfer as valuation gap persists](https://cryptobriefing.com/arsenal-hsv-fabio-vieira-transfer-negotiations/) - **Crypto Briefing**
+6. [EPL: Chelsea agree to sign Lacroix from Crystal Palace](https://punchng.com/epl-chelsea-agree-to-sign-lacroix-from-crystal-palace/) - **The Punch**
+7. [Report: Crystal Palace in talks to sign Chelsea star](https://eplindex.com/148700/report-crystal-palace-in-talks-to-sign-chelsea-star.html) - **English Premier League Index - Opta Stats**
+8. [Daily Mail's Whistleblowers shortlisted for Best Sport Podcast at prestigious British Podcast Awards](https://www.dailymail.com/sport/football/article-16002499/whistleblowers-shortlisted-best-sport-podcast-british-podcast-awards.html) - **Dailymail.com**
+9. [A Game of Six Stats: The World Cup, Told in Clichés](https://blogs.opera.com/mobile/2026/07/a-game-of-six-stats-the-world-cup-told-in-cliches/) - **Opera.com**
+10. [Como submit new offer for Chalobah as Chelsea seal Lacroix deal](https://football-italia.net/como-submit-new-offer-for-chalobah/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-07-25 19:47:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-25 21:03:47 (KST) / (하루 100회 제한 준수 중)*
