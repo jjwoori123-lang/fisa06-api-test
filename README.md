@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Roma make no progress for Nusa, Godts and Schjelderup](https://romapress.net/roma-make-no-progress-for-nusa-godts-and-schjelderup/) - **RomaPress**
-2. [Bayern Munich News: Harry Kane getting closer to new deal with FC Bayern; Real Madrid getting serious about Rodri?; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/233908/bayern-munich-kane-real-madrid-manchester-city-united-rodri-fc-barcelona-arsenal-tottenham-chelsea-psg-bvb) - **Bavarian Football Works**
-3. [Tyler Herro Is Exactly Where He Wants to Be After Trade to Bucks](https://roundtable.io/sports/nba/bucks/news/tyler-herro-is-exactly-where-he-wants-to-be-after-trade-to-bucks) - **Roundtable.io**
-4. [Wikki Tourists administrator tasks players, coaches on NPFL return](https://punchng.com/wikki-tourists-administrator-tasks-players-coaches-on-npfl-return/) - **The Punch**
-5. [West Ham Agree £60m Al Hilal Deal for Crysencio Summerville After Beating Off Roma Interest](https://futbolchronicle.com/west-ham-agree-60m-al-hilal-deal-for-crysencio-summerville-after-beating-off-roma-interest/) - **Futbolchronicle.com**
-6. [William Saliba Faces Extended Arsenal Absence After World Cup Back Injury](https://futbolchronicle.com/william-saliba-faces-extended-arsenal-absence-after-world-cup-back-injury/) - **Futbolchronicle.com**
-7. [Antoine Griezmann Scores and Sets Up Three as Orlando City Rout San Jose in MLS Debut](https://futbolchronicle.com/antoine-griezmann-scores-and-sets-up-three-as-orlando-city-rout-san-jose-in-mls-debut/) - **Futbolchronicle.com**
-8. [INVEST Fair 2026 Concludes Successful Two-Day Event with Over 100 Speakers, 40 Exhibitors and over 70 Hours of Investment Insights](https://en.antaranews.com/news/423861/invest-fair-2026-concludes-successful-two-day-event-with-over-100-speakers-40-exhibitors-and-over-70-hours-of-investment-insights) - **Antaranews.com**
-9. [Tigers Ace Tarik Skubal Opens Up About Fallout from Arbitration](https://detroitsportsnation.com/tarik-skubal-arbitration-relationship-tigers/ddrysdale/detroit-tigers/07/23/2026/488457/) - **Detroit Sports Nation**
-10. [Manchester United agree personal terms with Manu Koné as Roma await first offer](https://worldsoccertalk.com/news/manchester-united-agree-personal-terms-with-manu-kone-as-roma-await-first-offer/) - **Worldsoccertalk.com**
+1. [Why Newcastle are looking to emulate German giants on recruitment](https://www.skysports.com/football/news/11095/13566313/newcastle-transfer-philosophy-why-magpies-are-aiming-to-emulate-borussia-dortmunds-work-on-young-players) - **Sky Sports**
+2. [Two Liverpool stars have already sent a message to Andoni Iraola in pre-season](https://anfieldindex.com/96485/two-liverpool-stars-have-already-sent-a-message-to-andoni-iraola-in-pre-season.html) - **Anfieldindex.com**
+3. [Sometimes the journey is better than the destination](https://www.themag.co.uk/2026/07/sometimes-the-journey-is-better-than-the-destination-kevin-keegan-liverpool-newcastle-united/) - **The Mag**
+4. [Bangladesh president to resign Friday as pressure grows over Hasina's planned return](https://www.thehindubusinessline.com/news/world/bangladesh-president-to-resign-friday-as-pressure-grows-over-hasinas-planned-return/article71260929.ece) - **BusinessLine**
+5. [Man United Target Bournemouth Man For Midfield](https://eplindex.com/148692/man-united-target-bournemouth-man-for-midfield.html) - **English Premier League Index - Opta Stats**
+6. [Incoming Bamba has high potential](https://www.bbc.com/sport/football/articles/ckgvy9vrldxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Arsenal gain new finances from extension of Emirates deal and continue to explore new avenues](https://untold-arsenal.com/archives/121935) - **Untold-arsenal.com**
+8. [Nusa opens to Roma, but deal remains complex](https://romapress.net/nusa-opens-to-roma-but-deal-remains-complex/) - **RomaPress**
+9. [Richarlison Available for €25m as Juventus Lead the Race](https://www.juvefc.com/richarlison-juventus-transfer-25m/) - **JuveFC**
+10. [India's batting prodigy Vaibhav Sooryavanshi draws confidence from maiden fifty against Zimbabwe](https://economictimes.indiatimes.com/news/sports/cricket/indias-batting-prodigy-vaibhav-sooryavanshi-draws-confidence-from-maiden-fifty-against-zimbabwe/articleshow/132597284.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-07-25 13:32:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-25 16:00:23 (KST) / (하루 100회 제한 준수 중)*
