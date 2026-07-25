@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Around the AFC West: Preseason preview of our division foes](https://www.arrowheadpride.com/kansas-city-chiefs-analysis/205830/afc-west-preseason-preview-division-foes) - **Arrowhead Pride**
-2. ['When Messi and Co held that banner we thought... what the hell are they doing?' Falkland Islands Commonwealth Games chief hits out at Argentina's World Cup antics](https://www.dailymail.com/sport/football/article-16003245/Messi-Falkland-Islands-Commonwealth-Games.html) - **Dailymail.com**
-3. [Obama greets WNBA players as fans get excited for All Star Game in Chicago](https://abc7chicago.com/post/barack-obama-greets-wnba-players-fans-get-excited-star-game-chicago/19569137/) - **WLS-TV**
-4. [Como set to make improved bid for Chelsea's Trevoh Chalobah... with Blues holding out for £35m plus add-ons](https://www.dailymail.com/sport/football/article-16003283/Como-set-make-improved-bid-Chelseas-Trevoh-Chalobah-Blues-holding-35m-plus-add-ons.html) - **Dailymail.com**
-5. [Thomas Müller questions if Germany is doing enough for individual player development](https://www.bavarianfootballworks.com/fifa-world-cup/234114/thomas-muller-questions-if-germany-is-doing-enough-for-individual-player-development) - **Bavarian Football Works**
-6. [PSG Hold Out for €40m as Kolo Muani Pushes for Juve Return](https://www.juvefc.com/kolo-muani-juventus-psg-transfer-talks/) - **JuveFC**
-7. [Maresca: ‘A privilege’ to replace Guardiola, ‘good’ Donnarumma-Haaland combination](https://football-italia.net/maresca-privilege-replace-guardiola-donnarumma/) - **Football Italia**
-8. [Russia’s football exile is ending – but Europe may not survive the comeback](https://www.rt.com/news/643417-russias-football-exile-is-ending/) - **RT**
-9. [Barcelona midfield gem wants to stay put amid interest from Man City, Chelsea and Arsenal](https://barcauniversal.com/barcelona-midfield-gem-wants-to-stay-put-amid-interest-from-man-city-chelsea-and-arsenal/) - **Barcauniversal.com**
+1. [Langsning, Sawmer To Launch SPL 2026 Season](https://southasiaviews.com/featured/langsning-sawmer-to-launch-spl-2026-season/) - **Southasiaviews.com**
+2. [Chelsea hires set-piece coach Austin MacPhee, and here’s why crypto markets should care](https://cryptobriefing.com/chelsea-macphee-set-piece-coach-hire/) - **Crypto Briefing**
+3. [Atletico Madrid refuse to sell Julian Alvarez to Barcelona, unhappy with club’s behaviour – report](https://barcauniversal.com/atletico-madrid-refuse-to-sell-julian-alvarez-to-barcelona-unhappy-with-clubs-behaviour-report/) - **Barcauniversal.com**
+4. [Tamworth name Hollis as head of academy coaching](https://www.bbc.com/sport/football/articles/cg5ldqrnmezo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [“50/50” – Liverpool star could still leave this summer](https://anfieldindex.com/96500/50-50-liverpool-star-could-still-leave-this-summer.html) - **Anfieldindex.com**
+6. [Report: Aston Villa ready to make record-breaking move to sign Premier League star](https://eplindex.com/148712/report-aston-villa-ready-to-make-record-breaking-move-to-sign-premier-league-star.html) - **English Premier League Index - Opta Stats**
+7. [Chelsea star Pedro Neto is a target for Man City](https://sportsview.co.uk/2026/07/chelsea-star-pedro-neto-is-a-target-for-man-city?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-star-pedro-neto-is-a-target-for-man-city) - **Sportsview.co.uk**
+8. [Enzo Maresca responds to James Trafford transfer links amid Leeds United interest](https://cityxtra.co.uk/50227/enzo-maresca-responds-to-james-trafford-transfer-links-amid-leeds-united-interest/) - **Cityxtra.co.uk**
+9. [Wrexham's Windass to miss Leeds test due to injury](https://www.bbc.com/sport/football/articles/c62vzx8qvq9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Around the AFC West: Preseason preview of our division foes](https://www.arrowheadpride.com/kansas-city-chiefs-analysis/205830/afc-west-preseason-preview-division-foes) - **Arrowhead Pride**
 
 
 ---
-*최근 업데이트: 2026-07-26 01:30:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-26 02:38:35 (KST) / (하루 100회 제한 준수 중)*
