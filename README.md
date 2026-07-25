@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Who needs what in Premier Sports Cup?](https://www.bbc.com/sport/football/articles/c9801371y2ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Who needs what in Premier Sports Cup?](https://www.bbc.co.uk/sport/football/articles/c9801371y2ko) - **BBC News**
-3. [Yankees potential trade target: Freddy Peralta](https://www.pinstripealley.com/yankees-trade-rumors-deadline/198615/yankees-mlb-trade-deadline-rumors-new-york-mets-freddy-peralta) - **Pinstripe Alley**
-4. [Manchester City Keeper Is On The Radar Of Leeds United: Should Maresca Cash In On Him?](https://the4thofficial.net/2026/07/manchester-city-keeper-is-on-the-radar-of-leeds-united-should-maresca-cash-in-on-him/) - **The4thofficial.net**
-5. [Ipswich Town attacker O’Brien signs new deal](https://fawslfulltime.co.uk/2026/07/24/ipswich-town-attacker-obrien-signs-new-deal/) - **Fawslfulltime.co.uk**
-6. [Newcastle United monitoring Rayo Vallecano defender Andrei Ratiu](https://sportsview.co.uk/2026/07/newcastle-united-monitoring-rayo-vallecano-defender-andrei-ratiu?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-united-monitoring-rayo-vallecano-defender-andrei-ratiu) - **Sportsview.co.uk**
-7. [Ask Paul: July 24 ⭐](https://www.thurrott.com/paul/339657/ask-paul-july-24-2) - **Thurrott.com**
-8. [Former Liverpool boss Jürgen Klopp confirmed as new Germany manager](https://www.the42.ie/jurgen-klopp-29-7112059-Jul2026/) - **The42**
-9. [Financial details of Arsenal’s new Emirates deal emerge](https://dailycannon.com/2026/07/emirates-arsenal-sponsorship-details/) - **Dailycannon.com**
-10. [Tottenham Hotspur Are In The Running To Recruit This Real Madrid Winger: Good Fit For De Zerbi?](https://the4thofficial.net/2026/07/tottenham-hotspur-are-in-the-running-to-recruit-this-real-madrid-winger-good-fit-for-de-zerbi/) - **The4thofficial.net**
+1. [Manchester City enquires about Barcelona’s Marc Bernal as midfield rebuild continues](https://cryptobriefing.com/manchester-city-enquires-barcelona-marc-bernal/) - **Crypto Briefing**
+2. [Report: Hull City in talks to sign midfielder in £10m deal](https://eplindex.com/148719/report-hull-city-in-talks-to-sign-midfielder-in-10m-deal.html) - **English Premier League Index - Opta Stats**
+3. [Crysencio Summerville completes £60m move from West Ham to Saudi Pro League side Al Hilal](https://wp.fromthespot.co.uk/31253/crysencio-summerville-completes-60m-move-from-west-ham-to-saudi-pro-league-side-al-hilal/) - **Fromthespot.co.uk**
+4. [Pep Guardiola turns down Italy job due to family reasons](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260724-930-434980/) - **Dpa-international.com**
+5. [Pep Guardiola turns down Italy job due to family reasons](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260724-930-434979/) - **Dpa-international.com**
+6. ['Don't want to be here? Leave' - Roberts wants unity](https://www.bbc.com/sport/football/articles/c2dk4e8720po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [West Ham winger Summerville joins Al-Hilal](https://www.bbc.com/sport/football/articles/cevmx0y88vwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [West Ham winger Summerville joins Al-Hilal](https://www.bbc.co.uk/sport/football/articles/cevmx0y88vwo) - **BBC News**
+9. [Report: Arsenal are willing to include Viktor Gyokeres in a deal for Julian Alvarez](https://worldsoccertalk.com/news/report-arsenal-are-willing-to-include-viktor-gyokeres-in-a-deal-for-julian-alvarez/) - **Worldsoccertalk.com**
+10. [Latest Update On 22-Year-Old Right-Back To Everton: Is It A Setback?](https://the4thofficial.net/2026/07/latest-update-on-22-year-old-right-back-to-everton-is-it-a-setback/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-07-26 03:39:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-26 04:56:52 (KST) / (하루 100회 제한 준수 중)*
