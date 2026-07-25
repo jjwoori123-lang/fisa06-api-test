@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester City enquires about Barcelona’s Marc Bernal as midfield rebuild continues](https://cryptobriefing.com/manchester-city-enquires-barcelona-marc-bernal/) - **Crypto Briefing**
-2. [Report: Hull City in talks to sign midfielder in £10m deal](https://eplindex.com/148719/report-hull-city-in-talks-to-sign-midfielder-in-10m-deal.html) - **English Premier League Index - Opta Stats**
-3. [Crysencio Summerville completes £60m move from West Ham to Saudi Pro League side Al Hilal](https://wp.fromthespot.co.uk/31253/crysencio-summerville-completes-60m-move-from-west-ham-to-saudi-pro-league-side-al-hilal/) - **Fromthespot.co.uk**
-4. [Pep Guardiola turns down Italy job due to family reasons](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260724-930-434980/) - **Dpa-international.com**
-5. [Pep Guardiola turns down Italy job due to family reasons](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260724-930-434979/) - **Dpa-international.com**
-6. ['Don't want to be here? Leave' - Roberts wants unity](https://www.bbc.com/sport/football/articles/c2dk4e8720po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [West Ham winger Summerville joins Al-Hilal](https://www.bbc.com/sport/football/articles/cevmx0y88vwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [West Ham winger Summerville joins Al-Hilal](https://www.bbc.co.uk/sport/football/articles/cevmx0y88vwo) - **BBC News**
-9. [Report: Arsenal are willing to include Viktor Gyokeres in a deal for Julian Alvarez](https://worldsoccertalk.com/news/report-arsenal-are-willing-to-include-viktor-gyokeres-in-a-deal-for-julian-alvarez/) - **Worldsoccertalk.com**
-10. [Latest Update On 22-Year-Old Right-Back To Everton: Is It A Setback?](https://the4thofficial.net/2026/07/latest-update-on-22-year-old-right-back-to-everton-is-it-a-setback/) - **The4thofficial.net**
+1. [Papers: Premier League clubs plotting Watkins bid](https://www.skysports.com/football/transfer-paper-talk/12709/13566763/paper-talk-manchester-united-and-arsenal-plotting-ollie-watkins-bid) - **Sky Sports**
+2. [Real Madrid have £85m bid rejected for Liverpool target Diomande](https://www.skysports.com/football/news/11820/13566796/yan-diomande-transfer-news-real-madrid-have-lb85m-bid-rejected-for-rb-leipzig-winger) - **Sky Sports**
+3. [Enzo Maresca admits Man City are in a battle to keep hold of World Cup-winning captain Rodri - with Spain star keen on move to Real Madrid](https://www.dailymail.com/sport/football/article-16003765/Enzo-Maresca-Man-City-World-Cup-Rodri.html) - **Dailymail.com**
+4. [Arsenal Identify This Barcelona Forward As A Target: What Will He Add To Arteta’s Side?](https://the4thofficial.net/2026/07/arsenal-identify-this-barcelona-forward-as-a-target/) - **The4thofficial.net**
+5. [Enzo Maresca confirms Rodri’s back surgery: For how long will the Manchester City star be out?](https://worldsoccertalk.com/news/enzo-maresca-confirms-rodris-back-surgery-for-how-long-will-the-manchester-city-star-be-out/) - **Worldsoccertalk.com**
+6. [Tim Pernetti talks saving college sports, CFP expansion at American media days](https://www.underdogdynasty.com/american-conference/44417/tim-pernetti-american-conference-commissioner-media-day-recap) - **Underdogdynasty.com**
+7. [Man City eyeing Barcelona starlet as long-term Rodri replacement](https://getfootballnewsspain.com/man-city-eyeing-barcelona-starlet-as-long-term-rodri-replacement/) - **Getfootballnewsspain.com**
+8. [Liverpool Are Keeping A Keen Eye On This Paris Saint-Germain Winger: Dream Signing For Iraola?](https://the4thofficial.net/2026/07/liverpool-are-keeping-a-keen-eye-on-this-paris-saint-germain-winger-dream-signing-for-iraola/) - **The4thofficial.net**
+9. [Real Madrid make move to sign Rodri despite pending back surgery](https://www.101greatgoals.com/football/real-madrid-make-move-sign-rodri/) - **101 Great Goals**
+10. [Eintracht Frankfurt hopeful of closing Raphael Onyedika deal with improved €9m offer](https://www.getfootballnewsgermany.com/2026/raphael-onyedika-offer-up/) - **Getfootballnewsgermany.com**
 
 
 ---
-*최근 업데이트: 2026-07-26 04:56:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-26 06:00:58 (KST) / (하루 100회 제한 준수 중)*
