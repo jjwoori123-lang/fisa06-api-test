@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Papers: Premier League clubs plotting Watkins bid](https://www.skysports.com/football/transfer-paper-talk/12709/13566763/paper-talk-manchester-united-and-arsenal-plotting-ollie-watkins-bid) - **Sky Sports**
-2. [Real Madrid have £85m bid rejected for Liverpool target Diomande](https://www.skysports.com/football/news/11820/13566796/yan-diomande-transfer-news-real-madrid-have-lb85m-bid-rejected-for-rb-leipzig-winger) - **Sky Sports**
-3. [Enzo Maresca admits Man City are in a battle to keep hold of World Cup-winning captain Rodri - with Spain star keen on move to Real Madrid](https://www.dailymail.com/sport/football/article-16003765/Enzo-Maresca-Man-City-World-Cup-Rodri.html) - **Dailymail.com**
-4. [Arsenal Identify This Barcelona Forward As A Target: What Will He Add To Arteta’s Side?](https://the4thofficial.net/2026/07/arsenal-identify-this-barcelona-forward-as-a-target/) - **The4thofficial.net**
-5. [Enzo Maresca confirms Rodri’s back surgery: For how long will the Manchester City star be out?](https://worldsoccertalk.com/news/enzo-maresca-confirms-rodris-back-surgery-for-how-long-will-the-manchester-city-star-be-out/) - **Worldsoccertalk.com**
-6. [Tim Pernetti talks saving college sports, CFP expansion at American media days](https://www.underdogdynasty.com/american-conference/44417/tim-pernetti-american-conference-commissioner-media-day-recap) - **Underdogdynasty.com**
-7. [Man City eyeing Barcelona starlet as long-term Rodri replacement](https://getfootballnewsspain.com/man-city-eyeing-barcelona-starlet-as-long-term-rodri-replacement/) - **Getfootballnewsspain.com**
-8. [Liverpool Are Keeping A Keen Eye On This Paris Saint-Germain Winger: Dream Signing For Iraola?](https://the4thofficial.net/2026/07/liverpool-are-keeping-a-keen-eye-on-this-paris-saint-germain-winger-dream-signing-for-iraola/) - **The4thofficial.net**
-9. [Real Madrid make move to sign Rodri despite pending back surgery](https://www.101greatgoals.com/football/real-madrid-make-move-sign-rodri/) - **101 Great Goals**
-10. [Eintracht Frankfurt hopeful of closing Raphael Onyedika deal with improved €9m offer](https://www.getfootballnewsgermany.com/2026/raphael-onyedika-offer-up/) - **Getfootballnewsgermany.com**
+1. [Chelsea plunder yet another major talent... as they land Scottish set-piece specialist Austin MacPhee from Aston Villa](https://www.dailymail.com/sport/football/article-16003727/Chelsea-plunder-major-talent-land-Scottish-set-piece-specialist-Austin-MacPhee-Aston-Villa.html) - **Dailymail.com**
+2. [West Ham Female Player Pathway celebrates historic season as Katie Zelem and Laia Codina inspire future stars](https://herfootballhub.com/west-ham-female-player-pathway-celebrates-historic-season-as-katie-zelem-and-laia-codina-inspire-future-stars/) - **Herfootballhub.com**
+3. [Why Enzo Maresca started Man City job a month early to help Phil Foden](https://www.sportingnews.com/us/soccer/manchester-city/news/enzo-maresca-man-city-job-help-phil-foden/14826facf2708c05de332baa) - **Sporting News**
+4. [Enzo Maresca issues first response to question on Manchester City’s 115 charges](https://cityxtra.co.uk/50250/enzo-maresca-issues-first-response-to-question-on-manchester-citys-115-charges/) - **Cityxtra.co.uk**
+5. [Maresca's Man City vow: I am not a 'copy and paste' coach](https://www.skysports.com/football/news/11095/13566644/enzo-maresca-insists-he-is-not-a-copy-and-paste-coach-after-taking-over-from-pep-guardiola-at-man-city) - **Sky Sports**
+6. [Arsenal’s Greek Gunners: Can Tzolis succeed where others struggled?](https://www.justarsenal.com/arsenals-greek-gunners-can-tzolis-succeed-where-others-struggled/419165) - **Just Arsenal News**
+7. [Albion re-sign Townsend after Ipswich exit](https://www.bbc.com/sport/football/articles/crl7xnyg19ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Hoare header sees Saints go second after Dundalk draw](https://www.rte.ie/sport/soccer/2026/0724/1584898-hoare-header-sees-saints-go-second-after-dundalk-draw/) - **RTE**
+9. [St Pat’s climb to second as Seán Hoare claws back draw against Dundalk](https://www.irishtimes.com/sport/soccer/2026/07/24/st-pats-climb-to-second-as-sean-hoare-claws-back-draw-against-dundalk/) - **The Irish Times**
+10. [Manchester City Remain Keen On Signing This Chelsea Full-Back: Should Maresca Bring Him On Board?](https://the4thofficial.net/2026/07/manchester-city-remain-keen-on-signing-this-chelsea-full-back-should-maresca-bring-him-on-board/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-07-26 06:00:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-26 07:12:53 (KST) / (하루 100회 제한 준수 중)*
