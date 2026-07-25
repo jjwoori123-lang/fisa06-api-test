@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Why Newcastle are looking to emulate German giants on recruitment](https://www.skysports.com/football/news/11095/13566313/newcastle-transfer-philosophy-why-magpies-are-aiming-to-emulate-borussia-dortmunds-work-on-young-players) - **Sky Sports**
-2. [Two Liverpool stars have already sent a message to Andoni Iraola in pre-season](https://anfieldindex.com/96485/two-liverpool-stars-have-already-sent-a-message-to-andoni-iraola-in-pre-season.html) - **Anfieldindex.com**
-3. [Sometimes the journey is better than the destination](https://www.themag.co.uk/2026/07/sometimes-the-journey-is-better-than-the-destination-kevin-keegan-liverpool-newcastle-united/) - **The Mag**
-4. [Bangladesh president to resign Friday as pressure grows over Hasina's planned return](https://www.thehindubusinessline.com/news/world/bangladesh-president-to-resign-friday-as-pressure-grows-over-hasinas-planned-return/article71260929.ece) - **BusinessLine**
-5. [Man United Target Bournemouth Man For Midfield](https://eplindex.com/148692/man-united-target-bournemouth-man-for-midfield.html) - **English Premier League Index - Opta Stats**
-6. [Incoming Bamba has high potential](https://www.bbc.com/sport/football/articles/ckgvy9vrldxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Arsenal gain new finances from extension of Emirates deal and continue to explore new avenues](https://untold-arsenal.com/archives/121935) - **Untold-arsenal.com**
-8. [Nusa opens to Roma, but deal remains complex](https://romapress.net/nusa-opens-to-roma-but-deal-remains-complex/) - **RomaPress**
-9. [Richarlison Available for €25m as Juventus Lead the Race](https://www.juvefc.com/richarlison-juventus-transfer-25m/) - **JuveFC**
-10. [India's batting prodigy Vaibhav Sooryavanshi draws confidence from maiden fifty against Zimbabwe](https://economictimes.indiatimes.com/news/sports/cricket/indias-batting-prodigy-vaibhav-sooryavanshi-draws-confidence-from-maiden-fifty-against-zimbabwe/articleshow/132597284.cms) - **The Times of India**
+1. [Maxence Lacroix undergoes Chelsea medical ahead of £55m move from Crystal Palace - as Middlesbrough enter talks to sign USA World Cup star: WINDOW WATCH](https://www.dailymail.com/sport/football/article-16002151/Maxence-Lacroix-undergoes-Chelsea-medical-WINDOW-WATCH.html) - **Dailymail.com**
+2. [Improved Bozenik wants to be Stoke's top striker](https://www.bbc.com/sport/football/articles/c5yrd5ggw1zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [From Sporting Lisbon to Al Nassr: Ronaldo’s records so far](https://punchng.com/from-sporting-lisbon-to-al-nassr-ronaldos-records-so-far/) - **The Punch**
+4. [Mastantuono impresses Mourinho as Real Madrid keep loan option open](https://siempremadrid.com/mastantuono-impresses-mourinho-as-real-madrid-keep-loan-option-open/) - **Siempremadrid.com**
+5. [The Bayern Insider: Michael Olise ‘wants Real Madrid’ as Bradley Barcola transfer hijack stance clear](https://cfbayerninsider.com/2026/07/the-bayern-insider-michael-olise-wants-real-madrid-as-bradley-barcola-transfer-hijack-stance-clear/) - **Cfbayerninsider.com**
+6. [Sunderland opened hearts, doors to Netflix cameras, and result was special | Estes](https://www.tennessean.com/story/sports/columnists/gentry-estes/2026/07/24/sunderland-netflix-documentary-liverpool-geodis-park/90943589007/) - **Tennessean**
+7. [Report: Chelsea Favourites To Sign World Cup Talent](https://eplindex.com/148694/report-chelsea-favourites-to-sign-world-cup-talent.html) - **English Premier League Index - Opta Stats**
+8. [Elliot Anderson names Kevin De Bruyne as inspiration after joining Man City he “always wanted to play like”](https://cityxtra.co.uk/50167/elliot-anderson-names-kevin-de-bruyne-as-inspiration-after-joining-man-city-he-always-wanted-to-play-like/) - **Cityxtra.co.uk**
+9. [Assombalonga joins non-league Harborough Town](https://www.bbc.com/sport/football/articles/c2elrk41d4wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Golden State Warriors join viral Erling Haaland trend](https://www.hitc.com/golden-state-warriors-join-viral-erling-haaland-trend/) - **HITC - Football, Gaming, Movies, TV, Music**
 
 
 ---
-*최근 업데이트: 2026-07-25 16:00:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-25 18:13:58 (KST) / (하루 100회 제한 준수 중)*
