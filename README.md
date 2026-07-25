@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Langsning, Sawmer To Launch SPL 2026 Season](https://southasiaviews.com/featured/langsning-sawmer-to-launch-spl-2026-season/) - **Southasiaviews.com**
-2. [Chelsea hires set-piece coach Austin MacPhee, and here’s why crypto markets should care](https://cryptobriefing.com/chelsea-macphee-set-piece-coach-hire/) - **Crypto Briefing**
-3. [Atletico Madrid refuse to sell Julian Alvarez to Barcelona, unhappy with club’s behaviour – report](https://barcauniversal.com/atletico-madrid-refuse-to-sell-julian-alvarez-to-barcelona-unhappy-with-clubs-behaviour-report/) - **Barcauniversal.com**
-4. [Tamworth name Hollis as head of academy coaching](https://www.bbc.com/sport/football/articles/cg5ldqrnmezo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [“50/50” – Liverpool star could still leave this summer](https://anfieldindex.com/96500/50-50-liverpool-star-could-still-leave-this-summer.html) - **Anfieldindex.com**
-6. [Report: Aston Villa ready to make record-breaking move to sign Premier League star](https://eplindex.com/148712/report-aston-villa-ready-to-make-record-breaking-move-to-sign-premier-league-star.html) - **English Premier League Index - Opta Stats**
-7. [Chelsea star Pedro Neto is a target for Man City](https://sportsview.co.uk/2026/07/chelsea-star-pedro-neto-is-a-target-for-man-city?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-star-pedro-neto-is-a-target-for-man-city) - **Sportsview.co.uk**
-8. [Enzo Maresca responds to James Trafford transfer links amid Leeds United interest](https://cityxtra.co.uk/50227/enzo-maresca-responds-to-james-trafford-transfer-links-amid-leeds-united-interest/) - **Cityxtra.co.uk**
-9. [Wrexham's Windass to miss Leeds test due to injury](https://www.bbc.com/sport/football/articles/c62vzx8qvq9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Around the AFC West: Preseason preview of our division foes](https://www.arrowheadpride.com/kansas-city-chiefs-analysis/205830/afc-west-preseason-preview-division-foes) - **Arrowhead Pride**
+1. [Who needs what in Premier Sports Cup?](https://www.bbc.com/sport/football/articles/c9801371y2ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Who needs what in Premier Sports Cup?](https://www.bbc.co.uk/sport/football/articles/c9801371y2ko) - **BBC News**
+3. [Yankees potential trade target: Freddy Peralta](https://www.pinstripealley.com/yankees-trade-rumors-deadline/198615/yankees-mlb-trade-deadline-rumors-new-york-mets-freddy-peralta) - **Pinstripe Alley**
+4. [Manchester City Keeper Is On The Radar Of Leeds United: Should Maresca Cash In On Him?](https://the4thofficial.net/2026/07/manchester-city-keeper-is-on-the-radar-of-leeds-united-should-maresca-cash-in-on-him/) - **The4thofficial.net**
+5. [Ipswich Town attacker O’Brien signs new deal](https://fawslfulltime.co.uk/2026/07/24/ipswich-town-attacker-obrien-signs-new-deal/) - **Fawslfulltime.co.uk**
+6. [Newcastle United monitoring Rayo Vallecano defender Andrei Ratiu](https://sportsview.co.uk/2026/07/newcastle-united-monitoring-rayo-vallecano-defender-andrei-ratiu?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-united-monitoring-rayo-vallecano-defender-andrei-ratiu) - **Sportsview.co.uk**
+7. [Ask Paul: July 24 ⭐](https://www.thurrott.com/paul/339657/ask-paul-july-24-2) - **Thurrott.com**
+8. [Former Liverpool boss Jürgen Klopp confirmed as new Germany manager](https://www.the42.ie/jurgen-klopp-29-7112059-Jul2026/) - **The42**
+9. [Financial details of Arsenal’s new Emirates deal emerge](https://dailycannon.com/2026/07/emirates-arsenal-sponsorship-details/) - **Dailycannon.com**
+10. [Tottenham Hotspur Are In The Running To Recruit This Real Madrid Winger: Good Fit For De Zerbi?](https://the4thofficial.net/2026/07/tottenham-hotspur-are-in-the-running-to-recruit-this-real-madrid-winger-good-fit-for-de-zerbi/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-07-26 02:38:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-26 03:39:15 (KST) / (하루 100회 제한 준수 중)*
