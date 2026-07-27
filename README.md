@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [2026 SDCC - Mattel's DC 6" Collector Line Sneek Peek Coming To NYCC With Full Reveal On January 1st](https://toynewsi.com/241-65218) - **Toynewsi.com**
-2. [Watch Auckland FC vs Tottenham Hotspur Live Stream Today: TV Channels, Lineups](https://heavy.com/sports/soccer/premier-league/tottenham-hotspur-spurs/auckland-tottenham-live-stream-tv-channels-lineups/) - **Heavy.com**
-3. [Iraola begins Liverpool reign with pre-season win over Sunderland](https://www.channelnewsasia.com/sport/iraola-begins-liverpool-reign-pre-season-win-over-sunderland-6278681) - **CNA**
-4. [Ryan Reynolds Asks Marvel Studios In Hall H "Why Is Thor Crying?"](https://bleedingcool.com/movies/ryan-reynolds-asks-marvel-studios-in-hall-h-why-is-thor-crying/) - **Bleeding Cool News**
-5. [Liverpool’s defensive crisis under new coach Iraola highlights the fragility of big-club squad depth](https://cryptobriefing.com/liverpool-gomez-injury-iraola-defensive-crisis/) - **Crypto Briefing**
-6. [Aribo, Onyekuru, Olayinka lead 2026/27 Eagles free agents](https://punchng.com/aribo-onyekuru-olayinka-lead-2026-27-eagles-free-agents/) - **The Punch**
-7. [Mikel hails Osimhen’s Ballon d’Or feat](https://punchng.com/mikel-hails-osimhens-ballon-dor-feat/) - **The Punch**
-8. [Defensive signings are a MUST after Joe Gomez injury, young star who took his chance and forgotten man Federico Chiesa gives Andoni Iraola food for thought: THINGS WE LEARNED as Liverpool beat Sunderland](https://www.dailymail.com/sport/football/article-16002359/Liverpool-Sunderland-Andoni-Iraola-Takeaways.html) - **Dailymail.com**
-9. [Liverpool tops Sunderland 4-2 in Nashville friendly as fan token sector watches from the sidelines](https://cryptobriefing.com/liverpool-sunderland-crypto-fan-tokens/) - **Crypto Briefing**
-10. [Liverpool vs Sunderland Match Results Today: Club Friendly Live Score, Updates, Stats](https://heavy.com/sports/soccer/premier-league/liverpool-fc/liverpool-vs-sunderland-match-results-today-club-friendly-live-score-updates-stats/) - **Heavy.com**
+1. [EPL: Arsenal to improve £70m Guimarães bid — Report](https://punchng.com/epl-arsenal-to-improve-70m-guimaraes-bid-report/) - **The Punch**
+2. [BREAKING: Red Sox Acquire Breakout 3B From Nationals for Connelly Early](https://heavy.com/sports/mlb/boston-red-sox/red-sox-acquire-nationals-connelly-early/) - **Heavy.com**
+3. [Chelsea ready to demand major fee for Pedro Neto amid Liverpool and Man City interest - as former boss Enzo Maresca eyes reunion](https://www.dailymail.com/sport/football/article-16005835/Chelsea-Pedro-Neto-Liverpool-Man-City-Enzo-Maresca.html) - **Dailymail.com**
+4. [Wilson makes Leeds debut in 3-2 defeat by Wrexham](https://www.bbc.com/sport/football/articles/cy9wvln2234o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Wilson makes Leeds debut in 3-2 defeat by Wrexham](https://www.bbc.co.uk/sport/football/articles/cy9wvln2234o) - **BBC News**
+6. [Patience a virtue, says Man Utd's Ayden Heaven](https://www.bbc.com/sport/football/articles/c62qkeygpweo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Nottingham Forest table £17.5m bid for Man City and Bayern target Givairo Read](https://footballtoday.com/2026/07/26/nottingham-forest-table-17-5m-bid-for-man-city-and-bayern-target-givairo-read/) - **Footballtoday.com**
+8. [Friedkin give green light Nusa deal to go through](https://romapress.net/friedkin-give-green-light-nusa-deal-to-go-through/) - **RomaPress**
+9. [Pre-Season: Liverpool 4 – Sunderland 2](https://liverpooloffside.sbnation.com/liverpool-preseason-coverage/82142/pre-season-liverpool-4-sunderland-2-morrison-gomez-nyoni) - **SB Nation**
+10. [Auckland FC 0-2 Tottenham Hotspur: Top 10 talking points](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-match-reports/72316/auckland-fc-0-2-tottenham-hotspur-top-10-talking-points) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-07-27 12:26:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-27 15:51:01 (KST) / (하루 100회 제한 준수 중)*
