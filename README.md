@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Vinicius Jr. lowers his demands to Real Madrid as Arsenal plot record-breaking salary offer](https://worldsoccertalk.com/news/report-vinicius-jr-lowers-his-demands-to-real-madrid-as-arsenal-plot-record-breaking-salary-offer/) - **Worldsoccertalk.com**
-2. [Chelsea Are Hoping To Land This Talented Left-Back: What Will He Bring To Stamford Bridge?](https://the4thofficial.net/2026/07/chelsea-are-hoping-to-land-this-talented-left-back/) - **The4thofficial.net**
-3. [Breaking: PSG Pull Out of RB Leipzig's Yan Diomandé Deal Over 'Disproportionate' Demands](https://psgworld.io/news/news/breaking-psg-pull-out-of-rb-leipzigs-yan-diomande-deal-over-disproportionate-demands) - **Psgworld.io**
-4. [Liverpool are closing in on signing one of the fastest players in the world](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-are-closing-in-on-signing-one-of-the-fastest-players-in-the-world/) - **Anfieldwatch.co.uk**
-5. [Barcelona star could follow the Ansu Fati route](https://getfootballnewsspain.com/barcelona-star-could-follow-the-ansu-fati-route/) - **Getfootballnewsspain.com**
-6. [Tottenham Hotspur Are Ready To Be Patient For This Man City Winger: Good Option For De Zerbi?](https://the4thofficial.net/2026/07/tottenham-hotspur-are-ready-to-be-patient-for-this-man-city-winger/) - **The4thofficial.net**
-7. [Pogacar clinches record-equalling fifth Tour de France title](https://www.the42.ie/tadej-pogacar-wins-tour-de-france-7113978-Jul2026/) - **The42**
-8. [Manchester City Are In The Mix To Recruit This Chelsea Winger: Should Maresca Go For Him?](https://the4thofficial.net/2026/07/manchester-city-are-in-the-mix-to-recruit-this-chelsea-winger-should-maresca-go-for-him/) - **The4thofficial.net**
-9. [Why Arsenal must beat Man City in the Community Shield – Opinion](https://www.justarsenal.com/why-arsenal-must-beat-man-city-in-the-community-shield-opinion/419226) - **Just Arsenal News**
-10. [International forward confirms he's ready to play for Liverpool next season](https://www.anfieldwatch.co.uk/liverpool-fc/news/international-forward-confirms-hes-ready-to-play-for-liverpool-next-season/) - **Anfieldwatch.co.uk**
+1. [Arsenal Are Willing To Move In For This Atletico Madrid Forward: Should Arteta Snap Him Up?](https://the4thofficial.net/2026/07/arsenal-are-willing-to-move-in-for-this-atletico-madrid-forward/) - **The4thofficial.net**
+2. [Papers: PSG value Barcola at £145m amid Liverpool and Arsenal interest](https://www.skysports.com/transfer/news/12691/13567165/bradley-barcola-transfer-news-psg-value-france-forward-at-lb145m-amid-liverpool-and-arsenal-interest-paper-talk) - **Sky Sports**
+3. [A Look Inside Darkseid Vs. The World As It Leads Up To Absolute Crisis](https://bleedingcool.com/comics/a-look-inside-darkseid-vs-the-world-as-it-leads-up-to-absolute-crisis/) - **Bleeding Cool News**
+4. [Aston Villa Receive Boost To Sign This 31-Year-Old: Right Choice At This Moment?](https://the4thofficial.net/2026/07/aston-villa-receive-boost-to-sign-this-31-year-old-right-choice-at-this-moment/) - **The4thofficial.net**
+5. [Pre season friendly matches today: Reports, results, goals from across Europe](https://www.101greatgoals.com/football/premier-league/pre-season-friendly-matches-today-reports-results-goals-inter-napoli-nottingham-forest-west-ham-rangers-ajax-burnley-roma/) - **101 Great Goals**
+6. [History: The last time Arsenal met Coventry City in the Premier League](https://www.justarsenal.com/history-the-last-time-arsenal-met-coventry-city-in-the-premier-league/419224) - **Just Arsenal News**
+7. [Update On The Future Of This Sunderland Midfielder: Good Move For Both Parties?](https://the4thofficial.net/2026/07/update-on-the-future-of-this-sunderland-midfielder-good-move-for-both-parties/) - **The4thofficial.net**
+8. [Littler successfully defends World Matchplay title](https://www.rte.ie/sport/other-sport/2026/0726/1585202-littler-successfully-defends-world-matchplay-title/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-07-28 04:46:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-28 06:13:42 (KST) / (하루 100회 제한 준수 중)*
