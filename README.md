@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Conceicao seen as Liverpool alternative to Barcola with €50m Juventus demand](https://football-italia.net/conceicao-seen-liverpool-alternative-barcola/) - **Football Italia**
-2. [How Leicester City are still chasing a specialist No 9 to kickstart promotion bid... after failing to land Danny Ings and Jamie Vardy return off the cards](https://www.dailymail.com/sport/football/article-16006097/How-Leicester-City-chasing-specialist-No-9-kickstart-promotion-bid-failing-land-Danny-Ings-Jamie-Vardy-return-cards.html) - **Dailymail.com**
-3. [UCLA's High School Recruiting Class Earning Major Praise](https://www.si.com/college/ucla/bruins-high-school-recruiting-class-earning-major-praise) - **Sports Illustrated**
-4. [Why the 2025 Cowboys pass rush was better than you’ve been told](https://www.bloggingtheboys.com/dallas-cowboys-analysis/210699/2025-pass-rush-better-stats-sacks-pressures) - **Blogging The Boys**
-5. [Fabrizio Romano details Roberto De Zerbi stance on Savinho transfer amid Tottenham talks with Man City](https://cityxtra.co.uk/50287/fabrizio-romano-details-roberto-de-zerbi-stance-on-savinho-transfer-amid-tottenham-talks-with-man-city/) - **Cityxtra.co.uk**
-6. [Report: Brentford see offer rejected for relegated star](https://eplindex.com/148766/report-brentford-see-offer-rejected-for-relegated-star.html) - **English Premier League Index - Opta Stats**
-7. [Augsburg reject €25m offer from Crystal Palace for Chrislain Matsima](https://www.getfootballnewsfrance.com/2026/augsburg-reject-e25m-offer-from-crystal-palace-for-chrislain-matsima/) - **Get French Football News**
-8. [Micah Morris could benefit from the Eagles’ proven OL development plan](https://theeagleswire.usatoday.com/story/sports/nfl/eagles/2026/07/26/eagles-micah-morris-day-3-offensive-line-development/91031036007/) - **USA Today**
-9. [Il Leeds dice addio a Jack Harrison. L'ex Fiorentina si trasferisce negli Stati Uniti](https://www.tuttomercatoweb.com/calcio-estero/leeds-addio-jack-harrison-fiorentina-trasferisce-uniti-2257282) - **Tuttomercatoweb.com**
-10. [Watford sign experienced goalkeeper Lambourne](https://fawslfulltime.co.uk/2026/07/26/watford-sign-experienced-goalkeeper-lambourne/) - **Fawslfulltime.co.uk**
+1. [Chiesa happy but wants new chapter at Liverpool](https://www.bbc.co.uk/sport/football/articles/c70gzrx034ro) - **BBC News**
+2. [Jamie Gittens reveals why he is relishing a rivalry with Chelsea's £117m signing Morgan Rogers and the message Xabi Alonso has given him](https://www.dailymail.com/sport/football/article-16006009/Jamie-Gittens-Chelsea-Morgan-Rogers-Xabi-Alonso.html) - **Dailymail.com**
+3. [Hands off Granit Xhaka! Sunderland boss Regis Le Bris sends definitive message to Chelsea and insists 'the topic is closed' after Xabi Alonso's side made shock swoop for former Bayer Leverkusen star](https://www.dailymail.com/sport/football/article-16006163/Hands-Granit-Xhaka-Sunderland-boss-Regis-Le-Bris-sends-definitive-message-Chelsea-insists-topic-closed-Xabi-Alonsos-shock-swoop-former-Bayer-Leverkusen-star.html) - **Dailymail.com**
+4. [Federico Chiesa admits Liverpool were LUCKY to reach the Champions League after dismal campaign... as he targets 'new chapter' under Andoni Iraola](https://www.dailymail.com/sport/football/article-16006175/Federico-Chiesa-admits-Liverpool-LUCKY-reach-Champions-League-dismal-campaign-targets-new-chapter-Andoni-Iraola.html) - **Dailymail.com**
+5. [Three sporting events to watch this week: Your handy guide to sport on television](https://www.irishtimes.com/sport/2026/07/26/three-sporting-events-to-watch-this-week-your-handy-guide-to-sport-on-television/) - **The Irish Times**
+6. [What Is Enzo Fernandez’s Future At Chelsea?](https://www.forbes.com/sites/grahamruthven/2026/07/26/what-is-enzo-fernandezs-future-at-chelsea/) - **Forbes**
+7. [Gittens keen to impress 'world-class' Alonso](https://www.bbc.com/sport/football/articles/c5y3gg1083no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Gittens keen to impress 'world-class' Alonso](https://www.bbc.co.uk/sport/football/articles/c5y3gg1083no) - **BBC News**
+9. [MLS eyes $400 million TV deal amid crowded soccer landscape](https://awfulannouncing.com/soccer/mls-eyes-400-million-tv-deal-crowded-soccer-landscape-premier-league.html) - **Awful Announcing**
+10. [Arsenal can afford Vinícius Jr – but do they want to? – Opinion](https://www.justarsenal.com/arsenal-can-afford-vinicius-jr-but-do-they-want-to-opinion/419220) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-07-27 22:39:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-28 01:02:46 (KST) / (하루 100회 제한 준수 중)*
