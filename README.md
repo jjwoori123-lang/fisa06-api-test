@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chiesa happy but wants new chapter at Liverpool](https://www.bbc.co.uk/sport/football/articles/c70gzrx034ro) - **BBC News**
-2. [Jamie Gittens reveals why he is relishing a rivalry with Chelsea's £117m signing Morgan Rogers and the message Xabi Alonso has given him](https://www.dailymail.com/sport/football/article-16006009/Jamie-Gittens-Chelsea-Morgan-Rogers-Xabi-Alonso.html) - **Dailymail.com**
-3. [Hands off Granit Xhaka! Sunderland boss Regis Le Bris sends definitive message to Chelsea and insists 'the topic is closed' after Xabi Alonso's side made shock swoop for former Bayer Leverkusen star](https://www.dailymail.com/sport/football/article-16006163/Hands-Granit-Xhaka-Sunderland-boss-Regis-Le-Bris-sends-definitive-message-Chelsea-insists-topic-closed-Xabi-Alonsos-shock-swoop-former-Bayer-Leverkusen-star.html) - **Dailymail.com**
-4. [Federico Chiesa admits Liverpool were LUCKY to reach the Champions League after dismal campaign... as he targets 'new chapter' under Andoni Iraola](https://www.dailymail.com/sport/football/article-16006175/Federico-Chiesa-admits-Liverpool-LUCKY-reach-Champions-League-dismal-campaign-targets-new-chapter-Andoni-Iraola.html) - **Dailymail.com**
-5. [Three sporting events to watch this week: Your handy guide to sport on television](https://www.irishtimes.com/sport/2026/07/26/three-sporting-events-to-watch-this-week-your-handy-guide-to-sport-on-television/) - **The Irish Times**
-6. [What Is Enzo Fernandez’s Future At Chelsea?](https://www.forbes.com/sites/grahamruthven/2026/07/26/what-is-enzo-fernandezs-future-at-chelsea/) - **Forbes**
-7. [Gittens keen to impress 'world-class' Alonso](https://www.bbc.com/sport/football/articles/c5y3gg1083no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Gittens keen to impress 'world-class' Alonso](https://www.bbc.co.uk/sport/football/articles/c5y3gg1083no) - **BBC News**
-9. [MLS eyes $400 million TV deal amid crowded soccer landscape](https://awfulannouncing.com/soccer/mls-eyes-400-million-tv-deal-crowded-soccer-landscape-premier-league.html) - **Awful Announcing**
-10. [Arsenal can afford Vinícius Jr – but do they want to? – Opinion](https://www.justarsenal.com/arsenal-can-afford-vinicius-jr-but-do-they-want-to-opinion/419220) - **Just Arsenal News**
+1. [Juventus explores potential deal to sign John Stones as football clubs eye free agent market](https://cryptobriefing.com/juventus-john-stones-deal-fan-tokens/) - **Crypto Briefing**
+2. [Arsenal prepare improved Bruno Guimaraes bid after initial talks](https://thefootballfaithful.com/arsenal-prepare-improved-bruno-guimaraes-bid-after-initial-talks/) - **The Football Faithful**
+3. [Arsenal ready to offer club record salary to sign Real Madrid superstar](https://madriduniversal.com/arsenal-ready-to-offer-club-record-salary-to-sign-real-madrid-superstar/) - **Madriduniversal.com**
+4. [Liverpool have a brilliant new attacking partnership, completely out of nowhere](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-have-a-brilliant-new-attacking-partnership-completely-out-of-nowhere/) - **Anfieldwatch.co.uk**
+5. [Two relegations in two years! Why he still costs 100 million](https://onefootball.com/en/news/two-relegations-in-two-years-why-he-still-costs-100-million-43189458) - **Onefootball.com**
+6. [India's prodigy Sooryavanshi leads the way in T20 series success](https://economictimes.indiatimes.com/news/sports/cricket/indias-prodigy-sooryavanshi-leads-the-way-in-t20-series-success/articleshow/132645501.cms) - **The Times of India**
+7. [Barcelona’s squad snub puts spotlight on its fan token’s rough summer](https://cryptobriefing.com/barcelona-snub-bar-token-burn/) - **Crypto Briefing**
+8. [Who blinks first over Reiss Nelson? – Opinion](https://www.justarsenal.com/who-blinks-first-over-reiss-nelson-opinion/419218) - **Just Arsenal News**
+9. [Rangers vs West Ham Match Results Today: Club Friendly Live Score, Updates, Stats](https://heavy.com/sports/soccer/rangers-vs-west-ham-match-results-today-club-friendly-live-score-updates-stats/) - **Heavy.com**
+10. [Report – Inter Set to Tie German Defender Down to New Contract](https://cultofcalcio.com/inter-set-to-tie-bisseck-down-to-new-contract/) - **Cultofcalcio.com**
 
 
 ---
-*최근 업데이트: 2026-07-28 01:02:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-28 02:58:03 (KST) / (하루 100회 제한 준수 중)*
