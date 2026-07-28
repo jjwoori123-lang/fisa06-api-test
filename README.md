@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Delhi Premier League 2026: FanCode gets streaming rights for 57-match tournament, live from July 31](https://economictimes.indiatimes.com/news/sports/cricket/delhi-premier-league-2026-fancode-gets-streaming-rights-for-57-match-tournament-live-from-july-31/articleshow/132659253.cms) - **The Times of India**
-2. [Juventus wants to beat Arsenal to sign serial Premier League winner](https://www.justarsenal.com/juventus-wants-to-beat-arsenal-to-sign-serial-premier-league-winner/419266) - **Just Arsenal News**
-3. [Stuttgart CEO aims dig at FC Bayern with multiple blows during general meeting](https://bulinews.com/stuttgart-ceo-aims-dig-bayern-multiple-blows-during-general-meeting) - **Bulinews.com**
-4. [Cardinals DC Nick Rallis up next: His presser](https://www.revengeofthebirds.com/arizona-cardinals-discussion/92750/cardinals-dc-nick-rallis-up-next-his-presser) - **Revenge of the Birds**
-5. [Pirlo bitter over debate that cost him Italy coaching job](https://www.vanguardngr.com/2026/07/pirlo-bitter-over-debate-that-cost-him-italy-coaching-job/) - **Vanguard**
-6. [Luke Littler to take on everyday darts players in Netflix live event](https://www.bbc.co.uk/news/articles/c2dkew9kjd5o) - **BBC News**
-7. [What Sunderland player said about Liverpool on Saturday is a big compliment to Andoni Iraola](https://www.empireofthekop.com/2026/07/27/ballard-iraola-slot-differences-liverpool-sunderland/) - **Empire of The Kop**
-8. [Cardiff teenager Donczew close to Arsenal move](https://www.bbc.com/sport/football/articles/c4g621z2lvzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Former Southampton and Ajax favourite turns down big money for an Eredivisie return with NEC Nijmegen](https://getfootballnewsbene.com/former-southampton-and-ajax-favourite-turns-down-big-money-for-an-eredivisie-return-with-nec-nijmegen/) - **Getfootballnewsbene.com**
+1. [BREAKING: Chelsea make move for former Arsenal and Manchester United striker Welbeck](https://www.101greatgoals.com/news/transfers/breaking-chelsea-make-move-for-former-arsenal-and-manchester-united-striker-welbeck/) - **101 Great Goals**
+2. [Cristiano Ronaldo Set for Acting Debut in New TV Drama 'Day 1s' With Damian Lewis and Thierry Henry Together](https://www.ibtimes.com.au/cristiano-ronaldo-ventures-television-day-1s-1873042) - **Ibtimes.com.au**
+3. [Arsenal face stiff competition to sign Barcelona man](https://www.justarsenal.com/arsenal-face-stiff-competition-to-sign-barcelona-man/419281) - **Just Arsenal News**
+4. [Chelsea are keen on signing Brighton forward Danny Welbeck, 35, after he scored 13 Premier League goals last season](https://www.dailymail.com/sport/football/article-16008053/Chelsea-keen-signing-Brighton-forward-Danny-Welbeck-35-scored-13-Premier-League-goals-season.html) - **Dailymail.com**
+5. [Inter’s surprise pre-season star could be the key to Romero signing](https://football-italia.net/inters-pre-season-star-could-unlock-romero/) - **Football Italia**
+6. [Celtic must take a chance on starlets Tam Hatton and Sean McArdle](https://celticshorts.com/2026/07/celtic-must-take-a-chance-on-starlets-tam-hatton-and-sean-mcardle/) - **Celticshorts.com**
+7. [Liverpool move one step closer to sensational Bradley Barcola deal after agreement reached](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-move-one-step-closer-to-sensational-bradley-barcola-psg-deal-after-agreement-reached/) - **Anfieldwatch.co.uk**
+8. [PSG ask for details on 23 year old who could instantly upgrade first team in key position](https://psgtalk.com/2026/07/psg-details-first-team-23-year-old-could-upgrade/) - **Psgtalk.com**
+9. [Chelsea v Western Sydney Wanderers: Expected line-ups, stats and where to watch as Xabi Alonso’s reign gets underway in Australia](https://www.101greatgoals.com/match-previews/chelsea-v-western-sydney-wanderers-expected-line-ups-stats-stream-where-to-watch-as-xabi-alonso-reign-gets-underway-in-australia/) - **101 Great Goals**
+10. [Coleraine suffer Coyle ACL injury setback](https://www.bbc.com/sport/articles/cd69j126z94o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-07-28 20:01:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-28 22:03:43 (KST) / (하루 100회 제한 준수 중)*
