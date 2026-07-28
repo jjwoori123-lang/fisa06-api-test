@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Why Bamba could be a bargain for Newcastle](https://www.skysports.com/football/news/11678/13566382/aladji-bamba-to-newcastle-signing-from-monaco-is-strong-in-the-duels-but-brings-passing-range-and-more-to-the-midfield) - **Sky Sports**
-2. [Manchester City actively exploring transfer for €500M Barcelona superstar](https://cityxtra.co.uk/50301/manchester-citys-move-for-marc-bernal-forces-barcelona-into-contract-rethink-amid-433m-release-clause/) - **Cityxtra.co.uk**
-3. ['I have a new challenge now' - Khusanov pens new Man City deal](https://www.bbc.com/sport/football/articles/crmr392ljd8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Maeda 'nothing short of a legend' at Celtic](https://www.bbc.com/sport/articles/c2lqzq5erwjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Could Vinicius Jr. to Arsenal really happen? The roadblocks to clear as Gunners chase Real Madrid star](https://www.sportingnews.com/us/soccer/news/vinicius-jr-arsenal-transfer-roadblocks-gunners-real-madrid/ab676a028553ae6447f8e75b) - **Sporting News**
-6. [Northern Indiana Football Club continues to prosper](https://www.southbendtribune.com/story/sports/2026/07/27/the-nifc-continues-to-impact-the-community-through-the-sport-of-soccer/91040521007/) - **South Bend Tribune**
-7. [Luke Littler to star in Netflix show with £501k prize money](https://www.the-independent.com/sport/darts/luke-littler-netflix-darts-challenge-b3021997.html) - **The-independent.com**
-8. [Amateur darts players battle Luke Littler for big jackpot](https://www.rte.ie/entertainment/2026/0727/1585234-amateur-darts-players-battle-luke-littler-for-big-jackpot/) - **RTE**
-9. [Newcastle Turns to Unexpected Goalie as No. 1 Transfer Target: Report](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/23149/newcastle-turns-to-unexpected-goalie-as-no-1-transfer-target-report) - **SB Nation**
+1. [Delhi Premier League 2026: FanCode gets streaming rights for 57-match tournament, live from July 31](https://economictimes.indiatimes.com/news/sports/cricket/delhi-premier-league-2026-fancode-gets-streaming-rights-for-57-match-tournament-live-from-july-31/articleshow/132659253.cms) - **The Times of India**
+2. [Juventus wants to beat Arsenal to sign serial Premier League winner](https://www.justarsenal.com/juventus-wants-to-beat-arsenal-to-sign-serial-premier-league-winner/419266) - **Just Arsenal News**
+3. [Stuttgart CEO aims dig at FC Bayern with multiple blows during general meeting](https://bulinews.com/stuttgart-ceo-aims-dig-bayern-multiple-blows-during-general-meeting) - **Bulinews.com**
+4. [Cardinals DC Nick Rallis up next: His presser](https://www.revengeofthebirds.com/arizona-cardinals-discussion/92750/cardinals-dc-nick-rallis-up-next-his-presser) - **Revenge of the Birds**
+5. [Pirlo bitter over debate that cost him Italy coaching job](https://www.vanguardngr.com/2026/07/pirlo-bitter-over-debate-that-cost-him-italy-coaching-job/) - **Vanguard**
+6. [Luke Littler to take on everyday darts players in Netflix live event](https://www.bbc.co.uk/news/articles/c2dkew9kjd5o) - **BBC News**
+7. [What Sunderland player said about Liverpool on Saturday is a big compliment to Andoni Iraola](https://www.empireofthekop.com/2026/07/27/ballard-iraola-slot-differences-liverpool-sunderland/) - **Empire of The Kop**
+8. [Cardiff teenager Donczew close to Arsenal move](https://www.bbc.com/sport/football/articles/c4g621z2lvzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Former Southampton and Ajax favourite turns down big money for an Eredivisie return with NEC Nijmegen](https://getfootballnewsbene.com/former-southampton-and-ajax-favourite-turns-down-big-money-for-an-eredivisie-return-with-nec-nijmegen/) - **Getfootballnewsbene.com**
 
 
 ---
-*최근 업데이트: 2026-07-28 17:37:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-28 20:01:14 (KST) / (하루 100회 제한 준수 중)*
