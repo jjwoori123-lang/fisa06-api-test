@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Former Spurs striker set for MLS move after leaving Antwerp](https://getfootballnewsbene.com/former-spurs-striker-set-for-mls-move-after-leaving-antwerp/) - **Getfootballnewsbene.com**
-2. [Chelsea ‘exploring move’ for Danny Welbeck — reports](https://weaintgotnohistory.sbnation.com/chelsea-fc-transfer-rumours-news/170510/chelsea-exploring-move-for-danny-welbeck-reports) - **SB Nation**
-3. [Lazio can secure Broja from Burnley on loan with option to buy](https://football-italia.net/lazio-can-secure-broja-from-burnley-on-loan/) - **Football Italia**
-4. [Arsenal away kit 26/27: Watch video, full details on new shirt and strip](https://www.101greatgoals.com/football/premier-league/arsenal-away-kit-26-27-new-shirt-strip-cost-how-to-buy-videos/) - **101 Great Goals**
-5. [The Chelsea academy stars looking to break through](https://www.bbc.com/sport/football/articles/c4gd0pvr3z0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [2026 APL Auction: Costliest pick Denish Das joins Barpeta Braves for ₹12.60 lakh](https://timesofindia.indiatimes.com/city/guwahati/2026-apl-auction-costliest-pick-denish-das-joins-barpeta-braves-for-12-60-lakh/articleshow/132665090.cms) - **The Times of India**
-7. [Chelsea in talks to sign veteran striker Danny Welbeck from Brighton](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260727-99-174428/) - **Dpa-international.com**
-8. [Where Does MLS Rank Among the World's Best Global Soccer Leagues in 2026? A Look at the Top 10 and Beyond](https://www.ibtimes.com.au/mls-global-rise-challenges-opportunities-2026-world-cup-1873071) - **Ibtimes.com.au**
-9. [Chelsea exploring move to sign Brighton’s Welbeck – Report](https://www.vanguardngr.com/2026/07/chelsea-exploring-move-to-sign-brightons-welbeck-report/) - **Vanguard**
+1. [Newcastle’s new teenage sensation confident he can make immediate impact](https://hayters.com/newcastles-new-teenage-sensation-confident-he-can-make-immediate-impact/) - **Hayters.com**
+2. [Arsenal has found an alternative to Bruno Guimaraes](https://www.justarsenal.com/arsenal-has-found-an-alternative-to-bruno-guimaraes/419289) - **Just Arsenal News**
+3. [Liverpool's centre-back situation and why Iraola must act](https://www.bbc.co.uk/sport/football/articles/cpw9zw972l2o) - **BBC News**
+4. [Reports: Juventus open talks with free agent John Stones](https://www.blackwhitereadallover.com/juventus-transfer-rumors-news/40187/reports-juventus-open-talks-with-free-agent-john-stones) - **Black & White & Read All Over**
+5. [Karim Benzema could lose Al Hilal teammate as Darwin Núñez reportedly nears loan exit to Portugal](https://worldsoccertalk.com/news/karim-benzema-could-lose-al-hilal-teammate-as-darwin-nunez-reportedly-nears-loan-exit-to-portugal/) - **Worldsoccertalk.com**
+6. [Nongkseh beat Mylliem 1-0 to make winning SPL debut](https://www.syllad.com/nongkseh-beat-mylliem-1-0-to-make-winning-spl-debut/) - **Syllad.com**
+7. [Ted Lasso’s Comeback Season Rollout Puts Women’s Sports At The Center](https://www.forbes.com/sites/oliviashalhoup/2026/07/27/ted-lassos-comeback-season-rollout-puts-womens-sports-at-the-center/) - **Forbes**
+8. [Newcastle winger Barnes signs long-term contract extension](https://sports.yahoo.com/articles/newcastle-winger-barnes-signs-long-162521744.html) - **Yahoo Entertainment**
+9. [Inter continue direct Romero talks with Tottenham, hopeful of €40m agreement](https://football-italia.net/inter-continue-direct-romero-talks-tottenham/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-07-29 00:37:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-29 02:07:34 (KST) / (하루 100회 제한 준수 중)*
