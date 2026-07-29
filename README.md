@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [PSG Winger Fires Back at Journalist Over Entourage Criticism](https://psgworld.io/news/news/psg-winger-fires-back-at-journalist-over-entourage-criticism) - **Psgworld.io**
-2. [Gilberto Mora and Keylor Navas join Messi and De Paul among biggest absences for MLS vs. Liga MX All-Star Game](https://worldsoccertalk.com/news/gilberto-mora-and-keylor-navas-join-messi-and-de-paul-among-biggest-absences-for-mls-vs-liga-mx-all-star-game/) - **Worldsoccertalk.com**
-3. [Dodgers Acquire New Southpaw Starter After Private Workout](https://www.forbes.com/sites/peterchawaga/2026/07/27/dodgers-acquire-new-southpaw-starter-after-private-workout/) - **Forbes**
-4. [Inside Arsenal's Hale End academy woes: Why two wonderkids have left, how Gunners missed out on Jeremy Monga, the target who's heading for Spurs instead and why first-team success is creating 'a perfect storm'](https://www.dailymail.com/sport/football/article-16008461/arsenal-hale-end-academy-transfer-woes.html) - **Dailymail.com**
-5. [Inside Arsenal's Hale End academy woes: Why two wonderkids have left, how Gunners missed out on Jeremy Monga, the target who's heading for Spurs instead and why first-team success is creating 'a perfect storm'](https://www.dailymail.com/sport/football/article-16008461/arsenal-hale-end-academy-transfer-woes.html) - **Dailymail.com**
-6. [YouTube Premium subscribers will get Peacock for free thanks to a first-of-its-kind deal](https://www.tubefilter.com/2026/07/27/youtube-premium-peacock-subscribers-for-free-nbcuniversal-streaming-consolidation/) - **Tubefilter**
-7. [Do the Dodgers need Tarik Skubal? Latest on LA's rotation, injuries](https://www.usatoday.com/story/sports/mlb/dodgers/2026/07/27/do-the-dodgers-need-tarik-skubal-latest-on-las-rotation-injuries/91059832007/) - **USA Today**
-8. [Arokodare set for Ajax medical](https://punchng.com/arokodare-set-for-ajax-medical/) - **The Punch**
-9. [Chicharito signed by expansion Atlético Dallas in the USL Championship](https://sports.yahoo.com/articles/chicharito-signed-expansion-atl-tico-000213837.html) - **Yahoo Entertainment**
-10. [Chelsea Danny Welbeck Transfer: Why The 35-Year-Old Striker Is Xabi Alonso's Surprise Target](https://www.stadiumrant.com/chelsea-danny-welbeck-transfer-why-the-35-year/) - **Stadiumrant.com**
+1. [PSG rule out Rodri move as Real Madrid step up pursuit of Man City star](https://footballtoday.com/2026/07/28/psg-rule-out-rodri-move-as-real-madrid-step-up-pursuit-of-man-city-star/) - **Footballtoday.com**
+2. [Why Chelsea want to sign older players](https://www.bbc.com/sport/football/articles/cn0nw0lyrkdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Why Chelsea want to sign older players](https://www.bbc.co.uk/sport/football/articles/cn0nw0lyrkdo) - **BBC News**
+4. [Embattled LIV Golf tour asks to defer payment to Adelaide golf club](https://www.abc.net.au/news/2026-07-28/liv-golf-tour-asks-to-defer-payment-to-kooyonga-golf-club/106966932) - **ABC News (AU)**
+5. [Shamrock Rovers face uphill task but European group stage action remains firmly in sight](https://www.irishtimes.com/sport/soccer/2026/07/28/shamrock-rovers-face-uphill-task-but-european-group-stage-action-remains-firmly-in-sight/) - **The Irish Times**
+6. [Is No News Good News For Sunderland In The Transfer Market?](https://rokerreport.sbnation.com/opinion/146208/unfinished-is-no-news-good-news-for-sunderland-in-the-transfer-market) - **SB Nation**
+7. [Exciting Times Lie Ahead For Sunderland](https://rokerreport.sbnation.com/opinion/146260/exciting-times-lie-ahead-for-sunderland) - **SB Nation**
+8. [On This Day (28th July 2023): Eliezer Mayenda — From Prospect to Promotion Hero](https://rokerreport.sbnation.com/features/145723/on-this-day-28th-july-2023-eliezer-mayenda-from-prospect-to-promotion-hero) - **SB Nation**
+9. [Régis Le Bris’ Big Midfield Dilemma!](https://rokerreport.sbnation.com/opinion/146131/regis-le-bris-big-midfield-dilemma) - **SB Nation**
+10. [Spurs' Maddison says De Zerbi is the right coach for his game](https://sports.yahoo.com/articles/spurs-maddison-says-zerbi-coach-045413075.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-07-29 11:50:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-29 14:54:29 (KST) / (하루 100회 제한 준수 중)*
