@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Netanyahu’s Palestine Philosophy Is Finally Exposed](http://foreignpolicy.com/2026/07/28/netanyahu-israel-palestine-history-two-state-solution-gaza/) - **Foreign Policy**
-2. [Man United considering bid for Bournemouth midfielder Tyler Adams](https://sportsview.co.uk/2026/07/man-united-considering-bid-for-bournemouth-midfielder-tyler-adams?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=man-united-considering-bid-for-bournemouth-midfielder-tyler-adams) - **Sportsview.co.uk**
-3. [Manchester City confirms Rodri underwent successful back surgery](https://cryptobriefing.com/rodri-back-surgery-manchester-city/) - **Crypto Briefing**
-4. [Johnny Kenny set for Championship move following Kasper Hogh signing](https://celticshorts.com/2026/07/johnny-kenny-set-for-championship-move-following-kasper-hogh-signing/) - **Celticshorts.com**
-5. [Tottenham v Sydney FC: Expected line-ups, stats and where to watch Spurs’ latest pre-season test](https://www.101greatgoals.com/match-previews/tottenham-sydney-preview-pre-season/) - **101 Great Goals**
-6. [Have Arsenal really been getting the transfer market completely wrong?](https://untold-arsenal.com/archives/122029) - **Untold-arsenal.com**
-7. [I play golf for myself, I thrive under pressure: Mannat Brar](https://timesofindia.indiatimes.com/sports/golf/top-stories/i-play-golf-for-myself-i-thrive-under-pressure-mannat-brar/articleshow/132682824.cms) - **The Times of India**
-8. [The Most Interesting Coaching Projects in World Football](https://worldfootballindex.com/2026/07/the-most-interesting-coaching-projects-in-world-football/) - **World Football Index**
-9. [Barcelona set new price for Marc Casado as Hansi Flick tells club to listen to offers](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/127660/barcelona-set-new-price-for-marc-casado-as-hansi-flick-tells-club-to-listen-to-offers) - **Barca Blaugranes**
-10. [Wrexham are over hurt of last season - Doyle](https://www.bbc.com/sport/football/articles/c3v05z7rz4go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Real Madrid starlet offered €5 million salary as Premier League club push for potential €50 million transfer](https://madriduniversal.com/real-madrid-starlet-offered-e5-million-salary-as-premier-league-club-push-for-potential-e50-million-transfer/) - **Madriduniversal.com**
+2. [Roberto Mancini to be named Italy head coach for second time, source says](https://www.aljazeera.com/sports/2026/7/28/mancini-to-become-italy-head-coach-for-second-time-source-says) - **Al Jazeera English**
+3. [Roberto Mancini back for second term as Italy coach](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260728-99-182600/) - **Dpa-international.com**
+4. [Aston Villa keen on El Aynaoui](https://romapress.net/aston-villa-keen-on-el-aynaoui/) - **RomaPress**
+5. [Switzerland’s Breel Embolo shouldn’t have been sent off against Argentina in World Cup quarters, says IFAB | CNN](https://www.cnn.com/2026/07/28/sport/breel-embolo-red-card-decision-world-cup-ifab) - **CNN**
+6. [Josko Gvardiol signs new Manchester City contract](https://www.playmakerstats.com/news/josko-gvardiol-signs-new-manchester-city-contract/1163686) - **Playmakerstats.com**
+7. [The FA confirm 3 new anti-timewasting rules](https://dailycannon.com/2026/07/fa-new-anti-timewasting-rules/) - **Dailycannon.com**
+8. [For India, World Cup qualification is still just a distant dream](https://www.channelnewsasia.com/sport/india-world-cup-qualification-still-just-distant-dream-6283466) - **CNA**
+9. [Reports: Roberto Mancini to return as Italy coach](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260728-99-183163/) - **Dpa-international.com**
+10. [Lazio & Nordsjælland Agree Markmann Transfer but One Last Hurdle Persists](https://thelaziali.com/2026/07/28/lazio-nordsjaelland-agree-noah-markmann-hurdle/) - **Thelaziali.com**
 
 
 ---
-*최근 업데이트: 2026-07-29 20:27:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-29 22:20:52 (KST) / (하루 100회 제한 준수 중)*
