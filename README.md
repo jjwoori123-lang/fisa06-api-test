@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [MLS want to strike $500m deal when Lionel Messi leaves Inter Miami](https://www.hitc.com/mls-want-to-strike-500m-deal-when-lionel-messi-leaves-inter-miami/) - **HITC - Football, Gaming, Movies, TV, Music**
-2. [The answer is simple : Champions League or winning a trophy?](https://www.themag.co.uk/2026/07/the-answer-is-simple-champions-league-or-winning-a-trophy-newcastle-united/) - **The Mag**
-3. [Savinho open to leaving Man City amid Spurs interest](https://www.bbc.com/sport/football/articles/cx2kqvkwz17o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Savinho open to leaving Man City amid Spurs interest](https://www.bbc.co.uk/sport/football/articles/cx2kqvkwz17o) - **BBC News**
-5. [LOI transfer deadline: Fitzgerald joins Shamrock Rovers](https://www.rte.ie/sport/soccer/2026/0728/1585531-loi-transfer-deadline-fitzgerald-joins-shamrock-rovers/) - **RTE**
-6. [Napoli consider move for West Ham defender Jean-Clair Todibo](https://sportsview.co.uk/2026/07/napoli-consider-move-for-west-ham-defender-jean-clair-todibo?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=napoli-consider-move-for-west-ham-defender-jean-clair-todibo) - **Sportsview.co.uk**
-7. [Penn State’s Matt Campbell names Big Ten “premier conference” in CFB](https://nittanylionswire.usatoday.com/story/sports/college/nittany-lions/football/2026/07/28/penn-state-nittany-lions-football-matt-campbell-big-ten-conference/91079565007/) - **USA Today**
-8. [“From what I’m hearing…” – Journalist reveals the truth behind Liverpool’s interest in defender](https://anfieldindex.com/96799/from-what-im-hearing-journalist-reveals-the-truth-behind-liverpools-interest-in-defender.html) - **Anfieldindex.com**
-9. [Man City's forgotten man Kalvin Phillips is set for ANOTHER loan move after being left out of Man City squad for Asia tour - with injured Jack Grealish also absent](https://www.dailymail.com/sport/football/article-16011583/man-city-kalvin-phillips-sheffield-united-loan.html) - **Dailymail.com**
-10. [Arsenal Are In The Mix To Sign This La Liga Winger: What Will He Add To Arteta’s Side?](https://the4thofficial.net/2026/07/arsenal-are-in-the-mix-to-sign-this-la-liga-winger/) - **The4thofficial.net**
+1. [Chelsea hold firm stance on Pedro Neto as Enzo Maresca eyes reunion at Manchester City](https://cityxtra.co.uk/50331/chelsea-hold-firm-stance-on-pedro-neto-as-enzo-maresca-eyes-reunion-at-manchester-city/) - **Cityxtra.co.uk**
+2. [Journalist: Tottenham preparing final push for attacking reinforcements](https://eplindex.com/148830/journalist-tottenham-preparing-final-push-for-attacking-reinforcements.html) - **English Premier League Index - Opta Stats**
+3. [Chelsea Are Eyeing A Move For This Brentford Midfielder: Good Choice For Alonso?](https://the4thofficial.net/2026/07/chelsea-are-eyeing-a-move-for-this-experienced-midfielder/) - **The4thofficial.net**
+4. [Villa offer glimpse into future despite friendly loss](https://www.bbc.co.uk/sport/football/articles/cg4dv0qyvzvo) - **BBC News**
+5. [Top Ten Hottest Comics This Week All The Fault Of San Diego Comic-Con](https://bleedingcool.com/comics/top-ten-hottest-comics-this-week-all-the-fault-of-san-diego-comic-con/) - **Bleeding Cool News**
+6. [Papers: Guimaraes not forcing through Arsenal move](https://www.skysports.com/football/transfer-paper-talk/12709/13567925/arsenal-transfer-news-bruno-guimaraes-refusing-to-force-through-move-to-the-emirates-as-newcastle-stand-firm-on-asking-price-paper-talk) - **Sky Sports**
+7. [Papers: Guimaraes not forcing through Arsenal move](https://www.skysports.com/football/transfer-paper-talk/12709/13567925/arsenal-transfer-news-bruno-guimaraes-refusing-to-force-through-move-to-the-emirates-as-newcastle-stand-firm-on-asking-price-paper-talk) - **Sky Sports**
+8. [Richard Hughes ready to pay £47m for new Mats Hummels](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-finn-jeltsch-stuttgart-arsenal-bayern-munich-richard-hughes-ready-to-pay-ps47m-for-new-mats-hummels/) - **Anfieldwatch.co.uk**
+9. [Tottenham reportedly reach agreement to sell Cristian Romero to Inter Milan amid Barcelona rumors](https://worldsoccertalk.com/news/tottenham-reportedly-reach-agreement-to-sell-cristian-romero-to-inter-milan-amid-barcelona-rumors/) - **Worldsoccertalk.com**
+10. [Three World Cup Stars That Are Still Without a Club](https://www.vanguardngr.com/2026/07/three-world-cup-stars-that-are-still-without-a-club/) - **Vanguard**
 
 
 ---
-*최근 업데이트: 2026-07-30 04:48:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-30 05:58:32 (KST) / (하루 100회 제한 준수 중)*
