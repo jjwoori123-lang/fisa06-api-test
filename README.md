@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Carvalho: I’m hungry for success next season](https://www.brentfordfc.com/en/news/video/first-team-fabio-carvalho-brentford-injury-return-keith-andrews) - **Brentfordfc.com**
-2. [Ranieri goes from retirement to new Italy role at almost 75](https://football-italia.net/ranieri-goes-from-retirement-new-italy-role-75/) - **Football Italia**
-3. [Liverpool have “agreement in principle” with £140m winger PSG could still end up selling](https://psgtalk.com/2026/07/liverpool-agreement-in-principle-140m-winger/) - **Psgtalk.com**
-4. [Euro 2020 winning coach Roberto Mancini returns to rescue Italy after third straight World Cup miss](https://www.nbcsports.com/soccer/news/euro-2020-winning-coach-roberto-mancini-returns-to-rescue-italy-after-third-straight-world-cup-miss) - **NBCSports.com**
-5. [Mohamed Salah makes £34m contract U-turn](https://www.anfieldwatch.co.uk/liverpool-fc/news/mohamed-salah-makes-ps34m-contract-u-turn/) - **Anfieldwatch.co.uk**
-6. [Quinyon Mitchell lands at No. 47 spot on NFL Top 100 Players of 2026](https://theeagleswire.usatoday.com/story/sports/nfl/eagles/2026/07/28/eagles-quinyon-mitchell-no-47-nfl-top-100-players-2026/91076313007/) - **USA Today**
-7. [Liverpool reportedly strike agreement with Bradley Barcola](https://www.101greatgoals.com/news/transfers/liverpool-reportedly-strike-agreement-bradley-barcola/) - **101 Great Goals**
-8. [Where to watch USA swimming national championships: Full schedule, channel, live stream, times for 2026 event](https://www.sportingnews.com/us/tsn/news/watch-usa-swimming-national-championships-schedule-channel-stream-times/2c8c6969eec1734b3390ee75) - **Sporting News**
-9. [Premier League side closing in on double deal with Real Madrid](https://siempremadrid.com/premier-league-side-closing-in-on-double-deal-with-real-madrid/) - **Siempremadrid.com**
-10. [Manchester City receive transfer request from star forward](https://cityxtra.co.uk/50385/manchester-city-receive-transfer-request-from-star-forward/) - **Cityxtra.co.uk**
+1. [Lazio shocked at Markmann refusal to complete €6m move from Nordsjaelland](https://football-italia.net/lazio-shock-markmann-refusal-6m-nordsjaelland/) - **Football Italia**
+2. [Real Madrid make final Vinícius Jr. call amid Arsenal links](https://getfootballnewsspain.com/real-madrid-make-final-vinicius-jr-call-amid-arsenal-links/) - **Getfootballnewsspain.com**
+3. [Rodri return date revealed as Man City star undergoes successful surgery](https://footballtoday.com/2026/07/28/rodri-return-date-revealed-as-man-city-star-undergoes-successful-surgery/) - **Footballtoday.com**
+4. [Report: Liverpool to submit €150m offer for Bradley Barcola](https://anfieldindex.com/96792/report-liverpool-to-submit-e150m-offer-for-bradley-barcola.html) - **Anfieldindex.com**
+5. [Where To Find Algeria's Stars Following World Cup Elimination](https://www.foxsports.com/stories/soccer/where-find-algerias-stars-following-world-cup-elimination) - **Fox Sports**
+6. [Everton at Stoke City: Starting Lineups, TV and Live Streams, How to Watch Online](https://royalbluemersey.sbnation.com/everton-gamethread-live-blog/81583/everton-at-stoke-city-starting-lineups-tv-live-streams-how-to-watch-online-preseason-friendly) - **SB Nation**
+7. [How To Watch DR Congo's Stars After The 2026 World Cup](https://www.foxsports.com/stories/soccer/how-watch-dr-congos-stars-after-2026-world-cup) - **Fox Sports**
+8. [Vinicius Jr makes transfer decision as Arsenal eyes move](https://www.vanguardngr.com/2026/07/vinicius-jr-makes-transfer-decision-as-arsenal-eyes-move/) - **Vanguard**
+9. [Would Leeds move help Trafford oust Pickford from England team?](https://www.bbc.com/sport/football/articles/clyer1yze4jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Arsenal suffers blow as target agrees deal to join club outside England](https://www.justarsenal.com/arsenal-suffers-blow-as-target-agrees-deal-to-join-club-outside-england/419342) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-07-30 00:33:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-30 01:55:12 (KST) / (하루 100회 제한 준수 중)*
