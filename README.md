@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Is a positional shift on the cards for a Manchester City starlet?](https://esteemedkompany.com/2026/07/29/is-a-positional-shift-on-the-cards-for-a-manchester-city-starlet/) - **Esteemedkompany.com**
-2. [Celtic right-back Alistair Johnston open to joining Everton](https://sportsview.co.uk/2026/07/celtic-right-back-alistair-johnston-open-to-joining-everton?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=celtic-right-back-alistair-johnston-open-to-joining-everton) - **Sportsview.co.uk**
-3. [Chelsea Are In Pole Position To Land This Bournemouth Midfielder: Should Alonso Go For Him?](https://the4thofficial.net/2026/07/chelsea-are-in-pole-position-to-land-this-bournemouth-midfielder/) - **The4thofficial.net**
-4. [Thursday's UEFA Conference League - All you need to know](https://www.rte.ie/sport/soccer/2026/0729/1585696-thursdays-uefa-conference-league-all-you-need-to-know/) - **RTE**
-5. [Arsenal move for Sporting defender gathers pace – Report](https://www.justarsenal.com/arsenal-move-for-sporting-defender-gathers-pace-report/419449) - **Just Arsenal News**
-6. [Joshua Zirkzee linked with Juventus Loan](https://thebusbybabe.sbnation.com/general/35374/joshua-zirkzee-linked-with-juventus-loan) - **SB Nation**
-7. [Sunderland Are Showing Interest In This Bundesliga Wide Player: What Will He Add To Le Bris’ Side?](https://the4thofficial.net/2026/07/sunderland-are-showing-interest-in-this-bundesliga-wide-player/) - **The4thofficial.net**
-8. [Every Premier League Club’s Pre-Season Fixtures Ahead Of The 2026/27 Season](https://worldfootballindex.com/2026/07/every-premier-league-clubs-pre-season-fixtures-ahead-of-the-2026-27-season/) - **World Football Index**
-9. [Mikel Arteta makes transfer promise to Arsenal fans amid interest in sensational Vinicius Jr deal, Julian Alvarez and Bruno Guimaraes as wait goes on for marquee signing](https://www.dailymail.com/sport/football/article-16014741/mikel-arteta-urges-new-signings-different-dimension.html) - **Dailymail.com**
-10. [Team USA Captain Tim Ream Shares His Thoughts On the World Cup, Training, and MLS All-Star](https://www.menshealth.com/fitness/a73296540/usmnt-tim-ream-soccer-interview/) - **menshealth.com**
+1. [Are Arsenal being disrespectful to Newcastle over Bruno Guimarães?](https://www.justarsenal.com/are-arsenal-being-disrespectful-to-newcastle-over-bruno-guimaraes/419446) - **Just Arsenal News**
+2. [Barcelona star’s Premier League links rubbished](https://getfootballnewsspain.com/barcelona-stars-premier-league-links-rubbished/) - **Getfootballnewsspain.com**
+3. [Wrexham icon Paul Mullin lands new home as Red Dragons make first major signing of the summer](https://www.alloutsoccer.com/news/wrexham-paul-mullin-danny-imray-1960711) - **Alloutsoccer.com**
+4. [Papers: Grealish attracting interest from Saudi side Al Hilal](https://www.skysports.com/football/transfer-paper-talk/12709/13568271/jack-grealish-transfer-man-city-forward-attracting-interest-from-saudi-side-al-hilal-after-pre-season-snub-paper-talk) - **Sky Sports**
+5. [Update On The Future Of This Manchester City Winger: Should Maresca Cash In On Him?](https://the4thofficial.net/2026/07/update-on-the-future-of-this-manchester-city-winger-should-maresca-cash-in-on-him/) - **The4thofficial.net**
+6. [11 NFL head coaches on the hot seat](https://www.turfshowtimes.com/general/144515/nfl-head-coaches-hot-seat) - **Turf Show Times**
+7. [Wolves sign Jones and Francis](https://fawslfulltime.co.uk/2026/07/29/wolves-sign-jones-and-francis/) - **Fawslfulltime.co.uk**
+8. [Manchester City identify Argentinian goalkeeper as James Trafford replacement](https://cityxtra.co.uk/50441/manchester-city-identify-argentinian-goalkeeper-as-james-trafford-replacement/) - **Cityxtra.co.uk**
+9. [Agent confirms new Liverpool signing needs to leave already](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-ifeanyi-ndukwe-austria-vienna-agent-confirms-new-signing-needs-to-leave-already/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-07-31 05:45:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-31 07:07:47 (KST) / (하루 100회 제한 준수 중)*
