@@ -1,14 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tottenham on top but still goalless with Sydney in pre-season match](https://www.bbc.com/sport/football/live/c86np7j9x5jt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Surging Serb: Why Al Taawoun listed Lazetic to continue Chamusca's work](https://www.spl.com.sa/en/news/1080418/surging-serb-why-al-taawoun-listed-lazetic-to-continue-chamuscas-work) - **Spl.com.sa**
-3. [Jack Grealish attracts transfer attention from outside Europe – Everton remain keen on loan](https://cityxtra.co.uk/50379/jack-grealish-attracts-transfer-attention-from-outside-europe-everton-remain-keen-on-loan/) - **Cityxtra.co.uk**
-4. [IPL’s business value soars to $20.6 billion, RCB most valued franchise](https://www.thehindubusinessline.com/news/sports/ipls-business-value-soars-to-206-billion-rcb-most-valued-franchise/article71280864.ece) - **BusinessLine**
-5. [LAFC star Heung-min Son shares what he never realised about MLS before he joined](https://www.hitc.com/lafc-star-heung-min-son-shares-what-he-never-realised-about-mls-before-he-joined/) - **HITC - Football, Gaming, Movies, TV, Music**
-6. [Palace hold talks with ex-Arsenal defender Tomiyasu](https://www.bbc.com/sport/football/articles/c0qv8e7e0l0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Palace hold talks with ex-Arsenal defender Tomiyasu](https://www.bbc.co.uk/sport/football/articles/c0qv8e7e0l0o) - **BBC News**
-8. [Full List: New EPL rules to be introduced in 2026/27 season](https://www.vanguardngr.com/2026/07/full-list-new-epl-rules-to-be-introduced-in-2026-27-season/) - **Vanguard**
+1. [Arsenal accept defeat in pursuit of Real Madrid superstar: ‘He is going to renew’](https://madriduniversal.com/arsenal-accept-defeat-in-pursuit-of-real-madrid-superstar-he-is-going-to-renew/) - **Madriduniversal.com**
+2. [FULL LIST: Top 10 most expensive goalkeeper transfers](https://punchng.com/?p=2202507) - **The Punch**
+3. [What happened when Arsenal stopped being no-hopers and won the league?](https://untold-arsenal.com/archives/122031) - **Untold-arsenal.com**
+4. [Liverpool agree terms with Arsenal target, as Real Madrid begin Rodri negotiations – transfer round-up](https://hayters.com/liverpool-agree-terms-with-arsenal-target-real-madrid-begin-rodri-negotiations/) - **Hayters.com**
+5. [Infantino’s FIFA World Cup stakes plan: Would UEFA boycott, would it work?](https://www.aljazeera.com/sports/2026/7/29/infantinos-fifa-world-cup-stakes-plan-would-uefa-boycott-would-it-work) - **Al Jazeera English**
+6. [American ownership of Premier League clubs rises as soccer attracts investors](https://cryptobriefing.com/american-ownership-premier-league-clubs-soccer-investors/) - **Crypto Briefing**
+7. [McGregor wants Celtic to win league 'in more style'](https://www.bbc.com/sport/football/articles/c0km740dngdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [McGregor wants Celtic to win league 'in more style'](https://www.bbc.co.uk/sport/football/articles/c0km740dngdo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-07-30 18:55:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-30 20:53:22 (KST) / (하루 100회 제한 준수 중)*
