@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Just how many goals will are needed to keep a club in the Premier League](https://untold-arsenal.com/archives/122035) - **Untold-arsenal.com**
-2. [Royal Challengers Bengaluru, Rajasthan Royals Sales Push IPL Cricket’s Business Value to $20.6 Billion, Houlihan Lokey Study Finds](https://variety.com/2026/sports/news/ipl-valuation-rcb-rajasthan-royals-sales-1236822733/) - **Variety**
-3. [IPL's business value soars above $20 billion, says report](https://www.channelnewsasia.com/sport/ipls-business-value-soars-above-20-billion-says-report-6285326) - **CNA**
-4. [Report: Chelsea defender wanted by European giants](https://eplindex.com/148852/report-chelsea-defender-wanted-by-european-giants.html) - **English Premier League Index - Opta Stats**
-5. [Breece Hall Believes Jets Rid Themselves of Past ‘Craziness’ Ahead of NFL Season](https://heavy.com/sports/nfl/new-york-jets/breece-hall-says-jets-craziness-gone/) - **Heavy.com**
-6. [CNBC Daily Open: Banking beats, SK Hynix sinks and surprise attack rattles oil](https://www.cnbc.com/2026/07/29/daily-open-bank-earnings-ubs-sk-hynix.html) - **CNBC**
-7. [I may be killed, arrested or jailed: Sheikh Hasina vows Bangladesh return by December](https://economictimes.indiatimes.com/news/international/world-news/i-may-be-killed-arrested-or-jailed-sheikh-hasina-vows-bangladesh-return-by-december/articleshow/132703295.cms) - **The Times of India**
-8. [Bangladesh ex-premier Hasina vows to return despite fearing for life](https://www.channelnewsasia.com/asia/bangladesh-ex-pm-sheikh-hasina-vows-return-fearing-life-6285256) - **CNA**
-9. [Fiorentina make approach for Jadon Sancho after Manchester United departure](https://www.getfootballnewsitaly.com/2026/fiorentina-make-approach-for-jadon-sancho-after-manchester-united-departure/) - **Getfootballnewsitaly.com**
-10. [How to watch Liverpool vs Wrexham live: Preseason friendly stream, TV channel, team news](https://www.nbcsports.com/soccer/news/how-to-watch-liverpool-vs-wrexham-live-preseason-friendly-stream-tv-channel-team-news) - **NBCSports.com**
+1. [Tottenham on top but still goalless with Sydney in pre-season match](https://www.bbc.com/sport/football/live/c86np7j9x5jt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Surging Serb: Why Al Taawoun listed Lazetic to continue Chamusca's work](https://www.spl.com.sa/en/news/1080418/surging-serb-why-al-taawoun-listed-lazetic-to-continue-chamuscas-work) - **Spl.com.sa**
+3. [Jack Grealish attracts transfer attention from outside Europe – Everton remain keen on loan](https://cityxtra.co.uk/50379/jack-grealish-attracts-transfer-attention-from-outside-europe-everton-remain-keen-on-loan/) - **Cityxtra.co.uk**
+4. [IPL’s business value soars to $20.6 billion, RCB most valued franchise](https://www.thehindubusinessline.com/news/sports/ipls-business-value-soars-to-206-billion-rcb-most-valued-franchise/article71280864.ece) - **BusinessLine**
+5. [LAFC star Heung-min Son shares what he never realised about MLS before he joined](https://www.hitc.com/lafc-star-heung-min-son-shares-what-he-never-realised-about-mls-before-he-joined/) - **HITC - Football, Gaming, Movies, TV, Music**
+6. [Palace hold talks with ex-Arsenal defender Tomiyasu](https://www.bbc.com/sport/football/articles/c0qv8e7e0l0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Palace hold talks with ex-Arsenal defender Tomiyasu](https://www.bbc.co.uk/sport/football/articles/c0qv8e7e0l0o) - **BBC News**
+8. [Full List: New EPL rules to be introduced in 2026/27 season](https://www.vanguardngr.com/2026/07/full-list-new-epl-rules-to-be-introduced-in-2026-27-season/) - **Vanguard**
 
 
 ---
-*최근 업데이트: 2026-07-30 16:17:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-30 18:55:06 (KST) / (하루 100회 제한 준수 중)*
