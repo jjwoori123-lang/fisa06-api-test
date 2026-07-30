@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bayern Munich News: FC Bayern, Harry Kane set to begin talks shortly; A swap deal involving Arsenal?; Vinícius Júnior set to stay at Real Madrid; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/236013/bayern-munich-kane-arsenal-vinicius-real-madrid-fc-barcelona-chelsea-tottenham-liverpool-psg) - **Bavarian Football Works**
-2. [Barcelona looking for loan move for Guille Fernandez](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/127699/barcelona-looking-for-loan-move-for-guille-fernandez) - **Barca Blaugranes**
-3. [‘Everyone has to learn,’ says Xabi Alonso after Chelsea’s narrow victory in friendly](https://worldsoccertalk.com/news/everyone-has-to-learn-says-xabi-alonso-after-chelseas-narrow-victory-in-friendly/) - **Worldsoccertalk.com**
-4. [Borussia Dortmund Interested in FC Köln’s Said El Mala](https://www.fearthewall.com/borussia-dortmund-transfer-news-rumors/24565/borussia-dortmund-interested-in-fc-kolns-said-el-mala) - **Fear The Wall**
-5. [‘Osimhen still dreams Premier League move’](https://punchng.com/osimhen-still-dreams-premier-league-move/) - **The Punch**
-6. [The Ravens’ biggest offseason addition is ready to silence the doubters](https://www.sportingnews.com/us/nfl/baltimore-ravens/news/ravens-biggest-offseason-addition-ready-silence-doubters/a0b6ddef6fe457822c42c05a) - **Sporting News**
-7. [The Seahawks’ contract standoff with Leonard Williams just took a new turn](https://www.sportingnews.com/us/nfl/seattle-seahawks/news/seahawks-contract-standoff-leonard-williams-just-took-turn/8d63b15804bc19ae4cf024b3) - **Sporting News**
-8. [Why did Cardinals move to Arizona?](https://www.lifesciencesworld.com/why-did-cardinals-move-to-arizona/) - **Lifesciencesworld.com**
-9. [John Stones picks Italy as destination over Chelsea and Arsenal](https://worldsoccertalk.com/news/john-stones-picks-italy-as-destination-over-chelsea-and-arsenal/) - **Worldsoccertalk.com**
-10. [Brewers' Burke Earns Prospect Team of the Week Honors](https://roundtable.io/sports/mlb/brewers/news/brewers-burke-earns-prospect-team-of-the-week-honors) - **Roundtable.io**
+1. [Just how many goals will are needed to keep a club in the Premier League](https://untold-arsenal.com/archives/122035) - **Untold-arsenal.com**
+2. [Royal Challengers Bengaluru, Rajasthan Royals Sales Push IPL Cricket’s Business Value to $20.6 Billion, Houlihan Lokey Study Finds](https://variety.com/2026/sports/news/ipl-valuation-rcb-rajasthan-royals-sales-1236822733/) - **Variety**
+3. [IPL's business value soars above $20 billion, says report](https://www.channelnewsasia.com/sport/ipls-business-value-soars-above-20-billion-says-report-6285326) - **CNA**
+4. [Report: Chelsea defender wanted by European giants](https://eplindex.com/148852/report-chelsea-defender-wanted-by-european-giants.html) - **English Premier League Index - Opta Stats**
+5. [Breece Hall Believes Jets Rid Themselves of Past ‘Craziness’ Ahead of NFL Season](https://heavy.com/sports/nfl/new-york-jets/breece-hall-says-jets-craziness-gone/) - **Heavy.com**
+6. [CNBC Daily Open: Banking beats, SK Hynix sinks and surprise attack rattles oil](https://www.cnbc.com/2026/07/29/daily-open-bank-earnings-ubs-sk-hynix.html) - **CNBC**
+7. [I may be killed, arrested or jailed: Sheikh Hasina vows Bangladesh return by December](https://economictimes.indiatimes.com/news/international/world-news/i-may-be-killed-arrested-or-jailed-sheikh-hasina-vows-bangladesh-return-by-december/articleshow/132703295.cms) - **The Times of India**
+8. [Bangladesh ex-premier Hasina vows to return despite fearing for life](https://www.channelnewsasia.com/asia/bangladesh-ex-pm-sheikh-hasina-vows-return-fearing-life-6285256) - **CNA**
+9. [Fiorentina make approach for Jadon Sancho after Manchester United departure](https://www.getfootballnewsitaly.com/2026/fiorentina-make-approach-for-jadon-sancho-after-manchester-united-departure/) - **Getfootballnewsitaly.com**
+10. [How to watch Liverpool vs Wrexham live: Preseason friendly stream, TV channel, team news](https://www.nbcsports.com/soccer/news/how-to-watch-liverpool-vs-wrexham-live-preseason-friendly-stream-tv-channel-team-news) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-07-30 13:23:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-07-30 16:17:51 (KST) / (하루 100회 제한 준수 중)*
