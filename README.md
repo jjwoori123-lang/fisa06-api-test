@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [England's Stones joins Inter Milan on free transfer](https://sports.yahoo.com/articles/englands-stones-joins-inter-milan-184653867.html) - **Yahoo Entertainment**
-2. [Jon Gruden gives roster advice, high praise for Dallas Cowboys’ dynamic WR duo](https://www.thebiglead.com/jon-gruden-advice-praise-dallas-cowboys/) - **The Big Lead**
-3. [Defender Stones joins Inter Milan on free transfer](https://www.bbc.com/sport/football/articles/cp3rklgggn5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Defender Stones joins Inter Milan on free transfer](https://www.bbc.co.uk/sport/football/articles/cp3rklgggn5o) - **BBC News**
-5. [Summit League announces 2026-27 men's, women's basketball schedules](https://www.argusleader.com/story/sports/college/2026/07/30/summit-league-mens-womens-basketball-schedules-sdsu/91110134007/) - **Argus Leader**
-6. [Senne Lammens cuts short his holiday after World Cup to rejoin Manchester United training - as new signing Youri Tielemans arrives at Carrington](https://www.dailymail.com/sport/football/article-16017627/Senne-Lammens-holiday-World-Cup-Manchester-United-training-Youri-Tielemans.html) - **Dailymail.com**
-7. [Official: Stones completes free transfer to Inter](https://football-italia.net/official-stones-completes-inter-transfer/) - **Football Italia**
-8. [Barcelona not ruling out move for Premier League striker despite injury; Laporta a big admirer](https://barcauniversal.com/barcelona-not-ruling-out-move-for-premier-league-striker-despite-injury-laporta-a-big-admirer/) - **Barcauniversal.com**
-9. [Aston Villa Eye £20m Player As Martinez’s Replacement: Right Choice For Emery?](https://the4thofficial.net/2026/07/aston-villa-eye-20m-player-as-martinezs-replacement-right-choice-for-emery/) - **The4thofficial.net**
-10. [Real Madrid have 4 ‘untouchables’ heading into the new season](https://getfootballnewsspain.com/real-madrid-have-4-untouchables-heading-into-the-new-season/) - **Getfootballnewsspain.com**
+1. [Bombshell in LaLiga: Carlos Espí joins Real Madrid](https://onefootball.com/en/news/bombshell-in-laliga-carlos-espi-joins-real-madrid-43208130) - **Onefootball.com**
+2. [Report: Aston Villa pushing hard to sign Premier League forward](https://eplindex.com/148918/report-aston-villa-pushing-hard-to-sign-premier-league-forward.html) - **English Premier League Index - Opta Stats**
+3. [Curt Cignetti Says the SEC Whines Too Much](https://easysportz.com/2026/07/curt-cignetti-says-the-sec-whines-too-much/) - **Easysportz.com**
+4. [Portland Timbers announce signing of former Netherlands and Spurs star striker](https://www.alloutsoccer.com/news/portland-timbers-mls-janssen-signing-1962583) - **Alloutsoccer.com**
+5. [Who owns the Cadillac F1 racing team? Inside the TWG Global group backed by General Motors](https://www.sportingnews.com/us/formula-1/news/who-owns-cadillac-f1-racing-team-twg-global-group-general-motors/d2378cf7e2676c1f0c07d017) - **Sporting News**
+6. [Nearly All of Europe Vow to Boycott World Cup Over Plan for Kushner Family Sale](https://truthout.org/articles/nearly-all-of-europe-vow-to-boycott-world-cup-over-plan-for-kushner-family-sale/) - **Truthout**
+7. [Former Cowboys & Giants star announces immediate retirement from NFL](https://www.thebiglead.com/former-cowboys-giants-star-retirement-nfl/) - **The Big Lead**
+8. [Eddie Howe Leaves Newcastle United Having Changed The Club’s Trajectory](https://worldfootballindex.com/2026/07/eddie-howe-leaves-newcastle-united-having-changed-the-clubs-trajectory/) - **World Football Index**
+9. [Arsenal Are Keeping Tabs On This Bundesliga Defender: One For The Future?](https://the4thofficial.net/2026/07/arsenal-are-keeping-tabs-on-this-bundesliga-defender/) - **The4thofficial.net**
+10. [Paul Merson says other teams are worried about Arsenal’s growth](https://www.justarsenal.com/paul-merson-says-other-teams-are-worried-about-arsenals-growth/419500) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-08-01 03:47:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-01 05:20:58 (KST) / (하루 100회 제한 준수 중)*
