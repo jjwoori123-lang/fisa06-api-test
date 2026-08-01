@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Real Madrid hand Vinicius Jr contract ultimatum: Spanish giants 'table take it or leave it offer' to Arsenal target amid contract stand-off](https://www.dailymail.com/sport/football/article-16019525/real-madrid-vinicius-jr-contract-arsenal.html) - **Dailymail.com**
-2. [Newcastle United’s €30M goalkeeper deal highlights growing crypto-sports sponsorship trend](https://cryptobriefing.com/newcastle-united-crypto-sponsorship-goalkeeper-deal/) - **Crypto Briefing**
-3. [IGPL And Asian Tour Deepen Ties For Golf Development](https://www.rediff.com/sports/report/am-green-igpl-asian-tour-strengthen-partnership-after-morocco/20260731.htm) - **Rediff.com**
-4. [Fireflies.ai joins Rotterdam Dockers as founding investor ahead of inaugural ETPL](https://economictimes.indiatimes.com/news/sports/cricket/fireflies-ai-joins-rotterdam-dockers-as-founding-investor-ahead-of-inaugural-etpl/articleshow/132764866.cms) - **The Times of India**
-5. [Harvey Elliott hoping for ‘second chance’ under new Liverpool boss Andoni Iraola](https://thefootballfaithful.com/harvey-elliott-liverpool-andoni-iraola/) - **The Football Faithful**
-6. [Fulham and Crystal Palace battle over Toulouse defender as Premier League clubs keep spending big](https://cryptobriefing.com/fulham-crystal-palace-cresswell-transfer/) - **Crypto Briefing**
-7. [Chelsea vs Tottenham: Line-ups, stats and preview as Premier League rivals meet in Sydney](https://www.101greatgoals.com/match-previews/chelsea-vs-tottenham-line-ups-stats-preview/) - **101 Great Goals**
-8. [Puka Nacua's negotiating power strengthens with Chris Olave's $132M deal](https://theramswire.usatoday.com/story/sports/nfl/rams/2026/07/31/rams-puka-nacua-chris-olave-contract-saints/91117874007/) - **USA Today**
-9. [Inter revive Curtis Jones pursuit as Liverpool stand firm on midfielder’s valuation](https://footballtoday.com/2026/07/31/inter-revive-curtis-jones-pursuit-as-liverpool-stand-firm-on-midfielders-valuation/) - **Footballtoday.com**
-10. [What next for Mayo’s Kobe McDonald? AFL spotlight awaits after All-Ireland triumph](https://www.irishtimes.com/sport/gaelic-games/2026/07/31/what-next-for-mayos-kobe-mcdonald-afl-spotlight-awaits-after-all-ireland-triumph/) - **The Irish Times**
+1. [La Fábrica delivers again as Real Madrid bank €196m from academy talent](https://www.playmakerstats.com/news/i-la-fabrica-i-delivers-again-as-real-madrid-bank-196m-from-academy-talent/1165526) - **Playmakerstats.com**
+2. [Is Vinicius Junior worth paying £470,000-a-week at Arsenal?](https://www.justarsenal.com/is-vinicius-junior-worth-paying-470000-a-week-at-arsenal/419519) - **Just Arsenal News**
+3. [Campbell, Morris headline the Americans to watch in EFL](https://sbisoccer.com/2026/07/campbell-morris-headline-the-americans-to-watch-in-efl) - **Sbisoccer.com**
+4. [Report: Liverpool make contact to sign former Chelsea star](https://anfieldindex.com/97025/report-liverpool-make-contact-to-sign-former-chelsea-star.html) - **Anfieldindex.com**
+5. [Chargers' Khalil Mack explains why he returned for 2026 season](https://chargerswire.usatoday.com/story/sports/nfl/chargers/2026/07/31/chargers-khalil-mack-super-bowl-nfl-season/91117759007/) - **USA Today**
+6. [Chelsea given suspended transfer ban but points deduction removed after appeal](https://www.irishtimes.com/sport/soccer/2026/07/31/chelsea-given-suspended-transfer-ban-but-points-deduction-removed-after-appeal/) - **The Irish Times**
+7. [Chelsea statement on £10m fine in full](https://www.bbc.com/sport/football/articles/cj9dwex1wkpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Chelsea avoid points deduction but are fined and given suspended transfer ban for rule breaches](https://hayters.com/chelsea-avoid-points-deduction-but-are-fined-and-given-suspended-transfer-ban-for-rule-breaches/) - **Hayters.com**
+9. [Chelsea fined £10m, handed transfer ban over secret agent payments](https://www.vanguardngr.com/2026/07/chelsea-fined-10m-handed-transfer-ban-over-secret-agent-payments/) - **Vanguard**
+10. [How to watch Milwaukee Brewers vs. Los Angeles Angels on MLB Sunday Leadoff: Live stream/TV info, preview](https://www.nbcsports.com/mlb/news/how-to-watch-milwaukee-brewers-vs-los-angeles-angels-on-mlb-sunday-leadoff-live-stream-tv-info-preview) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-08-01 21:03:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-01 23:02:16 (KST) / (하루 100회 제한 준수 중)*
