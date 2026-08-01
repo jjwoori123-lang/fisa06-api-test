@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Premier league bans gambling sponsors](https://www.footyheadlines.com/2646571793/betting-ban-takes-effect-no-more-gambling-sponsors-in-the-premier-league.html) - **Footyheadlines.com**
-2. [England hires NZ's Fleming to coach men's Test side, Root as captain](https://www.abc.net.au/news/2026-07-31/england-hires-nzs-fleming-to-coach-test-side-root-to-captain/106980488) - **ABC News (AU)**
-3. [England's John Stones Arrives In Italy To Finalize Transfer To Inter Milan](https://www.foxsports.com/stories/soccer/john-stones-excited-to-be-here-as-ex-man-city-defender-arrives-in-milan-to-complete-inter-transfer) - **Fox Sports**
-4. [Roy Keane and Micah Richards like you've never seen them before! Sky pundits dress up for campaign ahead of new Premier League season](https://www.dailymail.com/sport/football/article-16016851/Roy-Keane-Micah-Richards-Sky-campaign.html) - **Dailymail.com**
-5. [Five former Gators who could be traded at MLB deadline](https://gatorswire.usatoday.com/story/sports/college/gators/baseball/2026/07/30/florida-baseball-mlb-trade-deadline-candidates/91112861007/) - **USA Today**
-6. [How to live stream Leeds United vs Sunderland: Men’s Soccer Friendlies, TV channel](https://www.thebiglead.com/how-to-live-stream-leeds-united-vs-sunderland-mens-soccer-friendlies-tv-channel/) - **The Big Lead**
-7. [Team News: Leeds United vs Sunderland](https://www.leedsunited.com/en/news/team-news-leeds-united-vs-sunderland) - **Leedsunited.com**
-8. [Real Madrid sign Levante striker Espi](https://punchng.com/real-madrid-sign-levante-striker-espi/) - **The Punch**
-9. [“One to keep an eye on” – Liverpool could move for Premier League defender](https://anfieldindex.com/96969/one-to-keep-an-eye-on-liverpool-could-move-for-premier-league-defender.html) - **Anfieldindex.com**
-10. [England defender John Stones joins Inter Milan and says he is 'hungry to win again'](https://sports.yahoo.com/articles/england-defender-john-stones-joins-215144525.html) - **Yahoo Entertainment**
+1. [How to watch Chelsea vs Tottenham Hotspur live: Preseason friendly stream, TV channel, team news](https://www.nbcsports.com/soccer/news/how-to-watch-chelsea-vs-tottenham-hotspur-live-preseason-friendly-stream-tv-channel-team-news) - **NBCSports.com**
+2. [Bristol Rhythm looks to make Bristol a premier soccer venue](https://www.wjhl.com/news/bristol-rhythm-look-to-make-bristol-a-premier-soccer-venue/) - **WJHL-TV News Channel 11**
+3. [PFL CEO comments on merger, working with Jake Paul](https://www.sherdog.com/news/news/PFL-CEO-comments-on-merger-working-with-Jake-Paul-202155) - **Sherdog.com**
+4. [A Comprehensive List Of The 20 Most Iconic Sports Video Games Of All-Time](https://brobible.com/sports/article/20-most-iconic-sports-video-games-of-all-time/) - **BroBible**
+5. [Pre-Season Report: Leeds United 1-0 Sunderland](https://sports.yahoo.com/articles/pre-season-report-leeds-united-1-0-sunderland-014600770.html) - **Yahoo Entertainment**
+6. [Pre-Season Report: Leeds United 1-0 Sunderland](https://www.leedsunited.com/en/news/pre-season-report-leeds-united-1-0-sunderland) - **Leedsunited.com**
+7. [Leeds United vs Sunderland Results Today: Club Friendly Live Score, Updates, Stats](https://heavy.com/sports/soccer/leeds-united-vs-sunderland-results-today-club-friendly-live-score-updates-stats/) - **Heavy.com**
+8. [How to Watch Leeds United vs Sunderland Live Today: Pre-Season Preview, Stats, Lineup](https://heavy.com/sports/soccer/how-to-watch-leeds-united-vs-sunderland-live-today-pre-season-preview-stats-lineup/) - **Heavy.com**
+9. [PFL, Jake Paul’s MVP merge to form new global combat sports company](https://www.sherdog.com/news/news/PFL-Jake-Pauls-MVP-merge-to-form-new-global-combat-sports-company-202147) - **Sherdog.com**
+10. ['He's been forgiven. He's part of the family now': Uncovered for the first time, this is the secret new life of Oscar Pistorius](https://www.dailymail.com/sport/othersports/article-16010195/Oscar-Pistorius-new-life-girlfriend-church-family.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-08-01 09:13:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-01 12:55:32 (KST) / (하루 100회 제한 준수 중)*
