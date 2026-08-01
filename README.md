@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Kroupi will be a 'big miss' for Cherries](https://www.bbc.com/sport/football/articles/cddj39yn8rlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Bayer Leverkusen’s blockchain-friendly brand meets old-school transfer as Faye heads to Celta Vigo](https://cryptobriefing.com/football-transfer-faye-celta-vigo-crypto-sports/) - **Crypto Briefing**
-3. [Alonso reveals Chelsea fitness boost ahead of Spurs friendly – and suggests more exits are likely following Lacroix signing](https://hayters.com/alonso-reveals-chelsea-fitness-boost-ahead-of-spurs-friendly-and-suggests-more-exits-are-likely-following-lacroix-signing/) - **Hayters.com**
-4. [Stavley, Ghodoussi company makes offer for West Ham stake](https://www.skysports.com/football/news/11685/13568730/west-ham-amanda-staveley-and-mehrdad-ghodoussis-pcp-capital-partners-make-offer-for-stake-in-championship-club) - **Sky Sports**
-5. [Wolfsburg reject 1. FC Köln offer for Brazilian midfielder Vinicius Souza](https://www.getfootballnewsgermany.com/2026/vinicius-souza-koln-reject/) - **Getfootballnewsgermany.com**
-6. [Arsenal 'doing something really special' under Arteta - Szczesny](https://www.bbc.com/sport/football/articles/clylj7ly5xjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [De Zerbi will respect Romero and Vicario exit wishes](https://thefootballfaithful.com/de-zerbi-will-respect-romero-and-vicario-exit-wishes/) - **The Football Faithful**
-8. [Official: Roger Schmidt set to replace Jürgen Klopp as Red Bull Head of Global Football](https://bulinews.com/official-roger-schmidt-set-replace-jurgen-klopp-red-bull-head-global-football) - **Bulinews.com**
-9. [Arsenal reach €90m agreement with Newcastle to sign Bruno Guimaraes](https://www.getfootballnewsfrance.com/2026/arsenal-reach-e90m-agreement-with-newcastle-to-sign-bruno-guimaraes/) - **Get French Football News**
+1. [Real Madrid hand Vinicius Jr contract ultimatum: Spanish giants 'table take it or leave it offer' to Arsenal target amid contract stand-off](https://www.dailymail.com/sport/football/article-16019525/real-madrid-vinicius-jr-contract-arsenal.html) - **Dailymail.com**
+2. [Newcastle United’s €30M goalkeeper deal highlights growing crypto-sports sponsorship trend](https://cryptobriefing.com/newcastle-united-crypto-sponsorship-goalkeeper-deal/) - **Crypto Briefing**
+3. [IGPL And Asian Tour Deepen Ties For Golf Development](https://www.rediff.com/sports/report/am-green-igpl-asian-tour-strengthen-partnership-after-morocco/20260731.htm) - **Rediff.com**
+4. [Fireflies.ai joins Rotterdam Dockers as founding investor ahead of inaugural ETPL](https://economictimes.indiatimes.com/news/sports/cricket/fireflies-ai-joins-rotterdam-dockers-as-founding-investor-ahead-of-inaugural-etpl/articleshow/132764866.cms) - **The Times of India**
+5. [Harvey Elliott hoping for ‘second chance’ under new Liverpool boss Andoni Iraola](https://thefootballfaithful.com/harvey-elliott-liverpool-andoni-iraola/) - **The Football Faithful**
+6. [Fulham and Crystal Palace battle over Toulouse defender as Premier League clubs keep spending big](https://cryptobriefing.com/fulham-crystal-palace-cresswell-transfer/) - **Crypto Briefing**
+7. [Chelsea vs Tottenham: Line-ups, stats and preview as Premier League rivals meet in Sydney](https://www.101greatgoals.com/match-previews/chelsea-vs-tottenham-line-ups-stats-preview/) - **101 Great Goals**
+8. [Puka Nacua's negotiating power strengthens with Chris Olave's $132M deal](https://theramswire.usatoday.com/story/sports/nfl/rams/2026/07/31/rams-puka-nacua-chris-olave-contract-saints/91117874007/) - **USA Today**
+9. [Inter revive Curtis Jones pursuit as Liverpool stand firm on midfielder’s valuation](https://footballtoday.com/2026/07/31/inter-revive-curtis-jones-pursuit-as-liverpool-stand-firm-on-midfielders-valuation/) - **Footballtoday.com**
+10. [What next for Mayo’s Kobe McDonald? AFL spotlight awaits after All-Ireland triumph](https://www.irishtimes.com/sport/gaelic-games/2026/07/31/what-next-for-mayos-kobe-mcdonald-afl-spotlight-awaits-after-all-ireland-triumph/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-08-01 19:42:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-01 21:03:25 (KST) / (하루 100회 제한 준수 중)*
