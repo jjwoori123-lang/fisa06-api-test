@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The Hoddle of Coffee: Tottenham Hotspur News and Links for Friday, July 31](https://cartilagefreecaptain.sbnation.com/hoddle-of-coffee/72335/the-hoddle-of-coffee-tottenham-hotspur-news-and-links-for-friday-july-31) - **SB Nation**
-2. [Ashwin backs Bhuvneshwar Kumar for India's 2027 World Cup squad](https://economictimes.indiatimes.com/news/sports/cricket/ashwin-backs-bhuvneshwar-kumar-for-indias-2027-world-cup-squad/articleshow/132758210.cms) - **The Times of India**
-3. [Alonso says new Chelsea signing Lacroix has 'winner's mentality'](https://sports.yahoo.com/articles/alonso-says-chelsea-signing-lacroix-061509756.html) - **Yahoo Entertainment**
-4. [Liverpool among five clubs interested in Bournemouth star Rayan](https://sportsview.co.uk/2026/07/liverpool-among-five-clubs-interested-in-bournemouth-star-rayan?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=liverpool-among-five-clubs-interested-in-bournemouth-star-rayan) - **Sportsview.co.uk**
-5. [World Cup must be kept out of private hands: Chelsea manager Alonso](https://sports.yahoo.com/articles/world-cup-must-kept-private-060017787.html) - **Yahoo Entertainment**
-6. [Arsenal preseason schedule, results 2026: Dates, times, more to know about Gunners plans](https://www.sportingnews.com/us/soccer/arsenal/news/arsenal-preseason-schedule-results-2026-friendlies/1c39c930c6772c17a4ca3197) - **Sporting News**
-7. [Confirmed: Real Madrid sign 21-year-old La Liga striker on five year deal](https://madriduniversal.com/confirmed-real-madrid-sign-21-year-old-la-liga-striker-on-five-year-deal/) - **Madriduniversal.com**
-8. [Report: Premier League Clubs Chase £40m Chelsea Striker](https://eplindex.com/148925/report-premier-league-clubs-chase-40m-chelsea-striker.html) - **English Premier League Index - Opta Stats**
-9. [Harrison Bader’s first season with Giants over after late-night scooter crash](https://nypost.com/2026/07/31/sports/harrison-baders-first-season-with-giants-over-after-scooter-crash/) - **New York Post**
-10. [Tottenham manager Roberto De Zerbi is a big admirer of Omar Marmoush](https://sportsview.co.uk/2026/07/tottenham-manager-roberto-de-zerbi-is-a-big-admirer-of-omar-marmoush?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-manager-roberto-de-zerbi-is-a-big-admirer-of-omar-marmoush) - **Sportsview.co.uk**
+1. [Real Madrid signs Spanish striker Carlos Espí from Levante](https://sports.yahoo.com/articles/real-madrid-signs-spanish-striker-085239436.html) - **Yahoo Entertainment**
+2. [Report: Manchester United preparing move for Premier League star](https://eplindex.com/148931/report-manchester-united-preparing-move-for-premier-league-star.html) - **English Premier League Index - Opta Stats**
+3. [What to watch out for as Cymru Premier kicks off a new era](https://www.bbc.com/sport/football/articles/c80nkxm7v2ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Yankee Stadium game highlights Wrexham's rise - Ward](https://www.bbc.com/sport/football/articles/cn9n2xpj7l3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [West Ham United in talks to sign Celtic midfielder Arne Engels](https://sportsview.co.uk/2026/07/west-ham-united-in-talks-to-sign-celtic-midfielder-arne-engels?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=west-ham-united-in-talks-to-sign-celtic-midfielder-arne-engels) - **Sportsview.co.uk**
+6. [Euro giants now lining up move that would embarrass Liverpool again](https://www.anfieldwatch.co.uk/liverpool-fc/news/euro-giants-now-lining-up-move-that-would-embarrass-liverpool-again/) - **Anfieldwatch.co.uk**
+7. [Chelsea’s Palmer says World Cup snub has motivated him](https://www.vanguardngr.com/2026/07/chelseas-palmer-says-world-cup-snub-has-motivated-him/) - **Vanguard**
+8. [FULL LIST: Top 11 most underpaid EPL players – Report](https://punchng.com/full-list-top-11-most-underpaid-epl-players-report/) - **The Punch**
+9. [Are Bournemouth set to strike defender gold again with Silva?](https://www.skysports.com/football/news/11743/13565767/antonio-silva-to-bournemouth-benfica-and-portugal-defender-is-premier-league-ready-and-a-good-fit-for-marco-rose) - **Sky Sports**
+10. [Pundit says Bayern Munich’s Michael Olise doesn’t need return to England](https://www.bavarianfootballworks.com/bayern-munich-bundesliga/236889/pundit-says-bayern-munichs-michael-olise-doesnt-need-return-to-england) - **Bavarian Football Works**
 
 
 ---
-*최근 업데이트: 2026-08-01 15:32:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-01 17:55:23 (KST) / (하루 100회 제한 준수 중)*
