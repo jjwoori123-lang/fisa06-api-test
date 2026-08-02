@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Why Arsenal could truly sign Vinicius this summer](https://www.justarsenal.com/why-arsenal-could-truly-sign-vinicius-this-summer/419568) - **Just Arsenal News**
-2. [Consortium led by Staveley and others to buy Gold family's stakes in West Ham](https://www.channelnewsasia.com/sport/consortium-led-staveley-and-others-buy-gold-familys-stakes-in-west-ham-6292986) - **CNA**
-3. [Stuttgart held to friendly draw after late Paris FC comeback](https://bulinews.com/stuttgart-held-friendly-draw-after-late-paris-comeback) - **Bulinews.com**
-4. [Maresca ‘happy’ after first Man City game despite Inter shootout defeat](https://www.vanguardngr.com/2026/08/maresca-happy-after-first-man-city-game-despite-inter-shootout-defeat/) - **Vanguard**
-5. [Report – Milan Consider Shock Reunion with Real Madrid Star to Bolster Attacking Options](https://cultofcalcio.com/report-milan-consider-shock-reunion-with-real-madrid-star-to-bolster-attacking-options/) - **Cultofcalcio.com**
-6. [Man City preseason schedule, results 2026: Dates, times, more to know about Enzo Maresca plans](https://www.sportingnews.com/us/soccer/manchester-city/news/man-city-preseason-schedule-results-2026-friendlies/0cfd02a5ea997486a599d39a) - **Sporting News**
-7. [Bournemouth sign Portugal defender Silva for £25m from Benfica](https://www.vanguardngr.com/2026/08/bournemouth-sign-portugal-defender-silva-for-25m-from-benfica/) - **Vanguard**
-8. [‘Sometimes he wants to leave’ – De Zerbi speaks on Richarlison’s Tottenham future](https://footballtoday.com/2026/08/01/sometimes-he-wants-to-leave-de-zerbi-speaks-on-richarlisons-tottenham-future/) - **Footballtoday.com**
-9. [Arsenal close to signing young striker from Crystal Palace](https://dailycannon.com/2026/08/arsenal-mylo-bernard-crystal-palace/) - **Dailycannon.com**
-10. [Detroit Tigers 2026: A Lost Season Filled With Hope For The Future?](https://www.stadiumrant.com/detroit-tigers-2026-a-lost-season-filled-with/) - **Stadiumrant.com**
+1. [Chelsea confirm signing of Danny Welbeck as 35-year-old former England striker joins on two-year deal](https://www.dailymail.com/sport/football/article-16021953/chelsea-danny-welbeck-signing-xabi-alonso.html) - **Dailymail.com**
+2. [Manchester City propose alternative to transfer levy hike as Premier League’s New Deal funding debate intensifies](https://cityxtra.co.uk/50517/manchester-city-propose-alternative-to-transfer-levy-hike-as-premier-leagues-new-deal-funding-debate-intensifies/) - **Cityxtra.co.uk**
+3. [Chelsea confirm Welbeck signing from Brighton](https://www.bbc.com/sport/football/articles/cly5g1vy3p3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Longtime 49ers executive Paraag Marathe leaves the team to focus on European soccer](https://sports.yahoo.com/articles/longtime-49ers-executive-paraag-marathe-162507715.html) - **Yahoo Entertainment**
+5. [Next FIFA president: Candidates to challenge Gianni Infantino once presidential election is called](https://www.sportingnews.com/us/soccer/news/next-fifa-president-candidates-infantino-presidential-election/619c707edb2b95aac7fa757b) - **Sporting News**
+6. [Chelsea confirm Welbeck signing from Brighton](https://www.bbc.co.uk/sport/football/articles/cly5g1vy3p3o) - **BBC News**
+7. ['He set the standard here every day' - Hurzeler praises Welbeck](https://www.bbc.com/sport/football/articles/cvg93259v51o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Everton make move for defensive midfielder](https://royalbluemersey.sbnation.com/english-premier-league-transfers-news-rumors/81667/everton-transfer-news-latest-christian-norgaard-arsenal-brentford) - **SB Nation**
+9. [Staveley consortium agrees to buy 25% stake in West Ham](https://www.rte.ie/sport/soccer/2026/0801/1586130-staveley-consortium-agrees-to-buy-25-stake-in-west-ham/) - **RTE**
+10. [Chelsea set to reward Joao Pedro with new contract after outstanding debut season](https://sportsview.co.uk/2026/08/chelsea-set-to-reward-joao-pedro-with-new-contract-after-outstanding-debut-season?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-set-to-reward-joao-pedro-with-new-contract-after-outstanding-debut-season) - **Sportsview.co.uk**
 
 
 ---
-*최근 업데이트: 2026-08-03 00:31:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-03 01:34:33 (KST) / (하루 100회 제한 준수 중)*
