@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [WFAI Cup round-up: Doherty double, Shels and Athlone win](https://www.rte.ie/sport/soccer/2026/0801/1586092-doherty-helps-galway-progress-wins-for-shels-and-athlone/) - **RTE**
-2. [Report: La Liga Giant Target Federico Chiesa](https://anfieldindex.com/97121/report-la-liga-giant-target-federico-chiesa.html) - **Anfieldindex.com**
-3. [Romano: Everton Interested in Man United Young Striker](https://eplindex.com/148987/romano-everton-interested-in-man-united-young-striker.html) - **English Premier League Index - Opta Stats**
-4. [Newcastle United star Bruno Guimaraes to have Arsenal medical on Monday after £80m deal & five-year contract](https://sportsview.co.uk/2026/08/newcastle-united-ace-bruno-guimaraes-to-have-arsenal-medical-on-monday-after-80m-deal-five-year-contract?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-united-ace-bruno-guimaraes-to-have-arsenal-medical-on-monday-after-80m-deal-five-year-contract) - **Sportsview.co.uk**
-5. [Hull City set to offer €20m to Nice for Mohamed-Ali Cho](https://www.getfootballnewsfrance.com/2026/hull-city-set-to-offer-e20m-to-nice-for-mohamed-ali-cho/) - **Get French Football News**
-6. ['Excellent' Liverpool transfer target is now open to exiting his current club](https://www.anfieldwatch.co.uk/liverpool-fc/news/excellent-liverpool-transfer-target-is-now-open-to-exiting-his-current-club/) - **Anfieldwatch.co.uk**
-7. [Newcastle United star Bruno Guimaraes to have Arsenal medical on Monday after £80m deal & five-year contract](https://sportsview.co.uk/2026/08/newcastle-united-star-bruno-guimaraes-to-have-arsenal-medical-on-monday-after-80m-deal-five-year-contract?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-united-star-bruno-guimaraes-to-have-arsenal-medical-on-monday-after-80m-deal-five-year-contract) - **Sportsview.co.uk**
-8. [Bayern Munich joins Arsenal in the race for Champions League winner](https://www.justarsenal.com/bayern-munich-joins-arsenal-in-the-race-for-champions-league-winner/419573) - **Just Arsenal News**
-9. [West Ham United Hold Interest In £100K-A-Week Forward: Why Should They Avoid Paying Over The Odds?](https://the4thofficial.net/2026/08/west-ham-united-hold-interest-in-100k-a-week-forward-why-should-they-avoid-paying-over-the-odds/) - **The4thofficial.net**
-10. [J.J. Watt brings life to new uniforms with the design of Burnley's away soccer kit](https://texanswire.usatoday.com/story/sports/nfl/texans/2026/08/01/texans-j-j-watt-uniform-deisgn-burnley-soccer-club-away-kit-2026-cbs/91135160007/) - **USA Today**
+1. [Liverpool to green light €30m exit, Andoni Iraola wants him gone soon](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-to-green-light-eur30m-exit-andoni-iraola-wants-him-gone-soon/) - **Anfieldwatch.co.uk**
+2. [Arsenal 4 – Girona 1: match report](https://theshortfuse.sbnation.com/preseason-match-reports/37223/arsenal-4-girona-1-match-report) - **SB Nation**
+3. [Arsenal Are In Pole Position To Sign This Barcelona Forward: Should Arteta Snap Him Up?](https://the4thofficial.net/2026/08/arsenal-are-in-pole-position-to-sign-this-barcelona-forward-should-arteta-snap-him-up/) - **The4thofficial.net**
+4. [Lazio & Hull City to Compete for Another Striker After Espi Letdown](https://thelaziali.com/2026/08/01/lazio-hull-city-franjo-ivanovic-carlos-espi/) - **Thelaziali.com**
+5. [Arsenal and Tottenham set to battle it out for La Liga forward](https://www.justarsenal.com/arsenal-and-tottenham-set-to-battle-it-out-for-la-liga-forward/419566) - **Just Arsenal News**
+6. [Staveley’s Offer for West Ham Stake Tees Up Kretinsky Clash](https://www.livemint.com/companies/staveleys-offer-for-west-ham-stake-tees-up-kretinsky-clash-11785614007002.html) - **Livemint**
+7. [Tottenham Hotspur Are Set To Rival Arsenal For This Bundesliga Midfielder: Good Fit For De Zerbi?](https://the4thofficial.net/2026/08/tottenham-hotspur-are-set-to-rival-arsenal-for-this-bundesliga-midfielder-good-fit-for-de-zerbi/) - **The4thofficial.net**
+8. [David Ornstein: Everton Agree £7m Deal For Arsenal Midfielder](https://eplindex.com/148990/david-ornstein-everton-agree-7m-deal-for-arsenal-midfielder.html) - **English Premier League Index - Opta Stats**
+9. [Girona 1-4 Arsenal: Report, result, goals from pre season friendly](https://www.101greatgoals.com/football/premier-league/girona-arsenal-report-result-goals-pre-season-friendly-havertz-tzolis-dowman-jesus/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-08-03 04:13:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-03 05:16:52 (KST) / (하루 100회 제한 준수 중)*
