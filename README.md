@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea confirm signing of Danny Welbeck as 35-year-old former England striker joins on two-year deal](https://www.dailymail.com/sport/football/article-16021953/chelsea-danny-welbeck-signing-xabi-alonso.html) - **Dailymail.com**
-2. [Manchester City propose alternative to transfer levy hike as Premier League’s New Deal funding debate intensifies](https://cityxtra.co.uk/50517/manchester-city-propose-alternative-to-transfer-levy-hike-as-premier-leagues-new-deal-funding-debate-intensifies/) - **Cityxtra.co.uk**
-3. [Chelsea confirm Welbeck signing from Brighton](https://www.bbc.com/sport/football/articles/cly5g1vy3p3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Longtime 49ers executive Paraag Marathe leaves the team to focus on European soccer](https://sports.yahoo.com/articles/longtime-49ers-executive-paraag-marathe-162507715.html) - **Yahoo Entertainment**
-5. [Next FIFA president: Candidates to challenge Gianni Infantino once presidential election is called](https://www.sportingnews.com/us/soccer/news/next-fifa-president-candidates-infantino-presidential-election/619c707edb2b95aac7fa757b) - **Sporting News**
-6. [Chelsea confirm Welbeck signing from Brighton](https://www.bbc.co.uk/sport/football/articles/cly5g1vy3p3o) - **BBC News**
-7. ['He set the standard here every day' - Hurzeler praises Welbeck](https://www.bbc.com/sport/football/articles/cvg93259v51o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Everton make move for defensive midfielder](https://royalbluemersey.sbnation.com/english-premier-league-transfers-news-rumors/81667/everton-transfer-news-latest-christian-norgaard-arsenal-brentford) - **SB Nation**
-9. [Staveley consortium agrees to buy 25% stake in West Ham](https://www.rte.ie/sport/soccer/2026/0801/1586130-staveley-consortium-agrees-to-buy-25-stake-in-west-ham/) - **RTE**
-10. [Chelsea set to reward Joao Pedro with new contract after outstanding debut season](https://sportsview.co.uk/2026/08/chelsea-set-to-reward-joao-pedro-with-new-contract-after-outstanding-debut-season?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-set-to-reward-joao-pedro-with-new-contract-after-outstanding-debut-season) - **Sportsview.co.uk**
+1. [Girona vs Arsenal - friendly LIVE: Premier League defending champions begin their pre-season in Spain](https://www.dailymail.com/sport/football/article-16019019/Girona-vs-Arsenal-friendly-LIVE.html) - **Dailymail.com**
+2. [Arsenal close in on Bruno Guimaraes transfer](https://theshortfuse.sbnation.com/arsenal-transfer-rumors-and-news/37210/arsenal-close-in-on-bruno-guimaraes-transfer-premier-league-newcastle-brazil-saka-rice-arteta) - **SB Nation**
+3. [Official: Chelsea sign Danny Welbeck from Brighton & Hove Albion](https://weaintgotnohistory.sbnation.com/chelsea-fc-transfer-rumours-news/170657/official-chelsea-sign-danny-welbeck-from-brighton-hove-albion) - **SB Nation**
+4. [Liverpool Reject Inter’s Third Bid for Jones as €8m Gap Remains](https://sempreinter.com/2026/08/01/curtis-jones-inter-milan-third-bid-rejected/) - **SempreInter**
+5. [Former England striker Welbeck joins Chelsea from Brighton](https://sports.yahoo.com/articles/former-england-striker-welbeck-joins-170548329.html) - **Yahoo Entertainment**
+6. [Girona vs Arsenal: Confirmed teams, full line ups for pre season friendly](https://www.101greatgoals.com/news/girona-vs-arsenal-live-teams-online-stream-tv-channel-where-to-watch-line-ups/) - **101 Great Goals**
+7. [Chelsea sign experienced striker Danny Welbeck](https://www.playmakerstats.com/news/chelsea-sign-experienced-striker-danny-welbeck/1165939) - **Playmakerstats.com**
+8. [2027 NFL Mock Draft: Texans Stun the World by Replacing C.J. Stroud, Browns End Shedeur Sanders Experiment](https://www.profootballnetwork.com/2027-nfl-mock-draft-august-weil/?utm_medium=rss&amp;utm_source=nordot) - **Pro Football Network**
+9. [Man City lose to Inter on penalties in Maresca’s debut](https://punchng.com/man-city-lose-to-inter-on-penalties-in-marescas-debut/) - **The Punch**
+10. [Fabrizio Romano: Tottenham Hotspur leading the race to sign Premier League forward](https://eplindex.com/148978/fabrizio-romano-tottenham-hotspur-leading-the-race-to-sign-premier-league-forward.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-08-03 01:34:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-03 02:42:11 (KST) / (하루 100회 제한 준수 중)*
