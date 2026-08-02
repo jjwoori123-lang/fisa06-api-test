@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Cagliari new boy Winks hails Maresca: ‘He made me see football differently’](https://football-italia.net/cagliari-new-boy-winks-hails-maresca/) - **Football Italia**
-2. [Real Madrid megastar’s entourage denies reports of an agreement with Arsenal](https://madriduniversal.com/real-madrid-megastars-entourage-denies-reports-of-an-agreement-with-arsenal/) - **Madriduniversal.com**
-3. [Championship Step Up Beckons for Wheatley With Four-Way Loan Battle](https://strettynews.com/2026/08/01/ethan-wheatley-loan-cardiff-city-aberdeen-cambuur/) - **Strettynews.com**
-4. [How Manchester City’s wage power led to double academy coup over Arsenal](https://cityxtra.co.uk/50518/how-manchester-citys-wage-power-led-to-double-academy-coup-over-arsenal/) - **Cityxtra.co.uk**
-5. [Report: Liverpool have held talks to sign England World Cup star](https://anfieldindex.com/97072/report-liverpool-have-held-talks-to-sign-england-world-cup-star.html) - **Anfieldindex.com**
-6. [Fabregas stays coy on Como’s Chalobah and Couto pursuits](https://football-italia.net/fabregas-stays-coy-on-como-chalobah-couto/) - **Football Italia**
-7. [Chelsea vs Tottenham: Line-ups confirmed for pre-season clash in Sydney](https://www.101greatgoals.com/football/premier-league/chelsea-vs-tottenham-line-ups-confirmed/) - **101 Great Goals**
-8. [Real Madrid and Vinicius remain at stalemate in contract talks over renewal bonus as Mourinho steps in](https://madriduniversal.com/real-madrid-and-vinicius-remain-at-stalemate-in-contract-talks-over-renewal-bonus-as-mourinho-steps-in/) - **Madriduniversal.com**
-9. [Real Madrid sell academy defender Victor Valdepenas to Fiorentina in €8m deal](https://siempremadrid.com/real-madrid-sell-academy-defender-victor-valdepenas-to-fiorentina-in-e8m-deal/) - **Siempremadrid.com**
-10. [What, George Weah?!](https://www.mancity.com/features/george-weah-feature) - **Manchester City FC**
+1. [Crawley sign loan trio Michalski, Kamara & Tinsdale](https://www.bbc.com/sport/football/articles/c04krkq325zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Bayern still interested in signing Man Utd star](https://cfbayerninsider.com/2026/08/bayern-munich-interested-benjamin-sesko/) - **Cfbayerninsider.com**
+3. [Foden determined to repay City’s faith under Maresca](https://thefootballfaithful.com/foden-determined-to-repay-citys-faith-under-maresca/) - **The Football Faithful**
+4. [AC Milan enquire about Arsenal youngster Nwaneri](https://thefootballfaithful.com/ac-milan-enquire-about-arsenal-youngster-nwaneri/) - **The Football Faithful**
+5. [Why has Mudryk’s doping ban ended early?](https://dailycannon.com/2026/08/mudryk-doping-ban-ends/) - **Dailycannon.com**
+6. [Are Sheffield United on the Verge of Selling Top Rated Midfielder?](https://sheffunitedway.co.uk/2026/08/01/are-sheffield-united-on-the-verge-of-selling-top-rated-midfielder/) - **Sheffunitedway.co.uk**
+7. [Foden captains City in Maresca’s first match as boss](https://www.mancity.com/news/mens/inter-hong-kong-tour-team-news-tactics-63921167) - **Manchester City FC**
+8. [All done deals in August 2026](https://www.bbc.com/sport/football/articles/c9v4d2z2p7yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Real Madrid renewal or move? Viní Jr future said to be decided soon](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260801-99-225189/) - **Dpa-international.com**
+10. [Estevao header earns Chelsea draw against Spurs as big-money transfers headline Sydney friendly](https://cryptobriefing.com/estevao-header-chelsea-spurs-sydney-friendly/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-08-02 18:10:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-02 19:52:41 (KST) / (하루 100회 제한 준수 중)*
