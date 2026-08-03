@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Coughlan's Waterford merely controlling the controllables](https://www.rte.ie/sport/soccer/2026/0802/1586212-coughlans-waterford-merely-controlling-the-controllables/) - **RTE**
-2. [Chelsea Are In Talks To Sign This La Liga Defender: What Will He Add To Alonso’s Side?](https://the4thofficial.net/2026/08/chelsea-are-in-talks-to-sign-this-la-liga-defender/) - **The4thofficial.net**
-3. [West Ham United interested in AZ Alkmaar striker Troy Parrott](https://sportsview.co.uk/2026/08/west-ham-united-interested-in-az-alkmaar-striker-troy-parrott?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=west-ham-united-interested-in-az-alkmaar-striker-troy-parrott) - **Sportsview.co.uk**
-4. [Hull City approaches Everton for midfielder Tim Iroegbunam in summer transfer push](https://cryptobriefing.com/hull-city-everton-tim-iroegbunam-transfer/) - **Crypto Briefing**
-5. [Sevilla set sights on Bournemouth star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_713e4ae9-c211-4705-aeb7-46de28ed86ae) - **Yahoo Entertainment**
-6. [Aston Villa Defender Is Open To Joining Arsenal This Summer: Should Arteta Get Him On Board?](https://the4thofficial.net/2026/08/aston-villa-defender-is-open-to-joining-arsenal-this-summer/) - **The4thofficial.net**
-7. [St Pat’s fail to make superiority count in draw with dogged Candystripes](https://www.irishtimes.com/sport/soccer/2026/08/02/st-pats-fail-to-make-superiority-count-in-draw-with-dogged-candystripes/) - **The Irish Times**
-8. [Isak and Wirtz start as Liverpool and Leeds meet in Chicago for pre-season match](https://www.bbc.com/sport/football/live/c5yvxvy9q2lt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Liverpool Are Confident About Recruiting This Paris Saint-Germain Winger: What Will He Bring To Anfield?](https://the4thofficial.net/2026/08/liverpool-are-confident-about-recruiting-this-paris-saint-germain-winger/) - **The4thofficial.net**
-10. [Journalist: Manchester United star wanted by Bayern Munich in surprise move](https://eplindex.com/149015/journalist-manchester-united-star-wanted-by-bayern-munich-in-surprise-move.html) - **English Premier League Index - Opta Stats**
+1. [Papers: Man Utd edging closer to winning race for Hall](https://www.skysports.com/football/transfer-paper-talk/12709/13569280/manchester-united-edging-closer-to-winning-transfer-race-for-lewis-hall-after-left-back-rejects-chelsea-return-paper-talk) - **Sky Sports**
+2. [Serie A Giants Take A Big Decision On Aston Villa Veteran: Were The English Club Right With Their Stance?](https://the4thofficial.net/2026/08/serie-a-giants-take-a-big-decision-on-aston-villa-veteran-were-the-english-club-right-with-their-stance/) - **The4thofficial.net**
+3. [Pre-season round-up: Sunderland topple Wrexham while Burnley undone by Torino](https://www.101greatgoals.com/football/pre-season-round-up-sunderland-wrexham-burnley-torino/) - **101 Great Goals**
+4. [Americans Abroad Weekend Rewind: Pukstas, Adeniran, and more](https://sbisoccer.com/2026/08/americans-abroad-weekend-rewind-pukstas-adeniran-and-more) - **Sbisoccer.com**
+5. [Update On Sunderland And Their Pursuit Of This Ligue 1 Defender: What Should Le Bris Do?](https://the4thofficial.net/2026/08/update-on-sunderland-and-their-pursuit-of-this-ligue-1-defender-what-should-le-bris-do/) - **The4thofficial.net**
+6. [Xabi Alonso admits Real Madrid left him with ‘a scar’](https://getfootballnewsspain.com/xabi-alonso-admits-real-madrid-left-him-with-a-scar/) - **Getfootballnewsspain.com**
+7. [Manchester United Identify This Arsenal Full-Back As A Target: Should Carrick Snap Him Up?](https://the4thofficial.net/2026/08/manchester-united-identify-this-arsenal-full-back-as-a-target-should-carrick-snap-him-up/) - **The4thofficial.net**
+8. [Football’s Most Expensive Summer Yet](https://worldfootballindex.com/2026/08/footballs-most-expensive-summer-yet/) - **World Football Index**
+9. [Manchester City Tipped To Move In For This Everton Wide Player: Decent Fit For Maresca?](https://the4thofficial.net/2026/08/manchester-city-tipped-to-move-in-for-this-everton-wide-player/) - **The4thofficial.net**
+10. [Coughlan's Waterford merely controlling the controllables](https://www.rte.ie/sport/soccer/2026/0802/1586212-coughlans-waterford-merely-controlling-the-controllables/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-08-04 05:27:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-04 06:46:04 (KST) / (하루 100회 제한 준수 중)*
