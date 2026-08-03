@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Leeds United considering move for €50m-rated forward](https://eplindex.com/149013/report-leeds-united-considering-move-for-e50m-rated-forward.html) - **English Premier League Index - Opta Stats**
-2. [What does full season of O'Neill at Celtic look like?](https://www.bbc.com/sport/football/articles/c8j2ngnevz3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Lynch declines to comment on McClean's 'issues' post](https://www.bbc.com/sport/football/live/c5yd8dy5jx9t?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [What does full season of O'Neill at Celtic look like?](https://www.bbc.co.uk/sport/football/articles/c8j2ngnevz3o) - **BBC News**
-5. [Sri Lanka star recalls biggest Gautam Gambhir 'regret' from India's 2011 World Cup final, match-winning six by MS Dhoni](https://www.cricketnews.com/en/cricket/news/sri-lanka-star-gautam-gambhir-regret-india-2011-world-cup-final-ms-dhoni/51818d12c40dc26292dcfa0e) - **Cricketnews.com**
-6. [One position every Premier League club still needs to strengthen in before the transfer window closes](https://www.101greatgoals.com/news/one-position-premier-league-club-strengthen-transfer-window/) - **101 Great Goals**
-7. [The Review: The lack of homegrown players in Scotland's top flight is turning into a crisis](https://www.dailymail.com/sport/football/article-16023307/The-Review-lack-homegrown-players-Scotlands-flight-turning-crisis.html) - **Dailymail.com**
-8. [Everton With £30m Bid For 19 G/A Star: Worth The Bid From The Toffees?](https://the4thofficial.net/2026/08/everton-with-30m-bid-for-19-g-a-star-worth-the-bid-from-the-toffees/) - **The4thofficial.net**
-9. [Liverpool transfer target could be heading to Saudi Pro League in mega money deal](https://anfieldindex.com/97171/liverpool-transfer-target-could-be-heading-to-saudi-pro-league-in-mega-money-deal.html) - **Anfieldindex.com**
+1. [Coughlan's Waterford merely controlling the controllables](https://www.rte.ie/sport/soccer/2026/0802/1586212-coughlans-waterford-merely-controlling-the-controllables/) - **RTE**
+2. [Chelsea Are In Talks To Sign This La Liga Defender: What Will He Add To Alonso’s Side?](https://the4thofficial.net/2026/08/chelsea-are-in-talks-to-sign-this-la-liga-defender/) - **The4thofficial.net**
+3. [West Ham United interested in AZ Alkmaar striker Troy Parrott](https://sportsview.co.uk/2026/08/west-ham-united-interested-in-az-alkmaar-striker-troy-parrott?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=west-ham-united-interested-in-az-alkmaar-striker-troy-parrott) - **Sportsview.co.uk**
+4. [Hull City approaches Everton for midfielder Tim Iroegbunam in summer transfer push](https://cryptobriefing.com/hull-city-everton-tim-iroegbunam-transfer/) - **Crypto Briefing**
+5. [Sevilla set sights on Bournemouth star](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_713e4ae9-c211-4705-aeb7-46de28ed86ae) - **Yahoo Entertainment**
+6. [Aston Villa Defender Is Open To Joining Arsenal This Summer: Should Arteta Get Him On Board?](https://the4thofficial.net/2026/08/aston-villa-defender-is-open-to-joining-arsenal-this-summer/) - **The4thofficial.net**
+7. [St Pat’s fail to make superiority count in draw with dogged Candystripes](https://www.irishtimes.com/sport/soccer/2026/08/02/st-pats-fail-to-make-superiority-count-in-draw-with-dogged-candystripes/) - **The Irish Times**
+8. [Isak and Wirtz start as Liverpool and Leeds meet in Chicago for pre-season match](https://www.bbc.com/sport/football/live/c5yvxvy9q2lt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Liverpool Are Confident About Recruiting This Paris Saint-Germain Winger: What Will He Bring To Anfield?](https://the4thofficial.net/2026/08/liverpool-are-confident-about-recruiting-this-paris-saint-germain-winger/) - **The4thofficial.net**
+10. [Journalist: Manchester United star wanted by Bayern Munich in surprise move](https://eplindex.com/149015/journalist-manchester-united-star-wanted-by-bayern-munich-in-surprise-move.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-08-04 03:51:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-04 05:27:14 (KST) / (하루 100회 제한 준수 중)*
