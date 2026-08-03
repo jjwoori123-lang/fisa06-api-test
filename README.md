@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bayern Munich News: FC Bayern to miss on Bradley Barcola again; Mike Godts wants PSG move; Kennett Eichhorn out with metabolic disorder; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/237690/bayern-munich-barcola-godts-psg-eichhorn-liverpool-psg-real-madrid-fc-barcelona-arsenal-chelsea-tottenham) - **Bavarian Football Works**
-2. [Dodgers close to acquiring Tarik Skubal in blockbuster three-player trade](https://www.sportingnews.com/us/mlb/los-angeles-dodgers/news/dodgers-close-acquiring-tarik-skubal-blockbuster-three-player-trade/bc672338a2a842988a96ecc7) - **Sporting News**
-3. [BREAKING: Detroit Tigers Trade Tarik Skubal](https://detroitsportsnation.com/breaking-detroit-tigers-trade-tarik-skubal/ddrysdale/detroit-tigers/08/01/2026/488887/) - **Detroit Sports Nation**
-4. [Dodgers scratch premier prospect Zyhir Hope before trade deadline](https://clutchpoints.com/mlb/los-angeles-dodgers/dodgers-news-la-scratches-premier-prospect-zyhir-hope-before-trade-deadline) - **ClutchPoints**
-5. [De Zerbi unsure over Richarlison's future at Spurs](https://sports.yahoo.com/articles/zerbi-unsure-over-richarlisons-future-020406819.html) - **Yahoo Entertainment**
-6. [Tottenham manager De Zerbi 'happy' with pre-season progress](https://sports.yahoo.com/articles/tottenham-manager-zerbi-happy-pre-012208766.html) - **Yahoo Entertainment**
-7. [Why Rob Key picked Stephen Fleming over England's up-and-coming coaches: The coaching 'shift' that has swept cricket, why foreigners are judged through a different prism and the county coach who has been harshly overlooked](https://www.dailymail.com/sport/cricket/article-16019535/rob-key-stephen-fleming-england-coach.html) - **Dailymail.com**
-8. [Iwobi scores in Fulham’s final pre-season game](https://punchng.com/iwobi-scores-in-fulhams-final-pre-season-game/) - **The Punch**
-9. [Randal Kolo Muani Will Depart PSG Permanently, Not on Loan](https://psgworld.io/news/news/randal-kolo-muani-will-depart-psg-permanently-not-on-loan) - **Psgworld.io**
-10. [Manchester United vs Atletico Madrid: 5 Things We Learned Before The Premier League](https://www.stadiumrant.com/manchester-united-vs-atletico-madrid-5-things-we-learned-before-the-premier-league/) - **Stadiumrant.com**
+1. [Report: Potential Arsenal move excites Aston Villa star](https://eplindex.com/148996/report-potential-arsenal-move-excites-aston-villa-star.html) - **English Premier League Index - Opta Stats**
+2. [Arteta coy on Vinicius Jr but says Arsenal very ambitious](https://thefootballfaithful.com/arteta-coy-on-vinicius-jr-but-says-arsenal-very-ambitious/) - **The Football Faithful**
+3. [Everton agree £7m deal for Arsenal’s Norgaard](https://thefootballfaithful.com/everton-agree-7m-deal-for-arsenals-norgaard/) - **The Football Faithful**
+4. [Arsenal-linked Real Madrid forward set for an imminent meeting with club as exit looms](https://madriduniversal.com/arsenal-linked-real-madrid-forward-set-for-an-imminent-meeting-with-club-as-exit-looms/) - **Madriduniversal.com**
+5. [Barcelona not expected to enter a bidding war to retain the services of PSG, Atletico target](https://barcauniversal.com/barcelona-not-expected-to-enter-a-bidding-war-to-retain-the-services-of-psg-atletico-target/) - **Barcauniversal.com**
+6. [Conceição-Zirkzee Swap Could Break Juventus Transfer Deadlock](https://strettynews.com/2026/08/02/zirkzee-juventus-swap-conceicao-united/) - **Strettynews.com**
+7. [Arteta promises to splash the cash to help title defence](https://www.rte.ie/sport/soccer/2026/0802/1586151-arteta-promises-to-splash-the-cash-to-help-title-defence/) - **RTE**
+8. [Wirtz: “[Liverpool] Have a Lot of Things to Do Better”](https://liverpooloffside.sbnation.com/liverpool-preseason-coverage/82308/wirtz-liverpool-have-a-lot-of-things-to-do-better-premier-league-improvement-iraola-germany) - **SB Nation**
+9. [Newcastle midfielder Bruno Guimaraes set to join Arsenal in £80m deal](https://footballtoday.com/2026/08/02/newcastle-midfielder-bruno-guimaraes-set-to-join-arsenal-in-80m-deal/) - **Footballtoday.com**
+10. [Phoenix Mercury swing big, acquire All-Star Kelsey Plum before trade deadline](https://burncitysports.com/2026/08/02/phoenix-mercury-trade-for-kelsey-plu/) - **Burncitysports.com**
 
 
 ---
-*최근 업데이트: 2026-08-03 13:01:38 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-03 16:51:19 (KST) / (하루 100회 제한 준수 중)*
