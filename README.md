@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Revealed: The stumbling block in Vinicius Jr's talks with Real Madrid... as Arsenal wait to pounce](https://www.dailymail.com/sport/football/article-16024751/The-stumbling-block-Vinicius-Jrs-talks-Real-Madrid-Arsenal-wait-pounce.html) - **Dailymail.com**
-2. [PSG Strikes Google Deal for AI And Smartphones](https://www.rediff.com/sports/report/paris-saint-germain-announces-google-partnership-for-ai-and-smartphones/20260803.htm) - **Rediff.com**
-3. [Sturm Graz and Freckleton a LASK warning for Celtic](https://www.bbc.com/sport/articles/cq56j59zq5go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Do Liverpool need to sign a right-sided specialist?](https://www.bbc.com/sport/football/articles/cy45j4w95zwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Hull will wait on Gelhardt decision - Ilicali](https://www.bbc.com/sport/football/articles/c62eqpq4p5po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Newcastle reject Guimaraes bid from Arsenal](https://www.skysports.com/football/news/11095/13557961/bruno-guimaraes-arsenal-bid-rejected-by-newcastle-with-magpies-determined-to-keep-captain-and-brazil-international-midfielder) - **Sky Sports**
-7. [Semenyo sings Maresca’s praises as Manchester City star prepares for fresh start](https://www.101greatgoals.com/football/premier-league/semenyo-sings-maresca-praises-manchester-city/) - **101 Great Goals**
-8. [Atletico Madrid join race for Man City’s Grealish](https://thefootballfaithful.com/atletico-madrid-join-race-for-man-citys-grealish/) - **The Football Faithful**
-9. [Semenyo excited by Maresca’s attacking vision at City](https://thefootballfaithful.com/semenyo-excited-by-marescas-attacking-vision-at-city/) - **The Football Faithful**
-10. [Is Bruno Guimaraes going to Arsenal? What to know about Gunners' $103 million transfer hope for Newcastle star](https://www.sportingnews.com/us/soccer/arsenal/news/bruno-guimaraes-arsenal-transfer-newcastle/dd617921cc5eceac18cad6e7) - **Sporting News**
+1. [Chelsea and Como reach agreement for Trevoh Chalobah](https://sportsview.co.uk/2026/08/chelsea-and-como-reach-agreement-for-trevoh-chalobah?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-and-como-reach-agreement-for-trevoh-chalobah) - **Sportsview.co.uk**
+2. [Chelsea FC sells defender Trevoh Chalobah to Como for €30M as crypto-sponsored clubs reshape transfer economics](https://cryptobriefing.com/chelsea-chalobah-como-transfer-crypto-sponsorship/) - **Crypto Briefing**
+3. [Atlanta's Dream House? Barbie comes to State Farm Arena tonight](https://www.usatoday.com/story/news/state/georgia/atlanta/2026/08/03/when-is-the-barbie-themed-atlanta-dream-game-head-to-state-farm-arena/91148395007/) - **USA Today**
+4. [Ted Lasso: From its strange origin story to mega success, mockery, and ‘very difficult’ cast calls](https://www.the-independent.com/arts-entertainment/tv/news/ted-lasso-series-four-jason-sudeikis-apple-b3026463.html) - **The-independent.com**
+5. [Inside Liverpool's summer so far - should fans be worried?](https://www.bbc.co.uk/sport/football/articles/c4g42rz2y89o) - **BBC News**
+6. [Chelsea have 'big potential to improve' - Alonso](https://www.bbc.com/sport/football/articles/c1k1wk4l29yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [How much does Moyes trust his squad?](https://www.bbc.com/sport/football/articles/c5y4eyr1ze0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Newcastle reject Arsenal's initial bid for Guimaraes](https://www.rte.ie/sport/soccer/2026/0803/1586285-newcastle-reject-arsenals-initial-bid-for-guimaraes/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-08-04 20:47:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-04 23:21:04 (KST) / (하루 100회 제한 준수 중)*
