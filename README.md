@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Rival MLB executive rips Tigers for Skubal trade](https://www.thebiglead.com/mlb-executive-rips-tigers-skubal-trade/) - **The Big Lead**
-2. [Socceroos teen star set for record $33million transfer to Premier League side Hull FC](https://www.dailymail.com/sport/football/article-16023677/Socceroos-teen-star-set-record-33million-transfer-Premier-League-Hull-FC.html) - **Dailymail.com**
-3. [Liverpool 2, Leeds United 4 – Match Recap: Don’t Get Your Hopes Up](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/82335/liverpool-2-leeds-united-4-preseason-2026-result-recap-florian-wirtz) - **SB Nation**
-4. [Sony Has Officially Found The Next Off Campus](https://screenrant.com/fake-skating-next-off-campus-sony-movie/) - **Screen Rant**
-5. [Leeds rally for 4-2 friendly win over Liverpool](https://sports.yahoo.com/articles/leeds-rally-4-2-friendly-230651132.html) - **Yahoo Entertainment**
-6. [Tottenham talent Mikey Moore on the verge of joining 1. FC Köln on loan](https://www.getfootballnewsgermany.com/2026/mikey-moore-koln/) - **Getfootballnewsgermany.com**
-7. [Liverpool's second-half changes exposed Andoni Iraola's blunt attack but the new boss MUST give starts to two teenagers - while Daniel Farke faces a huge call as Leeds aim to make a big push](https://www.dailymail.com/sport/football/article-16019039/Liverpool-Andoni-Iraola-attack.html) - **Dailymail.com**
-8. [Liverpool 2-4 Leeds: Report, result and goals as Premier League rivals play out thriller](https://www.101greatgoals.com/football/premier-league/liverpool-2-4-leeds-report-result-goals/) - **101 Great Goals**
-9. [Leeds United rallies past Liverpool 4-2 in Chicago friendly as sports betting tokens eye pre-season action](https://cryptobriefing.com/leeds-liverpool-sports-betting-crypto/) - **Crypto Briefing**
-10. ['Gutted' former Premier League star Charlie Austin reveals he has been rejected from first coaching job by former club QPR](https://www.dailymail.com/sport/football/article-16023597/Premier-League-Charlie-Austin-coaching.html) - **Dailymail.com**
+1. [Liverpool boss Iraola downplays Frimpong injury concerns](https://www.channelnewsasia.com/sport/liverpool-boss-iraola-downplays-frimpong-injury-concerns-6294486) - **CNA**
+2. [Dodgers’ Tarik Skubal Trade Exposes MLB Rivals’ Failure](https://heavy.com/sports/mlb/los-angeles-dodgers/tarik-skubal-trade-mlb-rivals-failure/) - **Heavy.com**
+3. [30 years on: Remembering Nigeria’s 1996 Olympic heroes](https://punchng.com/30-years-on-remembering-nigerias-1996-olympic-heroes/) - **The Punch**
+4. [Summer Scouting: Is Arch Manning an Option for the Vikings?](https://roundtable.io/sports/nfl/vikings/draft/summer-scouting-is-arch-manning-an-option-for-the-vikings) - **Roundtable.io**
+5. [Arsenal Agree to Sell Christian Norgaard to Everton for £7m After Just Seven Premier League Appearances](https://futbolchronicle.com/arsenal-agree-to-sell-christian-norgaard-to-everton-for-7m-after-just-seven-premier-league-appearances/) - **Futbolchronicle.com**
+6. [Nationals Announce Deadline Position With Luis Garcia Jr. Trade](https://heavy.com/sports/mlb/washington-nationals/sellers-trade-deadline-luis-garcia-jr-trade/) - **Heavy.com**
+7. [Texas A&M Hall of Famer is the highest‑rated edge rusher in Madden 27](https://aggieswire.usatoday.com/story/sports/college/aggies/football/2026/08/02/texas-aggie-myles-garrett-earns-99-rating-in-madden-27-after-recordbreaking-nfl-season/91143544007/) - **USA Today**
+8. [Tottenham ready to launch Osimhen bid](https://punchng.com/tottenham-ready-to-launch-osimhen-bid/) - **The Punch**
+9. [Ex-Ondo lawmaker advocates grassroots football devt](https://punchng.com/ex-ondo-lawmaker-advocates-grassroots-football-devt/) - **The Punch**
+10. [Arokodare scores on Ajax debut](https://punchng.com/arokodare-scores-on-ajax-debut/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-08-04 09:17:20 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-04 12:43:47 (KST) / (하루 100회 제한 준수 중)*
