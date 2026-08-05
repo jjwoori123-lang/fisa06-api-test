@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [There are things we need to do - Maresca on transfer window](https://www.mancity.com/news/mens/enzo-maresca-k-league-all-stars-press-conference-preview-63921364) - **Manchester City FC**
-2. [Tottenham join Aston Villa in race for Chelsea striker Nicolas Jackson](https://footballtoday.com/2026/08/04/tottenham-join-aston-villa-in-race-for-chelsea-striker-nicolas-jackson/) - **Footballtoday.com**
-3. [The 2026 NFL Fan Survey: 5,000 NFL Fans Give Coaches A Vote Of Confidence Before Pre-season](https://www.covers.com/nfl/nfl-fan-confidence-survey) - **Covers.com**
-4. [PSG pushes to beat Arsenal to highly rated attacker](https://www.justarsenal.com/psg-pushes-to-beat-arsenal-to-highly-rated-attacker/419733) - **Just Arsenal News**
-5. [Manchester United’s pre-season moves highlight growing intersection of sports, fan tokens, and prediction markets](https://cryptobriefing.com/manchester-united-psg-sports-crypto/) - **Crypto Briefing**
-6. [Liverpool's squad lacks depth: What areas does Iraola needs to strengthen?](https://www.skysports.com/football/news/11669/13569738/liverpool-transfer-news-andoni-iraolas-squad-lacks-depth-where-should-reds-strengthen) - **Sky Sports**
-7. [Manchester City forward will miss K-League All Stars friendly with injury, confirms Enzo Maresca](https://cityxtra.co.uk/50575/manchester-city-forward-ruled-out-of-k-league-all-stars-friendly-with-injury-confirms-enzo-maresca/) - **Cityxtra.co.uk**
-8. [Vinicius ‘happy’ at Real Madrid, wants to renew but with €10 million salary hike](https://madriduniversal.com/vinicius-happy-at-real-madrid-wants-to-renew-but-with-e10-million-salary-hike/) - **Madriduniversal.com**
-9. [Coventry among Premier League clubs interested in Mudryk](https://thefootballfaithful.com/coventry-among-premier-league-clubs-interested-in-mudryk/) - **The Football Faithful**
-10. [Mudryk could return on Wednesday after drugs suspension](https://www.bbc.com/sport/football/articles/c330r3l3lgmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Malen on Roma dream, Aston Villa envy and Summerville attempt](https://football-italia.net/malen-roma-dream-aston-villa-envy-summerville/) - **Football Italia**
+2. [Former Premier League referee Anthony Taylor in bizarre unveiling ceremony as he confirms new job](https://www.dailymail.com/sport/football/article-16027879/anthony-taylor-referee-unveiling-ceremony-turkey.html) - **Dailymail.com**
+3. [Arsenal ‘close’ to deal for Newcastle captain Guimaraes](https://www.101greatgoals.com/football/arsenal-close-to-deal-for-newcastle-captain-guimaraes/) - **101 Great Goals**
+4. [Stuttgart’s Ermedin Demirovic quashes Leeds links, yet hopes to draw Arsenal in the Champions League](https://www.getfootballnewsgermany.com/2026/demirovic-leeds-arsenal/) - **Getfootballnewsgermany.com**
+5. [Minkah Fitzpatrick does 2025 impossible with highlight at Jets camp](https://jetswire.usatoday.com/story/sports/nfl/jets/2026/08/04/minkah-fitzpatrick-impossible-highlight-new-york-jets-camp-interception-nfl/91157857007/) - **USA Today**
+6. [Meet the £1m-rated non-league star Abdulmalik](https://www.bbc.com/sport/football/articles/cjejkke8nj7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Rico Lewis' sister Sacha turns pro with Man City](https://www.bbc.com/sport/football/articles/c0jld6pwxg6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Rico Lewis' sister Sacha turns pro with Man City](https://www.bbc.co.uk/sport/football/articles/c0jld6pwxg6o) - **BBC News**
+9. [Vinicius Jr hints his future lies at Real Madrid in potential blow for Arsenal](https://www.101greatgoals.com/football/premier-league/vinicius-jr-hints-his-future-lies-at-real-madrid-in-potential-blow-for-arsenal/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-08-05 22:19:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-06 00:33:40 (KST) / (하루 100회 제한 준수 중)*
