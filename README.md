@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [IPL 2027 trade tracker: Complete list of all player and cash deals before the IPL 2027 mini-auction](https://www.cricketnews.com/en/cricket/news/ipl-2027-trade-tracker-list-all-player-cash-deals-ipl-2027-mini-auction/6076978c3e37359b873c2e4a) - **Cricketnews.com**
-2. [Why Barcelona opted against signing Osimhen](https://punchng.com/why-barcelona-opted-against-signing-osimhen/) - **The Punch**
-3. [Customs name Jaiyeola alternate captain](https://punchng.com/customs-name-jaiyeola-alternate-captain/) - **The Punch**
-4. [Trabzonspor refuse to lower Nwaiwu’s price](https://punchng.com/trabzonspor-refuse-to-lower-nwaiwus-price/) - **The Punch**
-5. [Yankees bandage their offense, but not much else at the 2026 Trade Deadline](https://www.pinstripealley.com/yankees-rumors/200497/yankees-trade-deadline-results-garcia-jr-ramos-doval-catcher-needs-misses-rutschman-jeffers-stephenson-bullpen) - **Pinstripe Alley**
-6. [What Morgan Gibbs-White's agent change means for Nottingham Forest future: Oliver Glasner's role, the boost for Bayern Munich, interest from Chelsea and where boyhood club Man United stand](https://www.dailymail.com/sport/football/article-16024783/Morgan-Gibbs-White-agent-change-transfers-Nottingham-Forest-Man-United-Chelsea-Bayern-Munich.html) - **Dailymail.com**
-7. [Official: César Palacios joins Fulham from Real Madrid](https://www.managingmadrid.com/real-madrid-cf-news/110942/official-cesar-palacios-joins-fulham-from-real-madrid) - **Managing Madrid**
-8. [Official: Gonzalo García joins Fulham from Real Madrid](https://www.managingmadrid.com/real-madrid-cf-news/110939/official-gonzalo-garcia-joins-fulham-from-real-madrid) - **Managing Madrid**
-9. [Vinicius returns as Real Madrid prepare for crucial week of contract talks](https://www.managingmadrid.com/latest-news/110933/vinicius-returns-as-real-madrid-prepare-for-crucial-week-of-contract-talks) - **Managing Madrid**
-10. [Chelsea star out to impress Xabi Alonso in Hong Kong after overcoming tough start](https://www.scmp.com/sport/football/article/3362828/chelsea-star-out-impress-xabi-alonso-hong-kong-after-overcoming-tough-start) - **Post Magazine**
+1. [Man City count on me despite exit rumours - Kovacic](https://www.bbc.com/sport/football/articles/cy74e6yzvm7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Man City count on me despite exit rumours - Kovacic](https://www.bbc.co.uk/sport/football/articles/cy74e6yzvm7o) - **BBC News**
+3. [Confirmed: Real Madrid forward joins Premier League side](https://madriduniversal.com/confirmed-real-madrid-forward-joins-premier-league-side/) - **Madriduniversal.com**
+4. [Manchester City delay Real Madrid deal for Spain captain as they wait for Barcelona](https://barcauniversal.com/manchester-city-delay-real-madrid-deal-for-spain-captain-as-they-wait-for-barcelona/) - **Barcauniversal.com**
+5. [Who am I? Guess Premier League star No 15](https://www.bbc.co.uk/sport/football/articles/c8jn129ymm3o) - **BBC News**
+6. [A youngster to watch at each Premier League club this season](https://www.bbc.com/sport/football/articles/cre4np3pnxqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [A youngster to watch at each Premier League club this season](https://www.bbc.co.uk/sport/football/articles/cre4np3pnxqo) - **BBC News**
+8. [Quick commerce's rapid growth is rewriting India’s advertising playbook](https://www.livemint.com/companies/news/quick-commerce-advertising-india-blinkit-zepto-swiggy-instamart-11785816276156.html) - **Livemint**
+9. [Hannah Waddingham says Ted Lasso stars had one question when fourth season was announced](https://www.the-independent.com/arts-entertainment/tv/news/ted-lasso-season-4-hannah-waddingham-juno-temple-b3026907.html) - **The-independent.com**
+10. [Annual Spurs tournament honours teenager's memory](https://www.bbc.co.uk/news/articles/c1k107g9r7no) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-05 12:39:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-05 15:12:13 (KST) / (하루 100회 제한 준수 중)*
