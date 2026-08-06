@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal agree transfer fee with Newcastle for Bruno Guimarães](https://www.irishtimes.com/sport/soccer/2026/08/05/arsenal-agree-fee-with-newcastle-for-bruno-guimaraes/) - **The Irish Times**
-2. [Bavaria instead of Brazil: Where the Bundesliga needs to improve](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260805-99-256621/) - **Dpa-international.com**
-3. [Ted Lasso’s Juno Temple reveals she married long-term boyfriend](https://www.the-independent.com/arts-entertainment/tv/news/juno-temple-ted-lasso-married-michal-szymanski-b3027782.html) - **The-independent.com**
-4. [These are 2026's best high school football games in the Lubbock area](https://www.lubbockonline.com/story/sports/high-school/2026/08/05/best-high-school-football-games-in-lubbock-area-2026-season/91070903007/) - **LubbockOnline.com**
-5. [Serie A Return Unlikely for Former Milan Star Reijnders](https://cultofcalcio.com/serie-a-return-unlikely-for-former-milan-star-reijnders/) - **Cultofcalcio.com**
-6. [Arsenal & Everton still in talks despite player medical](https://dailycannon.com/2026/08/arsenal-norgaard-everton-transfer-details/) - **Dailycannon.com**
-7. [Arsenal agree £75 mn Guimaraes deal: reports](https://sports.yahoo.com/articles/arsenal-agree-75-mn-guimaraes-090334275.html) - **Yahoo Entertainment**
-8. [Salah set to join Turkish side Trabzonspor](https://www.skysports.com/football/news/11095/13569969/mohamed-salah-former-liverpool-forward-set-to-join-turkish-club-trabzonspor-on-free-transfer-after-leaving-anfield) - **Sky Sports**
-9. [Preview: Shels face Ajax as Bohs host FC Midtjylland](https://www.rte.ie/sport/soccer/2026/0805/1586556-preview-shels-face-ajax-as-bohs-host-fc-midtjylland/) - **RTE**
+1. [(VIDEO) Where to Watch Chelsea vs. Juventus Live Stream Today: TV Channel, Kickoff Time and Full Details Now](https://www.ibtimes.com.au/chelsea-juventus-preseason-friendly-hong-kong-1873616) - **Ibtimes.com.au**
+2. [Bill Simmons confirms which Premier League team he is supporting for 2026/27](https://www.hitc.com/bill-simmons-confirms-which-premier-league-team-he-is-supporting-for-2026-27/) - **HITC - Football, Gaming, Movies, TV, Music**
+3. [(VIDEO) Where to Watch K League All-Stars vs. Manchester City Live: Stream, TV Channel and Kickoff Time](https://www.ibtimes.com.au/manchester-city-k-league-all-stars-preseason-asia-tour-1873614) - **Ibtimes.com.au**
+4. [Salah arrives in Turkey for Trabzonspor talks](https://www.vanguardngr.com/2026/08/salah-arrives-in-turkey-for-trabzonspor-talks/) - **Vanguard**
+5. [Ex-Liverpool star Salah arrives in Turkiye before move to Trabzonspor](https://www.aljazeera.com/sports/2026/8/5/ex-liverpool-star-salah-arrives-in-turkiye-ahead-of-move-to-trabzonspor) - **Al Jazeera English**
+6. [Twinqo Sports Betting: Discover a World of Sports on One Platform](https://www.globenewswire.com/news-release/2026/08/05/3339230/0/en/Twinqo-Sports-Betting-Discover-a-World-of-Sports-on-One-Platform.html) - **GlobeNewswire**
+7. [Can there be more Quinn history on opening day?](https://www.bbc.com/sport/football/articles/ce9710z35deo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Could Arsene Wenger be the next head of Fifa?](https://untold-arsenal.com/archives/122197) - **Untold-arsenal.com**
+9. ['Self-destruct' or 'straight back up' for West Ham?](https://www.bbc.com/sport/football/articles/c8xndp9ezklo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [10 highest-paid African footballers in 2026](https://www.vanguardngr.com/2026/08/10-highest-paid-african-footballers-in-2026/) - **Vanguard**
 
 
 ---
-*최근 업데이트: 2026-08-06 18:27:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-06 20:49:51 (KST) / (하루 100회 제한 준수 중)*
