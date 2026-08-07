@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Evening recap: ICPC uncovers more fake agencies in PFIPC probe, Tinubu orders EFCC to vacate Osun freeze, other top stories](https://punchng.com/evening-recap-icpc-uncovers-more-fake-agencies-in-pfipc-probe-tinubu-orders-efcc-to-vacate-osun-freeze-other-top-stories/) - **The Punch**
-2. [LOI preview: New era for Derry and key relegation battles](https://www.rte.ie/sport/soccer/2026/0806/1586849-loi-preview-new-era-for-derry-and-key-relegation-battles/) - **RTE**
-3. [Report: Former Milan director Moncada offered Nottingham Forest job](https://football-italia.net/moncada-offered-nottingham-forest-job/) - **Football Italia**
-4. [Return of Apple TV’s ‘Ted Lasso’ after three-year break feels pointless and cynical – The Independent](https://macdailynews.com/2026/08/06/return-of-apple-tvs-ted-lasso-after-three-year-break-feels-pointless-and-cynical-the-independent/) - **Macdailynews.com**
-5. [Van de Ven close to agreeing new Spurs contract](https://www.bbc.co.uk/sport/football/articles/c5y3j1k8053o) - **BBC News**
-6. [Newcastle preparing offer for Borussia Dortmund’s Felix Nmecha](https://www.getfootballnewsgermany.com/2026/felix-nmecha-newcastle-offer/) - **Getfootballnewsgermany.com**
-7. [Leeds United bring goalkeeper Trafford from Man City on club record fee](https://www.channelnewsasia.com/sport/leeds-united-bring-goalkeeper-trafford-man-city-club-record-fee-6304566) - **CNA**
-8. [Aston Villa Ready To Pounce As 27-Year-Old Stalls Talks Amid Surprise Contract Twist: Do They Need Him?](https://the4thofficial.net/2026/08/aston-villa-ready-to-pounce-as-27-year-old-stalls-talks-amid-surprise-contract-twist-do-they-need-him/) - **The4thofficial.net**
-9. [Vincent Kompany rates Bundesliga right behind Premier League](https://www.bavarianfootballworks.com/champions-league/240149/vincent-kompany-premier-league-bundesliga-comparison) - **Bavarian Football Works**
-10. [The Vinicius Junior dream is over - so what do Arsenal do now?](https://www.skysports.com/football/news/11670/13570357/arsenal-transfer-news-what-do-gunners-do-now-after-vinicius-jr-commits-to-new-real-madrid-contract) - **Sky Sports**
+1. [Newcastle preparing offer for Felix Nmecha after holding talks with his reps](https://sportsview.co.uk/2026/08/newcastle-preparing-offer-for-felix-nmecha-after-holding-talks-with-his-reps?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-preparing-offer-for-felix-nmecha-after-holding-talks-with-his-reps) - **Sportsview.co.uk**
+2. [Vinicius Jr. agrees to six-year contract with Real Madrid](https://www.upi.com/Sports_News/Soccer/2026/08/06/spain-Vinicius-Jr-six-year-contract-Real-Madrid/1071786044737/) - **UPI.com**
+3. [Galatasaray likely to attempt new offer for Rafael Leão after failed initial bid](https://www.getfootballnewsitaly.com/2026/galatasaray-likely-to-attempt-new-offer-for-rafael-leao-after-failed-initial-bid/) - **Getfootballnewsitaly.com**
+4. [Report: Dortmund’s resolve set to be tested by lucrative Nmecha offer](https://bulinews.com/dortmund-resolve-set-tested-lucrative-nmecha-offer) - **Bulinews.com**
+5. [€45m Blockbuster Set To Transform Leeds United After Huge Agreement: Good Valuation For Farke?](https://the4thofficial.net/2026/08/e45m-blockbuster-set-to-transform-leeds-united-after-huge-agreement-good-valuation-for-farke/) - **The4thofficial.net**
+6. [Jody Morris picks Chelsea team for opening day game – it has one big problem](https://www.talkchelsea.net/opinions/jody-morris-chelsea-team-opening-day-game/) - **Talk Chelsea**
+7. [Mohamed Salah’s free transfer to Turkey’s fourth-biggest club is a reminder that even elite careers have expiration dates](https://cryptobriefing.com/salah-free-transfer-trabzonspor-market-lessons/) - **Crypto Briefing**
+8. [Vinicius Jr makes decision on Real Madrid future amidst Arsenal transfer links](https://www.alloutsoccer.com/news/vinicius-real-madrid-arsenal-future-1971888) - **Alloutsoccer.com**
+9. [£35m Reunion On? | Everton Boss Faces Huge Transfer Call: Do The Toffees Need Him?](https://the4thofficial.net/2026/08/35m-reunion-on-everton-boss-faces-huge-transfer-call-do-the-toffees-need-him/) - **The4thofficial.net**
+10. [Evening recap: ICPC uncovers more fake agencies in PFIPC probe, Tinubu orders EFCC to vacate Osun freeze, other top stories](https://punchng.com/evening-recap-icpc-uncovers-more-fake-agencies-in-pfipc-probe-tinubu-orders-efcc-to-vacate-osun-freeze-other-top-stories/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-08-08 04:24:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-08 05:19:13 (KST) / (하루 100회 제한 준수 중)*
