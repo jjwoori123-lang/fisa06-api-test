@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [England recall Pope and Lawrence for Pakistan Tests](https://www.bbc.com/sport/cricket/articles/crl7911zk40o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [England recall Pope and Lawrence for Pakistan Tests](https://www.bbc.co.uk/sport/cricket/articles/crl7911zk40o) - **BBC News**
-3. [Why Jimenez’s Wolves return means so much to fans](https://www.skysports.com/football/news/11699/13568007/raul-jimenezs-wolves-return-mexican-strikers-comeback-aged-35-has-captured-supporters-imagination-at-molineux) - **Sky Sports**
-4. [Rush urges Liverpool to give Iraola time to succeed](https://www.bbc.com/sport/football/articles/c5yd98ep9r8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [EPL sets record with nine new managers for opening weekend](https://punchng.com/epl-sets-record-with-nine-new-managers-for-opening-weekend/) - **The Punch**
-6. [Gianni Infantino gets internal support at crisis meeting to remain as FIFA president](https://www.npr.org/2026/08/06/nx-s1-5923233/infantino-crisis-meeting-fifa) - **NPR**
-7. [Report: Aston Villa closing in on deal for La Liga defender](https://eplindex.com/149138/report-aston-villa-closing-in-on-deal-for-la-liga-defender.html) - **English Premier League Index - Opta Stats**
-8. [IU Indy building ‘jewel box’ of an arena it sees as staple of Indianapolis sports](https://www.indystar.com/story/sports/college/2026/08/06/iu-indy-builds-new-basketball-volleyball-arena-horizon-league-ncaa-ihsaa-concerts-indianapolis/91187296007/) - **The Indianapolis Star**
-9. [Christian Norgaard leaves Arsenal for Everton](https://dailycannon.com/2026/08/christian-norgaard-everton/) - **Dailycannon.com**
+1. [Arteta 'forever thankful' to Norgaard](https://www.bbc.com/sport/football/articles/cr7klp0ld3zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Arsenal confirm shirt sponsorship deal extension to 2033](https://dailycannon.com/2026/08/arsenal-emirates-extension-2033/) - **Dailycannon.com**
+3. [Ugandan football club’s captain killed in street attack](https://punchng.com/ugandan-football-clubs-captain-killed-in-street-attack/) - **The Punch**
+4. [Gladbach join Ipswich and Hull in pursuit of towering Swiss centre-half](https://bulinews.com/gladbach-join-ipswich-and-hull-pursuit-towering-swiss-centre-half) - **Bulinews.com**
+5. [Infantino Apologizes For ‘Errors’ But Will Remain FIFA President Despite Chorus Of Criticism](https://www.forbes.com/sites/siladityaray/2026/08/06/infantino-apologizes-for-errors-but-will-remain-fifa-president-despite-chorus-of-criticism/) - **Forbes**
+6. [Which non-Bayern Munich player are you most excited to watch in the Bundesliga this season?](https://www.bavarianfootballworks.com/question-of-the-day/239621/which-non-bayern-munich-player-are-you-most-excited-to-watch-in-the-bundesliga-this-season) - **Bavarian Football Works**
+7. [Decision time approaching for Arsenal target as Gunners prepare to make approach for defender – latest transfer news](https://hayters.com/decision-time-approaching-for-arsenal-target-vinicius/) - **Hayters.com**
+8. [(Video) Mo Salah looked genuinely speechless at seeing euphoric welcome from Trabzonspor fans](https://www.empireofthekop.com/2026/08/06/salah-speechless-at-euphoric-welcome-from-trabzonspor-fans/) - **Empire of The Kop**
+9. [Newcastle plot £85m Nmecha bid as Guimaraes replacement](https://thefootballfaithful.com/newcastle-plot-85m-nmecha-bid-as-guimaraes-replacement/) - **The Football Faithful**
+10. [Injury update on two key Chelsea players who have been left out of squad to face Juventus](https://www.talkchelsea.net/news/injury-update-two-key-chelsea-players-left-out-of-squad/) - **Talk Chelsea**
 
 
 ---
-*최근 업데이트: 2026-08-07 18:26:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-07 19:31:05 (KST) / (하루 100회 제한 준수 중)*
