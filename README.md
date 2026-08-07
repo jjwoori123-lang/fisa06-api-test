@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Benfica 6-1 Hearts: Report, result, goals from Europa League qualifying](https://www.101greatgoals.com/football/europa-league/benfica-hearts-report-result-goals-europa-league-qualifying/) - **101 Great Goals**
-2. [Liverpool not pursuing Spence move - Friday's gossip](https://www.bbc.co.uk/sport/football/articles/cqlxkxken3po) - **BBC News**
-3. [Leeds confirm Trafford in record transfer](https://www.playmakerstats.com/news/leeds-confirm-trafford-in-record-transfer/1169585) - **Playmakerstats.com**
-4. [Manchester City are happy with their options at a position that looked to be a priority to bolster this summer](https://esteemedkompany.com/2026/08/06/manchester-city-are-happy-with-their-options-at-a-position-that-looked-to-be-a-priority-to-bolster-this-summer/) - **Esteemedkompany.com**
-5. [Brazil's Vinicius Junior Agrees To Contract Extension With Real Madrid Until 2032](https://www.foxsports.com/stories/soccer/vinicius-junior-and-real-madrid-agree-on-contract-extension-to-2032) - **Fox Sports**
-6. [Arsenal Remain Keen On Signing This Atletico Madrid Striker: Should Arteta Bring Him On Board?](https://the4thofficial.net/2026/08/arsenal-remain-keen-on-signing-this-atletico-madrid-striker/) - **The4thofficial.net**
-7. [Liverpool Are Monitoring This Gifted Youngster This Summer: One For The Future?](https://the4thofficial.net/2026/08/liverpool-are-monitoring-this-gifted-youngster-this-summer/) - **The4thofficial.net**
-8. [Join the Just Arsenal Fantasy Premier League for the 2026/27 Season](https://www.justarsenal.com/join-the-just-arsenal-fantasy-premier-league-for-the-2026-27-season/419894) - **Just Arsenal News**
-9. [Shelbourne snatch a late goal in Ajax defeat ahead of Tolka Park second leg](https://www.the42.ie/ajax-shelbourne-european-conference-league-amsterdam-7123874-Aug2026/) - **The42**
+1. [POLLOCKOLOGY: Eddie Hearn may be a good agent but he's a bad judge of rugby if he thinks Henry Pollock's a million pound player. And here's why...](https://www.dailymail.com/sport/rugbyunion/article-16034331/POLLOCKOLOGY-Eddie-Hearn-good-agent-hes-bad-judge-rugby-thinks-Henry-Pollocks-million-pound-player-heres-why.html) - **Dailymail.com**
+2. [The task facing Mykhailo Mudryk after his 20-month ban: Rio Ferdinand hit the ground running for Man United, Paul Pogba's fitness woes and Diego Maradona's mixed spell in Spain after their lengthy suspensions](https://www.dailymail.com/sport/football/article-16033023/The-task-facing-Mykhailo-Mudryk-20-month-ban-Rio-Ferdinand-hit-ground-running-Man-United-Paul-Pogbas-fitness-woes-Diego-Maradonas-mixed-spell-Spain-lengthy-suspensions.html) - **Dailymail.com**
+3. [BREAKING: Jahmyr Gibbs Lands MASSIVE Contract Extension With Detroit Lions](https://detroitsportsnation.com/jahmyr-gibbs-contract-extension-lions-3/ddrysdale/detroit-lions/08/06/2026/489181/) - **Detroit Sports Nation**
+4. [Barcelona snub game in Morocco amid ‘uncertainty’](https://www.vanguardngr.com/2026/08/barcelona-snub-game-in-morocco-amid-uncertainty/) - **Vanguard**
+5. [Fresh word about Liverpool signing Djed Spence this evening amid Barcola & Mbaye hint](https://www.empireofthekop.com/2026/08/06/fresh-word-about-liverpool-signing-djed-spence-this-evening-amid-barcola-mbaye-hint/) - **Empire of The Kop**
+6. [Manchester City Are Facing Stiff Competition For This Chelsea Full-Back: Is He Worth The Fight?](https://the4thofficial.net/2026/08/manchester-city-are-facing-stiff-competition-for-this-chelsea-full-back/) - **The4thofficial.net**
+7. [Not Every Arsenal Hero Plays Every Week – Thank You, Christian Norgaard](https://www.justarsenal.com/not-every-arsenal-hero-plays-every-week-thank-you-christian-norgaard/419896) - **Just Arsenal News**
+8. [British Week 2026: 10 years in Paraguay](https://www.gov.uk/government/news/british-week-2026-10-years-in-paraguay) - **Www.gov.uk**
+9. [Liverpool not pursuing Spence move - Friday's gossip](https://www.bbc.com/sport/football/articles/cqlxkxken3po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Benfica 6-1 Hearts: Report, result, goals from Europa League qualifying](https://www.101greatgoals.com/football/europa-league/benfica-hearts-report-result-goals-europa-league-qualifying/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-08-08 06:04:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-08 06:58:37 (KST) / (하루 100회 제한 준수 중)*
