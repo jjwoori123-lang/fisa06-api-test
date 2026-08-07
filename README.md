@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bohemians fans urged to bring the noise against ‘heavy metal’ Midtjylland](https://www.irishtimes.com/sport/soccer/2026/08/06/bohemians-fans-urged-to-bring-the-noise-against-heavy-metal-midtjylland/) - **The Irish Times**
-2. [Cavan’s journey from non-existent team to All-Ireland junior camogie final](https://www.irishtimes.com/sport/gaelic-games/2026/08/06/cavans-journey-from-non-existent-team-to-all-ireland-junior-camogie-final/) - **The Irish Times**
-3. [Scouting Report: Who Is Ernest Poku? Sunderland’s Latest Winger Target Analysed](https://rokerreport.sbnation.com/features/147181/scouting-report-who-is-ernest-poku-sunderlands-latest-winger-target-analysed) - **SB Nation**
-4. [Do Sunderland Need More Players in Their Prime?](https://rokerreport.sbnation.com/opinion/147125/do-sunderland-need-more-players-in-their-prime) - **SB Nation**
-5. [CONFIRMED: Everton sign Christian Nørgaard from Arsenal](https://royalbluemersey.sbnation.com/english-premier-league-transfers-news-rumors/81740/confirmed-everton-sign-christian-norgaard-from-arsenal) - **SB Nation**
-6. [Are Bayern Munich interested in signing Morgan Gibbs-White?](https://cfbayerninsider.com/2026/08/are-bayern-munich-interested-in-signing-morgan-gibbs-white/) - **Cfbayerninsider.com**
-7. [Bayern Munich News: Aston Villa still eyeing FC Bayern’s João Palhinha; FC Barcelona still chasing striker; Liverpool to sell Cody Gakpo?; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/238972/bayern-munich-aston-villa-palhinha-fc-barcelona-liverpool-real-madrid-arsenal-tottenham-chelsea-psg) - **Bavarian Football Works**
-8. [Arsenal Agree £75m Fee With Newcastle for Captain Bruno Guimaraes](https://futbolchronicle.com/arsenal-agree-75m-fee-with-newcastle-for-captain-bruno-guimaraes/) - **Futbolchronicle.com**
-9. [Newcastle Sign Goalkeeper Lukas Hornicek From Braga in £25.7m Deal](https://futbolchronicle.com/newcastle-sign-goalkeeper-lukas-hornicek-from-braga-in-25-7m-deal/) - **Futbolchronicle.com**
-10. [Lakers owner Mark Walter strengthens his commitment to the team's championship goals](https://www.sportingnews.com/us/nba/los-angeles-lakers/news/lakers-mark-walter-strengthens-commitment-championship-goals/6a50e7a56a68795a0e30bb35) - **Sporting News**
+1. [Report: Crystal Palace ready to move for £15m defender](https://eplindex.com/149125/report-crystal-palace-ready-to-move-for-15m-defender.html) - **English Premier League Index - Opta Stats**
+2. [Crystal Palace considering swoop for free agent Solly March](https://sportsview.co.uk/2026/08/crystal-palace-considering-swoop-for-free-agent-solly-march?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=crystal-palace-considering-swoop-for-free-agent-solly-march) - **Sportsview.co.uk**
+3. [Atalanta want Todibo but his West Ham salary is a problem](https://sportsview.co.uk/2026/08/atalanta-want-todibo-but-his-west-ham-salary-is-a-problem?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=atalanta-want-todibo-but-his-west-ham-salary-is-a-problem) - **Sportsview.co.uk**
+4. ['We NEED these players': Riccardo Calafiori urges Arsenal to splash the cash ahead of Premier League title defence - with Bruno Guimaraes nearing £75m move and Gunners in the hunt for Vinicius Junior](https://www.dailymail.com/sport/football/article-16032339/Riccardo-Calafiori-insists-Arsenal-NEED-Bruno-Guimaraes-Vinicius-Junior-title-defence.html) - **Dailymail.com**
+5. [Salah given hero's welcome before Trabzonspor move](https://www.bbc.com/sport/football/articles/cn8negllz1ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Players who turned World Cup heroics into big transfers](https://www.bbc.com/sport/football/articles/cj4kqdy4w4eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Outrage as Ugandan football captain murdered in street gang attack](https://www.bbc.com/news/articles/cm2g0038yr8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Outrage as Ugandan football captain murdered in street gang attack](https://www.bbc.co.uk/news/articles/cm2g0038yr8o) - **BBC News**
+9. [Who am I? Guess Premier League star No 17](https://www.bbc.co.uk/sport/football/articles/c77g61zp83ro) - **BBC News**
+10. [Where to watch U.S. Gymnastics Championships: TV schedule, times, channels, live streams for men, women](https://www.sportingnews.com/us/tsn/news/watch-us-gymnastics-championships-schedule-times-channels-streams/e3db70f725cad1a445ecdb4d) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-08-07 14:21:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-07 15:50:57 (KST) / (하루 100회 제한 준수 중)*
