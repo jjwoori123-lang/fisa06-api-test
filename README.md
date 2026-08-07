@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United Are Keeping A Keen Eye On This Arsenal Full-Back: Should Carrick Launch A Move?](https://the4thofficial.net/2026/08/manchester-united-are-keeping-a-keen-eye-on-this-arsenal-full-back/) - **The4thofficial.net**
-2. [Euro giants now 'serious' about Liverpool transfer](https://www.anfieldwatch.co.uk/liverpool-fc/news/euro-giants-now-serious-about-liverpool-transfer/) - **Anfieldwatch.co.uk**
-3. [Trafford joins Leeds from Man City in potential £45m deal](https://www.bbc.co.uk/sport/football/articles/c0l592513y9o) - **BBC News**
-4. [Newcastle boss Jaissle reveals Guimaraes future decided before he arrived](https://www.101greatgoals.com/football/premier-league/newcastle-boss-jaissle-reveals-guimaraes-future-decided-before-he-arrived/) - **101 Great Goals**
-5. [Fact File: James Trafford](https://www.leedsunited.com/en/news/fact-file-james-trafford) - **Leedsunited.com**
-6. [PSG sign France midfielder Akliouche from Monaco](https://sports.yahoo.com/articles/psg-sign-france-midfielder-akliouche-180041274.html) - **Yahoo Entertainment**
-7. [James Trafford signs for Leeds United](https://www.leedsunited.com/en/news/james-trafford-signs-for-leeds-united) - **Leedsunited.com**
-8. [Andrea Berta could be the reason Arsenal beats Barcelona to World Cup winner](https://www.justarsenal.com/andrea-berta-could-be-the-reason-arsenal-beats-barcelona-to-world-cup-winner/419870) - **Just Arsenal News**
-9. [Journalist: Premier League star wants to join Liverpool this summer](https://anfieldindex.com/97451/journalist-premier-league-star-wants-to-join-liverpool-this-summer.html) - **Anfieldindex.com**
-10. [La Liga: Arsenal target Vini Jr set to sign six-year contract with Madrid](https://punchng.com/la-liga-arsenal-target-vini-jr-set-to-sign-six-year-contract-with-madrid/) - **The Punch**
+1. [Evening recap: ICPC uncovers more fake agencies in PFIPC probe, Tinubu orders EFCC to vacate Osun freeze, other top stories](https://punchng.com/evening-recap-icpc-uncovers-more-fake-agencies-in-pfipc-probe-tinubu-orders-efcc-to-vacate-osun-freeze-other-top-stories/) - **The Punch**
+2. [LOI preview: New era for Derry and key relegation battles](https://www.rte.ie/sport/soccer/2026/0806/1586849-loi-preview-new-era-for-derry-and-key-relegation-battles/) - **RTE**
+3. [Report: Former Milan director Moncada offered Nottingham Forest job](https://football-italia.net/moncada-offered-nottingham-forest-job/) - **Football Italia**
+4. [Return of Apple TV’s ‘Ted Lasso’ after three-year break feels pointless and cynical – The Independent](https://macdailynews.com/2026/08/06/return-of-apple-tvs-ted-lasso-after-three-year-break-feels-pointless-and-cynical-the-independent/) - **Macdailynews.com**
+5. [Van de Ven close to agreeing new Spurs contract](https://www.bbc.co.uk/sport/football/articles/c5y3j1k8053o) - **BBC News**
+6. [Newcastle preparing offer for Borussia Dortmund’s Felix Nmecha](https://www.getfootballnewsgermany.com/2026/felix-nmecha-newcastle-offer/) - **Getfootballnewsgermany.com**
+7. [Leeds United bring goalkeeper Trafford from Man City on club record fee](https://www.channelnewsasia.com/sport/leeds-united-bring-goalkeeper-trafford-man-city-club-record-fee-6304566) - **CNA**
+8. [Aston Villa Ready To Pounce As 27-Year-Old Stalls Talks Amid Surprise Contract Twist: Do They Need Him?](https://the4thofficial.net/2026/08/aston-villa-ready-to-pounce-as-27-year-old-stalls-talks-amid-surprise-contract-twist-do-they-need-him/) - **The4thofficial.net**
+9. [Vincent Kompany rates Bundesliga right behind Premier League](https://www.bavarianfootballworks.com/champions-league/240149/vincent-kompany-premier-league-bundesliga-comparison) - **Bavarian Football Works**
+10. [The Vinicius Junior dream is over - so what do Arsenal do now?](https://www.skysports.com/football/news/11670/13570357/arsenal-transfer-news-what-do-gunners-do-now-after-vinicius-jr-commits-to-new-real-madrid-contract) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-08-08 03:06:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-08 04:24:14 (KST) / (하루 100회 제한 준수 중)*
