@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Why Trabzonspor? Reasons behind Salah's Turkey switch](https://www.skysports.com/football/news/11095/13570374/mohamed-salah-why-liverpool-legend-is-making-a-surprise-switch-to-trabzonspor) - **Sky Sports**
-2. [Antonio Nusa shuts down transfer speculation, commits to RB Leipzig amid Roma and Premier League interest](https://cryptobriefing.com/antonio-nusa-denies-leipzig-exit-rumors/) - **Crypto Briefing**
-3. [Mohamed Salah signs two-year deal with Trabzonspor](https://www.channelnewsasia.com/sport/mohamed-salah-two-year-deal-trabzonspor-turkiye-6303826) - **CNA**
-4. [Ranking the top 5 NHL goalies ahead of the 2026-2027 season](https://www.thebiglead.com/top-nhl-goalies-2026-2027-season/) - **The Big Lead**
-5. [Arsenal and Manchester United scout Shakhtar Donetsk striker Kauã Elias after hat-trick performance](https://cryptobriefing.com/arsenal-manchester-united-scout-kaua-elias/) - **Crypto Briefing**
-6. [David Sheepshanks On Ipswich Town, Sir Bobby Robson, And Driving The Development Of St George’s Park](https://worldfootballindex.com/2026/08/david-sheepshanks-on-ipswich-town-sir-bobby-robson-and-driving-the-development-of-st-georges-park/) - **World Football Index**
-7. [Camogie All-Ireland finals: All you need to know](https://www.rte.ie/sport/camogie/2026/0806/1586773-camogie-all-ireland-finals-all-you-need-to-know/) - **RTE**
-8. [Everton offered Tottenham Hotspur £25 million for Djed Spence](https://sportsview.co.uk/2026/08/everton-offered-tottenham-hotspur-25-million-for-djed-spence?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=everton-offered-tottenham-hotspur-25-million-for-djed-spence) - **Sportsview.co.uk**
-9. [Why has Mohamed Salah chosen Trabzonspor?](https://www.bbc.com/sport/football/articles/cy74v1j1v6zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Why has Mohamed Salah chosen Trabzonspor?](https://www.bbc.co.uk/sport/football/articles/cy74v1j1v6zo) - **BBC News**
+1. [Schalke to battle Everton, Ipswich and Marseille for free agent Krépin Diatta](https://bulinews.com/schalke-battle-everton-ipswich-and-marseille-for-free-agent-krepin-diatta) - **Bulinews.com**
+2. [Joel Veltman joins West Ham on a free transfer](https://www.playmakerstats.com/news/joel-veltman-joins-west-ham-on-a-free-transfer/1169380) - **Playmakerstats.com**
+3. [Mohamed Salah joins Turkish side Trabzonspor on two-year contract](https://www.irishtimes.com/sport/soccer/2026/08/06/mohamed-salah-joins-turkish-side-trabzonspor-on-two-year-contract/) - **The Irish Times**
+4. [Brighton’s Baleba to miss start of the season with injury and closes door on Manchester United move](https://www.101greatgoals.com/news/transfers/brightons-baleba-miss-start-season-manchester-united/) - **101 Great Goals**
+5. [Report: Middlesbrough closing in on deal to sign another Tottenham Hotspur star](https://eplindex.com/149148/report-middlesbrough-closing-in-on-deal-to-sign-another-tottenham-hotspur-star.html) - **English Premier League Index - Opta Stats**
+6. [Moment huge blaze rips through fashion outlet which makes suits for Premier League footballers](https://www.dailymail.com/news/article-16033431/Moment-huge-blaze-rips-fashion-outlet.html) - **Dailymail.com**
+7. [FIFA apologizes for failed Infantino bid to sell the World Cup to Trump’s in-laws, but throws ‘full support’ behind his continued presidency](https://fortune.com/2026/08/06/infantino-world-cup-kushner-fifa-crisis/) - **Fortune**
+8. [Brighton's Buonanotte snubs Schalke in favour of Elche switch](https://bulinews.com/brighton-buonanotte-snubs-schalke-favour-elche) - **Bulinews.com**
+9. [“Our target is to win every trophy": David Owori's heartfelt words about standing by his team hours before his tragic death](https://timesofindia.indiatimes.com/sports/international-sports/our-target-is-to-win-every-trophy-david-oworis-heartfelt-words-about-standing-by-his-team-hours-before-his-tragic-death/articleshow/133007335.cms) - **The Times of India**
+10. [TeamSnap and Major League Soccer Deepen Partnership with Exclusive Training Content for MLS NEXT and MLS GO Coaches and Players](https://www.prnewswire.com/news-releases/teamsnap-and-major-league-soccer-deepen-partnership-with-exclusive-training-content-for-mls-next-and-mls-go-coaches-and-players-302844199.html) - **PRNewswire**
 
 
 ---
-*최근 업데이트: 2026-08-07 21:26:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-07 22:56:47 (KST) / (하루 100회 제한 준수 중)*
