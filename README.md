@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Named: The seven Premier League youngsters who have shone in pre-season and could stake a claim to feature in the first-team](https://www.dailymail.com/sport/football/article-16035955/premier-league-youngsters-preseason-team.html) - **Dailymail.com**
-2. [Arsenal is one of the clubs watching Shakhtar Donetsk striker](https://www.justarsenal.com/arsenal-is-one-of-the-clubs-watching-shakhtar-donetsk-striker/419938) - **Just Arsenal News**
-3. [Talented Wide Player Is Keen On Joining Sunderland This Summer: Should Le Bris Snap Him Up?](https://the4thofficial.net/2026/08/talented-wide-player-is-keen-on-joining-sunderland-this-summer/) - **The4thofficial.net**
-4. [Atlético Madrid agree personal terms with Premier League star](https://getfootballnewsspain.com/atletico-madrid-agree-personal-terms-with-premier-league-star/) - **Getfootballnewsspain.com**
-5. [USMNT World Cup star Folarin Balogun could be set for Premier League move after offer put forward](https://www.hitc.com/usmnt-world-cup-star-folarin-balogun-could-be-set-for-premier-league-move-after-offer-put-forward/) - **HITC - Football, Gaming, Movies, TV, Music**
-6. [Liverpool transfer news: Finally! Fabrizio Romano confirms amazing Reds move](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-finally-fabrizio-romano-confirms-amazing-reds-move/) - **Anfieldwatch.co.uk**
-7. [Jan Paul van Hecke and Roberto De Zerbi's Brighton clashes now fuel Tottenham Hotspur's Premier League push](https://www.alloutsoccer.com/news/van-hecke-de-zerbi-spurs-1973590) - **Alloutsoccer.com**
-8. [Arsenal snubbed by Tottenham as Cristian Romero reportedly closes in on Atletico Madrid move](https://worldsoccertalk.com/news/arsenal-snubbed-by-tottenham-as-cristian-romero-reportedly-closes-in-on-atletico-madrid-move/) - **Worldsoccertalk.com**
-9. [Carabao Cup continues on Saturday with 29 first-round ties!](https://www.skysports.com/football/news/11095/13570285/carabao-cup-2026-27-west-ham-burnley-and-leicester-all-in-first-round-action-live-on-sky-sports) - **Sky Sports**
-10. [Former Crew star Max Arfsten starts for Middlesbrough in English debut](https://www.dispatch.com/story/sports/mls/columbus-crew/2026/08/07/max-arfsten-middlesbrough-fc-columbus-crew-transfer/91215843007/) - **Fci Academy**
+1. [Enzo Fernandez remains Manchester City’s dream target to replace Rodri despite Chelsea’s firm stance](https://worldsoccertalk.com/news/enzo-fernandez-remains-manchester-citys-dream-target-to-replace-rodri-despite-chelseas-firm-stance/) - **Worldsoccertalk.com**
+2. [Liverpool Signs FC Barcelona Defender Ronald Araujo In Shock Transfer](https://www.forbes.com/sites/tomsanderson/2026/08/07/liverpool-signs-fc-barcelona-defender-ronald-araujo/) - **Forbes**
+3. [Afolabi hits winner against Dundalk to send Shamrock Rovers 10 points clear](https://www.the42.ie/shamrock-rovers-dundalk-match-report-4-7124886-Aug2026/) - **The42**
+4. [West Ham vs. Portsmouth Livestream: How to Watch Carabao Cup Soccer From Anywhere](https://www.cnet.com/tech/services-and-software/west-ham-vs-portsmouth-livestream-how-to-watch-carabao-cup-soccer-from-anywhere-for-free/) - **CNET**
+5. [Jonathan Afolabi’s winner against Dundalk puts Shamrock Rovers 10 points clear at top](https://www.irishtimes.com/sport/soccer/2026/08/07/jonathan-afolabis-winner-against-dundalk-puts-shamrock-rovers-10-points-clear-at-top/) - **The Irish Times**
+6. [Xabi Alonso expresses pride in joining Chelsea as manager](https://cryptobriefing.com/xabi-alonso-chelsea-manager-appointment/) - **Crypto Briefing**
+7. [Tottenham Hotspur Are Stepping Up Their Efforts To Land This Talented Forward: Dream Option For De Zerbi?](https://the4thofficial.net/2026/08/tottenham-hotspur-are-stepping-up-their-efforts-to-land-this-talented-forward/) - **The4thofficial.net**
+8. [Aston Villa secures Matteo Ruggeri’s approval for transfer from Atlético Madrid](https://cryptobriefing.com/aston-villa-ruggeri-transfer-atletico-madrid/) - **Crypto Briefing**
+9. [Hoops' wild defeat of Dundalk marred by fan confrontation](https://www.rte.ie/sport/soccer/2026/0807/1586891-hoops-wild-defeat-of-dundalk-marred-by-fan-confrontation/) - **RTE**
+10. [EFL Cup round-up: Wrexham dumped out by rivals Middlesbrough](https://www.101greatgoals.com/football/efl-cup-round-up-wrexham-dumped-out-by-rivals-middlesbrough/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-08-09 06:03:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-09 06:49:18 (KST) / (하루 100회 제한 준수 중)*
