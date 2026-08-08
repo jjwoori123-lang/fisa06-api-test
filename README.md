@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [RB Leipzig matchday programmes on sale now!](https://www.leedsunited.com/en/news/rb-leipzig-matchday-programmes-on-sale-now) - **Leedsunited.com**
-2. [Fleming 'like me, but better': McCullum on new England Test coach](https://economictimes.indiatimes.com/news/sports/cricket/fleming-like-me-but-better-mccullum-on-new-england-test-coach/articleshow/133032509.cms) - **The Times of India**
-3. [Assistant referee Massey-Ellis retires to take FA role](https://www.bbc.com/sport/football/articles/crl7ed7gerzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Assistant referee Massey-Ellis retires to take FA role](https://www.bbc.co.uk/sport/football/articles/crl7ed7gerzo) - **BBC News**
-5. [Bayern v Aston Villa: Teams and line-ups for pre-season friendly](https://www.101greatgoals.com/match-previews/premier-league-matches/bayern-vs-aston-villa-live-teams-online-stream-tv-channel-where-to-watch-friendly/) - **101 Great Goals**
-6. [Gallagher ready to show what he can do under De Zerbi at Spurs](https://www.skysports.com/football/news/11675/13570633/conor-gallagher-exclusive-spurs-midfielder-ready-to-show-what-he-can-do-under-roberto-de-zerbi-this-season) - **Sky Sports**
-7. [Aston Villa are becoming increasingly resigned to Ezri Konsa’s departure as Arsenal circle](https://sportsview.co.uk/2026/08/aston-villa-are-becoming-increasingly-resigned-to-ezri-konsas-departure-as-arsenal-circle?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=aston-villa-are-becoming-increasingly-resigned-to-ezri-konsas-departure-as-arsenal-circle) - **Sportsview.co.uk**
-8. [Guardiola leaves, Rodri injured as Man City faces EPL uncertainty](https://cryptobriefing.com/guardiola-leaves-rodri-injured-as-man-city-faces-epl-uncertainty/) - **Crypto Briefing**
-9. [Confirmed Friendly Lineups: FC Bayern vs. Aston Villa](https://bulinews.com/confirmed-friendly-lineups-bayern-aston-villa) - **Bulinews.com**
+1. [Arsenal eye World Cup winner as Vinicius alternative](https://thefootballfaithful.com/arsenal-eye-world-cup-winner-as-vinicius-alternative/) - **The Football Faithful**
+2. [Manchester City rejects Barcelona’s bid for midfielder Rodri](https://cryptobriefing.com/manchester-city-rejects-barcelona-bid-rodri/) - **Crypto Briefing**
+3. [Fan activations ahead of Elland Road friendly](https://www.leedsunited.com/en/news/fan-activations-ahead-of-elland-road-friendly) - **Leedsunited.com**
+4. [Sports minister backs promoters hosting preseason matches in Indonesia](https://en.antaranews.com/news/426075/sports-minister-backs-promoters-hosting-preseason-matches-in-indonesia) - **Antaranews.com**
+5. [LG ELECTRONICS USA NAMED PROUD PARTNER OF DEFENDING WORLD CHAMPION LOS ANGELES DODGERS](https://www.prnewswire.com/news-releases/lg-electronics-usa-named-proud-partner-of-defending-world-champion-los-angeles-dodgers-302845863.html) - **PRNewswire**
+6. [Liverpool set for another injury blow ahead of AS Monaco clash](https://anfieldindex.com/97479/liverpool-set-for-another-injury-blow-ahead-of-as-monaco-clash.html) - **Anfieldindex.com**
+7. [Report: Sunderland leading the race to sign 25-year-old forward](https://eplindex.com/149176/report-sunderland-leading-the-race-to-sign-25-year-old-forward.html) - **English Premier League Index - Opta Stats**
+8. [Ipswich Town's Wes Burns was 'everything' to fans](https://www.bbc.com/news/articles/cpw9nz5vvx1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Man City reject Barcelona offer for Rodri](https://www.skysports.com/football/news/11095/13570585/rodri-transfer-news-man-city-reject-initial-barcelona-off-for-spain-midfielder-with-bid-considered-far-too-low) - **Sky Sports**
+10. [Burns departs as a club legend](https://www.bbc.com/sport/football/articles/cg4dnk1nvy6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-08 20:59:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-08 22:05:25 (KST) / (하루 100회 제한 준수 중)*
