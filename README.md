@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal eye World Cup winner as Vinicius alternative](https://thefootballfaithful.com/arsenal-eye-world-cup-winner-as-vinicius-alternative/) - **The Football Faithful**
-2. [Manchester City rejects Barcelona’s bid for midfielder Rodri](https://cryptobriefing.com/manchester-city-rejects-barcelona-bid-rodri/) - **Crypto Briefing**
-3. [Fan activations ahead of Elland Road friendly](https://www.leedsunited.com/en/news/fan-activations-ahead-of-elland-road-friendly) - **Leedsunited.com**
-4. [Sports minister backs promoters hosting preseason matches in Indonesia](https://en.antaranews.com/news/426075/sports-minister-backs-promoters-hosting-preseason-matches-in-indonesia) - **Antaranews.com**
-5. [LG ELECTRONICS USA NAMED PROUD PARTNER OF DEFENDING WORLD CHAMPION LOS ANGELES DODGERS](https://www.prnewswire.com/news-releases/lg-electronics-usa-named-proud-partner-of-defending-world-champion-los-angeles-dodgers-302845863.html) - **PRNewswire**
-6. [Liverpool set for another injury blow ahead of AS Monaco clash](https://anfieldindex.com/97479/liverpool-set-for-another-injury-blow-ahead-of-as-monaco-clash.html) - **Anfieldindex.com**
-7. [Report: Sunderland leading the race to sign 25-year-old forward](https://eplindex.com/149176/report-sunderland-leading-the-race-to-sign-25-year-old-forward.html) - **English Premier League Index - Opta Stats**
-8. [Ipswich Town's Wes Burns was 'everything' to fans](https://www.bbc.com/news/articles/cpw9nz5vvx1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Man City reject Barcelona offer for Rodri](https://www.skysports.com/football/news/11095/13570585/rodri-transfer-news-man-city-reject-initial-barcelona-off-for-spain-midfielder-with-bid-considered-far-too-low) - **Sky Sports**
-10. [Burns departs as a club legend](https://www.bbc.com/sport/football/articles/cg4dnk1nvy6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Arsenal renews sponsorship deal with Emirates until 2033](https://www.justarsenal.com/arsenal-renews-sponsorship-deal-with-emirates-until-2033/419928) - **Just Arsenal News**
+2. [How to watch DHL Stormers vs New Zealand for FREE: Live streams and TV channels for Rugby's Greatest Rivalry tour opener](https://www.techradar.com/how-to-watch/rugby/dhl-stormers-vs-all-blacks-rugbys-greatest-rivalry-free) - **TechRadar**
+3. [Manchester City reject Barca's lowball offer for Rodri](https://www.rte.ie/sport/soccer/2026/0807/1586970-manchester-city-reject-barcas-lowball-offer-for-rodri/) - **RTE**
+4. [Bayern Munich 2-1 Aston Villa: Pre season friendly report](https://www.101greatgoals.com/football/premier-league/bayern-munich-aston-villa-report-result-kim-min-jae-luis-diaz-goals-friendly/) - **101 Great Goals**
+5. [Real Madrid forward’s camp working on arranging a loan move to the Premier League](https://madriduniversal.com/real-madrid-forwards-camp-working-on-arranging-a-loan-move-to-the-premier-league/) - **Madriduniversal.com**
+6. [Fabrizio Romano tells Liverpool fans to ‘keep an eye’ on move for defender](https://anfieldindex.com/97490/fabrizio-romano-tells-liverpool-fans-to-keep-an-eye-on-move-for-defender.html) - **Anfieldindex.com**
+7. [Gozo move, Johnson interest and balancing the books](https://www.bbc.com/sport/football/articles/clyq9lrzy6no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Hall of Fame locks: Active NFL players bound for enshrinement include Aaron Rodgers, Myles Garrett](https://www.cbssports.com/nfl/news/hall-of-fame-active-nfl-players-aaron-rodgers-myles-garrett/) - **CBS Sports**
+9. ['No guarantees' on Rodri deal - how do you feel about the situation?](https://www.bbc.com/sport/football/articles/c5y0297rl2vo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [USMNT World Cup players Sebastian Berhalter, Max Arfsten begin next phases of careers at Middlesbrough](https://www.cbssports.com/soccer/news/usmnt-world-cup-sebastian-berhalter-max-arfsten-middlesbrough/) - **CBS Sports**
 
 
 ---
-*최근 업데이트: 2026-08-08 22:05:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-08 23:00:17 (KST) / (하루 100회 제한 준수 중)*
