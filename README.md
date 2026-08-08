@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['Kamada had the choice to leave' - Sage thrilled will midfielder's stay](https://www.bbc.com/sport/football/articles/cz7dy99v7vyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [England’s Toney charged with assault after London nightclub incident](https://punchng.com/englands-toney-charged-with-assault-after-london-nightclub-incident/) - **The Punch**
-3. [Brenden Aaronson: It has been a good summer](https://www.leedsunited.com/en/news/brenden-aaronson-it-has-been-a-good-summer) - **Leedsunited.com**
-4. [Robinson sees 'inner belief' in Aberdeen squad](https://www.bbc.com/sport/articles/cz05pd4d5glo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Liverpool agrees to sign Bradley Barcola from PSG in blockbuster deal](https://cryptobriefing.com/liverpool-signs-bradley-barcola-psg/) - **Crypto Briefing**
-6. [Tottenham Hotspur star James Maddison suffering reoccurrence of old hip issue](https://sportsview.co.uk/2026/08/tottenham-hotspur-star-james-maddison-suffering-reoccurrence-of-old-hip-issue?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-hotspur-star-james-maddison-suffering-reoccurrence-of-old-hip-issue) - **Sportsview.co.uk**
-7. [Saudi Pro League’s England international Toney charged with assault](https://www.aljazeera.com/sports/2026/8/7/saudi-pro-leagues-england-international-toney-charged-with-assault) - **Al Jazeera English**
-8. [Lewis-Skelly's push to start in midfield for Arsenal](https://www.bbc.com/sport/football/articles/c15171py593o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Lewis-Skelly's push to start in midfield for Arsenal](https://www.bbc.co.uk/sport/football/articles/c15171py593o) - **BBC News**
-10. [Report: Liverpool agree £109.7m transfer for Bradley Barcola with five-year contract](https://www.empireofthekop.com/2026/08/07/done-deal-liverpool-agree-109-7m-transfer-for-bradley-barcola-report/) - **Empire of The Kop**
+1. [Fleming 'like me, but better': McCullum on new England Test coach](https://economictimes.indiatimes.com/news/sports/cricket/fleming-like-me-but-better-mccullum-on-new-england-test-coach/articleshow/133032509.cms) - **The Times of India**
+2. [Assistant referee Massey-Ellis retires to take FA role](https://www.bbc.com/sport/football/articles/crl7ed7gerzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Assistant referee Massey-Ellis retires to take FA role](https://www.bbc.co.uk/sport/football/articles/crl7ed7gerzo) - **BBC News**
+4. [Bayern v Aston Villa: Teams and line-ups for pre-season friendly](https://www.101greatgoals.com/match-previews/premier-league-matches/bayern-vs-aston-villa-live-teams-online-stream-tv-channel-where-to-watch-friendly/) - **101 Great Goals**
+5. [Gallagher ready to show what he can do under De Zerbi at Spurs](https://www.skysports.com/football/news/11675/13570633/conor-gallagher-exclusive-spurs-midfielder-ready-to-show-what-he-can-do-under-roberto-de-zerbi-this-season) - **Sky Sports**
+6. [Aston Villa are becoming increasingly resigned to Ezri Konsa’s departure as Arsenal circle](https://sportsview.co.uk/2026/08/aston-villa-are-becoming-increasingly-resigned-to-ezri-konsas-departure-as-arsenal-circle?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=aston-villa-are-becoming-increasingly-resigned-to-ezri-konsas-departure-as-arsenal-circle) - **Sportsview.co.uk**
+7. [Guardiola leaves, Rodri injured as Man City faces EPL uncertainty](https://cryptobriefing.com/guardiola-leaves-rodri-injured-as-man-city-faces-epl-uncertainty/) - **Crypto Briefing**
+8. [Confirmed Friendly Lineups: FC Bayern vs. Aston Villa](https://bulinews.com/confirmed-friendly-lineups-bayern-aston-villa) - **Bulinews.com**
+9. [Liverpool could sign £60m centre-back imminently; current squad “increasingly resigned” to his exit](https://www.empireofthekop.com/2026/08/07/liverpool-could-sign-60m-centre-back-imminently-current-squad-increasingly-resigned-to-his-exit/) - **Empire of The Kop**
 
 
 ---
-*최근 업데이트: 2026-08-08 19:41:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-08 20:30:54 (KST) / (하루 100회 제한 준수 중)*
