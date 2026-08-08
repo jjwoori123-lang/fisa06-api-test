@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Four defenders Liverpool could sign this summer](https://anfieldindex.com/97505/four-defenders-liverpool-could-sign-this-summer.html) - **Anfieldindex.com**
-2. [Former Man United star Nicky Butt reveals he is BANNED from his local tip after blazing row with staff](https://www.dailymail.com/sport/football/article-16035801/Former-Man-United-star-Nicky-Butt-reveals-BANNED-local-tip-blazing-row-staff.html) - **Dailymail.com**
-3. [Arsenal miss out on Vinicius Junior: What next for Gunners after top target extends Real Madrid contract?](https://www.cbssports.com/soccer/news/arsenal-vinicius-junior-gunners-real-madrid-contract/) - **CBS Sports**
-4. [Report: Newcastle United reignite interest in World Cup star](https://eplindex.com/149190/report-newcastle-united-reignite-interest-in-world-cup-star.html) - **English Premier League Index - Opta Stats**
-5. [LISTEN: NBCUniversal Media Group Chief Matt Strauss on Growing Peacock, Testing Membership Rewards and Becoming a Daily Habit With Users](https://variety.com/2026/tv/news/matt-strauss-nbcuniversal-peacock-streaming-strictly-1236829718/) - **Variety**
-6. [FCB enjoy friendly wins, record reach and closeness to fans](https://fcbayern.com/en/news/2026/08/analysis-fc-bayern-vs.-aston-villa) - **Fcbayern.com**
-7. [Joao Pedro nets double as Chelsea bounce back to beat Milan](https://www.skysports.com/football/news/11095/13570780/chelsea-3-0-ac-milan-joao-pedro-nets-double-as-much-improved-blues-bounce-back-to-beat-ruben-amorims-side) - **Sky Sports**
-8. [Barcelona open to selling 19-year-old midfield starlet as Manchester City enter race](https://barcauniversal.com/barcelona-open-to-selling-19-year-old-midfield-starlet-as-manchester-city-enter-race/) - **Barcauniversal.com**
-9. [Chelsea star issues Xabi Alonso verdict: ‘I don’t care about the system’](https://www.101greatgoals.com/football/premier-league/chelsea-xabi-alonso-system/) - **101 Great Goals**
-10. [Sam Ngata Pledges to the 2027 Navy All-American Bowl](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/sam-ngata-pledges-to-the-2027-navy-all-american-bowl) - **NBCSports.com**
+1. [Newcastle identify former Tottenham midfielder Pierre-Emile Hojbjerg as the man to replace Bruno Guimaraes and Sandro Tonali](https://www.dailymail.com/sport/football/article-16037273/Newcastle-Tottenham-midfielder-Pierre-Emile-Hojbjerg.html) - **Dailymail.com**
+2. [Kurt Warner, not Torry Holt, was the GSOT beneficiary](https://www.turfshowtimes.com/los-angeles-rams-analysis/145439/rams-greatest-show-on-turf-kurt-warner-torry-holt) - **Turf Show Times**
+3. [How to watch CPL 2026 live: Start time, schedule, TV channel and streaming details for Caribbean Premier League matches](https://www.cricketnews.com/en/cricket/news/watch-cpl-2026-live-start-time-schedule-tv-channel-streaming/a12366222b39b6914df2e387) - **Cricketnews.com**
+4. [The Preview: Premiership new boys St Johnstone can be this year's great entertainers under Simo Valakari](https://www.dailymail.com/sport/football/article-16037109/The-Preview-Premiership-new-boys-St-Johnstone-years-great-entertainers-Simo-Valakari.html) - **Dailymail.com**
+5. [Coventry sign Ghana's Yirenkyi for record fee](https://www.bbc.co.uk/sport/football/articles/cy4kgprjzx2o) - **BBC News**
+6. [Douglas Luiz turns down move to the Premier League to stay at Juventus](https://talkjuve.com/2026/08/07/douglas-luiz-turns-down-move-to-the-premier-league-to-stay-at-juventus/) - **Talkjuve.com**
+7. [To Celebrate Bruno Guimarães’ Expected Arrival – Arsenal’s Greatest Brazilian XI](https://www.justarsenal.com/to-celebrate-bruno-guimaraes-expected-arrival-arsenals-greatest-brazilian-xi/419964) - **Just Arsenal News**
+8. [Why Giants are confident rebuilt unit can ‘build that wall’ and fix brutal run defense](https://nypost.com/2026/08/07/sports/giants-are-rebuilt-unit-can-build-that-wall-and-fix-brutal-run-defense/) - **New York Post**
+9. [Manchester United Are Keeping Tabs On This Serie A Defender: What Will He Bring To Old Trafford?](https://the4thofficial.net/2026/08/manchester-united-are-keeping-tabs-on-this-serie-a-defender/) - **The4thofficial.net**
+10. [Man City deal Barcelona a Rodri reality check](https://getfootballnewsspain.com/man-city-deal-barcelona-a-rodri-reality-check/) - **Getfootballnewsspain.com**
 
 
 ---
-*최근 업데이트: 2026-08-09 03:01:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-09 04:03:12 (KST) / (하루 100회 제한 준수 중)*
