@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [On This Day (7th Aug 2014): The Borini Saga — Sunderland’s Summer of Waiting & Hope](https://rokerreport.sbnation.com/features/147362/on-this-day-7th-aug-2014-the-borini-saga-sunderlands-summer-of-waiting-hope) - **SB Nation**
-2. [Built on Character: Sunderland’s Intangible Recruitment Identity](https://rokerreport.sbnation.com/opinion/147312/built-on-character-sunderlands-intangible-recruitment-identity) - **SB Nation**
-3. [Are Sunderland Ready for the Demands of a Bigger Season?](https://rokerreport.sbnation.com/opinion/147154/are-sunderland-ready-for-the-demands-of-a-bigger-season) - **SB Nation**
-4. [Mo Salah gets enthusiastic welcome from Trabzonspor after signing with Turkish club](https://www.usatoday.com/story/sports/soccer/2026/08/07/mo-salah-signs-trabzonspor-deal/91208743007/) - **USA Today**
-5. [Bayern Munich News: Manchester United back in on FC Bayern’s Kim Min-jae?; Tottenham eyeing Benjamin Šeško, Nicolas Jackson?; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/238853/bayern-munich-manchester-united-tottenham-psg-chelsea-real-madrid-fc-barcelona-arsenal) - **Bavarian Football Works**
-6. [Toby Alderweireld begs Tottenham to sign Eagles star](https://punchng.com/toby-alderweireld-begs-tottenham-to-sign-eagles-star/) - **The Punch**
-7. [Osimhen still Turkey’s highest paid player](https://punchng.com/osimhen-still-turkeys-highest-paid-player/) - **The Punch**
-8. [Wikki Tourists name 30 players for Gusau Ahlan pre-season tournament](https://punchng.com/wikki-tourists-name-30-players-for-gusau-ahlan-pre-season-tournament/) - **The Punch**
-9. [Boro and Wrexham aim to be competitive again](https://www.bbc.com/sport/football/articles/c62x3xj8402o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [NFL Catchup: Hall Of Fame Game Brings The Juice; More Record RB Extensions](https://www.foxsports.com/stories/nfl/nfl-catchup-hall-fame-game-brings-juice-more-record-rb-extensions) - **Fox Sports**
+1. [Barcelona looking to close the deal to Real Madrid target as soon as possible – Romano](https://barcauniversal.com/barcelona-looking-to-close-the-deal-to-real-madrid-target-as-soon-as-possible-romano/) - **Barcauniversal.com**
+2. [Journalist: Liverpool Not Interested In Premier League Defender](https://anfieldindex.com/97471/journalist-liverpool-not-interested-in-premier-league-defender.html) - **Anfieldindex.com**
+3. [Rodri chose Barcelona despite Real Madrid’s ‘unrefusable’ offer, says player’s agent](https://worldsoccertalk.com/news/rodri-chose-barcelona-despite-real-madrids-unrefusable-offer-says-players-agent/) - **Worldsoccertalk.com**
+4. [Leeds Confirm Record £40m Move For England Goalkeeper](https://eplindex.com/149163/leeds-confirm-record-40m-move-for-england-goalkeeper.html) - **English Premier League Index - Opta Stats**
+5. [Ted Lasso’s Juno Temple reveals she married long-term boyfriend](https://www.the-independent.com/arts-entertainment/tv/news/juno-temple-husband-michal-szymanski-married-ted-lasso-b3029088.html) - **The-independent.com**
+6. [Who am I? Guess Premier League star No 18](https://www.bbc.co.uk/sport/football/articles/c8dne1893elo) - **BBC News**
+7. [Fans' Sky Blues film 'more than a football story'](https://www.bbc.com/news/articles/cn5nlpl2l62o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Who will exit Chelsea? How Blues could cut 41-man squad](https://www.bbc.com/sport/football/articles/c0jle24ln68o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Warriors Proposed to Land Michael Porter Jr., Vet Guard in Blockbuster Trade](https://heavy.com/sports/nba/golden-state-warriors/warriors-trade-michael-porter-mann/) - **Heavy.com**
 
 
 ---
-*최근 업데이트: 2026-08-08 14:02:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-08 15:00:03 (KST) / (하루 100회 제한 준수 중)*
