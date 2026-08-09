@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Matheus Nunes opens up on Pep Guardiola's emotional Man City exit, adapting to his new role as a right back - and 'p***ing off' John Stones!](https://www.dailymail.com/sport/football/article-16035975/matheus-nunes-pep-guardiola-man-city-exit.html) - **Dailymail.com**
-2. [When does the Premier League start? Kickoff times for opening weekend of 2026/27 campaign](https://www.sportingnews.com/us/soccer/news/premier-league-start-date-2026/0fcad0a0890863593c99bd1e) - **Sporting News**
-3. [Tottenham Hotspur vs Getafe – Predicted lineup and team news](https://thefootballfaithful.com/tottenham-vs-getafe-predicted-lineup/) - **The Football Faithful**
-4. [Liverpool agree surprise deal to sign Barcelona captain on loan – Romano](https://barcauniversal.com/liverpool-agree-surprise-deal-to-sign-barcelona-captain-on-loan-romano/) - **Barcauniversal.com**
-5. [Tottenham Hotspur vs Getafe – Match preview and team news](https://thefootballfaithful.com/tottenham-hotspur-vs-getafe-match-preview/) - **The Football Faithful**
-6. [Inside Newcastle 2.0 - how the project is changing](https://www.bbc.com/sport/football/articles/cd7lzdpjlg2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Inside Newcastle 2.0 - how the project is changing](https://www.bbc.co.uk/sport/football/articles/cd7lzdpjlg2o) - **BBC News**
-8. [Life as a Wag in the transfer window](https://www.bbc.com/sport/football/articles/cx2jpgj24vlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Jaguars’ Harrison on Switch to LT: ‘Like Riding a Bike’](https://roundtable.io/sports/nfl/jaguars/news/jaguars-harrison-on-switch-to-lt-like-riding-a-bike) - **Roundtable.io**
-10. [Harmeet Singh joins Janakpur Bolts for NPL Season 3](https://english.khabarhub.com/2026/08/562341/) - **Khabarhub.com**
+1. [Morning Recap: Planned police deployment for Osun poll, PFIPC scandal, Basketball age controversy, other top stories](https://punchng.com/morning-recap-planned-police-deployment-for-osun-poll-pfipc-scandal-basketball-age-controversy-other-top-stories/) - **The Punch**
+2. [Tosin hails arrivals of Welbeck and Henderson as new ‘uncs’ in the Chelsea dressing room](https://www.footballmuse.com/news/tosin-hails-arrivals-of-welbeck-and-henderson-as-new-uncs-in-the-chelsea-dressing-room) - **Footballmuse.com**
+3. [London Stadium seeks concerts to cut £19m losses](https://www.bbc.co.uk/news/articles/c4gj98v11zqo) - **BBC News**
+4. [This is the minimum that Newcastle United need to achieve this upcoming season](https://www.themag.co.uk/2026/08/this-is-the-minimum-that-newcastle-united-need-to-achieve-this-upcoming-season/) - **The Mag**
+5. [Shearer ‘gets’ Guimaraes exit as £75m Arsenal switch nears, calling Newcastle a very different club to 12–18 months ago](https://www.footballmuse.com/news/shearer-gets-guimaraes-exit-as-75m-arsenal-switch-nears-calling-newcastle-a-very-different-club-to-1218-months-ago) - **Footballmuse.com**
+6. [Manchester United halts Carlos Baleba deal due to injury](https://cryptobriefing.com/manchester-united-halts-baleba-deal-injury/) - **Crypto Briefing**
+7. [How clubs can use the current chaos to get rid of internationals and look after players’ well-being](https://untold-arsenal.com/archives/122237) - **Untold-arsenal.com**
+8. [Majority of Newcastle United Women’s team matches will be played at St James’ Park](https://www.themag.co.uk/2026/08/majority-of-newcastle-united-womens-team-matches-will-be-played-at-st-james-park/) - **The Mag**
+9. [Goals galore - the wildest scores in EFL Cup history](https://www.bbc.com/sport/football/articles/c5y02m99evro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Goals galore - the wildest scores in EFL Cup history](https://www.bbc.co.uk/sport/football/articles/c5y02m99evro) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-09 15:02:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-09 16:26:28 (KST) / (하루 100회 제한 준수 중)*
