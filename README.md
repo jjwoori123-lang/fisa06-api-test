@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [‘Baahubali: The Eternal War’ Taps Annapurna Studios’ A&M MoCap Lab For Previsualization](https://www.forbes.com/sites/hannahabraham/2026/08/07/baahubali-the-eternal-war-taps-annapurna-studios-am-mocap-lab-for-previsualization/) - **Forbes**
-2. [Match Day: New Mexico United at Monterey Bay FC](https://www.abqjournal.com/sports/match-day-new-mexico-united-at-monterey-bay-fc/3098819) - **Albuquerque Journal**
-3. [From self-doubt to Asian tour glory: How trusting the process changed Karandeep Kochhar's career](https://timesofindia.indiatimes.com/sports/golf/from-self-doubt-to-asian-tour-glory-how-trusting-the-process-changed-karandeep-kochhars-career/articleshow/133045376.cms) - **The Times of India**
-4. [Spurs ponder Solanke, Richarlison exits for Osimhen](https://punchng.com/spurs-ponder-solanke-richarlison-exits-for-osimhen/) - **The Punch**
-5. [Inside Chelsea's summer clear-out: The price tags slapped on Enzo Fernandez, Nicolas Jackson and Liam Delap, latest on Pedro Neto, why Blues aren't panicking about 46-man squad and the two stars set to sign new deals](https://www.dailymail.com/sport/football/article-16036263/chelsea-summer-clearout-fernandez-jackson-delap.html) - **Dailymail.com**
-6. [Inside Chelsea's summer clear-out: The price tags slapped on Enzo Fernandez, Nicolas Jackson and Liam Delap, latest on Pedro Neto, why Blues aren't panicking about 46-man squad and the two stars set to sign new deals](https://www.dailymail.com/sport/football/article-16036263/chelsea-summer-clearout-fernandez-jackson-delap.html) - **Dailymail.com**
-7. [Chelsea vs. AC Milan friendly prediction, start time, how to watch](https://www.usatoday.com/story/sports/soccer/epl/2026/08/07/chelsea-ac-milan-prediction-where-to-watch-preseason-friendly/91211655007/) - **USA Today**
-8. [John Speraw Says Volleyball Is Poised For A Breakthrough Before LA28](https://www.forbes.com/sites/timgenske/2026/08/07/john-speraw-says-volleyball-is-poised-for-a-breakthrough-before-la28/) - **Forbes**
-9. [Titans make Peter Skoronski highest-paid guard in NFL with $100 million extension](https://nypost.com/2026/08/07/sports/titans-peter-skoronski-signs-100-million-extension/?utm_source=yahoo&amp;utm_campaign=nypost&amp;utm_medium=referral) - **New York Post**
-10. [Titans make Peter Skoronski highest-paid guard in NFL with $100 million extension](https://nypost.com/2026/08/07/sports/titans-peter-skoronski-signs-100-million-extension/) - **New York Post**
+1. [Brian Barry-Murphy: How his father Jimmy, Pep Guardiola and Ireland shaped Cardiff’s manager](https://www.irishtimes.com/sport/soccer/2026/08/08/brian-barry-murphy-how-jimmy-guardiola-and-ireland-shaped-cardiffs-manager/) - **The Irish Times**
+2. [Match Preview: Sunderland Say ‘Bonjour!’ As We Head To France](https://rokerreport.sbnation.com/match-previews/147437/match-preview-sunderland-say-bonjour-as-we-head-to-france) - **SB Nation**
+3. [Fan Letters: Fans Praise Sunderland’s Summer Strategy](https://rokerreport.sbnation.com/fan-letters/147289/fan-letters-fans-praise-sunderlands-summer-strategy) - **SB Nation**
+4. [Rishabh Pant seeks CM Pushkar Singh Dhami’s help to buy land in Uttarakhand after 3-year search](https://economictimes.indiatimes.com/news/sports/cricket/rishabh-pant-seeks-cm-pushkar-singh-dhamis-help-to-buy-land-in-uttarakhand-after-3-year-search/articleshow/133046695.cms) - **The Times of India**
+5. [Former Seahawks Tight End Claimed off Waivers by the Steelers](https://heavy.com/sports/nfl/seattle-seahawks/lance-mason-claimed-waivers-pittsburgh-steelers/) - **Heavy.com**
+6. [Leagues Cup bracket, schedule, results for 2026 competition between MLS and Liga MX](https://sports.yahoo.com/articles/leagues-cup-bracket-schedule-results-for-2026-competition-between-mls-and-liga-mx-041800644.html) - **Yahoo Entertainment**
+7. [8 Biggest Announcements From Gen Con](http://comicbook.com/gaming/list/8-biggest-announcements-from-gen-con/) - **ComicBook.com**
+8. [Florida Freedom, PBR wrap victorious day one at Amerant Bank Arena](https://www.sun-sentinel.com/2026/08/07/florida-freedom-pbr-wrap-victorious-day-one-at-amerant-bank-arena/) - **Sun Sentinel**
+9. [‘Baahubali: The Eternal War’ Taps Annapurna Studios’ A&M MoCap Lab For Previsualization](https://www.forbes.com/sites/hannahabraham/2026/08/07/baahubali-the-eternal-war-taps-annapurna-studios-am-mocap-lab-for-previsualization/) - **Forbes**
+10. [Match Day: New Mexico United at Monterey Bay FC](https://www.abqjournal.com/sports/match-day-new-mexico-united-at-monterey-bay-fc/3098819) - **Albuquerque Journal**
 
 
 ---
-*최근 업데이트: 2026-08-09 12:45:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-09 14:07:28 (KST) / (하루 100회 제한 준수 중)*
