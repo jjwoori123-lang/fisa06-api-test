@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Why Napoli cannot sign Arsenal’s Gabriel Jesus on loan this summer](https://www.getfootballnewsitaly.com/2026/why-napoli-cannot-sign-arsenals-gabriel-jesus-on-loan-this-summer/) - **Getfootballnewsitaly.com**
-2. [Man Utd confirm three absentees from squad vs PSG with one Red recovering from a ‘minor procedure’](https://utdreport.co.uk/2026/08/08/manchester-united-senne-lammens-matheus-cunha-karl-darlow-psg/) - **Utdreport.co.uk**
-3. [Wrexham fans make it clear what their team is lacking after losing first competitive game of 26/27](https://www.hitc.com/wrexham-fans-make-it-clear-what-their-team-is-lacking-after-losing-first-competitive-game-of-26-27/) - **HITC - Football, Gaming, Movies, TV, Music**
-4. [Two Saudi clubs join Arsenal in the race for Barcelona star](https://www.justarsenal.com/two-saudi-clubs-join-arsenal-in-the-race-for-barcelona-star/419998) - **Just Arsenal News**
-5. [Atletico Madrid won’t sell Alvarez – Simeone](https://www.vanguardngr.com/2026/08/atletico-madrid-wont-sell-alvarez-simeone/) - **Vanguard**
-6. [CPL 2026 schedule: Fixtures, score, format, points table and live streaming for Caribbean Premier League matches](https://www.cricketnews.com/en/cricket/news/cpl-2026-schedule-fixtures-score-format-points-table-live-stream/c187853896cf2aca16743660) - **Cricketnews.com**
-7. [Report: Tottenham Hotspur offered the chance to sign €75m striker](https://eplindex.com/149206/report-tottenham-hotspur-offered-the-chance-to-sign-e75m-striker.html) - **English Premier League Index - Opta Stats**
-8. [How much will Liverpool have to pay Barcelona to sign Ronald Araújo permanently?](https://getfootballnewsspain.com/how-much-will-liverpool-have-to-pay-barcelona-to-sign-ronald-araujo-permanently/) - **Getfootballnewsspain.com**
-9. [Arsenal announce Bruno Guimaraes](https://theshortfuse.sbnation.com/arsenal-transfer-rumors-and-news/37240/arsenal-announce-bruno-guimaraes) - **SB Nation**
+1. [Sky Sports: Defender set for medical ahead of Liverpool move](https://anfieldindex.com/97571/sky-sports-defender-set-for-medical-ahead-of-liverpool-move.html) - **Anfieldindex.com**
+2. [Tielemans on bench as Man Utd face PSG in pre-season match](https://www.bbc.com/sport/football/live/cdx7rvr4z3yt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Ismaëlo Ganiou extends contract with Lens to 2030](https://www.getfootballnewsfrance.com/2026/ismaelo-ganiou-extends-contract-with-lens-to-2030/) - **Get French Football News**
+4. [Xabi Alonso deploys a back three for the first time at Blues and why adding a set-piece coach has proved a masterstroke: Chelsea 3-0 AC Milan](https://www.dailymail.com/sport/football/article-16029871/Chelsea-AC-Milan-Takeaways-Alonso.html) - **Dailymail.com**
+5. [Roma send first offer for Endrick](https://romapress.net/roma-send-first-offer-for-endrick/) - **RomaPress**
+6. [What we learned from Xabi Alonso deploying a back three for the first time at Chelsea and why adding a set-piece coach has proved a masterstroke was left frustrated in defeat by Juventus](https://www.dailymail.com/sport/football/article-16029871/Chelsea-AC-Milan-Takeaways-Alonso.html) - **Dailymail.com**
+7. [Sullivan attends West Ham game despite advice not to](https://www.bbc.com/sport/football/articles/c07rx4r40ngo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Entire MVFC gets chance to take down FBS foe in 2026 season](https://www.mitchellrepublic.com/sports/college/entire-mvfc-gets-chance-to-take-down-fbs-foe-in-2026-season) - **Mitchellrepublic.com**
+9. [Rams secondary includes two top-15 CBs, per PFF rankings](https://theramswire.usatoday.com/story/sports/nfl/rams/2026/08/08/rams-secondary-includes-two-top-15-cbs-per-pff-rankings/91225474007/) - **USA Today**
+10. [When Erling Haaland is expected to return to Man City training after starring at World Cup](https://www.hitc.com/when-erling-haaland-is-expected-to-return-to-man-city-training-after-starring-at-world-cup/) - **HITC - Football, Gaming, Movies, TV, Music**
 
 
 ---
-*최근 업데이트: 2026-08-09 23:17:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-09 23:56:28 (KST) / (하루 100회 제한 준수 중)*
