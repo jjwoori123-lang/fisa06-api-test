@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Defensive worries and a lack of options: Five takeaways as Arsenal lose pre-season friendly to Dortmund](https://hayters.com/defensive-worries-and-a-lack-of-options-five-takeaways-as-arsenal-lose-pre-season-friendly-to-dortmund/) - **Hayters.com**
-2. [Atlético Madrid ready to deal Barcelona another transfer blow](https://getfootballnewsspain.com/atletico-madrid-ready-to-deal-barcelona-another-transfer-blow/) - **Getfootballnewsspain.com**
-3. [Waterford move out of bottom two by blitzing Bohemians](https://www.rte.ie/sport/soccer/2026/0809/1587139-waterford-move-out-of-bottom-two-by-blitzing-bohemians/) - **RTE**
-4. [Transfer wrap: Ebosele on the move in Turkey](https://www.rte.ie/sport/soccer/2026/0809/1587162-transfer-wrap-ebosele-on-the-move-in-turkey/) - **RTE**
-5. [Young players lead Dortmund to win over Arsenal in friendly match](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260809-99-291278/) - **Dpa-international.com**
-6. [Three sporting events to watch this week: Your handy guide to sport on television](https://www.irishtimes.com/sport/2026/08/09/three-sporting-events-to-watch-this-week-your-handy-guide-to-sport-on-television/) - **The Irish Times**
-7. [Journey to Wembley: Daily Mail Sport's special 50th anniversary love letter to the FA Cup begins at 'Little Wembley', the home of Nelson FC - the ninth-tier side who were first EVER team to beat Real Madrid on home soil](https://www.dailymail.com/sport/football/article-16039837/Daily-Mail-Sports-epic-Journey-Wembley.html) - **Dailymail.com**
-8. [Motherwell held to goalless draw at home to Falkirk](https://www.skysports.com/football/news/36621/13569661/motherwell-0-0-falkirk-motherwell-held-to-goalless-draw-ahead-of-conference-league-third-round-qualifier-with-hjk-helsinki) - **Sky Sports**
-9. [Joining Hull 'a very exciting opportunity' - Stroud](https://www.bbc.com/sport/football/articles/c0ej5r52209o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Newcastle United to battle with Aston Villa for Bayern Munich’s João Palhinha?](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/241027/newcastle-united-to-battle-with-aston-villa-for-bayern-munichs-joao-palhinha) - **Bavarian Football Works**
+2. [We cannot sustain the level we want - Iraola](https://www.bbc.com/sport/football/articles/c3r0zzpw5gjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [We cannot sustain the level we want - Iraola](https://www.bbc.co.uk/sport/football/articles/c3r0zzpw5gjo) - **BBC News**
+4. [Como signs Trevoh Chalobah from Chelsea in deal worth up to €36 million](https://cryptobriefing.com/como-signs-chalobah-chelsea-transfer/) - **Crypto Briefing**
+5. [Report: Former Liverpool star set to join Mohamed Salah at Trabzonspor](https://anfieldindex.com/97618/report-former-liverpool-star-set-to-join-mohamed-salah-at-trabzonspor.html) - **Anfieldindex.com**
+6. [Official: Chalobah joins ‘ambitious, rising project’ at Como from Chelsea](https://football-italia.net/official-chalobah-joins-ambitious-como-chelsea/) - **Football Italia**
+7. [Harry Kane 'expected' to sign new Bayern deal as discussions planned](https://onefootball.com/en/news/harry-kane-expected-to-sign-new-bayern-deal-as-discussions-planned-43252506) - **Onefootball.com**
+8. [Paris Saint-Germain confirms signing of Lucas Digne from Aston Villa](https://cryptobriefing.com/psg-signs-lucas-digne-aston-villa/) - **Crypto Briefing**
+9. [Report: Kane contract extension close to completion](https://bulinews.com/kane-contract-extension-close-completion) - **Bulinews.com**
+10. [Rangers lose again, Celtic hammer Kilmarnock and Hearts thrash Tangerines – SPFL Matchday Review](https://wp.fromthespot.co.uk/31307/rangers-lose-again-celtic-hammer-kilmarnock-and-hearts-thrash-tangerines-spfl-matchday-review/) - **Fromthespot.co.uk**
 
 
 ---
-*최근 업데이트: 2026-08-11 01:28:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-11 02:32:59 (KST) / (하루 100회 제한 준수 중)*
