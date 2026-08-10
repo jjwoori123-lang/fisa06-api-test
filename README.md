@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Leeds United Eye Shock Move For 26-year-old World Cup Star: Right Move After Trafford?](https://the4thofficial.net/2026/08/leeds-united-eye-shock-move-for-26-year-old-world-cup-star-right-move-after-trafford/) - **The4thofficial.net**
-2. [Maresca delighted by Semenyo-Marmoush partnership after Man City beat Atletico](https://www.channelnewsasia.com/sport/maresca-delighted-semenyo-marmoush-partnership-after-man-city-beat-atletico-6308696) - **CNA**
-3. [Pep Guardiola was 'writing line-ups down' but rejected the Italy job because of 'EXHAUSTION', reveals Paolo Maldini](https://www.dailymail.com/sport/football/article-16039943/Pep-Guardiola-writing-line-ups-rejected-Italy-job-EXHAUSTION-reveals-Paolo-Maldini.html) - **Dailymail.com**
-4. [Van Dijk and Wirtz Back Iraola as Liverpool Adjust After Slot](https://futbolchronicle.com/van-dijk-and-wirtz-back-iraola-as-liverpool-adjust-after-slot/) - **Futbolchronicle.com**
-5. [Iraola’s first Anfield match as Liverpool manager ends in Monaco defeat](https://punchng.com/iraolas-first-anfield-match-as-liverpool-manager-ends-in-monaco-defeat/) - **The Punch**
-6. [Premier League club enter the race to sign Barcelona defensive prodigy – report](https://barcauniversal.com/premier-league-club-enter-the-race-to-sign-barcelona-defensive-prodigy-report/) - **Barcauniversal.com**
-7. [Will Arsenal break their poor transfer sale record this summer?](https://dailycannon.com/2026/08/arsenal-transfer-sale-record/) - **Dailycannon.com**
-8. [Everton Rocked As €30m-rated Midfielder Rejects Major Transfer Approach: Why Toffees Should Avoid Expensive Gamble?](https://the4thofficial.net/2026/08/everton-rocked-as-e30m-rated-midfielder-rejects-major-transfer-approach-why-toffees-should-avoid-expensive-gamble/) - **The4thofficial.net**
-9. [Chalobah: ‘Fabregas wanted me’ at Como, emotional Chelsea farewell](https://football-italia.net/chalobah-fabregas-wanted-me-at-como-chelsea/) - **Football Italia**
-10. [Kilmarnock 1-5 Celtic: Record signing Kasper Hogh is ready to rumble after first-half hat-trick at Rugby Park](https://www.dailymail.com/sport/football/article-16039991/Kilmarnock-1-5-Celtic-Record-signing-Kasper-Hogh-ready-rumble-half-hat-trick-Rugby-Park.html) - **Dailymail.com**
+1. [Erling Haaland left amused as fans flock to Sicily holiday location](https://www.hitc.com/erling-haaland-left-amused-as-fans-flock-to-sicily-holiday-location/) - **HITC - Football, Gaming, Movies, TV, Music**
+2. [PSG complete signing of Aston Villa defender Lucas Digne](https://www.101greatgoals.com/news/transfers/psg-complete-signing-of-aston-villa-defender-lucas-digne/) - **101 Great Goals**
+3. [Liverpool Are Leading The Race For This Paris Saint-Germain Winger: A Star In The Making?](https://the4thofficial.net/2026/08/liverpool-are-leading-the-race-for-this-paris-saint-germain-winger/) - **The4thofficial.net**
+4. [St Pat’s beat Shelbourne in fractious derby with four red cards](https://www.irishtimes.com/sport/soccer/2026/08/09/st-pats-beat-shelbourne-in-fractious-derby-with-four-red-cards/) - **The Irish Times**
+5. [Fabrizio Romano confirms world-class player is coming to Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/fabrizio-romano-confirms-world-class-player-is-coming-to-liverpool/) - **Anfieldwatch.co.uk**
+6. [From Rice to Guimaraes: 10 Arsenal stars whose shirt number meant more](https://www.justarsenal.com/from-rice-to-guimaraes-10-arsenal-stars-whose-shirt-number-meant-more/420055) - **Just Arsenal News**
+7. [Dawn Staley thanks Jason Sudeikis for Ted Lasso book shoutout](https://collegesportswire.usatoday.com/story/sports/college/college-basketball/2026/08/09/dawn-staley-jason-sudeikis-ted-lasso-invitation-south-carolina-game/91235143007/) - **USA Today**
+8. [Vlahovic, Leao, Lukaku: Serie A stars at a crossroads ⚠️ Turkey or bench?](https://onefootball.com/en/news/vlahovic-leao-lukaku-serie-a-stars-at-a-crossroads-turkey-or-bench-43252807) - **Onefootball.com**
+9. [Man United & Chelsea make contact over Real Madrid youngster](https://getfootballnewsspain.com/man-united-chelsea-make-contact-over-real-madrid-youngster/) - **Getfootballnewsspain.com**
+10. [Report: Tottenham Hotspur have held talks to sign Real Madrid star](https://eplindex.com/149247/report-tottenham-hotspur-have-held-talks-to-sign-real-madrid-star.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-08-11 03:30:31 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-11 04:39:09 (KST) / (하루 100회 제한 준수 중)*
