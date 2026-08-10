@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Dundee's Bevan challenges team-mates to match standards 'every week'](https://www.bbc.com/sport/articles/cwyr8e58ylwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Liverpool vs Monaco – Match preview and team news](https://thefootballfaithful.com/liverpool-vs-monaco-match-preview-and-team-news/) - **The Football Faithful**
-3. [After Araujo: Liverpool ‘remain in the hunt’ for midfield powerhouse; offer has already gone in](https://www.empireofthekop.com/2026/08/09/liverpool-remain-in-the-hunt-for-midfield-powerhouse-offer-made/) - **Empire of The Kop**
-4. [Arsenal transfer truth emerges over Bruno Newcastle move](https://dailycannon.com/2026/08/arsenal-bruno-newcastle-move/) - **Dailycannon.com**
-5. [Liverpool star will have to wait for Premier League move to rivals](https://anfieldindex.com/97600/liverpool-star-will-have-to-wait-for-premier-league-move-to-rivals.html) - **Anfieldindex.com**
-6. [Crystal Palace and Everton discuss potential swap deal involving McNeil and Johnson](https://cryptobriefing.com/crystal-palace-everton-swap-deal-mcneil-johnson/) - **Crypto Briefing**
-7. [Scott and Antony sent off in pre-season friendly](https://www.bbc.com/sport/football/articles/c2k78znk7w2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Scott and Antony sent off in Bournemouth v Betis friendly](https://www.bbc.co.uk/sport/football/articles/c2k78znk7w2o) - **BBC News**
-9. [Mbaye and Fofana among names linked with Roma](https://romapress.net/mbaye-and-fofana-among-names-linked-with-roma/) - **RomaPress**
+1. [Leverkusen receive first offer for Palacios from Premier League side](https://bulinews.com/leverkusen-receive-first-offer-for-palacios-premier-league-side) - **Bulinews.com**
+2. [Maldini reveals all about his 17 days in the Italy set-up: ‘A shame, a real shame’](https://football-italia.net/maldini-reveals-all-about-17-days-with-italy/) - **Football Italia**
+3. [Manchester City contacts Alexis Mac Allister’s representatives as Rodri replacement search heats up](https://cryptobriefing.com/man-city-mac-allister-transfer-rodri-replacement/) - **Crypto Briefing**
+4. [Liverpool vs. Monaco Pre-Season 2026: Preview, Lineups, and How to Watch](https://liverpooloffside.sbnation.com/liverpool-preseason-coverage/82509/liverpool-vs-monaco-pre-season-2026-preview-lineups-and-how-to-watch) - **SB Nation**
+5. [Iraola vows to build a Liverpool team fans can be proud of ahead of first Anfield test vs Monaco](https://www.footballmuse.com/news/iraola-vows-to-build-a-liverpool-team-fans-can-be-proud-of-ahead-of-first-anfield-test-vs-monaco) - **Footballmuse.com**
+6. [Santos says he already ‘feels at home’ at Manchester United](https://thefootballfaithful.com/santos-says-he-already-feels-at-home-at-manchester-united/) - **The Football Faithful**
+7. [Carrick hails ‘good signs’ as Man United hold PSG, eyes strong finish to preseason](https://thefootballfaithful.com/carrick-hails-good-signs-as-man-united-hold-psg-eyes-strong-finish-to-preseason/) - **The Football Faithful**
+8. [How to watch Liverpool vs Monaco pre-season friendly](https://thefootballfaithful.com/how-to-watch-liverpool-vs-monaco-pre-season-friendly/) - **The Football Faithful**
+9. [Phil Foden's girlfriend puts England World Cup tops up for sale on second-hand clothing website - after Man City star was surprise omission from Thomas Tuchel's squad](https://www.dailymail.com/sport/football/article-16039553/Phil-Fodens-girlfriend-puts-England-World-Cup-tops-sale-second-hand-clothing-website-Man-City-star-surprise-omission-Thomas-Tuchels-squad.html) - **Dailymail.com**
+10. [Manchester City vs Atletico Madrid: Confirmed line-ups as Maresca picks strong XI for final pre-season clash](https://www.101greatgoals.com/football/manchester-city-vs-atletico-madrid-confirmed-line-ups-as-maresca-picks-strong-xi-for-final-pre-season-clash/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-08-10 18:24:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-10 19:45:42 (KST) / (하루 100회 제한 준수 중)*
