@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle United to battle with Aston Villa for Bayern Munich’s João Palhinha?](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/241027/newcastle-united-to-battle-with-aston-villa-for-bayern-munichs-joao-palhinha) - **Bavarian Football Works**
-2. [We cannot sustain the level we want - Iraola](https://www.bbc.com/sport/football/articles/c3r0zzpw5gjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [We cannot sustain the level we want - Iraola](https://www.bbc.co.uk/sport/football/articles/c3r0zzpw5gjo) - **BBC News**
-4. [Como signs Trevoh Chalobah from Chelsea in deal worth up to €36 million](https://cryptobriefing.com/como-signs-chalobah-chelsea-transfer/) - **Crypto Briefing**
-5. [Report: Former Liverpool star set to join Mohamed Salah at Trabzonspor](https://anfieldindex.com/97618/report-former-liverpool-star-set-to-join-mohamed-salah-at-trabzonspor.html) - **Anfieldindex.com**
-6. [Official: Chalobah joins ‘ambitious, rising project’ at Como from Chelsea](https://football-italia.net/official-chalobah-joins-ambitious-como-chelsea/) - **Football Italia**
-7. [Harry Kane 'expected' to sign new Bayern deal as discussions planned](https://onefootball.com/en/news/harry-kane-expected-to-sign-new-bayern-deal-as-discussions-planned-43252506) - **Onefootball.com**
-8. [Paris Saint-Germain confirms signing of Lucas Digne from Aston Villa](https://cryptobriefing.com/psg-signs-lucas-digne-aston-villa/) - **Crypto Briefing**
-9. [Report: Kane contract extension close to completion](https://bulinews.com/kane-contract-extension-close-completion) - **Bulinews.com**
-10. [Rangers lose again, Celtic hammer Kilmarnock and Hearts thrash Tangerines – SPFL Matchday Review](https://wp.fromthespot.co.uk/31307/rangers-lose-again-celtic-hammer-kilmarnock-and-hearts-thrash-tangerines-spfl-matchday-review/) - **Fromthespot.co.uk**
+1. [Leeds United Eye Shock Move For 26-year-old World Cup Star: Right Move After Trafford?](https://the4thofficial.net/2026/08/leeds-united-eye-shock-move-for-26-year-old-world-cup-star-right-move-after-trafford/) - **The4thofficial.net**
+2. [Maresca delighted by Semenyo-Marmoush partnership after Man City beat Atletico](https://www.channelnewsasia.com/sport/maresca-delighted-semenyo-marmoush-partnership-after-man-city-beat-atletico-6308696) - **CNA**
+3. [Pep Guardiola was 'writing line-ups down' but rejected the Italy job because of 'EXHAUSTION', reveals Paolo Maldini](https://www.dailymail.com/sport/football/article-16039943/Pep-Guardiola-writing-line-ups-rejected-Italy-job-EXHAUSTION-reveals-Paolo-Maldini.html) - **Dailymail.com**
+4. [Van Dijk and Wirtz Back Iraola as Liverpool Adjust After Slot](https://futbolchronicle.com/van-dijk-and-wirtz-back-iraola-as-liverpool-adjust-after-slot/) - **Futbolchronicle.com**
+5. [Iraola’s first Anfield match as Liverpool manager ends in Monaco defeat](https://punchng.com/iraolas-first-anfield-match-as-liverpool-manager-ends-in-monaco-defeat/) - **The Punch**
+6. [Premier League club enter the race to sign Barcelona defensive prodigy – report](https://barcauniversal.com/premier-league-club-enter-the-race-to-sign-barcelona-defensive-prodigy-report/) - **Barcauniversal.com**
+7. [Will Arsenal break their poor transfer sale record this summer?](https://dailycannon.com/2026/08/arsenal-transfer-sale-record/) - **Dailycannon.com**
+8. [Everton Rocked As €30m-rated Midfielder Rejects Major Transfer Approach: Why Toffees Should Avoid Expensive Gamble?](https://the4thofficial.net/2026/08/everton-rocked-as-e30m-rated-midfielder-rejects-major-transfer-approach-why-toffees-should-avoid-expensive-gamble/) - **The4thofficial.net**
+9. [Chalobah: ‘Fabregas wanted me’ at Como, emotional Chelsea farewell](https://football-italia.net/chalobah-fabregas-wanted-me-at-como-chelsea/) - **Football Italia**
+10. [Kilmarnock 1-5 Celtic: Record signing Kasper Hogh is ready to rumble after first-half hat-trick at Rugby Park](https://www.dailymail.com/sport/football/article-16039991/Kilmarnock-1-5-Celtic-Record-signing-Kasper-Hogh-ready-rumble-half-hat-trick-Rugby-Park.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-08-11 02:32:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-11 03:30:31 (KST) / (하루 100회 제한 준수 중)*
