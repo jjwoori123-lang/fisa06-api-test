@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool given chance to confirm one of their most important signings](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-given-chance-to-confirm-one-of-their-most-important-signings/) - **Anfieldwatch.co.uk**
-2. [Hidden Rule Could Shape Newcastle’s Final Summer Transfers: Report](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/23872/hidden-rule-could-shape-newcastles-final-summer-transfers-report) - **SB Nation**
-3. [Liverpool Starlet Abe On the Mark in U-21 Draw](https://liverpooloffside.sbnation.com/liverpool-youth-academy/82498/liverpool-starlet-abe-on-the-mark-in-u-21-draw-academy-winger-salah) - **SB Nation**
-4. [Manchester United want 28-year-old wide player to strengthen vulnerable position](https://utdreport.co.uk/2026/08/09/manchester-united-want-28-year-old-wide-player-to-strengthen-vulnerable-position/) - **Utdreport.co.uk**
-5. [What are your favourite new kits for the coming season?](https://www.bbc.com/sport/football/articles/c4g630klknjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [ Maldini hits out at Malagò: He picked the Italy coach! Pirlo and...](https://onefootball.com/en/news/maldini-hits-out-at-malago-he-picked-the-italy-coach-pirlo-and-43250372) - **Onefootball.com**
-7. [Fifa attacks media, media attacks un-English football managers](https://untold-arsenal.com/archives/122261) - **Untold-arsenal.com**
-8. [Every Premier League kit released for the 2026/27 season](https://thefootballfaithful.com/every-premier-league-kit-2026-27-season/) - **The Football Faithful**
-9. [Where to watch Man City vs. Atletico Madrid live stream, TV channel, start time for preseason friendly match](https://www.sportingnews.com/us/soccer/news/watch-man-city-vs-atletico-madrid-live-stream-tv-channel-time-friendly/9a381bb54b544411dfdf1b42) - **Sporting News**
-10. [Report: New £51.4m bid made for Man City midfielder](https://eplindex.com/149223/report-new-51-4m-bid-made-for-man-city-midfielder.html) - **English Premier League Index - Opta Stats**
+1. [Dundee's Bevan challenges team-mates to match standards 'every week'](https://www.bbc.com/sport/articles/cwyr8e58ylwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Liverpool vs Monaco – Match preview and team news](https://thefootballfaithful.com/liverpool-vs-monaco-match-preview-and-team-news/) - **The Football Faithful**
+3. [After Araujo: Liverpool ‘remain in the hunt’ for midfield powerhouse; offer has already gone in](https://www.empireofthekop.com/2026/08/09/liverpool-remain-in-the-hunt-for-midfield-powerhouse-offer-made/) - **Empire of The Kop**
+4. [Arsenal transfer truth emerges over Bruno Newcastle move](https://dailycannon.com/2026/08/arsenal-bruno-newcastle-move/) - **Dailycannon.com**
+5. [Liverpool star will have to wait for Premier League move to rivals](https://anfieldindex.com/97600/liverpool-star-will-have-to-wait-for-premier-league-move-to-rivals.html) - **Anfieldindex.com**
+6. [Crystal Palace and Everton discuss potential swap deal involving McNeil and Johnson](https://cryptobriefing.com/crystal-palace-everton-swap-deal-mcneil-johnson/) - **Crypto Briefing**
+7. [Scott and Antony sent off in pre-season friendly](https://www.bbc.com/sport/football/articles/c2k78znk7w2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Scott and Antony sent off in Bournemouth v Betis friendly](https://www.bbc.co.uk/sport/football/articles/c2k78znk7w2o) - **BBC News**
+9. [Mbaye and Fofana among names linked with Roma](https://romapress.net/mbaye-and-fofana-among-names-linked-with-roma/) - **RomaPress**
 
 
 ---
-*최근 업데이트: 2026-08-10 16:46:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-10 18:24:45 (KST) / (하루 100회 제한 준수 중)*
