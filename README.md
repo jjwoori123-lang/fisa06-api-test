@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Incredible Newcastle United v Liverpool transformation in 17 months](https://www.themag.co.uk/2026/08/incredible-newcastle-united-v-liverpool-transformation-in-17-months/) - **The Mag**
-2. [Chargers' Tarheeb Still could be poised for breakout season](https://chargerswire.usatoday.com/story/sports/nfl/chargers/2026/08/09/chargers-donte-jackson-speaks-highly-of-tarheeb-still/91206282007/) - **USA Today**
-3. [Pundit suggests Liverpool target prefers Arsenal move](https://anfieldindex.com/97634/pundit-suggests-liverpool-target-prefers-arsenal-move.html) - **Anfieldindex.com**
-4. [Arsenal could be set to hijack Liverpool move for Ligue1 star](https://eplindex.com/149255/arsenal-could-be-set-to-hijack-liverpool-move-for-ligue1-star.html) - **English Premier League Index - Opta Stats**
-5. [Mourinho reveals he almost succeeded Ferguson at United](https://www.rte.ie/sport/soccer/2026/0810/1587201-mourinho-reveals-he-almost-succeeded-ferguson-at-united/) - **RTE**
-6. [Why I turned down Man United job in 2013 – Mourinho](https://punchng.com/why-i-turned-down-man-united-job-in-2013-mourinho/) - **The Punch**
-7. [Who am I? Guess Premier League star No 21](https://www.bbc.co.uk/sport/football/articles/c74gzej20xpo) - **BBC News**
-8. [Insider: Premier League club ‘in lead’ to sign ‘talented’ Man Utd star after Romano says proposal is imminent](https://utdreport.co.uk/2026/08/10/everton-in-lead-to-sign-ethan-wheatley-manchester-united/) - **Utdreport.co.uk**
-9. [How Liverpool are shaping up under Iraola](https://www.bbc.com/sport/football/articles/cx27gkmed3wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Sunderland’s Quiet Window: Patience or Cause for Concern?](https://rokerreport.sbnation.com/opinion/147471/time-for-sunderlands-recruitment-drive-to-ramp-up) - **SB Nation**
+1. [Big news, 'phenomenon' is keen to join Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/big-news-phenomenon-is-keen-to-join-liverpool/) - **Anfieldwatch.co.uk**
+2. [Morning recap: Presidency, Atiku clash over killings, Osun 2026 politics, PFIPC probe other top stories](https://punchng.com/morning-recap-presidency-atiku-clash-over-killings-osun-2026-politics-pfipc-probe-other-top-stories/) - **The Punch**
+3. [English Premier League’s viewership is surging in India while its fans emerge as affluent, high-spending consumer class](https://economictimes.indiatimes.com/industry/media/entertainment/media/premier-leagues-viewership-is-surging-in-india-while-its-fans-emerge-as-affluent-high-spending-consumer-class/articleshow/133088422.cms) - **The Times of India**
+4. [This is the uncomfortable part of transitioning to being a competitive club at the top table](https://www.themag.co.uk/2026/08/this-is-the-uncomfortable-part-of-transitioning-to-being-a-competitive-club-at-the-top-table-newcastle-united/) - **The Mag**
+5. [Arsenal v City: Kick-off time and TV information](https://www.mancity.com/news/mens/arsenal-v-city-kick-off-time-and-tv-information-63921861) - **Manchester City FC**
+6. [The team behind Hodgkinson's golden rise and the hunt for a world record](https://www.bbc.com/sport/athletics/articles/cjwp3nnlgqpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Taking a look at Lane Johnson's Hall of Fame chances](https://www.nbcsportsphiladelphia.com/nfl/philadelphia-eagles/lane-johnson-nfl-hall-of-fame-canton-eagles-jason-kelce/746144/?partner=yahoo) - **Nbcsportsphiladelphia.com**
+8. [Anthony Elanga Injury Update Emerges After Newcastle’s Winger Gets Stretchered Off](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/23967/anthony-elanga-injury-update-emerges-after-newcastles-winger-gets-stretchered-off) - **SB Nation**
+9. [Crystal Palace see midfielder bid rejected as Liverpool and Manchester United lurk](https://eplindex.com/149256/palace-see-midfielder-bid-rejected-as-liverpool-and-manchester-united-lurk.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-08-11 15:08:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-11 16:41:30 (KST) / (하루 100회 제한 준수 중)*
