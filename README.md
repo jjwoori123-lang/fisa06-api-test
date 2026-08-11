@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mourinho reveals he signed contract to succeed Ferguson at Man Utd](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260810-99-292964/) - **Dpa-international.com**
-2. [Nick Suzuki Ranked Above Auston Matthews in New NHL Center Rankings](https://www.hockeyfeed.com/nhl-news/nick-suzuki-ranked-above-auston-matthews-in-new-nhl-center-rankings) - **Hockeyfeed.com**
-3. [Digne departs, Palhinha pursuit and injury boost ahead of Brighton](https://www.thevillablog.co.uk/digne-departs-palhinha-pursuit-and-injury-boost-ahead-of-brighton/) - **Thevillablog.co.uk**
-4. [Newcastle United reportedly trying to beat Aston Villa to Bayern Munich’s João Palhinha](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/241434/newcastle-united-reportedly-trying-to-beat-aston-villa-to-bayern-munichs-joao-palhinha) - **Bavarian Football Works**
-5. [The ORIGINAL spygate: John Terry claims Jose Mourinho showed Chelsea stars rival's training footage on eve of game in new Netflix documentary](https://www.dailymail.com/sport/football/article-16036067/jose-mourinho-chelsea-spying-training-footage.html) - **Dailymail.com**
-6. ['There were tears': Frank Lampard and John Terry open up on Jose Mourinho's emotional exit from Chelsea in 2007 as Portuguese coach reveals how his relationship with Roman Abramovich fell apart](https://www.dailymail.com/sport/football/article-16033911/frank-lampard-john-terry-jose-mourinho-chelsea-exit.html) - **Dailymail.com**
-7. [Jose Mourinho REFUSES to apologise to former Chelsea team doctor Eva Carneiro over infamous 'daughter of a wh***' touchline row as he finally addresses row 11 years later: 'I always use my vocabulary when I'm not happy'](https://www.dailymail.com/sport/football/article-16035717/jose-mourinho-eva-carneiro-row.html) - **Dailymail.com**
-8. [Jose Mourinho REFUSES to apologise to former Chelsea team doctor Eva Carneiro over infamous 'daughter of a wh***' touchline row as he finally addresses row 11 years later: 'I always use my vocabulary when I'm not happy'](https://www.dailymail.com/sport/football/article-16035717/jose-mourinho-eva-carneiro-row.html) - **Dailymail.com**
-9. [Jose Mourinho makes stunning admission that he AGREED to replace Sir Alex Ferguson as Man United manager in 2013 before making U-turn during emotional phone call with legendary boss](https://www.dailymail.com/sport/football/article-16033915/jose-mourinho-sir-alex-ferguson-manchester-united.html) - **Dailymail.com**
-10. [Arteta backs Guimaraes to give Arsenal new dimension after £75m move](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260809-99-292664/) - **Dpa-international.com**
+1. [Sunderland’s Quiet Window: Patience or Cause for Concern?](https://rokerreport.sbnation.com/opinion/147471/time-for-sunderlands-recruitment-drive-to-ramp-up) - **SB Nation**
+2. [On This Day (10th August 1992): Sunderland Midfielder Wanted By Little’s Leicester](https://rokerreport.sbnation.com/features/146428/on-this-day-10th-august-1992-sunderland-midfielder-wanted-by-littles-leicester) - **SB Nation**
+3. [Editorial: One More to Go — Are Sunderland Ready for the Big Kick-Off?](https://rokerreport.sbnation.com/opinion/147929/editorial-just-one-to-go-membership-thoughts-premier-league-opportunity) - **SB Nation**
+4. [Why Luke O’Nien Represents the New Sunderland](https://rokerreport.sbnation.com/opinion/147371/luke-onien-is-the-embodiment-of-the-new-sunderland) - **SB Nation**
+5. [Chelsea Beat AC Milan 3-0 as Joao Pedro Double Shows Alonso Rebuild Taking Shape](https://futbolchronicle.com/chelsea-beat-ac-milan-3-0-as-joao-pedro-double-shows-alonso-rebuild-taking-shape/) - **Futbolchronicle.com**
+6. [Bruno Guimaraes Completes 75m Arsenal Move as Newcastle Pass 240m in Summer Sales](https://futbolchronicle.com/bruno-guimaraes-completes-75m-arsenal-move-as-newcastle-pass-240m-in-summer-sales/) - **Futbolchronicle.com**
+7. [KUAISHOU GAMING WINS AT THE HONOR OF KINGS WORLD CUP AT ESPORTS WORLD CUP 2026 AS PACKED GLOBAL ESPORTS SEASON HITS FULL SWING](https://www.prnewswire.com/news-releases/kuaishou-gaming-wins-at-the-honor-of-kings-world-cup-at-esports-world-cup-2026-as-packed-global-esports-season-hits-full-swing-302846859.html) - **PRNewswire**
+8. [Liverpool can't keep letting levels drop, says Iraola after Monaco defeat](https://www.channelnewsasia.com/sport/liverpool-cant-keep-letting-levels-drop-says-iraola-after-monaco-defeat-6309131) - **CNA**
+9. [Liverpool's 2-0 Collapses Should Seriously Concern Andoni Iraola](https://www.stadiumrant.com/liverpools-2-0-collapses-should-seriously-concern-andoni-iraola/) - **Stadiumrant.com**
+10. [Mourinho reveals he signed contract to succeed Ferguson at Man Utd](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260810-99-292964/) - **Dpa-international.com**
 
 
 ---
-*최근 업데이트: 2026-08-11 12:47:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-11 14:11:21 (KST) / (하루 100회 제한 준수 중)*
