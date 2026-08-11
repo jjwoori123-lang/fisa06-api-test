@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Football Daily](https://www.bbc.co.uk/sounds/play/p0p3sdmr?at_campaign=rss) - **BBC News**
-2. [Arsenal's transfer stance on Martín Zubimendi made clear as Real Madrid circle](https://www.alloutsoccer.com/news/arsenal-transfer-zubimendi-real-madrid-1976788) - **Alloutsoccer.com**
-3. [Liverpool star sends message to new Real Madrid signing](https://getfootballnewsspain.com/liverpool-star-sends-message-to-new-real-madrid-signing/) - **Getfootballnewsspain.com**
-4. [FSG to seal sensational deal; Liverpool surge 1400 per cent](https://www.anfieldwatch.co.uk/liverpool-fc/news/fsg-to-seal-sensational-deal-liverpool-surge-1400-per-cent/) - **Anfieldwatch.co.uk**
-5. [Liverpool Are Ready To Move In For This Paris Saint-Germain Winger: Should Iraola Get Him On Board?](https://the4thofficial.net/2026/08/liverpool-are-ready-to-move-in-for-this-paris-saint-germain-winger-should-iraola-get-him-on-board/) - **The4thofficial.net**
-6. [West Ham eye more attacking signings after completing winger deal](https://hayters.com/west-ham-eye-more-attacking-signings-after-completing-winger-deal/) - **Hayters.com**
-7. [Derry and McClean silent amid reports of possible exit](https://www.rte.ie/sport/soccer/2026/0810/1587329-derry-and-mcclean-silent-amid-reports-of-possible-exit/) - **RTE**
-8. [Barcelona’s pursuit of Rodri takes unexpected turn as midfielder agrees personal terms](https://cryptobriefing.com/barcelona-rodri-transfer-unexpected-turn/) - **Crypto Briefing**
-9. [Aston Villa enquire for Juventus forward David in move that could unlock Zirkzee pursuit](https://football-italia.net/aston-villa-enquire-for-juventuss-david/) - **Football Italia**
-10. [CBF and clubs back new rules in Brazilian football](https://onefootball.com/en/news/cbf-and-clubs-back-new-rules-in-brazilian-football-43257775) - **Onefootball.com**
+1. [Hull City ended negotiations to sign Nice’s Mohamed-Ali Cho](https://www.getfootballnewsfrance.com/2026/hull-city-ended-negotiations-to-sign-nices-mohamed-ali-cho/) - **Get French Football News**
+2. [Manchester United Are Facing Stiff Competition For This Talented Left-Back: Good Fit For Carrick?](https://the4thofficial.net/2026/08/manchester-united-are-facing-stiff-competition-for-this-talented-left-back/) - **The4thofficial.net**
+3. [Micky van de Ven signs new Tottenham contract](https://www.playmakerstats.com/news/micky-van-de-ven-signs-new-tottenham-contract/1171943) - **Playmakerstats.com**
+4. [Everton interested in signing Crystal Palace defender Daniel Munoz](https://sportsview.co.uk/2026/08/everton-now-interested-in-signing-crystal-palace-defender-daniel-munoz?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=everton-now-interested-in-signing-crystal-palace-defender-daniel-munoz) - **Sportsview.co.uk**
+5. [Arsenal Are In The Running To Recruit This Leicester City Youngster: One For The Future?](https://the4thofficial.net/2026/08/arsenal-are-in-the-running-to-recruit-this-leicester-city-youngster/) - **The4thofficial.net**
+6. [Barcelona star took a pay cut to leave the club this summer](https://getfootballnewsspain.com/barcelona-star-took-a-pay-cut-to-leave-the-club-this-summer/) - **Getfootballnewsspain.com**
+7. [Van de Ven signs new long-term deal with Spurs](https://www.bbc.co.uk/sport/football/articles/c4g362n1e28o) - **BBC News**
+8. [Rovers not being tested, Shels and Bohs struggling](https://www.rte.ie/sport/soccer/2026/0810/1587339-rovers-not-being-tested-shels-and-bohs-struggling/) - **RTE**
+9. [Everton interested in signing Crystal Palace defender Daniel Munoz](https://sportsview.co.uk/2026/08/everton-interested-in-signing-crystal-palace-defender-daniel-munoz?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=everton-interested-in-signing-crystal-palace-defender-daniel-munoz) - **Sportsview.co.uk**
+10. [Chelsea Are Set To Rival Real Madrid For This Arsenal Midfielder: What Will He Add To Alonso’s Side?](https://the4thofficial.net/2026/08/chelsea-are-set-to-rival-real-madrid-for-this-arsenal-midfielder/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-08-12 05:21:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-12 06:26:47 (KST) / (하루 100회 제한 준수 중)*
