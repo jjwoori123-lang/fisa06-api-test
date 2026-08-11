@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Hull City ended negotiations to sign Nice’s Mohamed-Ali Cho](https://www.getfootballnewsfrance.com/2026/hull-city-ended-negotiations-to-sign-nices-mohamed-ali-cho/) - **Get French Football News**
-2. [Manchester United Are Facing Stiff Competition For This Talented Left-Back: Good Fit For Carrick?](https://the4thofficial.net/2026/08/manchester-united-are-facing-stiff-competition-for-this-talented-left-back/) - **The4thofficial.net**
-3. [Micky van de Ven signs new Tottenham contract](https://www.playmakerstats.com/news/micky-van-de-ven-signs-new-tottenham-contract/1171943) - **Playmakerstats.com**
-4. [Everton interested in signing Crystal Palace defender Daniel Munoz](https://sportsview.co.uk/2026/08/everton-now-interested-in-signing-crystal-palace-defender-daniel-munoz?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=everton-now-interested-in-signing-crystal-palace-defender-daniel-munoz) - **Sportsview.co.uk**
-5. [Arsenal Are In The Running To Recruit This Leicester City Youngster: One For The Future?](https://the4thofficial.net/2026/08/arsenal-are-in-the-running-to-recruit-this-leicester-city-youngster/) - **The4thofficial.net**
-6. [Barcelona star took a pay cut to leave the club this summer](https://getfootballnewsspain.com/barcelona-star-took-a-pay-cut-to-leave-the-club-this-summer/) - **Getfootballnewsspain.com**
-7. [Van de Ven signs new long-term deal with Spurs](https://www.bbc.co.uk/sport/football/articles/c4g362n1e28o) - **BBC News**
-8. [Rovers not being tested, Shels and Bohs struggling](https://www.rte.ie/sport/soccer/2026/0810/1587339-rovers-not-being-tested-shels-and-bohs-struggling/) - **RTE**
-9. [Everton interested in signing Crystal Palace defender Daniel Munoz](https://sportsview.co.uk/2026/08/everton-interested-in-signing-crystal-palace-defender-daniel-munoz?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=everton-interested-in-signing-crystal-palace-defender-daniel-munoz) - **Sportsview.co.uk**
-10. [Chelsea Are Set To Rival Real Madrid For This Arsenal Midfielder: What Will He Add To Alonso’s Side?](https://the4thofficial.net/2026/08/chelsea-are-set-to-rival-real-madrid-for-this-arsenal-midfielder/) - **The4thofficial.net**
+1. [Notts Forest owner Marinakis sues Palace over gun banner - reports](https://sports.yahoo.com/articles/notts-forest-owner-marinakis-sues-220935696.html) - **Yahoo Entertainment**
+2. [Ryan Reynolds responds after couple leaves US for Wrexham following docuseries](https://www.alloutsoccer.com/news/ryan-reynolds-wrexham-couple-docuseries-1976933) - **Alloutsoccer.com**
+3. [It's football, not PlayStation - Uefa refs' chief on VAR](https://www.bbc.com/sport/football/articles/cvg90n3dvd5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Corry: Tolka Park has become 'a pressure pot'](https://www.rte.ie/sport/soccer/2026/0810/1587345-corry-tolka-park-has-become-a-pressure-pot/) - **RTE**
+5. [Craziest change yet? Florida High School football will crown 11 champs](https://www.news-journalonline.com/story/sports/high-school/football/2026/08/10/florida-high-school-football-open-division-fhsaa-state-championship/91218088007/) - **Daytona Beach News-Journal**
+6. [It's football, not PlayStation - Uefa refs' chief on VAR](https://www.bbc.co.uk/sport/football/articles/cvg90n3dvd5o) - **BBC News**
+7. [Arsenal v Man City: Does the Community Shield really matter in the title race?](https://www.justarsenal.com/arsenal-v-man-city-does-the-community-shield-really-matter-in-the-title-race/420114) - **Just Arsenal News**
+8. [Wright, Aaronson, Robinson among Americans set for EFL Cup second round](https://sbisoccer.com/2026/08/wright-aaronson-robinson-among-americans-set-for-efl-cup-second-round) - **Sbisoccer.com**
+9. [Cowboys, Quinnen Williams agree to historic three-year extension](https://www.sportingnews.com/us/nfl/dallas-cowboys/news/cowboys-quinnen-williams-extension/adba187bd5622afd5780c9b6) - **Sporting News**
+10. [West Ham sign Manor Solomon from Tottenham](https://www.playmakerstats.com/news/west-ham-sign-manor-solomon-from-tottenham/1171958) - **Playmakerstats.com**
 
 
 ---
-*최근 업데이트: 2026-08-12 06:26:47 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-12 07:22:32 (KST) / (하루 100회 제한 준수 중)*
