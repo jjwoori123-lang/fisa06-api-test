@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Fenway Sports Group adds women's WTGL team to golf roster](https://golfweek.usatoday.com/story/sports/golf/lpga/2026/08/10/fenway-sports-group-enters-wtgl-womens-golf-league/91239976007/) - **USA Today**
-2. [Romero, Spence, Porro to report for Spurs training this week](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/72724/tottenham-hotspur-news-porro-romero-spence-reporting-training-world-cup) - **SB Nation**
-3. [Lucas Digne returns to PSG as Champions League winners bolster defence](https://www.business-standard.com/sports/football-news/lucas-digne-returns-to-psg-as-champions-league-winners-bolster-defence-126081001090_1.html) - **Business Standard**
-4. [Gabriel Jesus gives approval to Napoli but Lukaku and one other sale required first](https://football-italia.net/gabriel-jesus-gives-approval-to-napoli-move/) - **Football Italia**
-5. [Iraola style already clear to see](https://www.bbc.com/sport/football/articles/ckg6xj726pyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Has Arsenal's indifferent pre-season revealed a surprise weakness?](https://www.skysports.com/football/news/11096/13571668/arsenal-have-looked-defensively-weak-in-pre-season-can-they-cope-without-william-saliba-as-premier-league-campaign-nears) - **Sky Sports**
-7. [Why Bowen is key to West ham's hopes of a PL return](https://www.skysports.com/football/video/30998/13571665/efl-show-why-jarrod-bowen-is-key-to-west-hams-hopes-of-a-pl-return) - **Sky Sports**
-8. [ESL Pro League Season 24 to be held in Katowice from October 3-11](https://cryptobriefing.com/esl-pro-league-season-24-katowice/) - **Crypto Briefing**
-9. [(VIDEO) Emirates Unveils 2.4-Meter Arsenal Crest Sculpture Built From Recycled A380 And Boeing 777 Jet Parts](https://www.ibtimes.com.au/emirates-arsenal-20-year-partnership-sculpture-1873867) - **Ibtimes.com.au**
+1. [Liverpool dismiss reports they submitted €115m bid for PSG forward Bradley Barcola](https://footballtoday.com/2026/08/10/liverpool-dismiss-reports-they-submitted-e115m-bid-for-psg-forward-bradley-barcola/) - **Footballtoday.com**
+2. [Breakaway World Cup on the cards? FIFA slammed in latest statement](https://thefootballfaithful.com/breakaway-world-cup-fifa-uefa/) - **The Football Faithful**
+3. [Should Liverpool fans be worried about Iraola's fitness comments?](https://www.bbc.co.uk/sport/football/articles/cy071ngvnzzo) - **BBC News**
+4. [Who can challenge Arsenal this season? Rejuvenated Spurs, and Glasner's Forest](https://shows.acast.com/timesthegame/episodes/who-can-challenge-arsenal-this-season-rejuvenated-spurs-and) - **Acast.com**
+5. [Pierre-Emile Hojbjerg rejects Newcastle United move](https://footballtoday.com/2026/08/10/pierre-emile-hojbjerg-rejects-newcastle-united-move/) - **Footballtoday.com**
+6. [Former Chelsea doctor Eva Carneiro aims thinly-veiled dig at Jose Mourinho on social media after his refusal to apologise over infamous touchline row in Netflix documentary](https://www.dailymail.com/sport/football/article-16041919/Chelsea-Eva-Carneiro-dig-Jose-Mourinho-documentary.html) - **Dailymail.com**
+7. [What Virgil van Dijk said after defeat to Monaco lays bare the stark reality Liverpool now face](https://www.empireofthekop.com/2026/08/10/van-dijk-liverpool-transition-iraola-monaco/) - **Empire of The Kop**
+8. [“Talks at final stages” – Liverpool closer to Ibrahim Mbaye transfer than ever before after Romano update](https://www.empireofthekop.com/2026/08/10/talks-at-final-stages-liverpool-closer-to-ibrahim-mbaye-transfer-than-ever-before-after-romano-update/) - **Empire of The Kop**
+9. [Liverpool owners close to €1.58bn sale of 30% stake to consortium including Jeff Bezos](https://www.irishtimes.com/sport/soccer/2026/08/10/liverpool-owners-close-to-158bn-sale-of-30-stake-to-consortium-including-jeff-bezos/) - **The Irish Times**
+10. [Aston Villa is considering a move for Juventus striker](https://talkjuve.com/2026/08/10/aston-villa-is-considering-a-move-for-juventus-striker/) - **Talkjuve.com**
 
 
 ---
-*최근 업데이트: 2026-08-11 22:46:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-12 00:00:02 (KST) / (하루 100회 제한 준수 중)*
