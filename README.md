@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Brentford U21s' and U18s' league fixtures confirmed](https://www.brentfordfc.com/en/news/article/brentford-b-team-u21s-u18s-academy-premier-league-2-u18-premier-league) - **Brentfordfc.com**
-2. [Amazon founder Bezos nears deal to buy stake in Liverpool  - Reports](https://www.channelnewsasia.com/sport/amazon-founder-bezos-nears-deal-buy-stake-in-liverpool-reports-6309816) - **CNA**
-3. [Wrexham closing in on Sunderland's Patterson](https://www.bbc.com/sport/football/articles/cx256kz7nkko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Newcastle United closing in on Pierre-Emile Hojberg, deal could cost around €15m](https://sportsview.co.uk/2026/08/newcastle-united-closing-in-on-pierre-emile-hojberg-deal-could-cost-around-e15m?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-united-closing-in-on-pierre-emile-hojberg-deal-could-cost-around-e15m) - **Sportsview.co.uk**
-5. [Crystal Palace finalizes deal to sign Anan Khalaili for £21M](https://cryptobriefing.com/crystal-palace-khalaili-transfer-deal/) - **Crypto Briefing**
-6. [Chelsea defender a Benfica target as Marco Silva seeks reunion](https://thefootballfaithful.com/chelsea-defender-a-benfica-target-as-marco-silva-seeks-reunion/) - **The Football Faithful**
-7. [Arsenal transfer news: Gunners make contact with centre-back pair](https://thefootballfaithful.com/arsenal-transfer-news-gunners-make-contact-with-centre-back-pair/) - **The Football Faithful**
-8. [Amazon’s Jeff Bezos ‘closing in’ on shock Liverpool deal](https://thefootballfaithful.com/amazons-jeff-bezos-closing-in-on-shock-liverpool-deal/) - **The Football Faithful**
-9. [Wrexham close in on signing of Sunderland's Patterson](https://www.bbc.co.uk/sport/football/articles/cx256kz7nkko) - **BBC News**
-10. [Chelsea get Luton as Spurs to host Charlton in Carabao Cup](https://www.skysports.com/football/news/11095/13571634/carabao-cup-second-round-chelsea-vs-luton-tottenham-vs-charlton-and-newcastle-vs-west-brom-as-11-premier-league-sides-enter-draw) - **Sky Sports**
+1. [Fenway Sports Group adds women's WTGL team to golf roster](https://golfweek.usatoday.com/story/sports/golf/lpga/2026/08/10/fenway-sports-group-enters-wtgl-womens-golf-league/91239976007/) - **USA Today**
+2. [Romero, Spence, Porro to report for Spurs training this week](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/72724/tottenham-hotspur-news-porro-romero-spence-reporting-training-world-cup) - **SB Nation**
+3. [Lucas Digne returns to PSG as Champions League winners bolster defence](https://www.business-standard.com/sports/football-news/lucas-digne-returns-to-psg-as-champions-league-winners-bolster-defence-126081001090_1.html) - **Business Standard**
+4. [Gabriel Jesus gives approval to Napoli but Lukaku and one other sale required first](https://football-italia.net/gabriel-jesus-gives-approval-to-napoli-move/) - **Football Italia**
+5. [Iraola style already clear to see](https://www.bbc.com/sport/football/articles/ckg6xj726pyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Has Arsenal's indifferent pre-season revealed a surprise weakness?](https://www.skysports.com/football/news/11096/13571668/arsenal-have-looked-defensively-weak-in-pre-season-can-they-cope-without-william-saliba-as-premier-league-campaign-nears) - **Sky Sports**
+7. [Why Bowen is key to West ham's hopes of a PL return](https://www.skysports.com/football/video/30998/13571665/efl-show-why-jarrod-bowen-is-key-to-west-hams-hopes-of-a-pl-return) - **Sky Sports**
+8. [ESL Pro League Season 24 to be held in Katowice from October 3-11](https://cryptobriefing.com/esl-pro-league-season-24-katowice/) - **Crypto Briefing**
+9. [(VIDEO) Emirates Unveils 2.4-Meter Arsenal Crest Sculpture Built From Recycled A380 And Boeing 777 Jet Parts](https://www.ibtimes.com.au/emirates-arsenal-20-year-partnership-sculpture-1873867) - **Ibtimes.com.au**
 
 
 ---
-*최근 업데이트: 2026-08-11 21:00:38 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-11 22:46:49 (KST) / (하루 100회 제한 준수 중)*
