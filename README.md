@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sunderland’s Quiet Window: Patience or Cause for Concern?](https://rokerreport.sbnation.com/opinion/147471/time-for-sunderlands-recruitment-drive-to-ramp-up) - **SB Nation**
-2. [On This Day (10th August 1992): Sunderland Midfielder Wanted By Little’s Leicester](https://rokerreport.sbnation.com/features/146428/on-this-day-10th-august-1992-sunderland-midfielder-wanted-by-littles-leicester) - **SB Nation**
-3. [Editorial: One More to Go — Are Sunderland Ready for the Big Kick-Off?](https://rokerreport.sbnation.com/opinion/147929/editorial-just-one-to-go-membership-thoughts-premier-league-opportunity) - **SB Nation**
-4. [Why Luke O’Nien Represents the New Sunderland](https://rokerreport.sbnation.com/opinion/147371/luke-onien-is-the-embodiment-of-the-new-sunderland) - **SB Nation**
-5. [Chelsea Beat AC Milan 3-0 as Joao Pedro Double Shows Alonso Rebuild Taking Shape](https://futbolchronicle.com/chelsea-beat-ac-milan-3-0-as-joao-pedro-double-shows-alonso-rebuild-taking-shape/) - **Futbolchronicle.com**
-6. [Bruno Guimaraes Completes 75m Arsenal Move as Newcastle Pass 240m in Summer Sales](https://futbolchronicle.com/bruno-guimaraes-completes-75m-arsenal-move-as-newcastle-pass-240m-in-summer-sales/) - **Futbolchronicle.com**
-7. [KUAISHOU GAMING WINS AT THE HONOR OF KINGS WORLD CUP AT ESPORTS WORLD CUP 2026 AS PACKED GLOBAL ESPORTS SEASON HITS FULL SWING](https://www.prnewswire.com/news-releases/kuaishou-gaming-wins-at-the-honor-of-kings-world-cup-at-esports-world-cup-2026-as-packed-global-esports-season-hits-full-swing-302846859.html) - **PRNewswire**
-8. [Liverpool can't keep letting levels drop, says Iraola after Monaco defeat](https://www.channelnewsasia.com/sport/liverpool-cant-keep-letting-levels-drop-says-iraola-after-monaco-defeat-6309131) - **CNA**
-9. [Liverpool's 2-0 Collapses Should Seriously Concern Andoni Iraola](https://www.stadiumrant.com/liverpools-2-0-collapses-should-seriously-concern-andoni-iraola/) - **Stadiumrant.com**
-10. [Mourinho reveals he signed contract to succeed Ferguson at Man Utd](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260810-99-292964/) - **Dpa-international.com**
+1. [Incredible Newcastle United v Liverpool transformation in 17 months](https://www.themag.co.uk/2026/08/incredible-newcastle-united-v-liverpool-transformation-in-17-months/) - **The Mag**
+2. [Chargers' Tarheeb Still could be poised for breakout season](https://chargerswire.usatoday.com/story/sports/nfl/chargers/2026/08/09/chargers-donte-jackson-speaks-highly-of-tarheeb-still/91206282007/) - **USA Today**
+3. [Pundit suggests Liverpool target prefers Arsenal move](https://anfieldindex.com/97634/pundit-suggests-liverpool-target-prefers-arsenal-move.html) - **Anfieldindex.com**
+4. [Arsenal could be set to hijack Liverpool move for Ligue1 star](https://eplindex.com/149255/arsenal-could-be-set-to-hijack-liverpool-move-for-ligue1-star.html) - **English Premier League Index - Opta Stats**
+5. [Mourinho reveals he almost succeeded Ferguson at United](https://www.rte.ie/sport/soccer/2026/0810/1587201-mourinho-reveals-he-almost-succeeded-ferguson-at-united/) - **RTE**
+6. [Why I turned down Man United job in 2013 – Mourinho](https://punchng.com/why-i-turned-down-man-united-job-in-2013-mourinho/) - **The Punch**
+7. [Who am I? Guess Premier League star No 21](https://www.bbc.co.uk/sport/football/articles/c74gzej20xpo) - **BBC News**
+8. [Insider: Premier League club ‘in lead’ to sign ‘talented’ Man Utd star after Romano says proposal is imminent](https://utdreport.co.uk/2026/08/10/everton-in-lead-to-sign-ethan-wheatley-manchester-united/) - **Utdreport.co.uk**
+9. [How Liverpool are shaping up under Iraola](https://www.bbc.com/sport/football/articles/cx27gkmed3wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Sunderland’s Quiet Window: Patience or Cause for Concern?](https://rokerreport.sbnation.com/opinion/147471/time-for-sunderlands-recruitment-drive-to-ramp-up) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-08-11 14:11:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-11 15:08:06 (KST) / (하루 100회 제한 준수 중)*
