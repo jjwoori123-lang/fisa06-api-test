@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea and Manchester United both offered a chance to sign Arsenal youngster Myles Lewis-Skelly](https://sportsview.co.uk/2026/08/chelsea-and-manchester-united-both-offered-a-chance-to-sign-arsenal-youngster-myles-lewis-skelly?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-and-manchester-united-both-offered-a-chance-to-sign-arsenal-youngster-myles-lewis-skelly) - **Sportsview.co.uk**
-2. [Once again, a combative Chelsea midfielder has been named as a potential midfield target for Manchester City](https://esteemedkompany.com/2026/08/11/a-world-cup-villain-looms-as-a-potential-target-for-manchester-city-to-bolster-their-midfield/) - **Esteemedkompany.com**
-3. [Tottenham Hotspur admire Endrick, deal there to be done for Jean-Philippe Mateta](https://sportsview.co.uk/2026/08/tottenham-hotspur-admire-endrick-deal-there-to-be-done-for-jean-philippe-mateta?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-hotspur-admire-endrick-deal-there-to-be-done-for-jean-philippe-mateta) - **Sportsview.co.uk**
-4. [What were they smoking? Former Chelsea star Mikel mocks Arsenal fans for thinking they could sign Vinicius Jr](https://www.101greatgoals.com/football/premier-league/chelsea-star-jon-obi-mikel-mocks-arsenal-fans-for-thinking-they-could-sign-vinicius-jr/) - **101 Great Goals**
-5. [Ja’Marr Chase is chasing an NFL single-season touchdown record](https://www.cincyjungle.com/cincinnati-bengals-analysis/195900/jamarr-chase-nfl-single-season-touchdown-catches-record) - **Cincy Jungle**
-6. [Newcastle United hold an interest in Benfica right-back Amar Dedic](https://sportsview.co.uk/2026/08/newcastle-united-hold-an-interest-in-benfica-right-back-amar-dedic?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-united-hold-an-interest-in-benfica-right-back-amar-dedic) - **Sportsview.co.uk**
-7. [Roma interested in Tottenham’s Udogie as alternative to Inter’s Henrique](https://football-italia.net/report-roma-interested-in-tottenhams-udogie/) - **Football Italia**
-8. [Johnson signs for Everton in McNeil swap deal](https://sports.yahoo.com/articles/johnson-signs-everton-mcneil-swap-101836620.html) - **Yahoo Entertainment**
-9. [Women's Champions League, draw for third qualifying round at 12:00 CEST](https://www.inter.it/en/news/inter-women-champions-league-third-qualifying-round-draw) - **Inter.it**
-10. [The Athletic: Man Utd leave Arsenal trailing in the race for ‘game-changing’ midfielder](https://utdreport.co.uk/2026/08/11/arsenal-man-utd-louis-page-leicester/) - **Utdreport.co.uk**
+1. [Chelsea and Man Utd ‘offered’ Arsenal transfer opportunity](https://thefootballfaithful.com/chelsea-man-utd-arsenal-transfer/) - **The Football Faithful**
+2. [Liverpool fans seek clarity on Bezos bid to buy stake](https://sports.yahoo.com/articles/liverpool-fans-seek-clarity-bezos-114441227.html) - **Yahoo Entertainment**
+3. [Southampton sign Man City striker Mubama on loan](https://www.bbc.com/sport/football/articles/cn7n88g37n7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Why do we bother with the world cup at all?](https://untold-arsenal.com/archives/122308) - **Untold-arsenal.com**
+5. [Martinez joins United squad ahead of Croke Park clash](https://www.rte.ie/sport/soccer/2026/0811/1587433-martinez-joins-united-squad-ahead-of-croke-park-clash/) - **RTE**
+6. [Charles' rise to NI's most expensive footballer](https://www.bbc.com/sport/football/articles/cn5n3rl0p0ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Charles' rise to NI's most expensive footballer](https://www.bbc.co.uk/sport/football/articles/cn5n3rl0p0ko) - **BBC News**
+8. [Romano says “negotiations are underway” for defender to leave Chelsea for Serie A loan](https://www.talkchelsea.net/transfers/romano-negotiations-underway-defender-to-leave-chelsea/) - **Talk Chelsea**
+9. [Sheffield United secures loan deal for Kalvin Phillips from Manchester City](https://cryptobriefing.com/sheffield-united-kalvin-phillips-loan-manchester-city/) - **Crypto Briefing**
+10. [Myles Lewis-Skelly offered to Chelsea and Man United with Arsenal looking to sell after £75m Bruno Guimaraes capture](https://www.dailymail.com/sport/football/article-16044099/Myles-Lewis-Skelly-Chelsea-Man-United-Arsenal.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-08-12 19:40:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-12 20:48:20 (KST) / (하루 100회 제한 준수 중)*
