@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Forgotten star suddenly set for Liverpool resurgence under Andoni Iraola](https://www.anfieldwatch.co.uk/liverpool-fc/news/forgotten-star-suddenly-set-for-liverpool-resurgence-under-andoni-iraola/) - **Anfieldwatch.co.uk**
-2. [Ronald Araujo has immediately done one thing which hasn’t been seen at Liverpool for 10 years](https://www.empireofthekop.com/2026/08/11/ronald-araujo-explains-liverpool-shirt-number-choice/) - **Empire of The Kop**
-3. [The players Arsenal need for a summer transfer](https://untold-arsenal.com/archives/122298) - **Untold-arsenal.com**
-4. [Aston Villa season preview, Joao Gomes message, Lucas Digne farewell](https://www.thevillablog.co.uk/aston-villa-season-preview-joao-gomes-message-lucas-digne-farewell/) - **Thevillablog.co.uk**
-5. [Ex-rival can’t help but hail Man Utd for their addition of ‘dangerous’ and ‘intelligent’ Red, he’s a game-changer](https://utdreport.co.uk/2026/08/11/john-obi-mikel-manchester-united-youri-tielemans-praise/) - **Utdreport.co.uk**
-6. [East Bengal's Continental Test Against Al Arabi SC](https://www.rediff.com/sports/report/east-bengal-face-al-arabi-in-afc-champions-league-2-qualifier/20260811.htm) - **Rediff.com**
-7. [Looking like this Newcastle United team v Liverpool for opening Premier League match](https://www.themag.co.uk/2026/08/looking-like-this-newcastle-united-team-v-liverpool-for-opening-premier-league-match/) - **The Mag**
-8. [Transfer rumour roundup: Real Madrid halt midfield hunt after Rodri snub; Arsenal slap £78m tag on Zubimendi](https://www.footballmuse.com/features/transfer-rumour-roundup-real-madrid-halt-midfield-hunt-after-rodri-snub-arsenal-slap-78m-tag-on-zubimendi) - **Footballmuse.com**
-9. [Pep Guardiola gave him the lowdown on which Man City stars sulk about being dropped over dinner in Barcelona... now Enzo Maresca is determined to do things his way, writes JACK GAUGHAN](https://www.dailymail.com/sport/football/article-16042781/pep-guardiola-meeting-enzo-maresca-new-era.html) - **Dailymail.com**
+1. [Newcastle to Host West Brom in Carabao Cup’s Second Round](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/24125/newcastle-draws-west-brom-albion-in-carabao-cups-second-round) - **SB Nation**
+2. [Liverpool sign Ronald Araujo on loan from Barcelona](https://www.rediff.com/sports/report/liverpool-secure-ronald-araujo-on-loan-from-barcelona-to-address-defensive-crisis/20260811.htm) - **Rediff.com**
+3. [Real Madrid teenage gem will not join Premier League club, to remain in Mourinho’s squad – Romano](https://madriduniversal.com/real-madrid-teenage-gem-will-not-join-premier-league-club-to-remain-in-mourinhos-squad-romano/) - **Madriduniversal.com**
+4. [Journalist reveals ‘truth’ behind Bayern interest in Man City star](https://cfbayerninsider.com/2026/08/journalist-reveals-truth-behind-bayern-interest-in-man-city-star/) - **Cfbayerninsider.com**
+5. [Report: Arsenal star wanted by Real Madrid in surprise move](https://eplindex.com/149292/report-arsenal-star-wanted-by-real-madrid-in-surprise-move.html) - **English Premier League Index - Opta Stats**
+6. [What are the rules on transfer window player swaps?](https://www.bbc.com/sport/football/articles/cjrv98glww3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Maresca says Man City player did the right thing turning down Arsenal](https://www.justarsenal.com/maresca-says-man-city-player-did-the-right-thing-turning-down-arsenal/420117) - **Just Arsenal News**
+8. [Arsenal: Season preview, ins and outs, one to watch and prediction – can the Gunners go back to back?](https://www.101greatgoals.com/football/premier-league/arsenal-season-preview-ins-outs-one-to-watch-and-prediction-can-the-gunners-go-back-to-back/) - **101 Great Goals**
+9. [England is 'perfect' for my qualities - Araujo](https://www.bbc.com/sport/football/articles/cd9wvzzy0j1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [The blueprint behind Ipswich's rise](https://www.bbc.com/sport/football/articles/c3d3l5xk1xjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-12 15:47:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-12 17:19:03 (KST) / (하루 100회 제한 준수 중)*
