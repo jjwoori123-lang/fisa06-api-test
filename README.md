@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle to Host West Brom in Carabao Cup’s Second Round](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/24125/newcastle-draws-west-brom-albion-in-carabao-cups-second-round) - **SB Nation**
-2. [Liverpool sign Ronald Araujo on loan from Barcelona](https://www.rediff.com/sports/report/liverpool-secure-ronald-araujo-on-loan-from-barcelona-to-address-defensive-crisis/20260811.htm) - **Rediff.com**
-3. [Real Madrid teenage gem will not join Premier League club, to remain in Mourinho’s squad – Romano](https://madriduniversal.com/real-madrid-teenage-gem-will-not-join-premier-league-club-to-remain-in-mourinhos-squad-romano/) - **Madriduniversal.com**
-4. [Journalist reveals ‘truth’ behind Bayern interest in Man City star](https://cfbayerninsider.com/2026/08/journalist-reveals-truth-behind-bayern-interest-in-man-city-star/) - **Cfbayerninsider.com**
-5. [Report: Arsenal star wanted by Real Madrid in surprise move](https://eplindex.com/149292/report-arsenal-star-wanted-by-real-madrid-in-surprise-move.html) - **English Premier League Index - Opta Stats**
-6. [What are the rules on transfer window player swaps?](https://www.bbc.com/sport/football/articles/cjrv98glww3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Maresca says Man City player did the right thing turning down Arsenal](https://www.justarsenal.com/maresca-says-man-city-player-did-the-right-thing-turning-down-arsenal/420117) - **Just Arsenal News**
-8. [Arsenal: Season preview, ins and outs, one to watch and prediction – can the Gunners go back to back?](https://www.101greatgoals.com/football/premier-league/arsenal-season-preview-ins-outs-one-to-watch-and-prediction-can-the-gunners-go-back-to-back/) - **101 Great Goals**
-9. [England is 'perfect' for my qualities - Araujo](https://www.bbc.com/sport/football/articles/cd9wvzzy0j1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [The blueprint behind Ipswich's rise](https://www.bbc.com/sport/football/articles/c3d3l5xk1xjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [The Sidemen's Vikkstar breaks his silence on KSI's departure from the millionaire YouTube group after 13 years and vows to 'carry on making content'](https://www.dailymail.com/tvshowbiz/article-16043831/The-Sidemens-Vikkstar-breaks-silence-KSI-exit-YouTube.html) - **Dailymail.com**
+2. [Everton confirm signing of Brennan Johnson](https://hayters.com/everton-confirm-signing-of-brennan-johnson/) - **Hayters.com**
+3. [Barcelona defender back in training after World Cup break](https://barcauniversal.com/barcelona-defender-back-in-training-after-world-cup-break/) - **Barcauniversal.com**
+4. ['A massive privilege to be here' - Charles on 'perfect' Fulham move](https://www.bbc.com/sport/football/articles/cdx7k437gpro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Fulham announce signing of Shea Charles from Southampton](https://www.playmakerstats.com/news/fulham-announce-signing-of-shea-charles-from-southampton/1172636) - **Playmakerstats.com**
+6. [McNeil 'looking forward to the challenge ahead' at Palace](https://www.bbc.com/sport/football/articles/c0qv94q54y1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [‘I have a feeling…’ – Virgil van Dijk drops encouraging comeback hint over Liverpool teammate](https://www.empireofthekop.com/2026/08/11/van-dijk-drops-comeback-hint-over-liverpool-teammate/) - **Empire of The Kop**
+8. [Real Madrid forward set to remain at club despite interest from Manchester United – report](https://madriduniversal.com/real-madrid-forward-set-to-remain-at-club-despite-interest-from-manchester-united-report/) - **Madriduniversal.com**
+9. [Ex-Arsenal midfielder shares farewell after completing transfer exit](https://dailycannon.com/2026/08/norgaard-arsenal-farewell/) - **Dailycannon.com**
 
 
 ---
-*최근 업데이트: 2026-08-12 17:19:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-12 18:34:45 (KST) / (하루 100회 제한 준수 중)*
