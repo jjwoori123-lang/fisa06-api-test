@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Norway’s World Cup star Erling Haaland’s yacht becomes a viral tourist attraction](https://www.the-independent.com/life-style/erling-haaland-yacht-tourist-attraction-b3031268.html) - **The-independent.com**
-2. [Duke's Cameron Boozer seen working out with recent NBA MVP candidate](https://dukewire.usatoday.com/story/sports/college/duke/mens-basketball/2026/08/11/cameron-boozer-seen-working-out-with-recent-mvp-candidate/91253059007/) - **USA Today**
-3. [Lonergan wins Soccer Writers player of the month for July](https://www.rte.ie/sport/soccer/2026/0811/1587486-lonergan-wins-soccer-writers-player-of-the-month-for-july/) - **RTE**
-4. [Chiefs WR Rashee Rice: 30 days in a Texas jail a 'learning experience' after probation violation](https://sports.yahoo.com/articles/chiefs-wr-rashee-rice-30-172851809.html) - **Yahoo Entertainment**
-5. [Somali ref denied US entry for World Cup in charge of UEFA Super Cup](https://www.usatoday.com/story/sports/soccer/2026/08/11/uefa-super-cup-referee-omar-artan-world-cup/91257064007/) - **USA Today**
-6. [Virgil van Dijk eases concerns about his future with straight fact](https://www.anfieldwatch.co.uk/liverpool-fc/news/virgil-van-dijk-eases-concerns-about-his-future-with-straight-fact/) - **Anfieldwatch.co.uk**
-7. [Rafael Leao warning against ‘speculation and stories that aren’t true’](https://football-italia.net/rafael-leao-warning-on-speculation-stories/) - **Football Italia**
-8. [Spurs should not sell Djed Spence on the cheap](https://thefootballfaithful.com/spurs-djed-spence-inter-milan/) - **The Football Faithful**
-9. [Inter Milan in talks over Spurs and England defender Spence](https://www.skysports.com/football/news/11095/13572037/djed-spence-transfer-news-inter-milan-in-talks-to-sign-spurs-and-england-defender) - **Sky Sports**
+1. [How Stefon Diggs will change Washington Commanders offense this season](https://www.hogshaven.com/washington-commanders-analysis/429930/stefon-diggs-fit-washington-commanders-training-camp-david-blough-terry-mclaurin) - **Hogs Haven**
+2. [Barcelona starlet set to undergo surgery after re-injuring knee, ending hopes of summer move](https://www.alloutsoccer.com/news/barcelona-bardghji-injury-summer-move-1978205) - **Alloutsoccer.com**
+3. [Jaissle 'bit scared' how refs will take 'emotional' touchline style](https://www.bbc.com/sport/football/articles/cedje42vgwjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Jaissle 'bit scared' how refs will take 'emotional' touchline style](https://www.bbc.co.uk/sport/football/articles/cedje42vgwjo) - **BBC News**
+5. [Northwestern football receives $35M donation from Uihlein family](https://www.usatoday.com/story/sports/ncaab/bigten/2026/08/11/northwestern-football-uihlein-family-donation/91258735007/) - **USA Today**
+6. [Manchester City Are In Talks To Land This Barcelona Youngster: Is He A Star In The Making?](https://the4thofficial.net/2026/08/manchester-city-are-in-talks-to-land-this-barcelona-youngster-is-he-a-star-in-the-making/) - **The4thofficial.net**
+7. [Liverpool now willing to let ‘special’ star leave soon](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-now-willing-to-let-special-star-leave-soon/) - **Anfieldwatch.co.uk**
+8. [Arsenal & West Ham transfer talks for 26yo continue](https://dailycannon.com/2026/08/reiss-nelson-arsenal-west-ham-talks/) - **Dailycannon.com**
+9. [Chiefs WR Rashee Rice Revealed That 30 days In Jail Was A 'Learning Experience'](https://www.foxsports.com/stories/nfl/kansas-city-chiefs-rashee-rice-preseason-prison-probation) - **Fox Sports**
+10. [Hull City fail with fourth effort to sign Augsburg talent Kömür](https://bulinews.com/hull-city-fail-fourth-effort-sign-augsburg-talent-komur) - **Bulinews.com**
 
 
 ---
-*최근 업데이트: 2026-08-13 02:37:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-13 03:34:51 (KST) / (하루 100회 제한 준수 중)*
