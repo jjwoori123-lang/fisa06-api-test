@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [PFA starts legal proceedings over League One salary cap](https://www.bbc.co.uk/sport/football/articles/cm2g992y7veo) - **BBC News**
-2. [Tottenham Hotspur captain’s camp pushed for Arsenal transfer](https://dailycannon.com/2026/08/romero-atletico-arsenal-interest/) - **Dailycannon.com**
-3. [From Olympic Gold To Today: What Happened To Brazil’s Tokyo 2020 XI?](https://worldfootballindex.com/2026/08/from-olympic-gold-to-today-what-happened-to-brazils-tokyo-2020-xi/) - **World Football Index**
-4. [Nottingham Forest signs Ousmane Diomande for £34M](https://cryptobriefing.com/nottingham-forest-signs-ousmane-diomande/) - **Crypto Briefing**
-5. [Arsenal vs Como: Where to watch, expected line-ups, stats and preview for Gunners’ final pre-season clash](https://www.101greatgoals.com/match-previews/arsenal-vs-como-where-to-watch-line-ups-stats-preview/) - **101 Great Goals**
-6. [Tottenham star is thankful Arsenal wants to sign him](https://www.justarsenal.com/tottenham-star-is-thankful-arsenal-wants-to-sign-him/420135) - **Just Arsenal News**
-7. [Newcastle Eye USMNT Star After Manchester United’s Decision: Report](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/23462/newcastle-eye-usmnt-star-after-manchester-uniteds-decision-report) - **SB Nation**
-8. [How to watch Sky Sports from anywhere – stream Premier League, cricket, golf and more](https://www.techradar.com/how-to-watch/sky-sports-from-anywhere) - **TechRadar**
-9. [Liverpool fans seek clarity on Bezos bid to buy stake](https://www.vanguardngr.com/2026/08/liverpool-fans-seek-clarity-on-bezos-bid-to-buy-stake/) - **Vanguard**
-10. [Report: Tottenham Hotspur star wanted by European giants](https://eplindex.com/149296/report-tottenham-hotspur-star-wanted-by-european-giants-2.html) - **English Premier League Index - Opta Stats**
+1. [Apollo inks $2.6 billion financing deal with NY Yankees](https://fortune.com/2026/08/11/apollo-inks-2-6-billion-financing-deal-with-ny-yankees/) - **Fortune**
+2. [Premier League's most intriguing summer transfers: Tonali's cost, Garnacho's attitude, Araujo's skills, more](https://www.cbssports.com/soccer/news/premier-leagues-tonali-garnacho-araujo-more/) - **CBS Sports**
+3. [Is Jeffery Simmons the Titans' best future Hall of Fame candidate](https://titanswire.usatoday.com/story/sports/nfl/titans/2026/08/11/is-jeffery-simmons-tennessee-titans-best-future-hall-fame-candidate/91254273007/) - **USA Today**
+4. [Israeli soccer star Manor Solomon completes move to West Ham United](https://www.jpost.com/israel-news/sports/article-905184) - **The Jerusalem Post**
+5. [Rotherham sign goalkeeper Eyestone on loan](https://www.bbc.com/sport/football/articles/c9347x7px10o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Rotherham sign goalkeeper Eyestone on loan](https://www.bbc.co.uk/sport/football/articles/c9347x7px10o) - **BBC News**
+7. [Where to watch U.S. Amateur 2026: Full TV schedule, times, channels, live streams for USGA golf championship](https://www.sportingnews.com/us/golf/news/watch-us-amateur-2026-tv-schedule-times-channels-streams-golf/c28f3d5ceb63ab7e145bd226) - **Sporting News**
+8. [Graduate Enrollment Enters the AI Operationalization Era as Eight Leading Universities Deploy ReadyRecruit](https://www.prnewswire.com/news-releases/graduate-enrollment-enters-the-ai-operationalization-era-as-eight-leading-universities-deploy-readyrecruit-302847222.html) - **PRNewswire**
+9. [How to watch Sharks vs All Blacks for FREE: Live streams and TV channels for Rugby's Greatest Rivalry game](https://www.techradar.com/how-to-watch/rugby/sharks-vs-all-blacks-rugbys-greatest-rivalry-free) - **TechRadar**
+10. [Could Charles be one of Premier League's breakout stars?](https://www.bbc.com/sport/football/articles/c3w0328v7wjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-12 22:14:47 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-12 23:32:42 (KST) / (하루 100회 제한 준수 중)*
