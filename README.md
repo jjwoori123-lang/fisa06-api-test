@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arne Slot reveals why he withdrew from Netherlands job talks less than THREE MONTHS after being sacked by Liverpool](https://www.dailymail.com/sport/football/article-16044815/Arne-Slot-Netherlands-talks-Liverpool.html) - **Dailymail.com**
-2. [Championship play-offs REVAMPED - the big 26/27 change explained](https://www.skysports.com/football/news/11688/13571710/championship-play-offs-change-explained-how-revamped-2026-27-format-from-top-six-to-top-eight-will-work) - **Sky Sports**
-3. [Just how much better were Arsenal than the rest last season?](https://untold-arsenal.com/archives/122313) - **Untold-arsenal.com**
-4. [Awkward moment footballer is blanked by his girlfriend dubbed 'Uruguay's Kim Kardashian' after swooping in for a kiss at his transfer unveiling... before hilariously trying to style it out](https://www.dailymail.com/sport/football/article-16044681/luciano-rodriguez-kim-kardashian-anto-ciavaglia.html) - **Dailymail.com**
-5. [Who does sport really belong to – the fans or the funders?](https://theconversation.com/who-does-sport-really-belong-to-the-fans-or-the-funders-288999) - **The Conversation Africa**
-6. [Championship 2026/27: West Ham & Wolves hoping to climb straight back into the Premier League](https://footballtoday.com/2026/08/11/championship-2026-27-west-ham-wolves-hoping-to-climb-straight-back-into-the-premier-league/) - **Footballtoday.com**
-7. [Barcelona have not inserted a ‘fear clause’ in captain’s loan move to Liverpool](https://barcauniversal.com/barcelona-have-not-inserted-a-fear-clause-in-captains-loan-move-to-liverpool/) - **Barcauniversal.com**
-8. [Newcastle manager Jaissle relishing opportunity after player exodus chaos](https://www.channelnewsasia.com/sport/newcastle-manager-jaissle-relishing-opportunity-after-player-exodus-chaos-6312626) - **CNA**
-9. [Chelsea make enquiry for Arsenal's Lewis-Skelly](https://www.skysports.com/football/news/11095/13571919/myles-lewis-skelly-transfer-news-chelsea-make-enquiry-for-arsenal-teenager-amid-long-term-interest-from-blues-and-man-utd) - **Sky Sports**
-10. [Newcastle in talks with Benfica for fullback Amar Dedić](https://cryptobriefing.com/newcastle-benfica-amar-dedic-transfer/) - **Crypto Briefing**
+1. [Wrexham announce third major summer signing, potentially signalling the end for fan favorite](https://www.alloutsoccer.com/news/wrexham-announce-signing-patterson-okonkwo-1978052) - **Alloutsoccer.com**
+2. [Lewis-Skelly wants to stay at Arsenal](https://www.bbc.com/sport/football/articles/c1415y45yljo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Predicting the top 16 players after the 2027 PDC Darts World Championship](https://www.sportingnews.com/us/darts/news/predicting-top-16-after-2027-pdc-darts-world-championship/06e725b555be45d66b8a5d8f) - **Sporting News**
+4. [Rogers trains with Chelsea for first time](https://www.bbc.com/sport/football/articles/cx2797yxn2yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Wrexham sign goalkeeper Patterson from Sunderland for reported record fee](https://www.channelnewsasia.com/sport/wrexham-sign-goalkeeper-patterson-sunderland-reported-record-fee-6312711) - **CNA**
+6. [What potential Bezos deal would mean for Liverpool](https://www.bbc.com/sport/football/articles/cvgx311g1zko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Bristol City sign Palace defender Cardines on loan](https://www.bbc.com/sport/football/articles/cvg8lqyj84wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Details confirmed for EFL Cup tie](https://www.leedsunited.com/en/news/details-confirmed-for-efl-cup-tie) - **Leedsunited.com**
+9. [Brennan Johnson reveals his Everton shirt number](https://royalbluemersey.sbnation.com/english-premier-league-transfers-news-rumors/81976/brennan-johnson-everton-shirt-number-revealed-22-dewsbury-hall) - **SB Nation**
+10. [Arne Slot denies reports in first statement since Liverpool sacking](https://www.anfieldwatch.co.uk/liverpool-fc/news/arne-slot-denies-reports-in-first-statement-since-liverpool-sacking/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-08-13 00:33:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-13 01:32:22 (KST) / (하루 100회 제한 준수 중)*
