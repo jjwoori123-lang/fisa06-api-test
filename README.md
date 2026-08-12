@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Wrexham announce third major summer signing, potentially signalling the end for fan favorite](https://www.alloutsoccer.com/news/wrexham-announce-signing-patterson-okonkwo-1978052) - **Alloutsoccer.com**
-2. [Lewis-Skelly wants to stay at Arsenal](https://www.bbc.com/sport/football/articles/c1415y45yljo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Predicting the top 16 players after the 2027 PDC Darts World Championship](https://www.sportingnews.com/us/darts/news/predicting-top-16-after-2027-pdc-darts-world-championship/06e725b555be45d66b8a5d8f) - **Sporting News**
-4. [Rogers trains with Chelsea for first time](https://www.bbc.com/sport/football/articles/cx2797yxn2yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Wrexham sign goalkeeper Patterson from Sunderland for reported record fee](https://www.channelnewsasia.com/sport/wrexham-sign-goalkeeper-patterson-sunderland-reported-record-fee-6312711) - **CNA**
-6. [What potential Bezos deal would mean for Liverpool](https://www.bbc.com/sport/football/articles/cvgx311g1zko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Bristol City sign Palace defender Cardines on loan](https://www.bbc.com/sport/football/articles/cvg8lqyj84wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Details confirmed for EFL Cup tie](https://www.leedsunited.com/en/news/details-confirmed-for-efl-cup-tie) - **Leedsunited.com**
-9. [Brennan Johnson reveals his Everton shirt number](https://royalbluemersey.sbnation.com/english-premier-league-transfers-news-rumors/81976/brennan-johnson-everton-shirt-number-revealed-22-dewsbury-hall) - **SB Nation**
-10. [Arne Slot denies reports in first statement since Liverpool sacking](https://www.anfieldwatch.co.uk/liverpool-fc/news/arne-slot-denies-reports-in-first-statement-since-liverpool-sacking/) - **Anfieldwatch.co.uk**
+1. [Norway’s World Cup star Erling Haaland’s yacht becomes a viral tourist attraction](https://www.the-independent.com/life-style/erling-haaland-yacht-tourist-attraction-b3031268.html) - **The-independent.com**
+2. [Duke's Cameron Boozer seen working out with recent NBA MVP candidate](https://dukewire.usatoday.com/story/sports/college/duke/mens-basketball/2026/08/11/cameron-boozer-seen-working-out-with-recent-mvp-candidate/91253059007/) - **USA Today**
+3. [Lonergan wins Soccer Writers player of the month for July](https://www.rte.ie/sport/soccer/2026/0811/1587486-lonergan-wins-soccer-writers-player-of-the-month-for-july/) - **RTE**
+4. [Chiefs WR Rashee Rice: 30 days in a Texas jail a 'learning experience' after probation violation](https://sports.yahoo.com/articles/chiefs-wr-rashee-rice-30-172851809.html) - **Yahoo Entertainment**
+5. [Somali ref denied US entry for World Cup in charge of UEFA Super Cup](https://www.usatoday.com/story/sports/soccer/2026/08/11/uefa-super-cup-referee-omar-artan-world-cup/91257064007/) - **USA Today**
+6. [Virgil van Dijk eases concerns about his future with straight fact](https://www.anfieldwatch.co.uk/liverpool-fc/news/virgil-van-dijk-eases-concerns-about-his-future-with-straight-fact/) - **Anfieldwatch.co.uk**
+7. [Rafael Leao warning against ‘speculation and stories that aren’t true’](https://football-italia.net/rafael-leao-warning-on-speculation-stories/) - **Football Italia**
+8. [Spurs should not sell Djed Spence on the cheap](https://thefootballfaithful.com/spurs-djed-spence-inter-milan/) - **The Football Faithful**
+9. [Inter Milan in talks over Spurs and England defender Spence](https://www.skysports.com/football/news/11095/13572037/djed-spence-transfer-news-inter-milan-in-talks-to-sign-spurs-and-england-defender) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-08-13 01:32:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-13 02:37:37 (KST) / (하루 100회 제한 준수 중)*
