@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [‘Steph [Curry] Should Sue For Defamation’ — NFL World Roundly Rejects Bills HC Joe Brady’s NBA Comparison For Josh Allen](https://www.profootballnetwork.com/steph-curry-sue-defamation-nfl-world-bills-joe-brady-josh-allen/) - **Pro Football Network**
-2. [Mikel trolls Arsenal over Vinicius signing](https://punchng.com/mikel-trolls-arsenal-over-vinicius-signing/) - **The Punch**
-3. [Bayern Munich News: FC Barcelona, Tottenham Hotspur tried to get Harry Kane, but extension looks likely; Manchester United chasing RB Leipzig star; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/241047/bayern-munich-fc-barcelona-tottenham-manchester-city-united-liverpool-psg) - **Bavarian Football Works**
-4. [Argentine soccer player detained by ICE at Florida detention center](https://nypost.com/2026/08/11/sports/argentine-semi-pro-soccer-player-detained-by-ice-at-florida-airport/) - **New York Post**
-5. [Amazon, Reliance lock horns over India’s cricket media rights](https://online91.thedailystar.net/business/global-economy/news/amazon-reliance-lock-horns-over-indias-cricket-media-rights-2966916) - **The Daily Star**
-6. [Where Could Matt Savoie's Next Contract Fall?](https://thehockeynews.com/nhl/edmonton-oilers/latest-news/where-could-matt-savoies-next-contract-fall) - **The Hockey News**
-7. [These are the key clues Matthias Jaissle gave away at Newcastle unveiling - from the signings he wants to how he will turn this club around, writes CRAIG HOPE](https://www.dailymail.com/sport/football/article-16045511/Matthias-Jaissle-Newcastle-clues-transfers.html) - **Dailymail.com**
-8. [UEFA don't want clubs like Aston Villa to win. They've forced them to sell their best players, as 'bigger' clubs lose hundreds of millions with impunity. But thanks to Unai Emery, Villa are beating the system, writes TOM COLLOMOSSE](https://www.dailymail.com/sport/football/article-16043879/aston-villa-uefa-trophies-emery.html) - **Dailymail.com**
-9. [GORDON MILNE interview: Coventry's golden age and all the 'daft' schemes of Jimmy Hill, growing up with Bill Shankly, learning from Tom Finney, Japan with Gary Lineker... and how he nearly replaced Shankly as Liverpool manager](https://www.dailymail.com/sport/football/article-16027195/gordon-milne-coventry-jimmy-hill-liverpool.html) - **Dailymail.com**
-10. [Happy birthday, hip-hop: 13 rap artist ties to local sports teams](https://www.usatoday.com/story/sports/2026/08/11/13-rappers-and-their-sports-ties-for-hip-hops-birthday/91262165007/) - **USA Today**
+1. [Croke Park to host largest ever crowd for a soccer match in Ireland](https://www.irishtimes.com/ireland/2026/08/12/croke-park-to-host-largest-ever-crowd-for-a-soccer-match-in-ireland/) - **The Irish Times**
+2. [Why It’s Great To Be A Mackem: Celebrating Our Proud Identity!](https://rokerreport.sbnation.com/opinion/148206/why-its-great-to-be-a-mackem-celebrating-our-proud-identity) - **SB Nation**
+3. ['Take the good stuff': Jason Gillespie reveals what Stephen Fleming can learn from the McCullum-Stokes era](https://www.cricketnews.com/en/cricket/news/jason-gillespie-stephen-fleming-learn-mccullum-stokes-era/7137aa9a464b8233754875dc) - **Cricketnews.com**
+4. [Swansea will control possession all season - Davies](https://www.bbc.com/sport/football/articles/cjrv99rezppo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Report: Tottenham Hotspur star heading for exit with deal almost agreed](https://eplindex.com/149331/report-tottenham-hotspur-star-heading-for-exit-with-deal-almost-agreed.html) - **English Premier League Index - Opta Stats**
+6. [Liverpool urged to move for Premier League £100m-rated midfielder](https://anfieldindex.com/97793/liverpool-urged-to-move-for-premier-league-100m-rated-midfielder.html) - **Anfieldindex.com**
+7. [€150m sensation expects to star for Liverpool this season](https://www.anfieldwatch.co.uk/liverpool-fc/news/eur150m-sensation-expects-to-star-for-liverpool-this-season/) - **Anfieldwatch.co.uk**
+8. [With depleted numbers at least 9 spaces now in 2026/27 Newcastle United 25 man Premier League squad](https://www.themag.co.uk/2026/08/with-depleted-numbers-at-least-9-spaces-now-in-2026-27-newcastle-united-25-man-premier-league-squad/) - **The Mag**
+9. [Emery chases first Super Cup - but does it matter?](https://www.bbc.com/sport/football/articles/cq6dj2jn277o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Man Utd prepared to snub Lewis-Skelly offer in favour signing his England counterpart instead – Luckhurst](https://utdreport.co.uk/2026/08/12/man-utd-prepared-to-snub-lewis-skelly-offer-in-favour-signing-lewis-hall-instead-luckhurst/) - **Utdreport.co.uk**
 
 
 ---
-*최근 업데이트: 2026-08-13 13:22:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-13 15:04:13 (KST) / (하루 100회 제한 준수 중)*
