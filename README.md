@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Barcelona initiate contacts with Bundesliga club to enquire defender’s price – report](https://barcauniversal.com/barcelona-initiate-contacts-with-bundesliga-club-to-enquire-defenders-price-report/) - **Barcauniversal.com**
-2. [Following a Season of Consistent Progress, Íñigo López de la Osa Franco is Ready for the FEI World Championship](https://www.prnewswire.co.uk/news-releases/following-a-season-of-consistent-progress-inigo-lopez-de-la-osa-franco-is-ready-for-the-fei-world-championship-302845016.html) - **PR Newswire UK**
-3. [Arsenal waiting as Tottenham enter talks to sign attacker](https://www.justarsenal.com/arsenal-waiting-as-tottenham-enter-talks-to-sign-attacker/420197) - **Just Arsenal News**
-4. [Inter agreement for Spence, Tottenham accept €31.5m plus bonus](https://football-italia.net/inter-agreement-spence-tottenham-e31-5m-bonus/) - **Football Italia**
-5. [Liverpool youngster set for bigger role this season](https://anfieldindex.com/97823/liverpool-youngster-set-for-bigger-role-this-season.html) - **Anfieldindex.com**
-6. [Report: Aston Villa finally set to seal move for €26.5m defender](https://eplindex.com/149336/report-aston-villa-finally-set-to-seal-move-for-e26-5m-defender.html) - **English Premier League Index - Opta Stats**
-7. [As Gianni Infantino remains under fire, who could replace him as FIFA president?](https://sports.yahoo.com/soccer/article/as-gianni-infantino-remains-under-fire-who-could-replace-him-as-fifa-president-134857406.html) - **Yahoo Entertainment**
-8. [Arsenal willing to consider midfielder’s exit amid Real Madrid interest](https://siempremadrid.com/arsenal-willing-to-consider-midfielders-exit-amid-real-madrid-interest/) - **Siempremadrid.com**
-9. [Inter in advanced talks for Spurs full-back Spence](https://www.bbc.com/sport/football/articles/cvgxz9xd95zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Arsenal reignite interest in Aston Villa's Konsa](https://www.bbc.com/sport/football/articles/cx2v175j40zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Arsenal reignite interest in Aston Villa's Konsa](https://www.bbc.co.uk/sport/football/articles/cx2v175j40zo) - **BBC News**
+3. [Lakers Sold To Josh Kushner And Bob Iger For A Record $12.5 Billion, Sources Tell ESPN](https://www.ibtimes.com.au/lakers-sold-kushner-iger-record-sale-1873999) - **Ibtimes.com.au**
+4. [Josh Kushner, Bob Iger to buy Los Angeles Lakers for record US$12.5 billion](https://www.channelnewsasia.com/sport/los-angeles-lakers-sale-josh-kushner-bob-iger-6315321) - **CNA**
+5. [‘I know internally…’ – Reporter issues Alexis Mac Allister claim amid surprise Man City links](https://www.empireofthekop.com/2026/08/12/mac-allister-man-city-transfer-shortlist-ben-jacobs/) - **Empire of The Kop**
+6. [Report David targeted by Aston Villa, loan with obligation to buy from Juventus](https://football-italia.net/david-aston-villa-loan-obligation-juventus/) - **Football Italia**
+7. [How to watch PSG vs Aston Villa in USA: 2026 UEFA Super Cup, Live Stream, TV & Preview](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-psg-vs-aston-villa-in-the-usa-live-stream-and-tv-for-uefa-super-cup/) - **Worldsoccertalk.com**
+8. [Balcombe signs new Brentford contract](https://www.brentfordfc.com/en/news/article/first-team-ellery-balcombe-signs-new-brentford-contract-2029) - **Brentfordfc.com**
+9. [What is ‘The Feed’? Contribute to Coming Home Newcastle Right Now!](https://cominghomenewcastle.sbnation.com/general/24296/what-is-the-feed-contribute-to-coming-home-newcastle-right-now) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-08-13 23:05:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-14 00:25:10 (KST) / (하루 100회 제한 준수 중)*
