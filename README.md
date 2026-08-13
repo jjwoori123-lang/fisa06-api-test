@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal reignite interest in Aston Villa's Konsa](https://www.bbc.com/sport/football/articles/cx2v175j40zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Arsenal reignite interest in Aston Villa's Konsa](https://www.bbc.co.uk/sport/football/articles/cx2v175j40zo) - **BBC News**
-3. [Lakers Sold To Josh Kushner And Bob Iger For A Record $12.5 Billion, Sources Tell ESPN](https://www.ibtimes.com.au/lakers-sold-kushner-iger-record-sale-1873999) - **Ibtimes.com.au**
-4. [Josh Kushner, Bob Iger to buy Los Angeles Lakers for record US$12.5 billion](https://www.channelnewsasia.com/sport/los-angeles-lakers-sale-josh-kushner-bob-iger-6315321) - **CNA**
-5. [‘I know internally…’ – Reporter issues Alexis Mac Allister claim amid surprise Man City links](https://www.empireofthekop.com/2026/08/12/mac-allister-man-city-transfer-shortlist-ben-jacobs/) - **Empire of The Kop**
-6. [Report David targeted by Aston Villa, loan with obligation to buy from Juventus](https://football-italia.net/david-aston-villa-loan-obligation-juventus/) - **Football Italia**
-7. [How to watch PSG vs Aston Villa in USA: 2026 UEFA Super Cup, Live Stream, TV & Preview](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-psg-vs-aston-villa-in-the-usa-live-stream-and-tv-for-uefa-super-cup/) - **Worldsoccertalk.com**
-8. [Balcombe signs new Brentford contract](https://www.brentfordfc.com/en/news/article/first-team-ellery-balcombe-signs-new-brentford-contract-2029) - **Brentfordfc.com**
-9. [What is ‘The Feed’? Contribute to Coming Home Newcastle Right Now!](https://cominghomenewcastle.sbnation.com/general/24296/what-is-the-feed-contribute-to-coming-home-newcastle-right-now) - **SB Nation**
+1. [Arsenal vs. Como Preseason match thread](https://theshortfuse.sbnation.com/preseason-match-reports/37249/arsenal-vs-como-preseason-match-thread) - **SB Nation**
+2. [ Y! Sports Biz: The Lakers got flipped?](https://sports.yahoo.com/articles/y-sports-biz-lakers-got-162858059.html) - **Yahoo Entertainment**
+3. [Chelsea eye Crystal Palace and Liverpool target Lamine Camara](https://www.getfootballnewsfrance.com/2026/chelsea-eye-crystal-palace-and-liverpool-target-lamine-camara/) - **Get French Football News**
+4. [Sources: Mark Walter has no plans to sell Dodgers after unloading Lakers](https://sports.yahoo.com/articles/sources-mark-walter-no-plans-162435650.html) - **Yahoo Entertainment**
+5. [Manchester City's Anderson eager to repay record fee with silverware](https://www.channelnewsasia.com/sport/manchester-citys-anderson-eager-repay-record-fee-silverware-6315476) - **CNA**
+6. [Douglas Luiz to stay? Jones wants Inter, Milan-Gimenez update ](https://onefootball.com/en/news/douglas-luiz-to-stay-jones-wants-inter-milan-gimenez-update-43266861) - **Onefootball.com**
+7. [Every university in Britain ranked from best to worst: Our definitive interactive Clearing guide for 2026 scores 128 institutions on every subject, student life, graduate jobs and future earnings. Read it only here...](https://www.dailymail.com/news/university-guide/article-16044857/definitive-university-clearing-guide-Britain-best-worst-interactive.html) - **Dailymail.com**
+8. [Mark Walter’s role as Dodgers owner revealed after $12.5 billion Lakers sale](https://nypost.com/2026/08/12/sports/lakers-sale-mark-walter-role-dodgers-owner-revealed/) - **New York Post**
+9. ['I needed to be a number one at my club' - Rushworth on 'new challenge'](https://www.bbc.com/sport/football/articles/cn4npjgx054o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-14 00:25:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-14 01:31:40 (KST) / (하루 100회 제한 준수 중)*
