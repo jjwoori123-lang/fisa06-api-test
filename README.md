@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Milan take drastic Tomori action to force summer sale](https://football-italia.net/milan-take-drastic-tomori-action-summer-sale/) - **Football Italia**
-2. [EXCLUSIVE: Diomande’s former coach: “He’s going to be a nice outlet for midfielders to have”](https://www.managingmadrid.com/latest-news/111277/exclusive-diomandes-former-coach-hes-going-to-be-a-nice-outlet-for-midfielders-to-have) - **Managing Madrid**
-3. [Man City submit £102.5 million bid for Chelsea midfielder Enzo Fernandez](https://footballtoday.com/2026/08/13/man-city-submit-102-5-million-bid-for-chelsea-midfielder-enzo-fernandez/) - **Footballtoday.com**
-4. [Man City respond to Barcelona’s latest Rodri bid](https://getfootballnewsspain.com/man-city-respond-to-barcelonas-latest-rodri-bid/) - **Getfootballnewsspain.com**
-5. [Bangladesh's ruling BNP nominates party stalwart Mirza Fakhrul as presidential candidate](https://economictimes.indiatimes.com/news/international/world-news/bangladeshs-ruling-bnp-nominates-party-stalwart-mirza-fakhrul-as-presidential-candidate/articleshow/133216223.cms) - **The Times of India**
-6. [Soccer fans react to ‘weird’ Disney deal that rivals Netflix and ‘proves Americans know nothing about football’](https://www.hitc.com/soccer-fans-react-to-weird-disney-deal-that-rivals-netflix-and-proves-americans-know-nothing-about-football/) - **HITC - Football, Gaming, Movies, TV, Music**
-7. [Pro-Palestine football fans lament West Ham for signing Manor Solomon](https://www.aljazeera.com/news/2026/8/13/pro-palestine-football-fans-lament-west-ham-for-signing-manor-solomon) - **Al Jazeera English**
-8. [Why half of England's World Cup defenders are on the move](https://www.bbc.com/sport/football/articles/cj63p367gpyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Why half of England's World Cup defenders are on the move](https://www.bbc.co.uk/sport/football/articles/cj63p367gpyo) - **BBC News**
-10. [Super League confirm NRL investment offer](https://www.bbc.com/sport/rugby-league/articles/ce3qp0xxl0wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Utah Jazz face stiff competition in the NBA preseason](https://www.slcdunk.com/jazz-schedule/69552/utah-jazz-face-stiff-competition-in-the-nba-preseason) - **Slcdunk.com**
+2. [Cristian Romero was late to Spurs training multiple times last term, behaviour had knock-on effect on teammates](https://sportsview.co.uk/2026/08/cristian-romero-was-late-to-spurs-training-multiple-times-last-term-behaviour-had-knock-on-affect-on-teammates?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=cristian-romero-was-late-to-spurs-training-multiple-times-last-term-behaviour-had-knock-on-affect-on-teammates) - **Sportsview.co.uk**
+3. [Leicester owners looking to sell club for more than £200 million, BBC reports](https://www.channelnewsasia.com/sport/leicester-owners-looking-sell-club-more-ps200-million-bbc-reports-6317976) - **CNA**
+4. [Red Sox To Place Garrett Whitlock On Injured List](https://www.mlbtraderumors.com/2026/08/red-sox-garrett-whitlock-injured-list-elbow.html) - **MLB Trade Rumors**
+5. [Premier League bans gambling sponsors on matchday shirts from 2026-27 season](https://cryptobriefing.com/premier-league-gambling-sponsor-ban/) - **Crypto Briefing**
+6. [Tielemans apologises for offending Villa fans with Man Utd boast](https://www.vanguardngr.com/2026/08/tielemans-apologises-for-offending-villa-fans-with-man-utd-boast/) - **Vanguard**
+7. [Premier League fixtures poster available in free Eintracht Frankfurt programme](https://www.brentfordfc.com/en/news/article/club-news-2026-27-premier-league-fixtures-poster-brentford-v-eintracht-frankfurt-indeed) - **Brentfordfc.com**
+8. [Welcome to Celtic Mika Baur](https://celticshorts.com/2026/08/welcome-to-celtic-mika-baur/) - **Celticshorts.com**
+9. [Struggling Sligo Rovers make double signing](https://www.rte.ie/sport/soccer/2026/0813/1587765-struggling-sligo-rovers-make-double-signing/) - **RTE**
+10. [Journalist: Spurs receive green light to sign former Arsenal forward](https://eplindex.com/149364/journalist-spurs-receive-green-light-to-sign-former-arsenal-forward.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-08-14 23:53:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-15 00:54:03 (KST) / (하루 100회 제한 준수 중)*
