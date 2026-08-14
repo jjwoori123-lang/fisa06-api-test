@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The cavalry returned to training for Manchester City as Enzo Maresca finally has his full squad to work with](https://esteemedkompany.com/2026/08/13/the-cavalry-returned-to-training-for-manchester-city-as-enzo-maresca-finally-has-his-full-squad-to-work-with/) - **Esteemedkompany.com**
-2. [Fearless Madjo, 17, ends eight-month wait with dream Villa debut](https://www.bbc.com/sport/football/articles/cg4dp23z5z7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Fearless Madjo, 17, ends eight-month wait with dream Villa debut](https://www.bbc.co.uk/sport/football/articles/cg4dp23z5z7o) - **BBC News**
-4. [Bundesliga 2026/27 Tactical Previews | VfL Borussia Mönchengladbach](https://www.getfootballnewsgermany.com/2026/bundesliga-gladbach-preview-26/) - **Getfootballnewsgermany.com**
-5. [PSG Win UEFA Super Cup Final: The Stand Out Performers](https://psgworld.io/news/news/psg-win-uefa-super-cup-final-the-stand-out-performers) - **Psgworld.io**
-6. [Michael Carrick reveals Marcus Rashford IS in his Man United plans as forward prepares for return to action against Ruben Amorim](https://www.dailymail.com/sport/football/article-16048579/Michael-Carrick-Marcus-Rashford-Man-United-plans.html) - **Dailymail.com**
-7. [More history made at Croke Park as Man Utd beat Leeds](https://www.bbc.com/sport/football/articles/cewrp090kd4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Papers: Arsenal hold further talks over Villa's Konsa](https://www.skysports.com/football/transfer-paper-talk/12709/13572412/arsenal-transfer-news-gunners-hold-further-talks-over-aston-villa-defender-ezri-konsa-paper-talk) - **Sky Sports**
-9. [Hull sign central defenders Mendy and Herrington](https://www.bbc.com/sport/football/articles/clyjp48lvp2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Guimaraes makes Arsenal debut in 1-1 draw with Como](https://www.vanguardngr.com/2026/08/guimaraes-makes-arsenal-debut-in-1-1-draw-with-como/) - **Vanguard**
+1. [The Broncos Land Elite Spot In Offensive Line Ranking, But One Question Remains](https://heavy.com/sports/nfl/denver-broncos/elite-offensive-line-besides-center/) - **Heavy.com**
+2. [Aiyegbeni snubs Yekini, Mikel in greatest Eagles XI](https://punchng.com/aiyegbeni-snubs-yekini-mikel-in-greatest-eagles-xi/) - **The Punch**
+3. [Aweroro denies bribery allegations after 3SC exit](https://punchng.com/aweroro-denies-bribery-allegations-after-3sc-exit/) - **The Punch**
+4. [NPFL pardons Boboye after 17-game ban](https://punchng.com/npfl-pardons-boboye-after-17-game-ban/) - **The Punch**
+5. [Atlético win Cuti Romero race as €40 million Spurs transfer agreed](https://www.intothecalderon.com/atletico-madrid-transfer-news-rumors/27074/cristian-romero-poised-to-complete-atletico-move-thursday-e40-million-deal-in-place-with-spurs) - **Into The Calderon**
+6. [How Man City will replace Rodri - and the inconvenient truth for World Cup hero that shows they might be better off without him](https://www.dailymail.com/sport/football/article-16047591/man-city-rodri-replacement-exit.html) - **Dailymail.com**
+7. [How Man City will replace Rodri - and the inconvenient truth for World Cup hero that shows they might be better off without him](https://www.dailymail.com/sport/football/article-16047591/man-city-rodri-replacement-exit.html) - **Dailymail.com**
+8. [NBA on NBC schedules first ever Presidents Day quadrupleheader](https://awfulannouncing.com/nba/nbc-schedules-first-ever-presidents-day-quadrupleheader.html) - **Awful Announcing**
+9. [Rams star names 49ers nightmare he ‘hates’ facing](https://nypost.com/2026/08/12/sports/puka-nacua-names-49ers-star-fred-warner-as-nfls-scariest-defender/?utm_source=yahoo&amp;utm_campaign=nypost&amp;utm_medium=referral) - **New York Post**
+10. [Rams star names 49ers nightmare he ‘hates’ facing](https://nypost.com/2026/08/12/sports/puka-nacua-names-49ers-star-fred-warner-as-nfls-scariest-defender/) - **New York Post**
 
 
 ---
-*최근 업데이트: 2026-08-14 08:43:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-14 11:08:19 (KST) / (하루 100회 제한 준수 중)*
