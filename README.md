@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Nicolas Jackson gives green light to Aston Villa transfer](https://thefootballfaithful.com/nicolas-jackson-gives-green-light-to-aston-villa-transfer/) - **The Football Faithful**
-2. [Liverpool’s Premier League rivals are about to ruin their transfer plans](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpools-premier-league-rivals-are-about-to-ruin-their-transfer-plans/) - **Anfieldwatch.co.uk**
-3. [Revealed: What Diego Simeone told Julian Alvarez in showdown talks after Arsenal target reiterated his desire to leave Atletico Madrid](https://www.dailymail.com/sport/football/article-16049267/diego-simeone-julian-alvarez-conversation-atletico-madrid.html) - **Dailymail.com**
-4. [How much PSG, Aston Villa will earn after UEFA Super Cup final](https://www.vanguardngr.com/2026/08/how-much-psg-aston-villa-will-earn-after-uefa-super-cup-final/) - **Vanguard**
-5. [O'Hara: Spurs should sign Rashford with De Zerbi 'perfect' for him](https://www.skysports.com/football/news/11095/13572329/marcus-rashford-transfer-news-tottenham-should-sign-man-utd-forward-says-ex-spurs-midfielder-jamie-ohara) - **Sky Sports**
-6. [Arsenal’s Lewis-Skelly makes pointed gesture missed by TV cameras](https://dailycannon.com/2026/08/arsenal-lewis-skelly-celebration-gesture/) - **Dailycannon.com**
-7. [Chelsea will not consider bids for Enzo Fernandez after 5pm on Friday](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260813-99-327406/) - **Dpa-international.com**
-8. ['Hopefully I'm on a plane to Vegas and I've scored 507 goals!': Josh Windass on Wrexham's Premier League dream, Ryan Reynolds and Rob Mac - and the 'magic spell' behind Phil Parkinson's incredible tenure](https://www.dailymail.com/sport/football/article-16041743/josh-windass-wrexham-premier-league-promotion.html) - **Dailymail.com**
-9. [Man City winger Doku signs five-year contract extension](https://www.vanguardngr.com/2026/08/man-city-winger-doku-signs-five-year-contract-extension/) - **Vanguard**
+1. [Abandon single-player, move development to Saudi Arabia, "reduce labour"? Experts on what EA's huge buyout debt could really mean](https://www.eurogamer.net/ea-private-experts-financial-strain-cuts-politics) - **Eurogamer.net**
+2. [Barcelona preparing final €65 million plus €10 million offer for Manchester City mainstay – report](https://barcauniversal.com/barcelona-preparing-final-e65-million-plus-e10-million-offer-for-manchester-city-mainstay-report/) - **Barcauniversal.com**
+3. [Why are EFL matches at 3pm on Saturday being shown on TV?](https://www.bbc.com/sport/football/articles/czdm2zpg5g8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Manchester City want £70m for Rodri as Barcelona’s second bid was ‘unacceptable’](https://footballtoday.com/2026/08/13/manchester-city-want-70m-for-rodri-as-barcelonas-second-bid-was-unacceptable/) - **Footballtoday.com**
+5. [Why are EFL matches at 3pm on Saturday being shown on TV?](https://www.bbc.co.uk/sport/football/articles/czdm2zpg5g8o) - **BBC News**
+6. [Magic Madjo grabs headlines after Villa debut worth waiting for against PSG](https://www.channelnewsasia.com/sport/magic-madjo-grabs-headlines-after-villa-debut-worth-waiting-against-psg-6317521) - **CNA**
+7. [Ranking the Last 10 First-Round Detroit Lions Draft Picks](https://www.essentiallysports.com/nfl-active-news-ranking-the-last-ten-first-round-detroit-lions-draft-picks/) - **Essentially Sports**
+8. [India’s Bangladesh tour awaits Centre’s green light](https://economictimes.indiatimes.com/news/sports/cricket/indias-bangladesh-tour-awaits-centres-green-light/articleshow/133210460.cms) - **The Times of India**
+9. [McCann relishing pressure of new derby experience](https://www.bbc.com/sport/articles/cewrp95qrx4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [The Sound of Silence](https://corpgov.law.harvard.edu/2026/08/13/the-sound-of-silence/) - **Harvard School of Engineering and Applied Sciences**
 
 
 ---
-*최근 업데이트: 2026-08-14 20:11:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-14 21:00:17 (KST) / (하루 100회 제한 준수 중)*
