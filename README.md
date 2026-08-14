@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Utah Jazz face stiff competition in the NBA preseason](https://www.slcdunk.com/jazz-schedule/69552/utah-jazz-face-stiff-competition-in-the-nba-preseason) - **Slcdunk.com**
-2. [Cristian Romero was late to Spurs training multiple times last term, behaviour had knock-on effect on teammates](https://sportsview.co.uk/2026/08/cristian-romero-was-late-to-spurs-training-multiple-times-last-term-behaviour-had-knock-on-affect-on-teammates?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=cristian-romero-was-late-to-spurs-training-multiple-times-last-term-behaviour-had-knock-on-affect-on-teammates) - **Sportsview.co.uk**
-3. [Leicester owners looking to sell club for more than £200 million, BBC reports](https://www.channelnewsasia.com/sport/leicester-owners-looking-sell-club-more-ps200-million-bbc-reports-6317976) - **CNA**
-4. [Red Sox To Place Garrett Whitlock On Injured List](https://www.mlbtraderumors.com/2026/08/red-sox-garrett-whitlock-injured-list-elbow.html) - **MLB Trade Rumors**
-5. [Premier League bans gambling sponsors on matchday shirts from 2026-27 season](https://cryptobriefing.com/premier-league-gambling-sponsor-ban/) - **Crypto Briefing**
-6. [Tielemans apologises for offending Villa fans with Man Utd boast](https://www.vanguardngr.com/2026/08/tielemans-apologises-for-offending-villa-fans-with-man-utd-boast/) - **Vanguard**
-7. [Premier League fixtures poster available in free Eintracht Frankfurt programme](https://www.brentfordfc.com/en/news/article/club-news-2026-27-premier-league-fixtures-poster-brentford-v-eintracht-frankfurt-indeed) - **Brentfordfc.com**
-8. [Welcome to Celtic Mika Baur](https://celticshorts.com/2026/08/welcome-to-celtic-mika-baur/) - **Celticshorts.com**
-9. [Struggling Sligo Rovers make double signing](https://www.rte.ie/sport/soccer/2026/0813/1587765-struggling-sligo-rovers-make-double-signing/) - **RTE**
-10. [Journalist: Spurs receive green light to sign former Arsenal forward](https://eplindex.com/149364/journalist-spurs-receive-green-light-to-sign-former-arsenal-forward.html) - **English Premier League Index - Opta Stats**
+1. [Carrick urges Man Utd to push for more signings to boost title bid](https://www.vanguardngr.com/2026/08/carrick-urges-man-utd-to-push-for-more-signings-to-boost-title-bid/) - **Vanguard**
+2. [Former ref Taylor on abuse, conspiracies and future of VAR](https://www.skysports.com/football/news/11095/13572684/anthony-taylor-interview-former-premier-league-referee-on-impact-of-abuse-and-future-of-var) - **Sky Sports**
+3. [Getafe signs Enes Ünal from Bournemouth on permanent transfer](https://cryptobriefing.com/getafe-signs-enes-unal-bournemouth/) - **Crypto Briefing**
+4. [Tielemans apologises to Aston Villa fans after comments on moving to bigger club](https://www.101greatgoals.com/football/premier-league/tielemans-apologises-aston-villa-fans-moving-bigger-club/) - **101 Great Goals**
+5. [Official: Getafe announce return of Premier League striker](https://getfootballnewsspain.com/official-getafe-announce-return-of-premier-league-striker/) - **Getfootballnewsspain.com**
+6. [Maresca's sense of excitement as new season looms into view](https://www.mancity.com/news/mens/enzo-maresca-city-are-back-look-ahead-to-202627-season-63922235) - **Manchester City FC**
+7. [Carrick urges Man Utd to push for more signings to boost title bid](https://sports.yahoo.com/articles/carrick-urges-man-utd-push-163926408.html) - **Yahoo Entertainment**
+8. [Leicester's Thai owners put troubled club up for sale: reports](https://economictimes.indiatimes.com/news/sports/football/leicesters-thai-owners-put-troubled-club-up-for-sale-reports/articleshow/133218771.cms) - **The Times of India**
+9. [The Indeed Invitational: Brentford v Eintracht Frankfurt matchday guide](https://www.brentfordfc.com/en/news/article/supporter-information-indeed-invitational-brentford-v-eintracht-frankfurt-matchday-guide) - **Brentfordfc.com**
+10. [Matchday food and drink at Gtech Community Stadium this season](https://www.brentfordfc.com/en/news/article/supporter-information-matchday-food-drink-gtech-community-stadium-2026-27) - **Brentfordfc.com**
 
 
 ---
-*최근 업데이트: 2026-08-15 00:54:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-15 01:55:29 (KST) / (하루 100회 제한 준수 중)*
