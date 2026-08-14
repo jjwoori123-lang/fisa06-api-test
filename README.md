@@ -1,16 +1,13 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [EPL: Chelsea demand £120m for Fernandez, set Friday deadline](https://punchng.com/epl-chelsea-demand-120m-for-fernandez-set-friday-deadline/) - **The Punch**
-2. [LA Lakers to be sold to former Disney CEO and brother of Trump’s son-in-law in $12.5bn deal](https://www.thejournal.ie/la-lakers-to-be-sold-to-former-disney-ceo-and-brother-of-trumps-son-in-law-7129392-Aug2026/) - **TheJournal.ie**
-3. [Another stunning memorable opening day Newcastle United match?](https://www.themag.co.uk/2026/08/another-stunning-memorable-opening-day-newcastle-united-match/) - **The Mag**
-4. [Aston Villa monitoring Bayern Munich defender Kim Min-jae](https://footballtoday.com/2026/08/13/aston-villa-monitoring-bayern-munich-defender-min-jae-kim/) - **Footballtoday.com**
-5. [Barcelona want academy talent’s exit completed soon as Everton lead transfer race](https://barcauniversal.com/barcelona-want-academy-talents-exit-completed-soon-as-everton-lead-transfer-race/) - **Barcauniversal.com**
-6. [Fifa equated with Mafia: so do we actually need Fifa at all?](https://untold-arsenal.com/archives/122346) - **Untold-arsenal.com**
-7. [Smell the coffee: Aston Villa must upgrade on Matty Cash after poor performance vs PSG](https://sportsview.co.uk/2026/08/smell-the-coffee-aston-villa-must-upgrade-on-matty-cash-after-poor-performance-vs-psg?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=smell-the-coffee-aston-villa-must-upgrade-on-matty-cash-after-poor-performance-vs-psg) - **Sportsview.co.uk**
-8. [Aston Villa analysis: Depleted in defeat but not down](https://www.bbc.com/sport/football/articles/cpw9ppzj1ppo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [The Hoddle of Coffee: Tottenham Hotspur News and Links for Thursday, August 13](https://cartilagefreecaptain.sbnation.com/hoddle-of-coffee/72701/the-hoddle-of-coffee-tottenham-hotspur-news-and-links-for-thursday-august-13) - **SB Nation**
-10. [Who is taking part in Strictly Come Dancing 2026?](https://www.rte.ie/entertainment/2026/0813/1587608-who-is-taking-part-in-strictly-come-dancing-2026/) - **RTE**
+1. [Rio Ferdinand hails £35m Youri Tielemans as a “ridiculous bargain” for Man United](https://www.footballmuse.com/news/rio-ferdinand-hails-35m-youri-tielemans-as-a-ridiculous-bargain-for-man-united) - **Footballmuse.com**
+2. [Liverpool’s next Mo Salah is obvious, it’s not Bradley Barcola or Ibrahim Mbaye](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpools-next-mo-salah-is-obvious-its-not-bradley-barcola-or-ibrahim-mbaye/) - **Anfieldwatch.co.uk**
+3. [ Second bid rejected, City say no to £64m for Rodri ❌](https://onefootball.com/en/news/second-bid-rejected-city-say-no-to-64m-for-rodri-43269675) - **Onefootball.com**
+4. [Why is FA Community Shield 2026 match not being played at Wembley Stadium?](https://www.business-standard.com/sports/football-news/why-is-the-fa-community-shield-2026-not-being-played-at-wembley-stadium-arsenal-vs-manchester-city-cardiff-126081300917_1.html) - **Business Standard**
+5. [Liverpool deem Ibrahim Mbaye too expensive as PSG demand €200m for him and Bradley Barcola](https://www.getfootballnewsfrance.com/2026/liverpool-deem-ibrahim-mbaye-too-expensive-as-psg-demand-e200m-for-him-and-bradley-barcola/) - **Get French Football News**
+6. [Cristian Romero was late to Spurs training multiple times last term, behaviour had knock-on effect on others](https://sportsview.co.uk/2026/08/cristian-romero-was-late-to-spurs-training-multiple-times-last-term-behaviour-had-knock-on-affect-on-others?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=cristian-romero-was-late-to-spurs-training-multiple-times-last-term-behaviour-had-knock-on-affect-on-others) - **Sportsview.co.uk**
+7. [Barcelona youth team stars face uncertain future after Hansi Flick’s assessment – report](https://barcauniversal.com/barcelona-youth-team-stars-face-uncertain-future-after-hansi-flicks-assessment-report/) - **Barcauniversal.com**
 
 
 ---
-*최근 업데이트: 2026-08-14 16:27:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-14 17:47:12 (KST) / (하루 100회 제한 준수 중)*
