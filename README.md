@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Abandon single-player, move development to Saudi Arabia, "reduce labour"? Experts on what EA's huge buyout debt could really mean](https://www.eurogamer.net/ea-private-experts-financial-strain-cuts-politics) - **Eurogamer.net**
-2. [Barcelona preparing final €65 million plus €10 million offer for Manchester City mainstay – report](https://barcauniversal.com/barcelona-preparing-final-e65-million-plus-e10-million-offer-for-manchester-city-mainstay-report/) - **Barcauniversal.com**
-3. [Why are EFL matches at 3pm on Saturday being shown on TV?](https://www.bbc.com/sport/football/articles/czdm2zpg5g8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Manchester City want £70m for Rodri as Barcelona’s second bid was ‘unacceptable’](https://footballtoday.com/2026/08/13/manchester-city-want-70m-for-rodri-as-barcelonas-second-bid-was-unacceptable/) - **Footballtoday.com**
-5. [Why are EFL matches at 3pm on Saturday being shown on TV?](https://www.bbc.co.uk/sport/football/articles/czdm2zpg5g8o) - **BBC News**
-6. [Magic Madjo grabs headlines after Villa debut worth waiting for against PSG](https://www.channelnewsasia.com/sport/magic-madjo-grabs-headlines-after-villa-debut-worth-waiting-against-psg-6317521) - **CNA**
-7. [Ranking the Last 10 First-Round Detroit Lions Draft Picks](https://www.essentiallysports.com/nfl-active-news-ranking-the-last-ten-first-round-detroit-lions-draft-picks/) - **Essentially Sports**
-8. [India’s Bangladesh tour awaits Centre’s green light](https://economictimes.indiatimes.com/news/sports/cricket/indias-bangladesh-tour-awaits-centres-green-light/articleshow/133210460.cms) - **The Times of India**
-9. [McCann relishing pressure of new derby experience](https://www.bbc.com/sport/articles/cewrp95qrx4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [The Sound of Silence](https://corpgov.law.harvard.edu/2026/08/13/the-sound-of-silence/) - **Harvard School of Engineering and Applied Sciences**
+1. [Tielemans apologises to Villa fans for Man Utd remarks](https://www.bbc.co.uk/sport/football/articles/cm2gpr52drzo) - **BBC News**
+2. [Taylor admits pressure of refereeing led to retirement](https://www.101greatgoals.com/football/premier-league/taylor-admits-pressure-refereeing-led-retirement/) - **101 Great Goals**
+3. [Barcelona confident of closing Rodri deal for €70 million final package – report](https://barcauniversal.com/barcelona-confident-of-closing-rodri-deal-for-e70-million-final-package-report/) - **Barcauniversal.com**
+4. [Preview: The dress rehearsal](https://en.eintracht.de/news/detail/?id=record-178649-en) - **Eintracht.de**
+5. [When do the major European leagues start and what are the big stories?](https://www.bbc.com/sport/football/articles/cly92pr6ej8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Report: Newcastle United pushing hard to sign £25m-rated defender](https://eplindex.com/149362/report-newcastle-united-pushing-hard-to-sign-25m-rated-defender.html) - **English Premier League Index - Opta Stats**
+7. [Five Championship games to watch this weekend](https://wp.fromthespot.co.uk/31321/five-championship-games-to-watch-this-weekend/) - **Fromthespot.co.uk**
+8. [Bayern Munich holding strong — it won’t loan out João Palhinha](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/242483/bayern-munich-holding-strong-it-wont-loan-out-joao-palhinha) - **Bavarian Football Works**
+9. [SSFC Spotlight: Neil Pierre is the new USMNT sensation](https://www.starsandstripesfc.com/athletes-in-focus/45146/ssfc-spotlight-neil-pierre-is-the-new-sensation) - **Starsandstripesfc.com**
 
 
 ---
-*최근 업데이트: 2026-08-14 21:00:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-14 22:48:09 (KST) / (하루 100회 제한 준수 중)*
