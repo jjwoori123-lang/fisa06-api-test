@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Roberto De Zerbi opens up on Cristian Romero and Djed Spence's Tottenham exits](https://www.alloutsoccer.com/news/de-zerbi-romero-spence-tottenham-1981665) - **Alloutsoccer.com**
-2. [An elegant midfielder looks to be on his way out of Manchester City](https://esteemedkompany.com/2026/08/13/an-elegant-midfielder-looks-to-be-on-his-way-out-of-manchester-city/) - **Esteemedkompany.com**
-3. [Game On: Why Now Is the Moment for Women’s Sports in Philly](https://www.phillymag.com/news/2026/08/13/womens-sports-philadelphia/) - **phillymag.com**
-4. [Report: Chelsea eyeing move to steal Manchester United wonderkid](https://eplindex.com/149379/report-chelsea-eyeing-move-to-steal-manchester-united-wonderkid.html) - **English Premier League Index - Opta Stats**
-5. [EXCLUSIVE | Chris Waddle: ‘I’ve never known football fanatics like the Marseille fans’](https://www.getfootballnewsfrance.com/2026/exclusive-chris-waddle-ive-never-known-football-fanatics-like-the-marseille-fans/) - **Get French Football News**
-6. [Done in a weekend - the $12.5bn LA Lakers sale that shocked the NBA](https://www.bbc.com/sport/basketball/articles/crrvprlvq7eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Newcastle’s Full Backs Get Mixed Injury Update for Premier League MD1 vs. Liverpool](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/24121/newcastles-full-backs-get-mixed-injury-update-for-premier-league-md1-vs-liverpool) - **SB Nation**
-8. [Women Of Wrestling Sets Major Season 5 Expansion, Jeanie Buss to Appear On-Camera (EXCLUSIVE)](https://variety.com/2026/tv/news/women-of-wrestling-season-5-jeanie-buss-1236831594/) - **Variety**
-9. [The Milwaukee Bucks' 2026-27 schedule is out: When does Giannis return?](https://www.jsonline.com/story/sports/nba/bucks/2026/08/13/milwaukee-bucks-2026-27-schedule-announced-giannis-returns-with-heat-january-28-march-12/91263991007/) - **Milwaukee Journal Sentinel**
-10. [Liverpool transfer news: This is massive! Fabrizio Romano confirms brand new deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-this-is-massive-fabrizio-romano-confirms-brand-new-deal/) - **Anfieldwatch.co.uk**
+1. [Man City reject fresh Rodri bid - Friday's gossip](https://www.bbc.com/sport/football/articles/c2dk2618pxgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Man City reject fresh Rodri bid - Friday's gossip](https://www.bbc.co.uk/sport/football/articles/c2dk2618pxgo) - **BBC News**
+3. [Arsenal eyeing England star Ezri Konsa as Atletico Madrid turn down request](https://www.alloutsoccer.com/news/arsenal-england-ezri-konsa-transfer-1981702) - **Alloutsoccer.com**
+4. [FC Cincinnati travels to Orlando to resume Major League Soccer play](https://www.cincinnati.com/story/sports/soccer/fc-cincinnati/2026/08/13/fc-cincinnati-orlando-city-major-league-soccer/91286523007/) - **The Cincinnati Enquirer**
+5. [Arsenal ‘very attentive’ to situation of Barcelona star](https://getfootballnewsspain.com/arsenal-very-attentive-to-situation-of-barcelona-star/) - **Getfootballnewsspain.com**
+6. [Reijnders set for £52m Saudi Arabia switch from Manchester City](https://www.101greatgoals.com/football/reijnders-set-for-52m-saudi-arabia-switch-from-manchester-city/) - **101 Great Goals**
+7. [NBA Schedule Confirms the Pistons Are Nationally Relevant Again](https://detroitsportsnation.com/pistons-national-tv-games-confirm-detroit-relevance/ddrysdale/detroit-pistons/08/13/2026/490572/) - **Detroit Sports Nation**
+8. [Britain's Super League says NRL has made official investment offer](https://www.abc.net.au/news/2026-08-14/nrl-makes-formal-investment-offer-to-super-league/107036218) - **ABC News (AU)**
 
 
 ---
-*최근 업데이트: 2026-08-15 06:00:20 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-15 06:43:35 (KST) / (하루 100회 제한 준수 중)*
