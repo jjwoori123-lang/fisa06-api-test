@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [James Trafford set for first Elland Road appearance against Augsburg](https://www.leedsunited.com/en/news/james-trafford-set-for-first-elland-road-appearance-against-augsburg) - **Leedsunited.com**
-2. [Crystal Palace showing interest in Eintracht Frankfurt midfielder](https://bulinews.com/crystal-palace-showing-interest-eintracht-frankfurt-midfielder) - **Bulinews.com**
-3. [Report: Tottenham Hotspur ‘actively working’ on two major deals](https://eplindex.com/149403/report-tottenham-hotspur-actively-working-on-two-major-deals.html) - **English Premier League Index - Opta Stats**
-4. [Fabrizio Romano: Liverpool star is ‘untouchable’ this summer](https://anfieldindex.com/97954/fabrizio-romano-liverpool-star-is-untouchable-this-summer.html) - **Anfieldindex.com**
-5. [Shakhtar want to play Champions League ties at Chelsea](https://www.bbc.com/sport/football/articles/cpw9e1dz9kko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Shakhtar want to play Champions League ties at Chelsea](https://www.bbc.co.uk/sport/football/articles/cpw9e1dz9kko) - **BBC News**
-7. [Arsenal v Manchester City: Expected line-ups, stats, preview and where to watch Community Shield](https://www.101greatgoals.com/match-previews/arsenal-v-manchester-city-expected-line-ups-stats-preview-stream-where-to-watch-community-shield/) - **101 Great Goals**
-8. [How to watch Arsenal vs Manchester City live: Stream link, TV channel, Community Shield preview, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-arsenal-vs-manchester-city-live-stream-link-tv-channel-community-shield-preview-prediction) - **NBCSports.com**
-9. [Maresca in no mood to be 'friendly' as Arteta makes bold claim](https://www.skysports.com/football/news/11095/13572888/arsenal-vs-man-city-in-community-shield-enzo-maresca-vows-to-close-the-gap-on-champions-as-mikel-arteta-says-man-city-boss-is-as-good-as-pep-guardiola) - **Sky Sports**
-10. [Rice and Saka cleared for Community Shield as Arsenal face Man City; Zubimendi in contention](https://www.footballmuse.com/news/rice-and-saka-cleared-for-community-shield-as-arsenal-face-man-city-zubimendi-in-contention) - **Footballmuse.com**
+1. [Aberdeen 'a massive step forward' for Ntelo](https://www.bbc.com/sport/articles/ckg40eyqgr4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Championship 2026-27 season preview: Dates, teams, and who will be promoted to the 2027-28 Premier League?](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7e88bccd-158a-45a1-ad9f-ae6b8517d048) - **Yahoo Entertainment**
+3. [Arsenal boss Arteta backs Maresca to do 'great job' at Man City](https://app.ekkow.com/1461001792965411221) - **Ekkow.com**
+4. [Would FSU fans be on board with a sponsor patch?](https://www.tomahawknation.com/ncaa-reacts/135315/sponsorship-patch-jersey-program-sports-nil) - **Tomahawk Nation**
+5. [Fred joins Galo!](https://onefootball.com/en/news/fred-joins-galo-43276577) - **Onefootball.com**
+6. [Aussies Smith and Leek stun PDC stars to reach New Zealand Darts Masters quarter finals](https://www.sportingnews.com/us/darts/news/aussies-smith-and-leek-stun-pdc-stars-reach-new-zealand-darts-masters-quarter-finals/c2d7c26e5f43193d3f0fa8a8) - **Sporting News**
+7. [Arteta on Timber's recovery, transfer targets and hunger for another trophy](https://www.bbc.com/sport/football/articles/ce8lk421501o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [FC Augsburg matchday programmes on sale now!](https://www.leedsunited.com/en/news/fc-augsburg-matchday-programmes-on-sale-now) - **Leedsunited.com**
+9. [Hungry Arsenal target Community Shield as Arteta eyes strong start to the season](https://www.channelnewsasia.com/sport/hungry-arsenal-target-community-shield-arteta-eyes-strong-start-season-6320141) - **CNA**
+10. [Premier League infuriate fans with new 'Premflix' streaming service showing all 380 matches for just £25 a month - but ONLY in Singapore - while Brits are blocked from even watching some games on expensive subscriptions](https://www.dailymail.com/sport/football/article-16052881/Premier-League-Premflix-streaming-service-Singapore.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-08-15 22:56:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-15 23:28:27 (KST) / (하루 100회 제한 준수 중)*
