@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [In Sudden $12.5B Lakers Sale, Big Questions Remain](https://frontofficesports.com/in-sudden-12-5b-lakers-sale-big-questions-remain/) - **Frontofficesports.com**
-2. [Official: Burnley sign Dastan Satpayev on loan from Chelsea](https://weaintgotnohistory.sbnation.com/chelsea-fc-transfer-rumours-news/171035/official-burnley-sign-dastan-satpayev-on-loan-from-chelsea) - **SB Nation**
-3. [Victor Osimhen scores to put Galatasaray ahead as Turkish giants fend off massive transfer interest](https://cryptobriefing.com/osimhen-scores-galatasaray-transfer-saga/) - **Crypto Briefing**
-4. [The 3 defenders on Barcelona’s ‘radar’ for final weeks of transfer window](https://getfootballnewsspain.com/the-3-defenders-on-barcelonas-radar-for-final-weeks-of-transfer-window/) - **Getfootballnewsspain.com**
-5. [U21s Report: Stoke City 0-0 Leeds United](https://www.leedsunited.com/en/news/u21s-report-stoke-city-0-0-leeds-united) - **Leedsunited.com**
-6. [Journalist: Liverpool star has already held talks to join Premier League rivals](https://anfieldindex.com/97987/journalist-liverpool-star-has-already-held-talks-to-join-premier-league-rivals.html) - **Anfieldindex.com**
-7. [Departing Romero says he wasn't perfect at Spurs](https://www.bbc.co.uk/sport/football/articles/c20dyz4vrero) - **BBC News**
-8. [Liverpool deal with Bezos consortium raises stakes in US battle for Premier League power](https://sports.yahoo.com/articles/liverpool-deal-bezos-consortium-raises-193319415.html) - **Yahoo Entertainment**
+1. [Exclusive: ‘Sensational’ Manchester United star backed to break into Michael Carrick’s Plans](https://eplindex.com/149422/exclusive-sensational-manchester-united-star-backed-to-break-into-michael-carricks-plans-2.html) - **English Premier League Index - Opta Stats**
+2. [Liverpool transfer news: It's done, incredible deal is now nearing completion](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-its-done-incredible-deal-is-now-nearing-completion/) - **Anfieldwatch.co.uk**
+3. [Opposition Lowdown: Promotion Hopefuls Luton Town](https://thetilehurstend.sbnation.com/opposition-lowdown-reading-fc-royals/57452/opposition-lowdown-promotion-hopefuls-luton-town) - **SB Nation**
+4. [GREENZONE: It's your ultimate club-by-club guide to all 50 Irish players in the EFL Championship and who are the ones Ireland boss Heimir Hallgrimsson should keep his eye on](https://www.dailymail.com/sport/football/article-16053453/GREENZONE-ultimate-club-club-guide-50-Irish-players-EFL-Championship-ones-Ireland-boss-Heimir-Hallgrimsson-eye-on.html) - **Dailymail.com**
+5. [Ollie Pickles: Hopefully this kicks us on](https://www.leedsunited.com/en/news/ollie-pickles-hopefully-this-kicks-us-on) - **Leedsunited.com**
+6. [Here's What Happened Today: Friday](https://www.thejournal.ie/news-fix-evening-headlines-friday-2-7131748-Aug2026/) - **TheJournal.ie**
+7. [In Sudden $12.5B Lakers Sale, Big Questions Remain](https://frontofficesports.com/in-sudden-12-5b-lakers-sale-big-questions-remain/) - **Frontofficesports.com**
+8. [Official: Burnley sign Dastan Satpayev on loan from Chelsea](https://weaintgotnohistory.sbnation.com/chelsea-fc-transfer-rumours-news/171035/official-burnley-sign-dastan-satpayev-on-loan-from-chelsea) - **SB Nation**
+9. [Victor Osimhen scores to put Galatasaray ahead as Turkish giants fend off massive transfer interest](https://cryptobriefing.com/osimhen-scores-galatasaray-transfer-saga/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-08-16 05:26:11 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-16 05:56:37 (KST) / (하루 100회 제한 준수 중)*
