@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Alleyne joins Burnley on season-long loan](https://www.mancity.com/news/mens/max-alleyne-joins-burnley-on-season-long-loan-63922314) - **Manchester City FC**
-2. [Eva Carneiro fires back at Jose Mourinho and John Terry after Netflix revisits Chelsea controversy](https://www.alloutsoccer.com/news/chelsea-carneiro-mourinho-terry-controversy-1982756) - **Alloutsoccer.com**
-3. [Arteta wants Nwaneri to stay if Arsenal can guarantee minutes](https://thefootballfaithful.com/arteta-wants-nwaneri-to-stay-if-arsenal-can-guarantee-minutes/) - **The Football Faithful**
-4. [Chelsea v Sociedad: Expected line-ups, where to watch, stats and preview](https://www.101greatgoals.com/match-previews/chelsea-v-sociedad-line-ups-stats-preview-tv-channel-live-online-stream-prediction-friendly/) - **101 Great Goals**
-5. [Mikel Arteta admits he is shocked by this summer's transfer fees - as he opens up on Ethan Nwaneri's future at Arsenal](https://www.dailymail.com/sport/football/article-16053163/mikel-arteta-arsenal-transfers.html) - **Dailymail.com**
-6. [Croke Park seeking regular Premier League friendlies after Manchester United showcase](https://www.irishtimes.com/sport/soccer/2026/08/14/croke-park-seeking-regular-premier-league-friendlies-after-manchester-united-showcase/) - **The Irish Times**
-7. [Arteta admits Nwaneri and other Arsenal fringe players could be sold](https://www.101greatgoals.com/football/premier-league/arteta-admits-ethan-nwaneri-and-other-arsenal-fringe-players-could-be-sold/) - **101 Great Goals**
-8. [Former Flyers Stars to Feature in NHL Legend's Farewell Game](https://thehockeynews.com/nhl/philadelphia-flyers/latest-news/former-flyers-stars-to-feature-in-nhl-legends-farewell-game) - **The Hockey News**
-9. [Newcastle Handed New Chance to Land Former Bundesliga Target](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/23577/newcastle-handed-new-chance-to-land-former-bundesliga-target) - **SB Nation**
+1. [Amit Bhatia confirms investment stake in Liverpool Football Club](https://cryptobriefing.com/amit-bhatia-liverpool-investment-stake/) - **Crypto Briefing**
+2. [Pre-Season Preview: Leeds United vs FC Augsburg](https://www.leedsunited.com/en/news/pre-season-preview-leeds-united-vs-fc-augsburg) - **Leedsunited.com**
+3. ['We've already learned Jassle's play style' - Osula](https://www.bbc.com/sport/football/articles/c5ywzlew8v1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Mika Baur explains how Nicolas Kuhn helped sell him on Celtic move](https://celticshorts.com/2026/08/mika-baur-explains-how-nicolas-kuhn-helped-sell-him-on-celtic-move/) - **Celticshorts.com**
+5. [Mikel Merino hails Arsenal's midfield as 'best in football' after major summer signing](https://www.alloutsoccer.com/news/mikel-merino-arsenal-bruno-guimaraes-1982818) - **Alloutsoccer.com**
+6. [Warriors predicted to trade Jimmy Butler for $165M two-time NBA blocks leader in 8-player mega deal](https://www.sportingnews.com/us/nba/news/warriors-predicted-trade-jimmy-butler-165m-two-time-nba-blocks-leader-8-player-mega-deal/60770e0f41112f8591f8dc3d) - **Sporting News**
+7. [English Football Giants Liverpool Confirm Sale Of Stake To Jeff Bezos & Facebook Co-Founder Eduardo Saverin](https://deadline.com/2026/08/liverpool-fc-deal-close-jeff-bezos-eduardo-saverin-1237030021/) - **Deadline**
+8. [Consortium including Amazon founder Jeff Bezos to buy minority stake in Liverpool](https://economictimes.indiatimes.com/news/sports/football/consortium-including-amazon-founder-jeff-bezos-to-buy-minority-stake-in-liverpool/articleshow/133247017.cms) - **The Times of India**
+9. [Cricket Enthusiast by WiseWager Goes Officially Live](https://gamblersconnect.com/news/marketing/cricket-enthusiast-by-wise-wager/) - **Gamblersconnect.com**
+10. [Fenway Sports Group sells minority stake in Liverpool FC to consortium including Jeff Bezos](https://cryptobriefing.com/fenway-sports-group-liverpool-bezos-stake/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-08-16 00:53:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-16 01:27:20 (KST) / (하루 100회 제한 준수 중)*
