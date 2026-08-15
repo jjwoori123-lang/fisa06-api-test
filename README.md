@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [DK defeats T1 at home ground as voice comms capture the euphoria](https://cryptobriefing.com/dk-defeats-t1-home-ground-lck/) - **Crypto Briefing**
-2. [Why Arsenal boss Arteta wants to sign Jarell Quansah](https://www.101greatgoals.com/football/premier-league/jarell-quansah-arsenal-leverkusen-transfer-england/) - **101 Great Goals**
-3. [Report: Manchester United ready to keep midfielder despite transfer rumours](https://eplindex.com/149395/report-manchester-united-ready-to-keep-midfielder-despite-transfer-rumours.html) - **English Premier League Index - Opta Stats**
-4. [Arsenal open talks for England star as Arteta moves to solve defensive headache](https://www.justarsenal.com/arsenal-open-talks-for-england-star-as-arteta-moves-to-solve-defensive-headache/420293) - **Just Arsenal News**
-5. [Blow for JJ Watt as soccer shirt he spent ‘two years’ designing set for major change on eve of new season](https://www.hitc.com/blow-for-jj-watt-as-soccer-shirt-he-spent-two-years-designing-set-for-major-change-on-eve-of-new-season/) - **HITC - Football, Gaming, Movies, TV, Music**
-6. [Maresca fitness update on McAidoo, Haaland and Rodri](https://www.mancity.com/news/mens/enzo-maresca-community-shield-squad-news-63922297) - **Manchester City FC**
-7. [Journo tells Man Utd fans which players they can expect INEOS to try and sign before end of window](https://utdreport.co.uk/2026/08/14/journo-tells-man-utd-fans-which-players-they-can-expect-ineos-to-try-and-sign-before-end-of-window/) - **Utdreport.co.uk**
-8. [Enzo Maresca tells his old club Chelsea he WON'T meet their 5pm deadline for £120m Enzo Fernandez transfer today as saga threatens to turn sour](https://www.dailymail.com/sport/football/article-16052511/Enzo-Maresca-tells-old-club-Chelsea-WONT-meet-5pm-deadline-120m-Enzo-Fernandez-transfer-today-saga-threatens-turn-sour.html) - **Dailymail.com**
-9. [Blackburn Rovers XI vs Wolves – Predicted lineup and team news](https://thefootballfaithful.com/blackburn-rovers-xi-vs-wolves-predicted-lineup-and-team-news/) - **The Football Faithful**
-10. [The five favourites to be Championship Top Goalscorer in 2026/27](https://thefootballfaithful.com/the-five-favourites-to-be-championship-top-goalscorer-in-2026-27/) - **The Football Faithful**
+1. [Leao hasn’t convinced Amorim and Milan asking price drops even further](https://football-italia.net/leao-not-convinced-amorim-milan-price-drops/) - **Football Italia**
+2. [Man City tight-lipped on Rodri transfer amid Barcelona and Real Madrid link](https://www.aljazeera.com/sports/2026/8/14/man-city-tightlipped-on-rodri-transfer-amid-barcelona-and-real-madrid-link) - **Al Jazeera English**
+3. [Maresca discusses Rodri, Enzo Fernandez as Reijnders prepares to leave Man City in midfield overhaul](https://sports.yahoo.com/articles/maresca-discusses-rodri-enzo-fernandez-111206909.html) - **Yahoo Entertainment**
+4. [Maresca: Community Shield our first chance of silverware](https://www.mancity.com/news/mens/enzo-maresca-community-shield-arsenal-preview-63922301) - **Manchester City FC**
+5. [Joao Palhinha’s Aston Villa move collapses](https://www.getfootballnewsgermany.com/2026/joao-palhinhas-aston-villa-off/) - **Getfootballnewsgermany.com**
+6. [Why Arsenal insiders believe this is the season Max Dowman will vault into superstardom: Breaking Lamine Yamal's records, bulking up to shrug off defenders twice his age and a golden chance for club and country](https://www.dailymail.com/sport/football/article-16052257/Max-Dowman-Arsenal-Yamal-England.html) - **Dailymail.com**
+7. [Johansson on transfers, Said's goals and 'not underestimating' Stenhousemuir](https://www.bbc.com/sport/articles/c2dkyjl3z1ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [VAR, timewasting and subs - new rules for the new season](https://www.bbc.com/sport/football/articles/ce85pje4gyqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [VAR, timewasting and subs - new rules for the new season](https://www.bbc.co.uk/sport/football/articles/ce85pje4gyqo) - **BBC News**
+10. [6 NBA Breakout Candidates for 2026-27: Austin Reaves, Matas Buzelis, Dylan Harper & more primed for big jump](https://www.sportingnews.com/us/nba/news/nba-breakout-candidates-2026-27-austin-reaves-matas-buzelis/4ad9154e223c8128ae929163) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-08-15 19:55:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-15 20:23:49 (KST) / (하루 100회 제한 준수 중)*
