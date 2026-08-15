@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Al-Ittihad, Besiktas set to begin Ndidi talks](https://punchng.com/al-ittihad-besiktas-set-to-begin-ndidi-talks/) - **The Punch**
-2. [Awoniyi linked with Rizespor](https://punchng.com/awoniyi-linked-with-rizespor/) - **The Punch**
-3. [Dolphins to begin WBPL title defence against First Deep Water](https://punchng.com/dolphins-to-begin-wbpl-title-defence-against-first-deep-water/) - **The Punch**
-4. [Arsenal open Osimhen talks as Gala reject Al Hilal offer](https://punchng.com/arsenal-open-osimhen-talks-as-gala-reject-al-hilal-offer/) - **The Punch**
-5. [Manchester United Have Set Their Sights On This Crystal Palace Star: Good Fit For Carrick?](https://the4thofficial.net/2026/08/manchester-united-have-set-their-sights-on-this-crystal-palace-star/) - **The4thofficial.net**
-6. [Report: Chelsea have two names lined up to replace Enzo Fernandez if Manchester City deal goes through](https://worldsoccertalk.com/news/report-chelsea-have-two-names-lined-up-to-replace-enzo-fernandez-if-manchester-city-deal-goes-through/) - **Worldsoccertalk.com**
-7. [Brian To'o is still just the beginning for the PNG Chiefs](https://www.abc.net.au/news/2026-08-14/brian-too-papua-new-guinea-nrl-signings/107035528) - **ABC News (AU)**
-8. [Celtic Set To Rope In This Exciting Chelsea Youngster On Loan: Why It Makes Sense For All Parties Involved](https://the4thofficial.net/2026/08/celtic-set-to-rope-in-this-exciting-chelsea-youngster-on-loan-why-it-makes-sense-for-all-parties-involved/) - **The4thofficial.net**
-9. [Aston Villa Remain Confident To Sign €25m Player Despite Club’s Rejection: What Should The Midlands Club Do?](https://the4thofficial.net/2026/08/aston-villa-remain-confident-to-sign-e25m-player-despite-clubs-rejection-what-should-the-midlands-club-do/) - **The4thofficial.net**
-10. [Manchester City Are Keen On Signing This Chelsea Midfielder: What Will He Add To Maresca’s Side?](https://the4thofficial.net/2026/08/manchester-city-are-keen-on-signing-this-chelsea-midfielder/) - **The4thofficial.net**
+1. [Reports: Juventus close deal with Bologna for Jhon Lucumí](https://www.blackwhitereadallover.com/juventus-transfer-rumors-news/40583/jhon-lucumi-juventus-bologna-2026-serie-a-summer-transfer-rumors-done-deal) - **Black & White & Read All Over**
+2. [Is Enzo Fernandez really good enough to replace Rodri? And is he worth £120million? Enzo Maresca thinks so - and this is why](https://www.dailymail.com/sport/football/article-16050601/Enzo-Fernandez-Manchester-City-Chelsea-transfers-Maresca-Rodri.html) - **Dailymail.com**
+3. ['I'm not a huge fan of Viktor Gyokeres - any Arsenal striker should get minimum 20 goals a season. I didn't sleep in the summer if I hadn't': MICKY QUINN on Coventry, his Highbury hat-trick, assault courses, army training and the Funky Chicken](https://www.dailymail.com/sport/football/article-16049415/Micky-Quinn-interview-Gyokeres-Coventry-Arsenal.html) - **Dailymail.com**
+4. [Aston Villa targets Aaron Wan-Bissaka as new right back option](https://cryptobriefing.com/aston-villa-wan-bissaka-right-back/) - **Crypto Briefing**
+5. [Cristiano Ronaldo gets honest take from Ange Postecoglou on Al Nassr’s trophy hopes: ‘I don’t promise anything’](https://worldsoccertalk.com/news/cristiano-ronaldo-gets-honest-take-from-ange-postecoglou-on-al-nassrs-trophy-hopes-i-dont-promise-anything/) - **Worldsoccertalk.com**
+6. [Al-Ittihad, Besiktas set to begin Ndidi talks](https://punchng.com/al-ittihad-besiktas-set-to-begin-ndidi-talks/) - **The Punch**
+7. [Awoniyi linked with Rizespor](https://punchng.com/awoniyi-linked-with-rizespor/) - **The Punch**
+8. [Dolphins to begin WBPL title defence against First Deep Water](https://punchng.com/dolphins-to-begin-wbpl-title-defence-against-first-deep-water/) - **The Punch**
+9. [Arsenal open Osimhen talks as Gala reject Al Hilal offer](https://punchng.com/arsenal-open-osimhen-talks-as-gala-reject-al-hilal-offer/) - **The Punch**
+10. [Manchester United Have Set Their Sights On This Crystal Palace Star: Good Fit For Carrick?](https://the4thofficial.net/2026/08/manchester-united-have-set-their-sights-on-this-crystal-palace-star/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-08-15 08:57:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-15 10:42:29 (KST) / (하루 100회 제한 준수 중)*
