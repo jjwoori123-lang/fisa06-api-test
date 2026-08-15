@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Leao hasn’t convinced Amorim and Milan asking price drops even further](https://football-italia.net/leao-not-convinced-amorim-milan-price-drops/) - **Football Italia**
-2. [Man City tight-lipped on Rodri transfer amid Barcelona and Real Madrid link](https://www.aljazeera.com/sports/2026/8/14/man-city-tightlipped-on-rodri-transfer-amid-barcelona-and-real-madrid-link) - **Al Jazeera English**
-3. [Maresca discusses Rodri, Enzo Fernandez as Reijnders prepares to leave Man City in midfield overhaul](https://sports.yahoo.com/articles/maresca-discusses-rodri-enzo-fernandez-111206909.html) - **Yahoo Entertainment**
-4. [Maresca: Community Shield our first chance of silverware](https://www.mancity.com/news/mens/enzo-maresca-community-shield-arsenal-preview-63922301) - **Manchester City FC**
-5. [Joao Palhinha’s Aston Villa move collapses](https://www.getfootballnewsgermany.com/2026/joao-palhinhas-aston-villa-off/) - **Getfootballnewsgermany.com**
-6. [Why Arsenal insiders believe this is the season Max Dowman will vault into superstardom: Breaking Lamine Yamal's records, bulking up to shrug off defenders twice his age and a golden chance for club and country](https://www.dailymail.com/sport/football/article-16052257/Max-Dowman-Arsenal-Yamal-England.html) - **Dailymail.com**
-7. [Johansson on transfers, Said's goals and 'not underestimating' Stenhousemuir](https://www.bbc.com/sport/articles/c2dkyjl3z1ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [VAR, timewasting and subs - new rules for the new season](https://www.bbc.com/sport/football/articles/ce85pje4gyqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [VAR, timewasting and subs - new rules for the new season](https://www.bbc.co.uk/sport/football/articles/ce85pje4gyqo) - **BBC News**
-10. [6 NBA Breakout Candidates for 2026-27: Austin Reaves, Matas Buzelis, Dylan Harper & more primed for big jump](https://www.sportingnews.com/us/nba/news/nba-breakout-candidates-2026-27-austin-reaves-matas-buzelis/4ad9154e223c8128ae929163) - **Sporting News**
+1. [Maresca says 'anything can happen' amid talk of Rodri move to Barcelona](https://sports.yahoo.com/articles/maresca-says-anything-happen-amid-115110407.html) - **Yahoo Entertainment**
+2. [Liverpool set to wait until the final days of the window to sign Bradley Barcola](https://www.getfootballnewsfrance.com/2026/liverpool-set-to-wait-until-the-final-days-of-the-window-to-sign-bradley-barcola/) - **Get French Football News**
+3. [Report: Arsenal still in talks over move for Premier League star](https://eplindex.com/149396/report-arsenal-still-in-talks-over-move-for-premier-league-star.html) - **English Premier League Index - Opta Stats**
+4. [Augsburg set to profit from Arne Engles transfer to West Ham](https://bulinews.com/augsburg-set-profit-arne-engles-transfer-west-ham) - **Bulinews.com**
+5. [Maresca on Rodri future, Fernandez interest and 'closing gap' on Arsenal](https://www.bbc.com/sport/football/articles/c8xn2vn7849o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Como approach Chelsea for Delap after securing €30m Chalobah deal](https://football-italia.net/como-approach-chelsea-for-delap/) - **Football Italia**
+7. [ Y! Sports AM: A return to the corn](https://sports.yahoo.com/articles/y-sports-am-return-corn-114246263.html) - **Yahoo Entertainment**
+8. [FPL Scout: The best Brentford picks](https://www.brentfordfc.com/en/news/article/fpl-scout-best-brentford-picks-fantasy-premier-league-2026-27) - **Brentfordfc.com**
+9. [Fuchs reluctantly quit Newport after securing survival](https://www.bbc.com/sport/football/articles/cpd73jq83l0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Fantasy Premier League: The best FPL team names for 2026/27](https://thefootballfaithful.com/fantasy-premier-league-fpl-team-names-2026/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-08-15 20:23:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-15 20:53:44 (KST) / (하루 100회 제한 준수 중)*
