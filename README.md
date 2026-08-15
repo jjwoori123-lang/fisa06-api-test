@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Leao to miss Manchester United clash and hand Milan a transfer concern](https://football-italia.net/leao-to-miss-man-united-milan-transfer-concern/) - **Football Italia**
-2. [South Korea players want K League season change due to ‘worsening climate’](https://www.aljazeera.com/sports/2026/8/14/south-korea-players-want-k-league-season-change-due-to-worsening-climate) - **Al Jazeera English**
-3. [6 Years Ago, Apple TV Released a Viral Feel-Good TV Show With Unforgettable Characters, and Its Sequel Just Arrived](http://comicbook.com/tv-shows/feature/6-years-ago-apple-tv-released-a-viral-feel-good-tv-show-with-unforgettable-characters-and-its-sequel-just-arrived/) - **ComicBook.com**
-4. [Premier League club would be willing to sell prized asset ‘at the right number’ amid growing United links](https://utdreport.co.uk/2026/08/14/arsenal-would-be-willing-myles-lewis-skelly-manchester-united/) - **Utdreport.co.uk**
-5. [U21s Preview: Stoke City vs Leeds United](https://www.leedsunited.com/en/news/u21s-preview-stoke-city-vs-leeds-united-pl-cup) - **Leedsunited.com**
-6. [Jamie Carragher identifies 'huge problem' at Liverpool which means they WON'T compete for the Premier League title - despite there being 'too much quality'!](https://www.dailymail.com/sport/football/article-16052119/Jamie-Carragher-expresses-concern-Liverpools-midfield-reveals-huge-problem-means-WONT-compete-Premier-League-title.html) - **Dailymail.com**
-7. [Declan Rice kicks back with James Corden in Sardinia as Arsenal star enjoys luxury yacht break with comedian and West Ham legend Mark Noble ahead of new season](https://www.dailymail.com/sport/football/article-16052097/declan-rice-james-corden-sardinia-premier-league-season.html) - **Dailymail.com**
-8. [The Bayern Insider: Real Madrid commit fatal Michael Olise error after €140m deal agreed](https://cfbayerninsider.com/2026/08/the-bayern-insider-real-madrid-commit-fatal-michael-olise-error-after-e140m-deal-agreed/) - **Cfbayerninsider.com**
-9. [10 newcomers to watch in the 2026/27 Premier League campaign](https://www.101greatgoals.com/football/premier-league/10-newcomers-to-watch-2026-27-premier-league/) - **101 Great Goals**
+1. [Arsenal eye repeat after major Premier League managerial shake-up](https://www.channelnewsasia.com/sport/arsenal-eye-repeat-after-major-premier-league-managerial-shake-up-6319531) - **CNA**
+2. [Bowen: As long as West Ham get back to the PL, I don't care how we do it](https://www.skysports.com/football/news/11685/13572527/jarrod-bowen-exclusive-west-ham-captain) - **Sky Sports**
+3. [Carrick says Man United needs more signings and describes Rashford's return as 'exciting'](https://sports.yahoo.com/articles/carrick-says-man-united-needs-085502185.html) - **Yahoo Entertainment**
+4. [Report: Liverpool set to battle Everton in the race to sign La Liga star](https://anfieldindex.com/97934/report-liverpool-set-to-battle-everton-in-the-race-to-sign-la-liga-star.html) - **Anfieldindex.com**
+5. [Report: Ipswich Town keen on move for Bundesliga striker](https://eplindex.com/149393/report-ipswich-town-keen-on-move-for-bundesliga-striker.html) - **English Premier League Index - Opta Stats**
+6. [Arsenal explore Galatasaray’s Victor Osimhen move](https://www.getfootballnewsfrance.com/2026/arsenal-explore-galatasarays-victor-osimhen-move/) - **Get French Football News**
+7. [Holly Mears joins Leeds United Women](https://www.leedsunited.com/en/news/holly-mears-joins-leeds-united-women) - **Leedsunited.com**
+8. [Leao to miss Manchester United clash and hand Milan a transfer concern](https://football-italia.net/leao-to-miss-man-united-milan-transfer-concern/) - **Football Italia**
+9. [South Korea players want K League season change due to ‘worsening climate’](https://www.aljazeera.com/sports/2026/8/14/south-korea-players-want-k-league-season-change-due-to-worsening-climate) - **Al Jazeera English**
+10. [6 Years Ago, Apple TV Released a Viral Feel-Good TV Show With Unforgettable Characters, and Its Sequel Just Arrived](http://comicbook.com/tv-shows/feature/6-years-ago-apple-tv-released-a-viral-feel-good-tv-show-with-unforgettable-characters-and-its-sequel-just-arrived/) - **ComicBook.com**
 
 
 ---
-*최근 업데이트: 2026-08-15 17:37:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-15 18:01:34 (KST) / (하루 100회 제한 준수 중)*
