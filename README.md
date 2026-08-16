@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Everton admire Jacob Murphy, Toffees could swoop for him if Tyler Dibling leaves](https://sportsview.co.uk/2026/08/everton-admire-jacob-murphy-toffees-could-swoop-for-him-if-tyler-dibling-leaves?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=everton-admire-jacob-murphy-toffees-could-swoop-for-him-if-tyler-dibling-leaves) - **Sportsview.co.uk**
-2. [‘Well-placed sources’ expect Man Utd to facilitate highly-rated star’s exit despite lack of depth in his position](https://utdreport.co.uk/2026/08/15/manchester-united-expected-to-sell-harry-amass/) - **Utdreport.co.uk**
-3. [Sholay wins Italy: 2,000 Italians watch restored classic till 3 am, says Amitabh Bachchan](https://economictimes.indiatimes.com/news/new-updates/sholay-wins-italy-2000-italians-watch-restored-classic-till-3-am-says-amitabh-bachchan/articleshow/133257419.cms) - **The Times of India**
-4. [“It’s true” – Insider confirms €50m ‘Monster’ is wanted at Man Utd](https://utdreport.co.uk/2026/08/15/falk-man-united-kim-min-jae-bayern-munich/) - **Utdreport.co.uk**
-5. [Real Madrid believe Mourinho can turn under-fire star into a €100 million player – report](https://madriduniversal.com/real-madrid-believe-mourinho-can-turn-under-fire-star-into-a-e100-million-player-report/) - **Madriduniversal.com**
-6. [Five Premier League players who are in career limbo ahead of 2026/27](https://thefootballfaithful.com/premier-league-players-career-limbo-2026/) - **The Football Faithful**
-7. [Sony Pictures Networks India launches a general entertainment channel in Tamil called Sony Vizha](https://economictimes.indiatimes.com/industry/media/entertainment/sony-pictures-networks-india-launches-a-general-entertainment-channel-in-tamil-called-sony-vizha/articleshow/133257225.cms) - **The Times of India**
-8. [William Osula turns 23 and says he is looking forward to the new season under a new boss](https://www.themag.co.uk/2026/08/william-osula-turns-23-and-says-he-is-looking-forward-to-the-new-season-under-a-new-boss-newcastle-united/) - **The Mag**
-9. [Aston Villa predicted lineup and team news vs Borussia Monchengladbach](https://thefootballfaithful.com/aston-villa-lineup-vs-monchengladbach/) - **The Football Faithful**
-10. [Dundee United vs Celtic – Match preview and team news](https://thefootballfaithful.com/dundee-united-vs-celtic-match-preview-and-team-news-3/) - **The Football Faithful**
+1. [Arsenal trio Rice, Saka and Zubimendi available for Community Shield, Arteta says](https://www.channelnewsasia.com/sport/arsenal-trio-rice-saka-and-zubimendi-available-community-shield-arteta-says-6321186) - **CNA**
+2. [Barcelona ‘on the verge’ of completing World Cup winner’s signing, a matter of ‘hours’](https://barcauniversal.com/barcelona-on-the-verge-of-completing-world-cup-winners-signing-a-matter-of-hours/) - **Barcauniversal.com**
+3. [Premier League clubs looking to EFL for next Semenyo & Eze](https://www.bbc.com/sport/football/articles/c5y6w5972lyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Premier League clubs looking to EFL for next Semenyo & Eze](https://www.bbc.co.uk/sport/football/articles/c5y6w5972lyo) - **BBC News**
+5. [Romero reflects on ‘imperfect’ Spurs spell ahead of Atletico move](https://thefootballfaithful.com/romero-reflects-on-imperfect-spurs-spell-ahead-of-atletico-move/) - **The Football Faithful**
+6. [Surreal scenes in Argentina, tensions high and the day's 5️⃣ stories](https://onefootball.com/en/news/surreal-scenes-in-argentina-tensions-high-and-the-days-5-stories-43279803) - **Onefootball.com**
+7. [Where to watch Chelsea vs. Real Sociedad live stream, TV channel, start time for preseason friendly](https://www.sportingnews.com/us/soccer/chelsea/news/watch-chelsea-vs-real-sociedad-live-stream-tv-channel-time-friendly/5e436688c242347cb1bd961f) - **Sporting News**
+8. [Romero completes £34m Atletico Madrid transfer](https://www.skysports.com/football/news/11095/13573213/cristian-romero-tottenham-captain-completes-move-to-atletico-madrid) - **Sky Sports**
+9. [Brighton Star Emerges as Newcastle Target After Everton Game](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/24276/brighton-star-emerges-as-newcastle-target-after-everton-game) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-08-16 15:42:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-16 16:32:48 (KST) / (하루 100회 제한 준수 중)*
