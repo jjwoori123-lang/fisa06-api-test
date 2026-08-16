@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sunderland Are Keen On Recruiting This Serie A Midfielder: What Will He Bring To The Stadium Of Light?](https://the4thofficial.net/2026/08/sunderland-are-keen-on-recruiting-this-serie-a-midfielder/) - **The4thofficial.net**
-2. [Díaz thrives and Alaves beats 10-man Getafe 3-0 as La Liga kicks off Europe's domestic league season](https://sports.yahoo.com/articles/d-az-thrives-alaves-beats-194840553.html) - **Yahoo Entertainment**
-3. [EPL: Coventry City agree deal to sign Awoniyi](https://punchng.com/epl-coventry-city-agree-deal-to-sign-awoniyi/) - **The Punch**
-4. [Have Arsenal or Man City won more trophies? All-time titles won, team head-to-head and more](https://www.sportingnews.com/us/soccer/news/have-arsenal-or-man-city-won-more-trophies-head-head/399b4f9ea141777aab36d084) - **Sporting News**
-5. [Steelers get brutal Joey Porter Jr. contract update after record-setting NFL deal](https://steelerswire.usatoday.com/story/sports/nfl/steelers/2026/08/15/steelers-joey-porter-jr-devon-witherspoon-seahawks-nfl-update-contract/91320666007/) - **USA Today**
-6. [Man Utd beaten by former boss Amorim's AC Milan in friendly finale](https://sports.yahoo.com/articles/man-utd-beaten-former-boss-193103826.html) - **Yahoo Entertainment**
-7. [Rashford returns as AC Milan highlight issues facing Carrick](https://www.bbc.com/sport/football/articles/cg5ll71pqv1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Rashford returns as AC Milan highlight issues facing Carrick](https://www.bbc.co.uk/sport/football/articles/cg5ll71pqv1o) - **BBC News**
-9. [Arsenal Are Keen On Recruiting This Barcelona Defender: What Will He Add To Arteta’s Team?](https://the4thofficial.net/2026/08/arsenal-are-keen-on-recruiting-this-barcelona-defender/) - **The4thofficial.net**
-10. [Championship excellent place to discover talent - Espanyol's Monchi](https://www.bbc.com/sport/football/articles/c62v1e64x41o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Villa begin Suzuki talks - Sunday's gossip](https://www.bbc.com/sport/football/articles/cnvnndmz4reo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Villa begin Suzuki talks - Sunday's gossip](https://www.bbc.co.uk/sport/football/articles/cnvnndmz4reo) - **BBC News**
+3. [West Ham break EFL record to sign Engels for £22m](https://www.bbc.com/sport/football/articles/c77ggr5nk7jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Newcastle open talks with Bayern over permanent signing of Palhinha](https://bulinews.com/newcastle-open-talks-bayern-over-permanent-signing-palhinha) - **Bulinews.com**
+5. [FAWNL: Can Bournemouth turn last season’s disappointment into promotion?](https://herfootballhub.com/fawnl-can-bournemouth-turn-last-seasons-disappointment-into-promotion/) - **Herfootballhub.com**
+6. [Manchester City Would Have To Pay £120m To Land This Chelsea Star: Should Maresca Go For Him?](https://the4thofficial.net/2026/08/manchester-city-would-have-to-pay-120m-to-land-this-chelsea-star/) - **The4thofficial.net**
+7. [West Ham break EFL record to sign Engels for £22m](https://www.bbc.co.uk/sport/football/articles/c77ggr5nk7jo) - **BBC News**
+8. [West Ham break Championship transfer record with Arne Engels signing](https://wp.fromthespot.co.uk/31339/west-ham-break-championship-transfer-record-with-arne-engels-signing/) - **Fromthespot.co.uk**
+9. [Fenerbahçe’s Sidiki Chérif set to join Coventry City](https://www.getfootballnewsfrance.com/2026/fenerbahces-sidiki-cherif-set-to-join-coventry-city/) - **Get French Football News**
+10. [FULL LIST: Top 20 EPL clubs with biggest player sales](https://punchng.com/full-list-top-20-epl-clubs-with-biggest-player-sales/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-08-17 04:51:47 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-17 05:25:02 (KST) / (하루 100회 제한 준수 중)*
