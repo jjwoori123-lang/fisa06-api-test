@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal trio Rice, Saka and Zubimendi available for Community Shield, Arteta says](https://www.channelnewsasia.com/sport/arsenal-trio-rice-saka-and-zubimendi-available-community-shield-arteta-says-6321186) - **CNA**
-2. [Barcelona ‘on the verge’ of completing World Cup winner’s signing, a matter of ‘hours’](https://barcauniversal.com/barcelona-on-the-verge-of-completing-world-cup-winners-signing-a-matter-of-hours/) - **Barcauniversal.com**
-3. [Premier League clubs looking to EFL for next Semenyo & Eze](https://www.bbc.com/sport/football/articles/c5y6w5972lyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Premier League clubs looking to EFL for next Semenyo & Eze](https://www.bbc.co.uk/sport/football/articles/c5y6w5972lyo) - **BBC News**
-5. [Romero reflects on ‘imperfect’ Spurs spell ahead of Atletico move](https://thefootballfaithful.com/romero-reflects-on-imperfect-spurs-spell-ahead-of-atletico-move/) - **The Football Faithful**
-6. [Surreal scenes in Argentina, tensions high and the day's 5️⃣ stories](https://onefootball.com/en/news/surreal-scenes-in-argentina-tensions-high-and-the-days-5-stories-43279803) - **Onefootball.com**
-7. [Where to watch Chelsea vs. Real Sociedad live stream, TV channel, start time for preseason friendly](https://www.sportingnews.com/us/soccer/chelsea/news/watch-chelsea-vs-real-sociedad-live-stream-tv-channel-time-friendly/5e436688c242347cb1bd961f) - **Sporting News**
-8. [Romero completes £34m Atletico Madrid transfer](https://www.skysports.com/football/news/11095/13573213/cristian-romero-tottenham-captain-completes-move-to-atletico-madrid) - **Sky Sports**
-9. [Brighton Star Emerges as Newcastle Target After Everton Game](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/24276/brighton-star-emerges-as-newcastle-target-after-everton-game) - **SB Nation**
+1. [‘Serious option’ – Sky reporter issues Gakpo to Spurs update as Liverpool forward ‘open’ to exit](https://www.empireofthekop.com/2026/08/15/sky-reporter-gakpo-spurs-transfer-update-forward-open-to-exit/) - **Empire of The Kop**
+2. [Is there a real chance that a key new signing for Manchester City will start against Arsenal?](https://esteemedkompany.com/2026/08/15/is-there-a-real-chance-that-a-key-new-signing-for-manchester-city-will-start-against-arsenal/) - **Esteemedkompany.com**
+3. [Report: Arsenal are one of the clubs considering move for world-class striker](https://eplindex.com/149428/report-arsenal-are-one-of-the-clubs-considering-move-for-world-class-striker.html) - **English Premier League Index - Opta Stats**
+4. [Sutton concerned about the timing of Arne Engels transfer](https://celticshorts.com/2026/08/sutton-concerned-about-timing-of-arne-engels-transfer/) - **Celticshorts.com**
+5. [Romero reflects on Spurs stay as Atletico move confirmed](https://www.bbc.com/sport/football/articles/c20dyz4vrero?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Arteta assures Arsenal fans over contract before Man City clash](https://www.aljazeera.com/sports/2026/8/15/arteta-assures-arsenal-fans-over-contract-ahead-of-man-city-clash) - **Al Jazeera English**
+7. [Balikwisha set to leave Celtic with three clubs interested - gossip](https://www.bbc.com/sport/football/articles/cp30x80lny7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Balikwisha set to leave Celtic with three clubs interested - gossip](https://www.bbc.co.uk/sport/football/articles/cp30x80lny7o) - **BBC News**
+9. [United v Milan! Onefootball streams the giants' friendly live](https://onefootball.com/en/news/united-v-milan-onefootball-streams-the-giants-friendly-live-43279878) - **Onefootball.com**
+10. [Fabrizio Romano confirms Liverpool's plans for 'exceptional' attacker](https://www.anfieldwatch.co.uk/liverpool-fc/news/fabrizio-romano-confirms-liverpools-plans-for-exceptional-attacker/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-08-16 16:32:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-16 16:57:15 (KST) / (하루 100회 제한 준수 중)*
