@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Milan vs Manchester United: Confirmed teams and line ups for friendly](https://www.101greatgoals.com/football/premier-league/milan-vs-manchester-united-live-teams-line-ups-where-to-watch-tv-channel-online-stream/) - **101 Great Goals**
-2. [Manchester United’s new midfield trio starts together for the first time](https://cryptobriefing.com/manchester-united-new-midfield-trio/) - **Crypto Briefing**
-3. [Why Aidan Morris isn’t playing for Middlesbrough vs Lincoln as another USMNT star set to make league debut](https://www.hitc.com/why-aidan-morris-isnt-playing-for-middlesbrough-vs-lincoln-as-another-usmnt-star-set-to-make-league-debut/) - **HITC - Football, Gaming, Movies, TV, Music**
-4. [Chelsea vs Sociedad: Morgan Rogers scores first home goal of Alonso era](https://www.101greatgoals.com/football/premier-league/chelsea-vs-sociedad-live-morgan-rogers-goal-friendly/) - **101 Great Goals**
-5. [Report – Lazio Line Up Shock Move for Milan Center-Back](https://cultofcalcio.com/lazio-lined-up-shock-bid-for-milan-star-fikayo-tomori/) - **Cultofcalcio.com**
-6. [Esposito set to triple Inter salary with new contract worth €3.2m per season](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a7534148-e789-4738-b30e-411ee056aff6) - **Yahoo Entertainment**
-7. [Report – Roma Pursuit of Arsenal Winger Handed Major Boost](https://cultofcalcio.com/roma-pursuit-of-gabriel-martinelli-handed-major-boost/) - **Cultofcalcio.com**
-8. [How to Watch Tottenham Hotspur vs Hoffenheim: Live Stream, TV, Times, Lineups](https://heavy.com/sports/soccer/premier-league/tottenham-hotspur-spurs/tottenham-hoffenheim-live-stream-tv-lineups/) - **Heavy.com**
-9. [How to live stream Manchester United vs AC Milan: Men’s Club Soccer Friendlies, TV channel](https://www.thebiglead.com/how-to-live-stream-manchester-united-vs-ac-milan-mens-club-soccer-friendlies-tv-channel/) - **The Big Lead**
-10. [Barcelona optimistic of landing Rodri after making third offer](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/129156/70m-rodri-transfer) - **Barca Blaugranes**
+1. [Batman / Superman: World's Finest #54 Preview: Hell's Home Run Derby](https://bleedingcool.com/comics/batman-superman-worlds-finest-54-preview-hells-home-run-derby/) - **Bleeding Cool News**
+2. [Dundee Utd v Celtic: team news, referee details, KO time & where to watch](https://celticshorts.com/2026/08/dundee-utd-v-celtic-team-news-referee-details-ko-time-where-to-watch/) - **Celticshorts.com**
+3. [Community Shield: Arteta hails Guardiola as ‘best coach in history’](https://punchng.com/community-shield-arteta-hails-guardiola-as-best-coach-in-history/) - **The Punch**
+4. [Konrad Laimer suffers pre-season injury setback in Bayern’s first Allianz Arena game](https://bulinews.com/konrad-laimer-suffers-pre-season-injury-setback-bayern-first-allianz-arena-game) - **Bulinews.com**
+5. [Liverpool can strike one rumoured transfer target off their wish list after gutting injury blow](https://www.empireofthekop.com/2026/08/15/liverpool-transfer-target-suffers-gutting-injury-blow/) - **Empire of The Kop**
+6. [Report – Juventus Contemplate Player-Plus-Cash Offer for Milan Midfielder](https://cultofcalcio.com/juventus-consider-audacious-bid-for-milan-star-youssouf-fofana/) - **Cultofcalcio.com**
+7. [10 World Cup stars who will dominate the Premier League this season](https://www.nbcsports.com/soccer/news/10-world-cup-stars-who-will-dominate-the-premier-league-this-season) - **NBCSports.com**
+8. [Juventus will challenge Serie A rival for Arsenal man](https://talkjuve.com/2026/08/15/juventus-will-challenge-serie-a-rival-for-arsenal-man/) - **Talkjuve.com**
+9. [Bournemouth to 'do better' after 'disgusting' email](https://www.bbc.com/sport/football/articles/cy8ee0gzqx2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Bournemouth to 'do better' after 'disgusting' email](https://www.bbc.co.uk/sport/football/articles/cy8ee0gzqx2o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-16 22:56:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-16 23:29:46 (KST) / (하루 100회 제한 준수 중)*
