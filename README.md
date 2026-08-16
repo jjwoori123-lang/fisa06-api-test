@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Journalist: Premier League rivals confirm interest in Liverpool star](https://anfieldindex.com/98008/journalist-premier-league-rivals-confirm-interest-in-liverpool-star.html) - **Anfieldindex.com**
-2. [Report: Liverpool star is ready to join Premier League rivals](https://eplindex.com/149429/report-liverpool-star-is-ready-to-join-premier-league-rivals.html) - **English Premier League Index - Opta Stats**
-3. [Transfer Latest – Michel-Ange Balikwisha set for Celtic exit](https://celticshorts.com/2026/08/transfer-latest-michel-ange-balikwisha-set-for-celtic-exit/) - **Celticshorts.com**
-4. [Jeff Bezos-backed consortium led by Amit Bhatia buys minority stake in Liverpool](https://economictimes.indiatimes.com/news/sports/football/jeff-bezos-backed-consortium-led-by-amit-bhatia-buys-minority-stake-in-liverpool/articleshow/133259118.cms) - **The Times of India**
-5. [Chelsea starlet Dastan Satpayev joins Burnley on season-long loan as Clarets boost Championship push](https://www.footballmuse.com/news/chelsea-starlet-dastan-satpayev-joins-burnley-on-season-long-loan-as-clarets-boost-championship-push) - **Footballmuse.com**
-6. [Premier League sides join Roma for Luis Henrique as Inter chase Jones](https://football-italia.net/premier-league-roma-inter-luis-henrique-jones/) - **Football Italia**
-7. [Liverpool planning to open contract talks with first-team regular who’s keen to work with Iraola](https://www.empireofthekop.com/2026/08/15/liverpool-planning-to-open-contract-talks-with-first-team-regular/) - **Empire of The Kop**
-8. [Arteta relaxed over new Arsenal contract](https://thefootballfaithful.com/arteta-relaxed-over-new-arsenal-contract/) - **The Football Faithful**
-9. [Watch Live! Leeds United vs FC Augsburg available on LUTV!](https://www.leedsunited.com/en/news/watch-live-leeds-united-vs-fc-augsburg-available-on-lutv) - **Leedsunited.com**
-10. [Atletico Madrid sign Spurs captain Cristian Romero](https://www.channelnewsasia.com/sport/atletico-madrid-sign-spurs-captain-cristian-romero-6321226) - **CNA**
+1. [PSG sign Spain's World Cup hero Torres from Barcelona](https://www.channelnewsasia.com/sport/psg-sign-spains-world-cup-hero-torres-barcelona-6321286) - **CNA**
+2. [PSG sign Spain forward Torres from Barcelona](https://www.channelnewsasia.com/sport/psg-sign-spain-forward-torres-barcelona-6321286) - **CNA**
+3. [Juventus steps up chase for Tottenham man as Suzuki could slip away](https://talkjuve.com/2026/08/15/juventus-steps-up-chase-for-tottenham-man-as-suzuki-could-slip-away/) - **Talkjuve.com**
+4. [Arsenal facing double Premier League challenge for Barcelona star](https://www.justarsenal.com/arsenal-facing-double-premier-league-challenge-for-barcelona-star/420334) - **Just Arsenal News**
+5. [Cristián Romero completes Atlético Madrid transfer](https://www.playmakerstats.com/news/cristian-romero-completes-atletico-madrid-transfer/1175444) - **Playmakerstats.com**
+6. [Romero completes Atletico Madrid move after five years at Spurs](https://thefootballfaithful.com/romero-completes-atletico-madrid-move-after-five-years-at-spurs/) - **The Football Faithful**
+7. [Fine-tuning and a clear target - Wrexham's season aim](https://www.bbc.com/sport/football/articles/cy8m14gz4ldo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Crystal Palace complete £21m signing of full back Anan Khalaili - after Inter Milan move collapsed over health issue: WINDOW WATCH](https://www.dailymail.com/sport/football/article-16054603/crystal-palace-window-watch-simon-jones-anan-khalaili.html) - **Dailymail.com**
+9. [Lucas Gourna-Douath moves to the Premier League](https://www.redbullsalzburg.at/en/recent/news/gourna-douath-transfer-hull-city) - **Redbullsalzburg.at**
+10. [Palace sign Khalaili from Union Saint-Gilloise](https://www.bbc.com/sport/football/articles/clyqrd749d5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-16 18:02:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-16 18:45:56 (KST) / (하루 100회 제한 준수 중)*
