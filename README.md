@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Martinez Juventus move now off - Monday's gossip](https://www.bbc.com/sport/football/articles/c4gkk7r2r4yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Martinez Juventus move now off - Monday's gossip](https://www.bbc.co.uk/sport/football/articles/c4gkk7r2r4yo) - **BBC News**
-3. [Barcelona To Sign World Cup Golden Ball-Winner Rodri In $87.8M Transfer Deal](https://www.foxsports.com/stories/soccer/barcelona-sign-world-cup-golden-ball-winner-rodri-87-8m-transfer-deal) - **Fox Sports**
-4. [Arteta on Tzolis: ‘He makes good decisions when others rush’](https://hayters.com/arteta-on-tzolis-he-makes-good-decisions-when-others-rush/) - **Hayters.com**
-5. [Newcastle captain Burn says Magpies have European ambitions](https://hayters.com/newcastle-captain-burn-says-magpies-have-european-ambitions/) - **Hayters.com**
-6. [Patience will be required as Enzo Maresca’s Manchester City side comes together](https://esteemedkompany.com/2026/08/16/patience-will-be-required-as-enzo-marescas-manchester-city-side-comes-together/) - **Esteemedkompany.com**
-7. [Enzo Maresca says ‘all teams would need Rodri’](https://hayters.com/enzo-maresca-says-all-teams-would-need-rodri/) - **Hayters.com**
-8. [A massive exit from Manchester City looms and they must find a viable solution to cover it](https://esteemedkompany.com/2026/08/16/a-massive-exit-from-manchester-city-looms-and-they-must-find-a-viable-solution-to-cover-it/) - **Esteemedkompany.com**
+1. [Derek McInnes excited by Old Firm draw after claiming first win as Rangers manager in Premier Sports Cup triumph over St Mirren](https://www.dailymail.com/sport/football/article-16056881/Derek-McInnes-excited-Old-Firm-draw-claiming-win-Rangers-manager-Premier-Sports-Cup-triumph-St-Mirren.html) - **Dailymail.com**
+2. [When is William Saliba back? Projected return date for Arsenal defender after surgery for back injury](https://www.sportingnews.com/us/soccer/arsenal/news/when-william-saliba-back-return-date-arsenal-surgery-injury/2c9a336af02d542fb9be6f4b) - **Sporting News**
+3. [Arsenal 3-0 Manchester City Stats: Premier League Champions Run Riot in Community Shield - Opta Analyst](https://slashdot.org/firehose.pl?op=view&amp;id=185007084) - **Slashdot.org**
+4. [Update On The Future Of This Chelsea Defender: Should Alonso Cut Him Loose?](https://the4thofficial.net/2026/08/update-on-the-future-of-this-chelsea-defender-2/) - **The4thofficial.net**
+5. [Pre-season fight club: How Premier League 'friendlies' became anything but](https://www.dailymail.com/sport/football/article-16050285/Pre-season-fight-club-Premier-League-friendlies-but.html) - **Dailymail.com**
+6. [Did Arsenal Already Find Their Left-Wing Solution for Just £34m?](https://www.justarsenal.com/did-arsenal-already-find-their-left-wing-solution-for-just-34m/420394) - **Just Arsenal News**
+7. [Jamie Vardy mulls surprise move to Brazil after receiving a 'considerable' offer from Sao Paulo - with West Ham also in talks with striker](https://www.dailymail.com/sport/football/article-16056991/Jamie-Vardy-surprise-Brazil-considerable-offer-Sao-Paulo-West-Ham.html) - **Dailymail.com**
+8. [Mikel Arteta reveals 'fight'with Premier League over squad size after Arsenal are forced to leave key players out](https://timesofindia.indiatimes.com/sports/football/top-stories/mikel-arteta-reveals-fightwith-premier-league-over-squad-size-after-arsenal-are-forced-to-leave-key-players-out/articleshow/133281621.cms) - **The Times of India**
+9. [Arteta regrets axing Arsenal stars: ‘It’s just a shame’](https://www.101greatgoals.com/news/transfers/arteta-arsenal-players-transfer-rumours/) - **101 Great Goals**
+10. [Chelsea wonderkid defender offered interesting Premier League loan option](https://www.talkchelsea.net/news/chelsea-wonderkid-offered-interesting-premier-league-loan/) - **Talk Chelsea**
 
 
 ---
-*최근 업데이트: 2026-08-18 06:34:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-18 06:57:04 (KST) / (하루 100회 제한 준수 중)*
