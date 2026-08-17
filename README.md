@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal 3 – Manchester City 0: satisfactory!](https://theshortfuse.sbnation.com/premier-league/37260/arsenal-3-manchester-city-0-satisfactory) - **SB Nation**
-2. [Arsenal Blow Man City Away in Cardiff to Lift the Community Shield](https://www.justarsenal.com/arsenal-blow-man-city-away-in-cardiff-to-lift-the-community-shield/420392) - **Just Arsenal News**
-3. [Odegaard's importance, Anderson and Foden struggle - how the players rated](https://www.bbc.com/sport/football/articles/c8jnnknwnd1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Kazeem Olaigbe scores late winner for Basel against Barcelona in preseason friendly](https://cryptobriefing.com/olaigbe-basel-beats-barcelona-preseason/) - **Crypto Briefing**
-5. [Arsenal thrash Man City 3-0 in Community Shield masterclass](https://punchng.com/arsenal-thrash-man-city-3-0-in-community-shield-masterclass/) - **The Punch**
-6. [Arsenal 3-0 Man City: The post-Pep Guardiola era of uncertainty gets off to the worst-possible start in Community Shield thumping, writes OLIVER HOLT - as Premier League champions show their lethal confidence](https://www.dailymail.com/sport/football/article-16050699/Arsenal-3-0-Man-City-post-Pep-Guardiola-era-uncertainty-gets-worst-possible-start-Community-Shield-thumping-writes-OLIVER-HOLT-Premier-League-champions-lethal-confidence.html) - **Dailymail.com**
-7. [Marseille set to miss out on signing Lucas Perri on loan from Leeds United](https://www.getfootballnewsfrance.com/2026/marseille-set-to-miss-out-on-signing-lucas-perri-on-loan-from-leeds-united/) - **Get French Football News**
-8. [Odegaard's importance, Anderson and Foden struggle - how the players rated](https://www.bbc.co.uk/sport/football/articles/c8jnnknwnd1o) - **BBC News**
-9. [Odegaard says Arsenal 'want to win everything' after Community Shield success](https://sports.yahoo.com/articles/odegaard-says-arsenal-want-win-161826678.html) - **Yahoo Entertainment**
-10. [Arsenal make a statement by outclassing Man City in Community Shield](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260816-99-357391/) - **Dpa-international.com**
+1. [Frustrated Newcastle Manager Sends Transfer Warning Days Before Liverpool Game](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/24324/frustrated-newcastle-manager-sends-transfer-message-before-liverpool-game) - **SB Nation**
+2. [ProphetX promo code NYPBONUS: Trade $10, get $20 for the Premier League](https://nypost.com/2026/08/16/betting/prophetx-promo-code-nypbonus-trade-10-get-20-for-the-premier-league/) - **New York Post**
+3. [Odegaard says Arsenal 'want to win everything' after Community Shield success](https://sports.yahoo.com/articles/odegaard-says-arsenal-want-win-165447061.html) - **Yahoo Entertainment**
+4. [Cause for optimism at The Valley](https://www.bbc.com/sport/football/articles/cy7442y3yz3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Report: Aston Villa and Spurs both keen on £60m Premier League star](https://eplindex.com/149461/report-aston-villa-and-spurs-both-keen-on-60m-premier-league-star.html) - **English Premier League Index - Opta Stats**
+6. [‘We want to win more trophies’ – Arsenal’s Odegaard warns teams](https://www.vanguardngr.com/2026/08/we-want-to-win-more-trophies-arsenals-odegaard-warns-teams/) - **Vanguard**
+7. [Arsenal 3-0 Man City PLAYER RATINGS: Who lacked bite and physicality for Enzo Maresca? Which Arsenal star ran the show? And which 'unusually tentative' defender only managed a 4.5 out of 10?](https://www.dailymail.com/sport/football/article-16056629/arsenal-man-city-player-ratings-community-shield-calafiori.html) - **Dailymail.com**
+8. [Arsenal 3-0 Man City: What Maresca said](https://www.bbc.com/sport/football/articles/cm2ggpl2ekgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [What can we learn from Arsenal's crushing win over Manchester City in Community Shield?](https://www.cbssports.com/soccer/news/arsenals-crushing-win-manchester-city-community-shield/) - **CBS Sports**
+10. [Miserable start for Maresca as Arsenal dominate Manchester City to win Community Shield](https://www.irishtimes.com/sport/soccer/2026/08/16/miserable-start-for-maresca-as-arsenal-dominate-manchester-city-to-win-community-shield/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-08-18 01:34:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-18 02:00:23 (KST) / (하루 100회 제한 준수 중)*
