@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [3 Things We Learned From Newcastle’s 1-2 Defeat to Bayer Leverkusen](https://cominghomenewcastle.sbnation.com/newcastle-united-analysis-longform/24556/3-things-we-learned-from-newcastles-1-2-defeat-to-bayer-leverkusen) - **SB Nation**
-2. [Elding strike enough to see Hibs past Partick Thistle](https://www.rte.ie/sport/soccer/2026/0816/1588104-elding-strike-enough-to-see-hibs-past-partick-thistle/) - **RTE**
-3. [On The Road: Ayrshire upstarts Annbank dare to dream... and with a host of links to footballing royalty, they don't have to look far for inspiration](https://www.dailymail.com/sport/football/article-16056511/On-Road-Ayrshire-upstarts-Annbank-dare-dream-host-links-footballing-royalty-dont-look-far-inspiration.html) - **Dailymail.com**
-4. [(VIDEO) Arsenal vs Manchester City: Where To Watch Today's Match Livestream for Free](https://www.ibtimes.com.au/arsenal-manchester-city-fa-community-shield-2026-1874134) - **Ibtimes.com.au**
-5. [Arsenal vs Man City live: Gunners’ ‘remarkable’ start to Community Shield](https://www.101greatgoals.com/football/premier-league/arsenal-vs-man-city-live-community-shield-calafiori-havertz/) - **101 Great Goals**
-6. [Zion Suzuki’s Premier League ambitions see PSG move collapse as he favours Aston Villa move](https://www.getfootballnewsfrance.com/2026/zion-suzukis-premier-league-ambitions-see-psg-move-collapse-as-he-favours-aston-villa-move/) - **Get French Football News**
-7. [Jacquet scores on debut as Liverpool beat Como](https://www.skysports.com/football/news/11669/13573738/liverpool-2-0-como-jeremy-jacquet-scores-on-debut-to-add-to-cody-gakpo-goal-as-reds-win-at-anfield) - **Sky Sports**
-8. [Arsenal leads Man City 2-0 at halftime in 2026 FA Community Shield](https://cryptobriefing.com/arsenal-leads-man-city-2-0-at-halftime-in-2026-fa-community-shield/) - **Crypto Briefing**
-9. [Celtic are smiles better with the likes of Colombian livewire Camilo Duran in their ranks](https://www.dailymail.com/sport/football/article-16056463/Celtic-smiles-better-likes-Colombian-livewire-Camilo-Duran-ranks.html) - **Dailymail.com**
-10. [Arsenal new boy makes big first impression in Community Shield ](https://onefootball.com/en/news/arsenal-new-boy-makes-big-first-impression-in-community-shield-43286579) - **Onefootball.com**
+1. [Team to beat? Arsenal thrash City to win the Super Cup ](https://onefootball.com/en/news/team-to-beat-arsenal-thrash-city-to-win-the-super-cup-43286833) - **Onefootball.com**
+2. [Marseille interested in signing Chelsea defender Tosin Adarabioyo](https://www.getfootballnewsfrance.com/2026/marseille-interested-in-signing-chelsea-defender-tosin-adarabioyo/) - **Get French Football News**
+3. [Liverpool vs Como Results Today: Club Friendly Live Score, Updates, Stats](https://heavy.com/sports/soccer/premier-league/liverpool-fc/liverpool-vs-como-results-today-club-friendly-live-score-updates-stats/) - **Heavy.com**
+4. [Juventus is now thinking about PSG’s other goalkeeper](https://talkjuve.com/2026/08/16/juventus-is-now-thinking-about-psgs-other-goalkeeper/) - **Talkjuve.com**
+5. [Bellanova ‘not for sale’ as Atalanta rebuff Fulham’s €20m offer](https://football-italia.net/bellanova-not-for-sale-atalanta-rebuff-fulham/) - **Football Italia**
+6. [Report – Juventus Set to Accelerate Pursuit of Premier League Goalkeeper](https://cultofcalcio.com/report-juventus-set-to-accelerate-pursuit-of-premier-league-goalkeeper/) - **Cultofcalcio.com**
+7. [Report – Atalanta Snub Fulham Bid for Italian Wingback](https://cultofcalcio.com/atalanta-snub-fulham-bid-for-raoul-bellanova/) - **Cultofcalcio.com**
+8. [Scholes ‘can’t believe’ Man Utd have yet to make an offer for ‘perfect’ EPL star](https://utdreport.co.uk/2026/08/16/paul-scholes-man-utd-adam-wharton-crystal-palace/) - **Utdreport.co.uk**
+9. [Report – Roma Target Omitted from Arsenal’s Community Shield Squad](https://cultofcalcio.com/report-roma-target-omitted-from-arsenals-community-shield-squad/) - **Cultofcalcio.com**
+10. [Southampton mocked over Spygate during Watford defeat](https://sports.yahoo.com/articles/southampton-mocked-over-spygate-during-153426800.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-08-18 00:32:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-18 00:56:39 (KST) / (하루 100회 제한 준수 중)*
