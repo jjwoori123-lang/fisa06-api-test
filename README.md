@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [ Arsenal-Man City: the combined XI for the blockbuster ](https://onefootball.com/en/news/arsenal-man-city-the-combined-xi-for-the-blockbuster-43285887) - **Onefootball.com**
-2. [Chelsea co-owner Mark Walter open to selling stake amid US federal investigation](https://cryptobriefing.com/chelsea-co-owner-walter-selling-stake-investigation/) - **Crypto Briefing**
-3. [Martin Keown: Keep the kids and Arsenal have everything to retain title and finally win Champions League](https://hayters.com/martin-keown-arsenal-2/) - **Hayters.com**
-4. [Report: Newcastle United interest in move for Bayern Munich star](https://eplindex.com/149455/report-newcastle-united-interest-in-move-for-bayern-munich-star.html) - **English Premier League Index - Opta Stats**
-5. [A Manchester City powerhouse could be valuable for his team in more ways than one](https://esteemedkompany.com/2026/08/16/a-manchester-city-powerhouse-could-be-valuable-for-his-team-in-more-ways-than-one/) - **Esteemedkompany.com**
-6. [Carrick sees positives in Man Utd pre-season despite Milan defeat](https://thefootballfaithful.com/carrick-sees-positives-in-man-utd-pre-season-despite-milan-defeat/) - **The Football Faithful**
-7. [Benfica ready to offer permanent deal for Bayern’s Palhinha](https://bulinews.com/benfica-ready-offer-permanent-deal-for-bayern-palhinha) - **Bulinews.com**
-8. [Newcastle Set to Raid Premier League Rival for Academy Prospect](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/24206/newcastle-set-to-raid-premier-league-rival-for-academy-prospect) - **SB Nation**
-9. [Pundit thinks Bayern Munich star Harry Kane could return to Tottenham Hotspur one day](https://www.bavarianfootballworks.com/bayern-munich-bundesliga/243335/pundit-thinks-bayern-munich-star-harry-kane-could-return-to-tottenham-hotspur-one-day) - **Bavarian Football Works**
-10. [Bill Simmons reacts as favourite soccer team Tottenham Hotspur sell two key players](https://www.hitc.com/bill-simmons-reacts-as-favourite-soccer-team-tottenham-hotspur-sell-two-key-players/) - **HITC - Football, Gaming, Movies, TV, Music**
+1. [How to live stream Arsenal vs Manchester City: FA Community Shield, TV channel](https://www.thebiglead.com/how-to-live-stream-arsenal-vs-manchester-city-fa-community-shield-tv-channel/) - **The Big Lead**
+2. [Two reasons why Delap is unlikely for Como despite Champions League attraction](https://football-italia.net/two-reasons-why-delap-is-unlikely-for-como/) - **Football Italia**
+3. [Elvedi set for Leeds move as £8.5m fee agreed](https://www.bbc.com/sport/football/articles/c2lqqr15p2yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Elvedi set for Leeds move as £8.5m fee agreed](https://www.bbc.co.uk/sport/football/articles/c2lqqr15p2yo) - **BBC News**
+5. [Liverpool vs Como – Predicted lineup and team news](https://thefootballfaithful.com/liverpool-vs-como-predicted-lineup/) - **The Football Faithful**
+6. [Liverpool vs Como – Match preview and team news](https://thefootballfaithful.com/liverpool-vs-como-match-preview/) - **The Football Faithful**
+7. [Arsenal v Manchester City: Confirmed team news and full line-ups for Community Shield](https://www.101greatgoals.com/football/premier-league/arsenal-v-manchester-city-confirmed-teams-full-line-ups-for-community-shield/) - **101 Great Goals**
+8. [What has been the impact of new owners on The Hundred?](https://www.bbc.com/sport/cricket/articles/cy4kknnpyvvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [What has been the impact of new owners on The Hundred?](https://www.bbc.co.uk/sport/cricket/articles/cy4kknnpyvvo) - **BBC News**
+10. [Confirmed Arsenal Team to Face Man City in Community Shield Curtain-Opener](https://www.justarsenal.com/confirmed-arsenal-team-to-face-man-city-in-community-shield-curtain-opener/420390) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-08-17 20:56:28 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-17 21:55:25 (KST) / (하루 100회 제한 준수 중)*
