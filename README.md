@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Haissem Hassan’s long road to Paradise](https://celticshorts.com/2026/08/haissem-hassans-long-road-to-paradise/) - **Celticshorts.com**
-2. [Journalist: Liverpool could be set for £20m discount on transfer deal](https://anfieldindex.com/98064/journalist-liverpool-could-be-set-for-20m-discount-on-transfer-deal.html) - **Anfieldindex.com**
-3. [Arsenal vs Man City: Match Preview and Latest Team News](https://eplindex.com/149451/arsenal-vs-man-city-match-preview-and-latest-team-news.html) - **English Premier League Index - Opta Stats**
-4. [Rangers vs St. Mirren – Predicted lineup and team news](https://thefootballfaithful.com/rangers-vs-st-mirren-predicted-lineup-2/) - **The Football Faithful**
-5. [Rangers vs St. Mirren – Match preview and team news](https://thefootballfaithful.com/rangers-vs-st-mirren-match-preview-and-team-news-2/) - **The Football Faithful**
-6. [Amar Dedic Solves a Newcastle Problem Nobody Wanted to Talk About](https://cominghomenewcastle.sbnation.com/newcastle-united-opinion/24490/amar-dedic-solves-a-newcastle-problem-nobody-wanted-to-talk-about) - **SB Nation**
-7. [Martin O’Neill on new additions ahead of Champions League playoff](https://celticshorts.com/2026/08/martin-oneill-on-new-additions-ahead-of-champions-league-playoff/) - **Celticshorts.com**
-8. [Man United position revealed regarding Arsenal raid after long-standing interest](https://utdreport.co.uk/2026/08/16/man-united-position-revealed-regarding-arsenal-raid-after-long-standing-interest/) - **Utdreport.co.uk**
-9. [Premier League side slap €90m-plus price tag on Real Madrid midfield target – report](https://madriduniversal.com/premier-league-side-slap-e90m-plus-price-tag-on-real-madrid-midfield-target-report/) - **Madriduniversal.com**
+1. [Amorim warns Leao ‘it will be tough’ to reclaim his Milan position: ‘He has to fight’](https://football-italia.net/amorim-warns-leao-it-will-be-tough-must-fight/) - **Football Italia**
+2. [Arsenal v Man City Preview: Champions Ready for First Shot at Silverware in Cardiff](https://www.justarsenal.com/arsenal-v-man-city-preview-champions-ready-for-first-shot-at-silverware-in-cardiff/420383) - **Just Arsenal News**
+3. [Newcastle United v Strasbourg Live TV and global channel listings](https://www.themag.co.uk/2026/08/newcastle-united-v-strasbourg-live-tv-and-global-channel-listings/) - **The Mag**
+4. [Liverpool’s Gain? New Premier League Rules For The 2026-27 Season](https://liverpooloffside.sbnation.com/liverpool-fc-tactics-longform/82669/liverpools-gain-new-rules-for-the-26-27-season) - **SB Nation**
+5. [Romero ends Tottenham spell to join Simeone’s Atletico Madrid](https://www.football-espana.net/2026/08/16/cristian-romero-atletico-madrid) - **Football Espana**
+6. [Arsenal vs Man City combined XI: Stats boffins give Enzo Maresca's side the edge heading into Cardiff clash and only ONE Gunners defender makes the cut](https://www.dailymail.com/sport/football/article-16041615/arsenal-man-city-combined-line-community-shield.html) - **Dailymail.com**
+7. [Arsenal vs Man City combined XI: Stats boffins give Enzo Maresca's side the edge heading into Cardiff clash and only ONE Gunners defender makes the cut](https://www.dailymail.com/sport/football/article-16041615/arsenal-man-city-combined-line-community-shield.html) - **Dailymail.com**
+8. [Where to watch Burnley vs. West Ham live stream, TV channel, start time for EFL Championship match](https://www.sportingnews.com/us/soccer/news/watch-burnley-west-ham-live-stream-tv-channel-time-championship/b57543596e63989d95a7b3ff) - **Sporting News**
+9. [Where to watch Arsenal vs. Man City live stream, TV channel, start time, lineups for Community Shield match](https://www.sportingnews.com/us/soccer/news/watch-arsenal-man-city-live-stream-tv-channel-time-community-shield/1c5d6fb84ed11149ef976fb1) - **Sporting News**
+10. [Where to watch Liverpool vs. Como live stream, TV channel, start time for preseason friendly](https://www.sportingnews.com/us/soccer/news/watch-liverpool-vs-como-live-stream-tv-channel-start-time-preseason/c5f1d172102831719cc1d4ef) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-08-17 17:22:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-17 18:21:52 (KST) / (하루 100회 제한 준수 중)*
