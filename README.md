@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal scores in first minute against Man City in FA Community Shield](https://cryptobriefing.com/arsenal-scores-in-first-minute-against-man-city-in-fa-community-shield/) - **Crypto Briefing**
-2. [⏰ Community Shield goalscoring record shattered in opening seconds](https://onefootball.com/en/news/community-shield-goalscoring-record-shattered-in-opening-seconds-43286424) - **Onefootball.com**
-3. [ Goal after 23 seconds! Arsenal star breaks record v Man City](https://sports.yahoo.com/articles/goal-after-23-seconds-arsenal-star-breaks-record-v-man-city-141800717.html) - **Yahoo Entertainment**
-4. [Watch: Calafiori gives Arsenal early lead against Maresca and Donnarumma’s Man City](https://football-italia.net/watch-calafiori-gives-arsenal-lead-man-city/) - **Football Italia**
-5. [Arsenal’s Calafiori stuns Manchester City with goal after 25 seconds in Community Shield](https://cryptobriefing.com/arsenal-calafiori-goal-community-shield-city/) - **Crypto Briefing**
-6. [Ruben Amorim Faces Manchester United for the First Time After His Sacking](https://futbolchronicle.com/ruben-amorim-faces-manchester-united-for-the-first-time-after-his-sacking/) - **Futbolchronicle.com**
-7. [Reports: Elvedi set to leave Gladbach for Leeds](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260816-99-356502/) - **Dpa-international.com**
-8. [FA Community Shield winners list; Which team has the most titles?](https://www.business-standard.com/sports/football-news/fa-community-shield-winners-list-which-team-has-the-most-titles-126081600523_1.html) - **Business Standard**
-9. [Niclas Füllkrug return to Werder Bremen gains momentum as West Ham soften stance](https://www.getfootballnewsgermany.com/2026/niclas-fullkrug-bremen-return/) - **Getfootballnewsgermany.com**
-10. [Villa close in on Suzuki with Martinez future in doubt](https://www.bbc.com/sport/football/articles/ckg44n858qvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Arsenal leads Man City 2-0 at halftime in 2026 FA Community Shield](https://cryptobriefing.com/arsenal-leads-man-city-2-0-at-halftime-in-2026-fa-community-shield/) - **Crypto Briefing**
+2. [Celtic are smiles better with the likes of Colombian livewire Camilo Duran in their ranks](https://www.dailymail.com/sport/football/article-16056463/Celtic-smiles-better-likes-Colombian-livewire-Camilo-Duran-ranks.html) - **Dailymail.com**
+3. [Arsenal new boy makes big first impression in Community Shield ](https://onefootball.com/en/news/arsenal-new-boy-makes-big-first-impression-in-community-shield-43286579) - **Onefootball.com**
+4. [Report: Newcastle United pushing to beat Aston Villa to Bundesliga star](https://eplindex.com/149459/newcastle-hope-to-beat-villa-to-bundesliga-star.html) - **English Premier League Index - Opta Stats**
+5. [Preseason: Newcastle vs. Strasbourgh — Match Thread](https://cominghomenewcastle.sbnation.com/newcastle-united-match-threads/24421/preseason-newcastle-vs-strasbourgh-match-thread) - **SB Nation**
+6. [Manchester City and Arsenal have confirmed their starting lineups ahead of today’s match](https://esteemedkompany.com/2026/08/16/manchester-city-and-arsenal-have-confirmed-their-starting-lineups-ahead-of-todays-match/) - **Esteemedkompany.com**
+7. [Luca Netz scores twice for Nottingham Forest before halftime](https://cryptobriefing.com/netz-scores-twice-nottingham-forest/) - **Crypto Briefing**
+8. [Arsenal scores in first minute against Man City in FA Community Shield](https://cryptobriefing.com/arsenal-scores-in-first-minute-against-man-city-in-fa-community-shield/) - **Crypto Briefing**
+9. [⏰ Community Shield goalscoring record shattered in opening seconds](https://onefootball.com/en/news/community-shield-goalscoring-record-shattered-in-opening-seconds-43286424) - **Onefootball.com**
+10. [ Goal after 23 seconds! Arsenal star breaks record v Man City](https://sports.yahoo.com/articles/goal-after-23-seconds-arsenal-star-breaks-record-v-man-city-141800717.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-08-17 23:30:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-17 23:57:53 (KST) / (하루 100회 제한 준수 중)*
