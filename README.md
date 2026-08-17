@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [When will Cristiano Ronaldo retire? Al Nassr, Portugal star says this season 'probably my last year'](https://www.sportingnews.com/us/soccer/news/when-cristiano-ronaldo-retire-al-nassr-portugal-last-year/1d0ca397b584ae238781f2db) - **Sporting News**
-2. [Oliver Glasner makes stance clear on Morgan Gibbs-White's future, the wing-backs set to thrive in boss' new system... and there's still no shirt sponsor: Nottingham Forest 2-0 Brest](https://www.dailymail.com/sport/football/article-16056439/Oliver-Glasner-Morgan-Gibbs-White-future-Nottingham-Forest-Brest.html) - **Dailymail.com**
-3. [Injured Givairo Read speaks on Feyenoord future after Premier League and Serie A interest](https://getfootballnewsbene.com/injured-givairo-read-speaks-on-feyenoord-future-after-premier-league-and-serie-a-interest/) - **Getfootballnewsbene.com**
-4. [Liverpool takes lead against Como as Gakpo scores in pre-season friendly](https://cryptobriefing.com/liverpool-gakpo-scores-como-friendly/) - **Crypto Briefing**
-5. [Scotland appoint Pocognoli as head coach](https://www.skysports.com/football/news/11095/13573798/sebastien-pocognoli-scotland-appoint-former-monaco-head-coach-to-replace-steve-clarke-on-two-year-contract) - **Sky Sports**
-6. [West Ham blow two-goal lead at Burnley to draw on Championship return](https://www.skysports.com/football/news/11685/13572894/burnley-2-2-west-ham-hammers-throw-away-two-goal-lead-on-championship-return-as-zian-flemming-hits-late-double) - **Sky Sports**
-7. [Rangers host Celtic in League Cup quarter-finals](https://www.bbc.com/sport/football/articles/clyjjp0k5rdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [New signings impress as Arsenal too good for Maresca's Man City](https://www.the42.ie/arsenal-man-city-community-shield-3-7132744-Aug2026/) - **The42**
-9. [Two St James’ Park defeats in two days for Matthias Jaouen as Strasbourg victorious on penalties](https://www.themag.co.uk/2026/08/two-st-james-park-defeats-in-two-days-for-matthias-jaouen-as-strasbourg-victorious-on-penalties-newcastle-united/) - **The Mag**
+1. [Shop window or new chance - what next for Grealish?](https://www.bbc.com/sport/football/articles/c07rr20g732o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [TN shows promise in collateral-free MSME credit](https://timesofindia.indiatimes.com/city/chennai/tn-shows-promise-in-collateral-free-msme-credit/articleshow/133281185.cms) - **The Times of India**
+3. [Chelsea’s Liam Delap Makes Transfer Call Amid Possible Newcastle Deal](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/24492/chelseas-liam-delap-makes-transfer-call-amid-possible-newcastle-deal) - **SB Nation**
+4. [Rangers’ £3m Signing Sparks Club Brugge Interest: Sell Or Keep?](https://the4thofficial.net/2026/08/rangers-3m-signing-sparks-club-brugge-interest-sell-or-keep/) - **The4thofficial.net**
+5. [Bradley Barcola and Ibrahim Mbaye absent from PSG squad to face Lens amidst Liverpool interest](https://www.getfootballnewsfrance.com/2026/bradley-barcola-and-ibrahim-mbaye-absent-from-psg-squad-to-face-lens-amidst-liverpool-interest/) - **Get French Football News**
+6. [Lens vs PSG: Trophee des Champions 2026 teams and lineups](https://www.101greatgoals.com/football/lens-vs-psg-live-teams-line-ups-where-to-watch-tv-channel-online-stream-trophee-des-champions/) - **101 Great Goals**
+7. [Football Daily](https://www.bbc.co.uk/sounds/play/p0p4vxzr?at_campaign=rss) - **BBC News**
+8. [Sunrise at twilight](https://timesofindia.indiatimes.com/city/chennai/sunrise-at-twilight/articleshow/133280703.cms) - **The Times of India**
+9. [Emiliano Martinez could leave Aston Villa for Juventus, reportedly opening door for Zion Suzuki after failed PSG move](https://worldsoccertalk.com/news/emiliano-martinez-could-leave-aston-villa-for-juventus-reportedly-opening-door-for-zion-suzuki-after-failed-psg-move/) - **Worldsoccertalk.com**
+10. [Liverpool vs Como live: Gakpo, Jacquet score in friendly](https://www.101greatgoals.com/football/premier-league/liverpool-vs-como-live-cody-gakpo-jeremy-jacquet-friendly-goal/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-08-18 02:48:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-18 03:42:01 (KST) / (하루 100회 제한 준수 중)*
