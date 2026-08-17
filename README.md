@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Barcelona reach agreement with Man City to sign Rodri](https://footballtoday.com/2026/08/16/barcelona-reach-agreement-with-man-city-to-sign-rodri/) - **Footballtoday.com**
-2. [Tottenham Hotspur Have Set Their Sights On This Chelsea Defender: Good Choice For De Zerbi?](https://the4thofficial.net/2026/08/tottenham-hotspur-have-set-their-sights-on-this-chelsea-defender/) - **The4thofficial.net**
-3. [Nightmare Man City start for Maresca - are Arsenal really so far ahead?](https://www.bbc.com/sport/football/articles/c5y449kwq14o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Barcelona agree £65m deal to sign Rodri from Man City](https://www.bbc.com/sport/football/articles/cy0jj65r18yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Rangers 5-1 St Mirren: Comprehensive cup triumph for Ibrox club eases pressure on Derek McInnes](https://www.dailymail.com/sport/football/article-16056735/Rangers-5-1-St-Mirren-Comprehensive-cup-triumph-Ibrox-club-eases-pressure-Derek-McInnes.html) - **Dailymail.com**
-6. [West Ham 2-2 Burnley: Nuno Espirito Santo's pre-match warning proves prophetic as Hammers capitulate on Championship return - and boss pleads for attacking reinforcements](https://www.dailymail.com/sport/football/article-16056575/west-ham-championship-return-burnley-flemming-brace.html) - **Dailymail.com**
-7. [Jack Grealish is still adored by Man City fans and staff but Community Shield cameo felt like a forlorn farewell, writes JACK GAUGHAN - and Enzo Maresca already has his wildcard option on their books](https://www.dailymail.com/sport/football/article-16050703/Jack-Grealish-adored-Man-City-fans-Community-Shield-cameo-forlorn-farewell-JACK-GAUGHAN-Enzo-Maresca-wildcard-replacement.html) - **Dailymail.com**
-8. [West Ham 2-2 Burnley: Nuno Espirito Santo's pre-match warning proves prophetic as Hammers capitulate on Championship return - and boss pleads for attacking reinforcements](https://www.dailymail.com/sport/football/article-16056575/west-ham-championship-return-burnley-flemming-brace.html) - **Dailymail.com**
-9. [Jacquet scores on debut as Liverpool beat Como in final friendly](https://www.bbc.com/sport/football/live/cx1l19l3rgq4t?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Misery for Maresca as Man City make dismal start to life after Guardiola](https://www.vanguardngr.com/2026/08/misery-for-maresca-as-man-city-make-dismal-start-to-life-after-guardiola/) - **Vanguard**
+1. [Update On Sunderland And Their Pursuit Of This Ligue 1 Full-Back: Should Le Bris Snap Him Up?](https://the4thofficial.net/2026/08/update-on-sunderland-and-their-pursuit-of-this-ligue-1-full-back-should-le-bris-snap-him-up/) - **The4thofficial.net**
+2. [Manchester United Could Move In For This Talented Full-Back: What Will He Add To Carrick’s Side?](https://the4thofficial.net/2026/08/manchester-united-could-move-in-for-this-talented-full-back-what-will-he-add-to-carricks-side/) - **The4thofficial.net**
+3. [Jeff Bezos just made his boldest move yet, into soccer](https://biztoc.com/x/48d2afcb6829f75a) - **Biztoc.com**
+4. [Man City accept Barcelona bid for Spain midfielder Rodri, say reports](https://www.channelnewsasia.com/sport/man-city-accept-barcelona-bid-spain-midfielder-rodri-say-reports-6322656) - **CNA**
+5. [Barcelona agree $87m deal to sign Rodri from Manchester City](https://punchng.com/barcelona-agree-e76-5m-deal-to-sign-rodri-from-manchester-city/) - **The Punch**
+6. [Newcastle at best when 'us against world' - Burn](https://www.bbc.com/sport/football/articles/cx27798g37ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Newcastle at best when 'us against world' - Burn](https://www.bbc.co.uk/sport/football/articles/cx27798g37ko) - **BBC News**
+8. [Barcelona reach deal with Man City to sign Rodri](https://sports.yahoo.com/articles/barcelona-reach-deal-man-city-200154578.html) - **Yahoo Entertainment**
+9. [Liverpool Starting XI vs Como: Confirmed Team News and Predicted Lineup](https://anfieldindex.com/98067/liverpool-starting-xi-vs-como-confirmed-team-news-and-predicted-lineup.html) - **Anfieldindex.com**
+10. [Andoni Iraola set to make statement over Liverpool youngster’s future in Como friendly](https://anfieldindex.com/98099/andoni-iraola-set-to-make-statement-over-liverpool-youngsters-future-in-como-friendly.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-08-18 04:56:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-18 05:33:09 (KST) / (하루 100회 제한 준수 중)*
