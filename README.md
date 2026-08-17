@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arteta y Maresca abren una nueva era en Inglaterra](https://www.marca.com/futbol/premier-league/2026/08/16/arteta-maresca-abren-nueva-inglaterra.html) - **Marca**
-2. [Who am I? Guess Premier League star No 27](https://www.bbc.co.uk/sport/football/articles/cvg93n35ypxo) - **BBC News**
-3. [Everything’s the Best: Looking In Couch Cushions for Clean Money](https://liverpooloffside.sbnation.com/liverpool-fc-news-coverage/82709/liverpool-fc-bezos-fsg-sale-everythings-the-best-looking-in-couch-cushions-for-clean-money) - **SB Nation**
-4. [How important is Community Shield to a team's season?](https://www.bbc.com/sport/football/articles/c1e1v64q256o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [How important is Community Shield to a team's season?](https://www.bbc.co.uk/sport/football/articles/c1e1v64q256o) - **BBC News**
-6. [Strong favourites or tougher task - will Arsenal defend their title?](https://www.bbc.com/sport/football/articles/c0l5927xr89o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Barcelona submit third bid to sign Rodri from Manchester City](https://footballtoday.com/2026/08/16/barcelona-submit-third-bid-to-sign-rodri-from-manchester-city/) - **Footballtoday.com**
-8. [Strong favourites or tougher task - will Arsenal defend their title?](https://www.bbc.co.uk/sport/football/articles/c0l5927xr89o) - **BBC News**
-9. [Former Los Angeles Lakers Star Nears Stunning Record After Latest Trade](https://heavy.com/sports/nba/los-angeles-lakers/los-angeles-lakers-dennis-schroder/) - **Heavy.com**
-10. [Three sporting events to watch this week: Your handy guide to sport on television](https://www.irishtimes.com/sport/2026/08/16/three-sporting-events-to-watch-this-week-your-handy-guide-to-sport-on-television/) - **The Irish Times**
+1. [Martin O’Neill on new additions ahead of Champions League playoff](https://celticshorts.com/2026/08/martin-oneill-on-new-additions-ahead-of-champions-league-playoff/) - **Celticshorts.com**
+2. [Man United position revealed regarding Arsenal raid after long-standing interest](https://utdreport.co.uk/2026/08/16/man-united-position-revealed-regarding-arsenal-raid-after-long-standing-interest/) - **Utdreport.co.uk**
+3. [Premier League side slap €90m-plus price tag on Real Madrid midfield target – report](https://madriduniversal.com/premier-league-side-slap-e90m-plus-price-tag-on-real-madrid-midfield-target-report/) - **Madriduniversal.com**
+4. [Talks open for Liverpool to secure mammoth forward contract deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-rio-ngumoha-talks-open-for-secure-mammoth-forward-contract-deal/) - **Anfieldwatch.co.uk**
+5. [Arsenal and ManC prepare for the opener, and who has been signing whom](https://untold-arsenal.com/archives/122393) - **Untold-arsenal.com**
+6. [Manchester City look to be trickling towards another midfield signing](https://esteemedkompany.com/2026/08/16/manchester-city-look-to-be-trickling-towards-another-midfield-signing/) - **Esteemedkompany.com**
+7. [Liverpool's Premier League rivals ready to meet valuation for 50-goal star, terms have been agreed](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpools-premier-league-rivals-ready-to-meet-valuation-for-50-goal-star-terms-have-been-agreed/) - **Anfieldwatch.co.uk**
+8. [Haway The Podcast | Opening Day Sunderland Memories!](https://rokerreport.sbnation.com/haway-the-podcast/148486/haway-the-podcast-opening-day-sunderland-memories) - **SB Nation**
+9. [Footballer bounces back from cancer to co-found club](https://www.bbc.com/news/articles/ce34wnvql9vo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-17 15:03:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-17 16:26:19 (KST) / (하루 100회 제한 준수 중)*
