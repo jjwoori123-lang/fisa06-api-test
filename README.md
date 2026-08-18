@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Full list of TV Premier League fixtures in October and early November](https://www.101greatgoals.com/football/premier-league/premier-league-matches-on-tv-october-november-channels-live-online-streams-kick-off-times-schedule/) - **101 Great Goals**
-2. [Arsenal braced for Premier League offers for 19yo](https://dailycannon.com/2026/08/arsenal-nwaneri-premier-league-offers/) - **Dailycannon.com**
-3. [Suzuki 'looks very exciting'](https://www.bbc.com/sport/football/articles/c235xn7expvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Martinez in limbo, with Villa future uncertain](https://www.bbc.com/sport/football/articles/c5yvdwkr710o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Martinez in limbo, with Villa future uncertain](https://www.bbc.co.uk/sport/football/articles/c5yvdwkr710o) - **BBC News**
-6. [PREMIER LEAGUE PREVIEW: PART ONE](https://shows.acast.com/timesthegame/episodes/premier-league-preview-part-one) - **Acast.com**
-7. [Arsenal's trip to Liverpool and Leeds vs Man Utd live on Sky Sports](https://www.skysports.com/football/news/11661/13574076/premier-league-fixtures-on-sky-sports-liverpool-vs-man-city-and-arsenal-plus-leeds-vs-man-utd-live-in-october-and-november) - **Sky Sports**
-8. [Chelsea 2026/27 Premier League preview: Top-four finish the minimum target](https://footballtoday.com/2026/08/17/chelsea-2026-27-premier-league-preview-top-four-finish-the-minimum-target/) - **Footballtoday.com**
-9. [Arsenal's trip to Liverpool and Leeds vs Man Utd live on Sky Sports](https://www.skysports.com/football/news/11661/13574076/premier-league-fixtures-on-sky-sports-liverpool-vs-man-city-and-arsenal-plus-leeds-vs-man-utd-live-in-october-and-november) - **Sky Sports**
+1. [How to watch CBS Sports Golazo Network: Everything to know about one-stop shop for all things soccer](https://www.cbssports.com/soccer/news/how-to-watch-cbs-sports-golazo-network-everything-to-know/) - **CBS Sports**
+2. [Iredale praises Hibs' character in Thistle victory](https://www.bbc.com/sport/articles/c171j50788ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Ipswich Town sign Abdoul Ouattara from Strasbourg](https://www.playmakerstats.com/news/ipswich-town-sign-abdoul-ouattara-from-strasbourg/1177287) - **Playmakerstats.com**
+4. [Every Match, Any Connection: Inside Opera Mini’s Football Hub](https://blogs.opera.com/mobile/2026/08/every-match-any-connection-inside-opera-minis-football-hub/) - **Opera.com**
+5. [Liverpool 2026/27 Premier League preview: Iraola faces a tough task with the Reds](https://footballtoday.com/2026/08/17/liverpool-2026-27-premier-league-preview-iraola-faces-a-tough-task-with-the-reds/) - **Footballtoday.com**
+6. [Real Madrid reunites Bernardo Silva and Kylian Mbappé after 10 years](https://cryptobriefing.com/real-madrid-bernardo-silva-mbappe-reunion/) - **Crypto Briefing**
+7. [Ouattara and Enciso 'excited' to reunite with O'Neil](https://www.bbc.com/sport/football/articles/cy5dzndv0d3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Man City's Community Shield defeat to Arsenal revealed the scale of the job facing Enzo Maresca on eve of new Premier League season - Sky Sports](https://slashdot.org/firehose.pl?op=view&amp;id=185020470) - **Slashdot.org**
+9. [‘This one is personal’: RBC becomes sponsor of Ryan Reynolds’ Wrexham AFC soccer team](https://financialpost.com/fp-finance/banking/rbc-sponsor-ryan-reynolds-wrexham-afc-soccer) - **Financial Post**
 
 
 ---
-*최근 업데이트: 2026-08-18 23:43:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-19 00:33:33 (KST) / (하루 100회 제한 준수 중)*
