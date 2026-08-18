@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Tottenham Hotspur star set to join Serie A giants](https://eplindex.com/149491/report-tottenham-hotspur-star-set-to-join-serie-a-giants.html) - **English Premier League Index - Opta Stats**
-2. [Taiwo Awoniyi joins Coventry ahead of Premier League return](https://www.playmakerstats.com/news/taiwo-awoniyi-joins-coventry-ahead-of-premier-league-return/1177346) - **Playmakerstats.com**
-3. [Liverpool chances of signing much-needed star revealed](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-chances-of-signing-much-needed-star-revealed/) - **Anfieldwatch.co.uk**
-4. [Premier League to adopt major rules seen at 2026 FIFA World Cup: 5-sec countdown, 1-min injury ban and more](https://timesofindia.indiatimes.com/sports/football/premier-league-to-adopt-major-rules-seen-at-2026-fifa-world-cup-5-sec-countdown-1-min-injury-ban-and-more/articleshow/133300335.cms) - **The Times of India**
-5. [Ranking of the best players in world football revealed in EA SPORTS FC27's new ratings - with just ONE Premier League player set to star in the top 10](https://www.dailymail.com/sport/football/article-16058771/players-world-football-EA-SPORTS-FC27.html) - **Dailymail.com**
-6. [Ex-Manchester United boss Ruben Amorim shows no emotion after AC Milan's preseason win](https://www.alloutsoccer.com/news/manchester-united-ac-milan-amorim-1986017) - **Alloutsoccer.com**
-7. [Coventry sign Nigeria striker Awoniyi from Forest](https://sports.yahoo.com/articles/coventry-sign-nigeria-striker-awoniyi-162225028.html) - **Yahoo Entertainment**
-8. [Surrey sign Luus for Women's One-Day Cup](https://www.bbc.co.uk/sport/cricket/articles/cgew4n1l008o) - **BBC News**
-9. [Arsenal: where’s the strategy? Is there a strategy? Does Arteta know what he’s doing?](https://untold-arsenal.com/archives/122421) - **Untold-arsenal.com**
+1. [Do Arsenal have the mentality to retain Premier League title?](https://www.bbc.com/sport/football/articles/cx2ddryqg08o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Coventry sign striker Awoniyi from Forest](https://www.channelnewsasia.com/sport/coventry-sign-striker-awoniyi-forest-6324401) - **CNA**
+3. [Manchester City faces 115 charges as new Premier League season nears](https://cryptobriefing.com/manchester-city-115-charges-premier-league/) - **Crypto Briefing**
+4. [Premier League to allow audio of conversations between players and referees](https://www.irishtimes.com/sport/soccer/2026/08/17/premier-league-to-allow-audio-of-conversations-between-players-and-referees/) - **The Irish Times**
+5. [Las Vegas Raiders training camp stars Hezekiah Masses, Malik Benson face significant tests in Houston Texans joint practices](https://www.silverandblackpride.com/las-vegas-raiders-preseason/136766/las-vegas-raiders-training-camp-texans-joint-practices-hezekiah-masses-malik-benson) - **Silver And Black Pride**
+6. [‘No top team plays football like that’ – Liverpool legend aims scathing criticism at Reds ahead of Iraola bow](https://www.101greatgoals.com/football/premier-league/liverpool-scathing-criticism-iraola-bow/) - **101 Great Goals**
+7. [Arsenal make statement as Odegaard dazzles in Cardiff](https://dailycannon.com/2026/08/arsenal-odegaard-cardiff/) - **Dailycannon.com**
+8. [Taiwo Awoniyi joins Lampard’s Coventry for £9m](https://www.vanguardngr.com/2026/08/taiwo-awoniyi-joins-lampards-coventry-for-9m/) - **Vanguard**
+9. [Revealed: The mistakes Real Madrid made to cause Rodri to snub his 'dream' move to their 'ticking time bomb' and join Barcelona for £64.5m instead](https://www.dailymail.com/sport/football/article-16058791/mistakes-Real-Madrid-Rodri-snub-dream-Barcelona.html) - **Dailymail.com**
+10. [Newcastle Working on Multiple Deals as Rebuild Enters Crucial Stage: Report](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/24407/newcastle-working-on-multiple-deals-as-rebuild-enters-crucial-stage-report) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-08-19 01:52:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-19 02:28:39 (KST) / (하루 100회 제한 준수 중)*
