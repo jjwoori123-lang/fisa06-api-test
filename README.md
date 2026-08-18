@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Maresca's Man City problems are more than a missing midfield](https://www.skysports.com/football/news/11679/13573985/man-citys-community-shield-defeat-to-arsenal-revealed-the-scale-of-the-job-facing-enzo-maresca-on-eve-of-new-premier-league-season) - **Sky Sports**
-2. [Tottenham Hotspur still pushing to sign Premier League forward](https://eplindex.com/149481/tottenham-hotspur-still-pushing-to-sign-premier-league-forward.html) - **English Premier League Index - Opta Stats**
-3. [Arsenal preview: Key questions heading into 2026-27 Premier League season](https://www.aljazeera.com/sports/2026/8/17/arsenal-preview-key-questions-heading-into-2026-27-premier-league-season) - **Al Jazeera English**
-4. [Martin O’Neill explains Yang and Ralston Celtic absences ahead of LASK](https://celticshorts.com/2026/08/martin-oneill-explains-yang-and-ralston-celtic-absences-ahead-of-lask/) - **Celticshorts.com**
-5. [Islanders Goaltender Ilya Sorokin Ranked Fourth Best Goaltender Entering 2026-27 NHL Season](https://thehockeynews.com/nhl/new-york-islanders/latest-news/islanders-goaltender-ilya-sorokin-ranked-fourth-best-goaltender-entering-2026-27-nhl-season) - **The Hockey News**
-6. [Football Shirts Might Have Lost Betting Logos But The Money Is Still Circulating](https://footballtoday.com/2026/08/17/football-shirts-might-have-lost-betting-logos-but-the-money-is-still-circulating/) - **Footballtoday.com**
-7. [Chelsea change stance on Fernandez as Man City weigh bid](https://thefootballfaithful.com/chelsea-change-stance-on-fernandez-as-man-city-weigh-bid/) - **The Football Faithful**
-8. [Marseille enter race to sign Chelsea centre-back Tosin](https://thefootballfaithful.com/marseille-enter-race-to-sign-chelsea-centre-back-tosin/) - **The Football Faithful**
-9. [Martin Ødegaard praises new signings Guimarães and Tzolis at Arsenal](https://cryptobriefing.com/odegaard-praises-arsenal-new-signings/) - **Crypto Briefing**
+1. [bet365 bonus code: Bet $10, get $150 in bonus bets for the Premier League](https://nypost.com/2026/08/17/betting/bet365-bonus-code-bet-10-get-150-in-bonus-bets-for-the-premier-league/) - **New York Post**
+2. [Locatelli: ‘I drove agents crazy turning down Arsenal, only wanted Juventus’](https://football-italia.net/locatelli-agents-crazy-arsenal-only-juventus/) - **Football Italia**
+3. [Dallas Ousts LA Mad Drops In The Major League Pickleball 2026 Quarter Finals From Newport Beach](https://www.forbes.com/sites/toddboss/2026/08/17/dallas-ousts-la-mad-drops-in-the-major-league-pickleball-2026-quarter-finals-from-newport-beach/) - **Forbes**
+4. [Nottingham Forest in the race for Premier League attacker](https://eplindex.com/149484/nottingham-forest-in-the-race-for-premier-league-attacker.html) - **English Premier League Index - Opta Stats**
+5. [Whitwell: Carrick makes early selection decision vs Hull with youngster to be given chance to impress early doors](https://utdreport.co.uk/2026/08/17/ayden-heaven-to-start-lisandro-martinez-manchester-united-hull-city/) - **Utdreport.co.uk**
+6. [Liverpool legend backs forward to silence critics](https://anfieldindex.com/98135/liverpool-legend-backs-forward-to-silence-critics.html) - **Anfieldindex.com**
+7. [£52m+ deal seals Liverpool's worst transfer business of all time](https://www.anfieldwatch.co.uk/liverpool-fc/news/ps52m-deal-seals-liverpools-worst-transfer-business-of-all-time/) - **Anfieldwatch.co.uk**
+8. [Carrick can stabilise Man United but won’t win EPL — Carragher](https://punchng.com/carrick-can-stabilise-man-united-but-wont-win-epl-carragher/) - **The Punch**
+9. [Cameras catch Gabriel joking with Bruno after Community Shield win](https://dailycannon.com/2026/08/gabriel-bruno-jokes-community-shield/) - **Dailycannon.com**
+10. [Crystal Palace signs Anan Khalaili for record £21M transfer](https://cryptobriefing.com/crystal-palace-khalaili-record-transfer/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-08-18 20:58:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-18 22:00:23 (KST) / (하루 100회 제한 준수 중)*
