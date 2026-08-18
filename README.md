@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mark Walter’s Chelsea sale raises more Dodgers sale red flags](https://nypost.com/2026/08/17/sports/mark-walters-dodgers-status-remains-unchanged-despite-chelsea-fc-sale/) - **New York Post**
-2. [Premier League to broadcast on-field referee-player audio live](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260817-930-544372/) - **Dpa-international.com**
-3. [Premier League to broadcast on-field referee-player audio live](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260817-930-544373/) - **Dpa-international.com**
-4. [West Ham United Close In On £15m Deal For 27-Year-Old Striker: Right Choice?](https://the4thofficial.net/2026/08/west-ham-united-close-in-on-15m-deal-for-27-year-old-striker-right-choice/) - **The4thofficial.net**
-5. [Sunderland Are Set To Complete This Capture Of This Ligue 1 Left-Back: Good Signing For Le Bris?](https://the4thofficial.net/2026/08/sunderland-are-set-to-complete-this-capture-of-this-ligue-1-left-back-good-signing-for-le-bris/) - **The4thofficial.net**
-6. [Football Daily](https://www.bbc.co.uk/sounds/play/p0p51f17?at_campaign=rss) - **BBC News**
-7. [Manchester City blew off the cobwebs against Arsenal which needed to occur](https://esteemedkompany.com/2026/08/17/manchester-city-blew-off-the-cobwebs-against-arsenal-which-needed-to-occur/) - **Esteemedkompany.com**
-8. [Chelsea valued at £5B amid ownership power struggle between Boehly and Clearlake](https://cryptobriefing.com/chelsea-5-billion-valuation-boehly-clearlake-stake-sale/) - **Crypto Briefing**
-9. [Premier League Predictions: Arsenal to Retain Their Crown – But Who Goes Down?](https://www.justarsenal.com/premier-league-predictions-arsenal-to-retain-their-crown-but-who-goes-down/420483) - **Just Arsenal News**
-10. [NEC Nijmegen vs Bodø / Glimt Prediction & Betting Tips – 19/08/2026](https://thefootballfaithful.com/nec-nijmegen-vs-bodo-glimt-prediction-betting-tips-19-08-2026/) - **The Football Faithful**
+1. [Cristiano Ronaldo among four Al Nassr players reportedly set to miss King’s Cup debut](https://worldsoccertalk.com/news/cristiano-ronaldo-among-four-al-nassr-players-reportedly-set-to-miss-kings-cup-debut/) - **Worldsoccertalk.com**
+2. [New technology? Premier League takes a closer look at La Liga’s bold experiment](https://www.hitc.com/new-technology-premier-league-takes-a-closer-look-at-la-ligas-bold-experiment/) - **HITC - Football, Gaming, Movies, TV, Music**
+3. [Kevin Macdonald On Capturing Pep Guardiola For Prime Video’s ‘A Beautiful Obsession’: “Like Having Robert De Niro Play A Football Coach”](http://deadline.com/2026/08/kevin-macdonald-pep-guardiola-man-city-beautiful-obsession-1237014372/) - **Deadline**
+4. [Guardiola-Walker fallout revealed in new documentary](https://www.bbc.com/sport/football/articles/c62xj5evpjpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Guardiola-Walker fallout revealed in new documentary](https://www.bbc.co.uk/sport/football/articles/c62xj5evpjpo) - **BBC News**
+6. [Mark Walter in Talks to Sell Chelsea Stake Amid Federal Probe](https://biztoc.com/x/f1b16ac7ba66f12d) - **Biztoc.com**
+7. [Mark Walter’s Chelsea sale raises more Dodgers sale red flags](https://nypost.com/2026/08/17/sports/mark-walters-dodgers-status-remains-unchanged-despite-chelsea-fc-sale/) - **New York Post**
+8. [Premier League to broadcast on-field referee-player audio live](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260817-930-544372/) - **Dpa-international.com**
+9. [Premier League to broadcast on-field referee-player audio live](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260817-930-544373/) - **Dpa-international.com**
 
 
 ---
-*최근 업데이트: 2026-08-19 07:57:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-19 08:28:52 (KST) / (하루 100회 제한 준수 중)*
