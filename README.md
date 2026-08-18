@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [YOUR ULTIMATE GUIDE TO FPL: Expert reveals the best defenders and attackers YOU should target, who tops the fixture ticker, why an early Bench Boost is worth considering - and the three Arsenal stars in AI's best XI](https://www.dailymail.com/sport/football/article-16053261/ULTIMATE-FPL-GUIDE-Best-picks-YOU-target-tops-fixture-ticker-AIs-best-XI.html) - **Dailymail.com**
-2. [Inside story of Nottingham Forest's summer: How Oliver Glasner won over Morgan Gibbs-White, new bonds formed in Portugal, a training ground facelift, meditation guru and the transfers they still expect to complete](https://www.dailymail.com/sport/football/article-16057857/nottingham-forest-oliver-glasner-morgan-gibbs-white.html) - **Dailymail.com**
-3. [Aston Villa preview: Can Unai Emery's side weather a return to Champions League after selling Morgan Rogers?](https://www.cbssports.com/soccer/news/aston-villa-preview-premier-league-unai-emerys-champions-league-morgan-rogers/) - **CBS Sports**
-4. [Premier League allows live audio of player-referee conversations during broadcasts](https://cryptobriefing.com/premier-league-live-referee-audio-broadcasts/) - **Crypto Briefing**
-5. [Manchester United could be set for £7m exit](https://eplindex.com/149487/manchester-united-could-be-set-for-7m-exit.html) - **English Premier League Index - Opta Stats**
-6. [Ex-Liverpool player shares why Manchester United will not win the Premier League title under Carrick](https://footballtoday.com/2026/08/17/ex-liverpool-player-shares-why-manchester-united-will-not-win-the-premier-league-title-under-carrick/) - **Footballtoday.com**
-7. [Chalobah: ‘Demanding’ Fabregas convinced me to join Como instead of Inter](https://football-italia.net/chalobah-fabregas-convinced-me-to-join-como/) - **Football Italia**
-8. [Man United stand firm on captain Bruno Fernandes' transfer stance as Galatasaray 'prepare stunning DOUBLE-your-money salary offer' and £43m bid for Portugal international](https://www.dailymail.com/sport/football/article-16058727/Man-United-Bruno-Fernandes-transfer.html) - **Dailymail.com**
-9. [Video: Vicario arrives to start Juventus medical, loan from Tottenham](https://football-italia.net/vicario-juventus-medical-loan-from-tottenham/) - **Football Italia**
+1. [Report: Tottenham Hotspur star set to join Serie A giants](https://eplindex.com/149491/report-tottenham-hotspur-star-set-to-join-serie-a-giants.html) - **English Premier League Index - Opta Stats**
+2. [Taiwo Awoniyi joins Coventry ahead of Premier League return](https://www.playmakerstats.com/news/taiwo-awoniyi-joins-coventry-ahead-of-premier-league-return/1177346) - **Playmakerstats.com**
+3. [Liverpool chances of signing much-needed star revealed](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-chances-of-signing-much-needed-star-revealed/) - **Anfieldwatch.co.uk**
+4. [Premier League to adopt major rules seen at 2026 FIFA World Cup: 5-sec countdown, 1-min injury ban and more](https://timesofindia.indiatimes.com/sports/football/premier-league-to-adopt-major-rules-seen-at-2026-fifa-world-cup-5-sec-countdown-1-min-injury-ban-and-more/articleshow/133300335.cms) - **The Times of India**
+5. [Ranking of the best players in world football revealed in EA SPORTS FC27's new ratings - with just ONE Premier League player set to star in the top 10](https://www.dailymail.com/sport/football/article-16058771/players-world-football-EA-SPORTS-FC27.html) - **Dailymail.com**
+6. [Ex-Manchester United boss Ruben Amorim shows no emotion after AC Milan's preseason win](https://www.alloutsoccer.com/news/manchester-united-ac-milan-amorim-1986017) - **Alloutsoccer.com**
+7. [Coventry sign Nigeria striker Awoniyi from Forest](https://sports.yahoo.com/articles/coventry-sign-nigeria-striker-awoniyi-162225028.html) - **Yahoo Entertainment**
+8. [Surrey sign Luus for Women's One-Day Cup](https://www.bbc.co.uk/sport/cricket/articles/cgew4n1l008o) - **BBC News**
+9. [Arsenal: where’s the strategy? Is there a strategy? Does Arteta know what he’s doing?](https://untold-arsenal.com/archives/122421) - **Untold-arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-08-19 01:00:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-19 01:52:24 (KST) / (하루 100회 제한 준수 중)*
