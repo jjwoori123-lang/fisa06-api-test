@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [bet365 bonus code: Bet $10, get $150 in bonus bets for the Premier League](https://nypost.com/2026/08/17/betting/bet365-bonus-code-bet-10-get-150-in-bonus-bets-for-the-premier-league/) - **New York Post**
-2. [Locatelli: ‘I drove agents crazy turning down Arsenal, only wanted Juventus’](https://football-italia.net/locatelli-agents-crazy-arsenal-only-juventus/) - **Football Italia**
-3. [Dallas Ousts LA Mad Drops In The Major League Pickleball 2026 Quarter Finals From Newport Beach](https://www.forbes.com/sites/toddboss/2026/08/17/dallas-ousts-la-mad-drops-in-the-major-league-pickleball-2026-quarter-finals-from-newport-beach/) - **Forbes**
-4. [Nottingham Forest in the race for Premier League attacker](https://eplindex.com/149484/nottingham-forest-in-the-race-for-premier-league-attacker.html) - **English Premier League Index - Opta Stats**
-5. [Whitwell: Carrick makes early selection decision vs Hull with youngster to be given chance to impress early doors](https://utdreport.co.uk/2026/08/17/ayden-heaven-to-start-lisandro-martinez-manchester-united-hull-city/) - **Utdreport.co.uk**
-6. [Liverpool legend backs forward to silence critics](https://anfieldindex.com/98135/liverpool-legend-backs-forward-to-silence-critics.html) - **Anfieldindex.com**
-7. [£52m+ deal seals Liverpool's worst transfer business of all time](https://www.anfieldwatch.co.uk/liverpool-fc/news/ps52m-deal-seals-liverpools-worst-transfer-business-of-all-time/) - **Anfieldwatch.co.uk**
-8. [Carrick can stabilise Man United but won’t win EPL — Carragher](https://punchng.com/carrick-can-stabilise-man-united-but-wont-win-epl-carragher/) - **The Punch**
-9. [Cameras catch Gabriel joking with Bruno after Community Shield win](https://dailycannon.com/2026/08/gabriel-bruno-jokes-community-shield/) - **Dailycannon.com**
-10. [Crystal Palace signs Anan Khalaili for record £21M transfer](https://cryptobriefing.com/crystal-palace-khalaili-record-transfer/) - **Crypto Briefing**
+1. [Man Utd will reject any bid for Fernandes](https://www.bbc.co.uk/sport/football/articles/clyj7rn31dpo) - **BBC News**
+2. [“Massive team, massive ambitions”: Morgan Rogers sets sights on Premier League triumph after record Chelsea switch](https://www.footballmuse.com/news/morgan-rogers-sets-sights-on-premier-league-triumph-after-record-chelsea-switch) - **Footballmuse.com**
+3. [Journalist heaps praise on both new Liverpool defenders](https://anfieldindex.com/98137/journalist-heaps-praise-on-both-new-liverpool-defenders.html) - **Anfieldindex.com**
+4. [Manchester City refuse to give up on Enzo Fernandez despite Chelsea deadline](https://footballtoday.com/2026/08/17/manchester-city-refuse-to-give-up-on-enzo-fernandez-despite-chelsea-deadline/) - **Footballtoday.com**
+5. [NFL receiving leader in each of the past 10 seasons](https://www.thebiglead.com/nfl-receiving-leader-past-10-seasons/) - **The Big Lead**
+6. [Mikel Obi reveals how his name was changed from ‘Michael’ to ‘Mikel’](https://www.vanguardngr.com/2026/08/mikel-obi-reveals-how-his-name-was-changed-from-michael-to-mikel/) - **Vanguard**
+7. [Nkunku close to Newcastle United for €30m, Gimenez eager for FC Porto](https://football-italia.net/nkunku-close-to-newcastle-united-gimenez-porto/) - **Football Italia**
+8. [Tottenham’s Guglielmo Vicario: Player set for Juventus medical today](https://www.getfootballnewsitaly.com/2026/tottenhams-guglielmo-vicario-player-set-for-juventus-medical-today/) - **Getfootballnewsitaly.com**
+9. [Google’s new deal will put the Pixel 11 and Gemini in front of millions](https://www.androidauthority.com/google-pixel-11-european-soccer-3699292/) - **Android Authority**
 
 
 ---
-*최근 업데이트: 2026-08-18 22:00:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-18 22:59:44 (KST) / (하루 100회 제한 준수 중)*
