@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Little League World Series: Meet the 2026 teams headed to Williamsport](https://www.usatoday.com/story/sports/mlb/llws/2026/08/17/little-league-world-series-2026-teams-williamsport/90285352007/) - **USA Today**
-2. [Chelsea name incredible new price tag for Pedro Neto as Saudi club Al Hilal 'agree personal terms' to rival Premier League suitors](https://www.dailymail.com/sport/football/article-16057901/chelsea-pedro-neto-al-hilal-transfer.html) - **Dailymail.com**
-3. [Chelsea name incredible new price tag for Pedro Neto as Saudi club Al Hilal 'agree personal terms' to rival Premier League suitors](https://www.dailymail.com/sport/football/article-16057901/chelsea-pedro-neto-al-hilal-transfer.html) - **Dailymail.com**
-4. [Man City Manchester City B'mouth Bournemouth](https://www.mancity.com/news/mens/city-v-bournemouth-kick-off-time-and-tv-information-63922554) - **Manchester City FC**
-5. [Celtic v LASK – Midfield battle key in Champions League playoff](https://celticshorts.com/2026/08/celtic-v-lask-midfield-battle-key-in-champions-league-playoff/) - **Celticshorts.com**
-6. [Juventus agreement with Tottenham for Vicario as Martinez dropped](https://football-italia.net/juventus-agree-tottenham-vicario-martinez-drop/) - **Football Italia**
-7. [Joao Pedro leads EPL pre-season goal chart, Tzolis tops asssists](https://punchng.com/joao-pedro-leads-epl-pre-season-goal-chart-tzolis-tops-asssists/) - **The Punch**
-8. [Jose Mourinho personally blocked Real Madrid midfielder Premier League transfer – report](https://madriduniversal.com/jose-mourinho-personally-blocked-real-madrid-midfielder-premier-league-transfer-report/) - **Madriduniversal.com**
-9. [AS Monaco open to Jordan Teze exit](https://www.getfootballnewsfrance.com/2026/as-monaco-open-to-jordan-teze-exit/) - **Get French Football News**
-10. [Lankshear outlines Premier League dream with Boro](https://www.bbc.com/sport/football/articles/c86nxq520gxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Arsenal dominate Man City as Dias delivers candid verdict](https://eplindex.com/149478/arsenal-dominate-man-city-as-dias-delivers-candid-verdict.html) - **English Premier League Index - Opta Stats**
+2. [Real Madrid planning major renewal for 23-year-old superstar after Vinicius extension](https://madriduniversal.com/real-madrid-planning-major-renewal-for-23-year-old-superstar-after-vinicius-extension/) - **Madriduniversal.com**
+3. [Rodri poised for Barcelona move as Man City accept £65.4million bid](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260817-930-541589/) - **Dpa-international.com**
+4. [Rodri poised for Barcelona move as Man City accept £65.4million bid](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260817-930-541588/) - **Dpa-international.com**
+5. [Notebook celebration is back: Digvesh Rathi brings back viral celebration after taking wicket in DPL 2026](https://www.cricketnews.com/en/cricket/news/notebook-celebration-digvesh-rathi-after-taking-wicket-dpl-2026/d776474cbb8874191ae8e3d0) - **Cricketnews.com**
+6. [The stark Liverpool and Newcastle United reality that now emerges](https://www.themag.co.uk/2026/08/the-stark-liverpool-and-newcastle-united-reality-that-now-emerges/) - **The Mag**
+7. [Knight Riders could invest in Hundred if it expands](https://www.bbc.com/sport/cricket/articles/cz9707d48x2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Knight Riders could invest in Hundred if it expands](https://www.bbc.co.uk/sport/cricket/articles/cz9707d48x2o) - **BBC News**
+9. [Arsenal prowess shows they’re not lacking attacking threat, but defensive cover still needed - The New York Times](https://slashdot.org/firehose.pl?op=view&amp;id=185016182) - **Slashdot.org**
+10. [Elye Wahi rejects Hull City in order to prioritise OGC Nice return](https://www.getfootballnewsfrance.com/2026/elye-wahi-rejects-hull-city-in-order-to-prioritise-ogc-nice-return/) - **Get French Football News**
 
 
 ---
-*최근 업데이트: 2026-08-18 19:03:28 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-18 19:50:06 (KST) / (하루 100회 제한 준수 중)*
