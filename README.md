@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Premier League to publish referee, VAR explanations after matches](https://punchng.com/premier-league-to-publish-referee-var-explanations-after-matches/) - **The Punch**
-2. [Chelsea Urged To Move In For This Aston Villa Keeper: Should Alonso Get Him On Board?](https://the4thofficial.net/2026/08/chelsea-urged-to-move-in-for-this-aston-villa-keeper/) - **The4thofficial.net**
-3. [Journalist: Newcastle considering two midfield additions before deadline](https://eplindex.com/149537/journalist-newcastle-considering-two-midfield-additions-before-deadline.html) - **English Premier League Index - Opta Stats**
-4. [LASK boss says Champions League pressure all on Celtic](https://www.rte.ie/sport/soccer/2026/0818/1588424-lask-boss-says-champions-league-pressure-all-on-celtic/) - **RTE**
-5. [FPL GW1 Predicted Lineups: Every Premier League Club’s Starting XI](https://www.nevermanagealone.com/playerpicks/16313/fpl-gameweek-1-predicted-lineups-every-premier-league-starting-xi) - **Nevermanagealone.com**
-6. [Celtic face more pressure than us, insists LASK boss](https://www.bbc.com/sport/articles/c0rdekd820go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Arne Engels watches West Ham collapse after £22m Celtic transfer](https://celticshorts.com/2026/08/arne-engels-watches-west-ham-collapse-after-22m-celtic-transfer/) - **Celticshorts.com**
-8. [Bayern Munich's Jamal Musiala collapses for second straight match](https://www.sportingnews.com/us/soccer/news/bayern-munichs-jamal-musiala-collapses-second-straight-match/4558b953882542defd5e0829) - **Sporting News**
-9. [Rodri Joins Barcelona After Six Glorious Years at Man City](https://www.rediff.com/sports/report/barcelona-win-rodri-race-ballon-dor-winner-arrives-from-manchester-city-in-8856m-deal/20260819.htm) - **Rediff.com**
+1. [Guernsey FC salvage point to keep unbeaten league record](https://www.bbc.com/sport/football/articles/c0qvxvyz937o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [National League Cup Report: Boreham Wood 5-2 Leeds United U21](https://www.leedsunited.com/en/news/national-league-cup-report-boreham-wood-5-2-leeds-united-u21) - **Leedsunited.com**
+3. [Premier League fans will now hear what players and referees REALLY say to each other - with TV broadcasters set to roll out audio footage from RefCam](https://www.dailymail.com/sport/football/article-16061679/Premier-League-fans-hear-players-referees-REALLY-say-TV-broadcasters-set-roll-audio-footage-RefCam.html) - **Dailymail.com**
+4. [Howard Webb advocates limited VAR intervention in football](https://cryptobriefing.com/howard-webb-var-intervention-football/) - **Crypto Briefing**
+5. [Liverpool issue update in deal for £43m forward](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-psg-ibrahim-mbaye-issue-update-in-deal-for-ps43m-forward/) - **Anfieldwatch.co.uk**
+6. [US Justice Department denies whistleblower claims on anti-Semitism probes](https://www.aljazeera.com/news/2026/8/18/us-justice-department-denies-whistleblower-claims-on-anti-semitism-probes) - **Al Jazeera English**
+7. [Premier League to publish referee, VAR explanations after matches](https://punchng.com/premier-league-to-publish-referee-var-explanations-after-matches/) - **The Punch**
+8. [Chelsea Urged To Move In For This Aston Villa Keeper: Should Alonso Get Him On Board?](https://the4thofficial.net/2026/08/chelsea-urged-to-move-in-for-this-aston-villa-keeper/) - **The4thofficial.net**
+9. [Journalist: Newcastle considering two midfield additions before deadline](https://eplindex.com/149537/journalist-newcastle-considering-two-midfield-additions-before-deadline.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-08-20 04:56:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-20 05:34:06 (KST) / (하루 100회 제한 준수 중)*
