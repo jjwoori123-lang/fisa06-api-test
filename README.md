@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [In Zavier Gozo, Crystal Palace land a US prospect living up to the hype](https://sports.yahoo.com/articles/zavier-gozo-crystal-palace-land-213242465.html) - **Yahoo Entertainment**
-2. [Palace sign United States prospect Gozo](https://www.bbc.com/sport/football/articles/cpq80q88dyqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Palace sign United States prospect Gozo](https://www.bbc.co.uk/sport/football/articles/cpq80q88dyqo) - **BBC News**
-4. [Everton In Talks Over £30m Return As Spurs Open Door: Best Deal For The Toffees?](https://the4thofficial.net/2026/08/everton-in-talks-over-30m-return-as-spurs-open-door-best-deal-for-the-toffees/) - **The4thofficial.net**
-5. [Al Hilal test Aston Villa's resolve with £38million bid for England striker Ollie Watkins](https://www.dailymail.com/sport/football/article-16062323/Al-Hilal-test-Aston-Villas-resolve-38million-bid-England-striker-Ollie-Watkins.html) - **Dailymail.com**
-6. [Al Hilal test Aston Villa's resolve with £38million bid for England striker Ollie Watkins](https://www.dailymail.com/sport/football/article-16062323/Al-Hilal-test-Aston-Villas-resolve-38million-bid-England-striker-Ollie-Watkins.html) - **Dailymail.com**
-7. [Canadian striker Promise David joins Premier League's Brighton on season-long loan](https://www.cbc.ca/sports/soccer/promise-david-transfer-bighton-9.7311584) - **CBC News**
-8. [Why signing World Cup winner Rodri may be what sees Barcelona end Champions League drought](https://www.cbssports.com/soccer/news/why-signing-world-cup-winner-rodri-makes-barcelona-champions-league-contenders-2026/) - **CBS Sports**
-9. [Reading 1-1 Wycombe Wanderers (3-1 Pens): March To The Arch Begins](https://thetilehurstend.sbnation.com/2026-27-match-reports-reading-fc-royals/57563/reading-1-1-wycombe-wanderers-3-1-pens-march-to-the-arch-begins) - **SB Nation**
-10. [Brighton sign Canada striker David on loan](https://www.bbc.com/sport/football/articles/c30450z6pmmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Football Daily](https://www.bbc.co.uk/sounds/play/p0p56288?at_campaign=rss) - **BBC News**
+2. [USMNT prodigy bids emotional farewell to MLS as Premier League side confirms long-term deal](https://www.alloutsoccer.com/news/usmnt-mls-gozo-premier-league-1987742) - **Alloutsoccer.com**
+3. [Football Daily](https://www.bbc.co.uk/sounds/play/p0p56141?at_campaign=rss) - **BBC News**
+4. [Aston Villa Face £70m Call As 30-Year-Old Agrees Saudi Terms: What Should The Midlands Club Do?](https://the4thofficial.net/2026/08/aston-villa-face-70m-call-as-30-year-old-agrees-saudi-terms-what-should-the-midlands-club-do/) - **The4thofficial.net**
+5. [Papers: Barca midfielder rejects chance to join Man Utd](https://www.skysports.com/football/transfer-paper-talk/12709/13574535/man-utd-transfer-news-barcelona-midfielder-gavi-rejects-chance-to-join-old-trafford-paper-talk) - **Sky Sports**
+6. [Real Salt Lake transfer Zavier Gozo to Crystal Palace](https://www.mlssoccer.com/news/copy-of-prep-only-transfer-to-crystal-palace) - **MLSsoccer.com**
+7. [USMNT rising star Zavier Gozo moves to Crystal Palace from Real Salt Lake](https://www.usatoday.com/story/sports/soccer/2026/08/18/zavier-gozo-usmnt-crystal-palace-transfer/91183804007/) - **USA Today**
+8. [In Zavier Gozo, Crystal Palace land a US prospect living up to the hype](https://sports.yahoo.com/articles/zavier-gozo-crystal-palace-land-213242465.html) - **Yahoo Entertainment**
+9. [Palace sign United States prospect Gozo](https://www.bbc.com/sport/football/articles/cpq80q88dyqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Palace sign United States prospect Gozo](https://www.bbc.co.uk/sport/football/articles/cpq80q88dyqo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-20 06:33:38 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-20 06:57:55 (KST) / (하루 100회 제한 준수 중)*
