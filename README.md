@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [La Liga: Rodri joins Barcelona from Manchester City](https://punchng.com/?p=2218523) - **The Punch**
-2. [Sunderland Have To Improve On Their Offer To Land This Talented Winger: Should Le Bris Go For Him?](https://the4thofficial.net/2026/08/sunderland-have-to-improve-on-their-offer-to-land-this-talented-winger/) - **The4thofficial.net**
-3. [Rodri completes Barcelona switch after glittering career at Man City](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260818-930-549197/) - **Dpa-international.com**
-4. [Premier League head: FIFA hit self-destruct button over World Cup plan](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260818-930-549228/) - **Dpa-international.com**
-5. [Football authorities craft fresh plan to tackle tragedy chanting in the Premier League](https://footballtoday.com/2026/08/18/football-authorities-craft-fresh-plan-to-tackle-tragedy-chanting-in-the-premier-league/) - **Footballtoday.com**
-6. [Arsenal willing to sell midfielder after just one season](https://www.justarsenal.com/arsenal-willing-to-sell-midfielder-after-just-one-season/420515) - **Just Arsenal News**
-7. [Manchester United in contract renewal talks with key midfielder](https://www.sportingnews.com/us/soccer/manchester-united/news/manchester-united-contract-renewal-talks-key-midfielder/b7e7fece6003a2b40812fa98) - **Sporting News**
-8. [Tottenham Hotspur Identify This Chelsea Winger As A Backup Option: Good Choice For De Zerbi?](https://the4thofficial.net/2026/08/tottenham-hotspur-identify-this-chelsea-winger-as-a-backup-option/) - **The4thofficial.net**
-9. [Dear Manchester United Stock Fans, Mark Your Calendars for August 21](https://biztoc.com/x/ce2dc11aca159170) - **Biztoc.com**
-10. [Premier League relegation watch: Which sides run the risk of dropping down to the Championship?](https://www.cbssports.com/soccer/news/premier-league-relegation-watch/) - **CBS Sports**
+1. [Arne Engels watches West Ham collapse after £22m Celtic transfer](https://celticshorts.com/2026/08/arne-engels-watches-west-ham-collapse-after-22m-celtic-transfer/) - **Celticshorts.com**
+2. [Bayern Munich's Jamal Musiala collapses for second straight match](https://www.sportingnews.com/us/soccer/news/bayern-munichs-jamal-musiala-collapses-second-straight-match/4558b953882542defd5e0829) - **Sporting News**
+3. [Rodri Joins Barcelona After Six Glorious Years at Man City](https://www.rediff.com/sports/report/barcelona-win-rodri-race-ballon-dor-winner-arrives-from-manchester-city-in-8856m-deal/20260819.htm) - **Rediff.com**
+4. [Journalist: Manchester United weighing late move for versatile signing](https://eplindex.com/149536/journalist-manchester-united-weighing-late-move-for-versatile-signing.html) - **English Premier League Index - Opta Stats**
+5. [Liverpool Agree On A Five-Year Contract With This Paris Saint-Germain Winger: Decent Signing For Iraola?](https://the4thofficial.net/2026/08/liverpool-agree-on-a-five-year-contract-with-this-paris-saint-germain-winger-decent-signing-for-iraola/) - **The4thofficial.net**
+6. [Hull City interested in Japan winger Nakamura](https://www.bbc.com/sport/football/articles/c5ywee6y2qlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. ['Almost there': £30m midfielder deal moves closer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-curtis-jones-inter-almost-there-ps30m-midfielder-deal-moves-closer/) - **Anfieldwatch.co.uk**
+8. [Pundit gets Henrik Larsson vibes from Celtic new boy Kasper Hogh](https://celticshorts.com/2026/08/pundit-gets-henrik-larsson-vibes-from-celtic-new-boy-kasper-hogh/) - **Celticshorts.com**
+9. [West Ham United interested in former Premier League winner](https://www.sportingnews.com/us/soccer/west-ham-united/news/west-ham-united-interested-former-premier-league-winner/0dbff98c40d9ce577b23e3a0) - **Sporting News**
+10. [Chelsea eye Werder Bremen talent as potential future defender](https://bulinews.com/chelsea-eye-werder-bremen-talent-potential-future-defender) - **Bulinews.com**
 
 
 ---
-*최근 업데이트: 2026-08-20 03:44:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-20 04:27:30 (KST) / (하루 100회 제한 준수 중)*
