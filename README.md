@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Belgian club beat Barca to Ikorodu City’s Omotayo](https://punchng.com/belgian-club-beat-barca-to-ikorodu-citys-omotayo/) - **The Punch**
-2. [Brighton enter Azeez race](https://punchng.com/brighton-enter-azeez-race/) - **The Punch**
-3. [An Analytical Analysis Of What Real Madrid Need In Midfield (Post-Kroos)](https://www.managingmadrid.com/formations-and-tactics/111418/real-madrid-transfers-tempo-controller-pausa-toni-kroos-options-tactics) - **Managing Madrid**
-4. [NFF election uncertainty deepens as stakeholders kick](https://punchng.com/nff-election-uncertainty-deepens-as-stakeholders-kick/) - **The Punch**
-5. [Bezos consortium bought nearly 40 percent of Liverpool: report](https://sports.yahoo.com/articles/bezos-consortium-bought-nearly-40-160040154.html) - **Yahoo Entertainment**
-6. [The solution to the wing issue Manchester City face against Bournemouth seems obvious](https://esteemedkompany.com/2026/08/19/the-solution-to-the-wing-issue-manchester-city-face-against-bournemouth-seems-obvious/) - **Esteemedkompany.com**
-7. [Rodri to Barcelona: Spain Captain Completes Dream Move From Manchester City](https://heavy.com/sports/soccer/rodri-barcelona-transfer-manchester-city/) - **Heavy.com**
-8. [Rodri completes Barcelona switch, keen to ‘feel that excitement again’](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260818-930-549567/) - **Dpa-international.com**
-9. [Fernando Mendoza gets extensive first-team reps in Raiders’ joint practice with Texans](https://nypost.com/2026/08/18/sports/fernando-mendoza-gets-first-team-reps-in-raiders-joint-practice-vs-texans/?utm_source=yahoo&amp;utm_campaign=nypost&amp;utm_medium=referral) - **New York Post**
-10. [Fernando Mendoza gets extensive first-team reps in Raiders’ joint practice with Texans](https://nypost.com/2026/08/18/sports/fernando-mendoza-gets-first-team-reps-in-raiders-joint-practice-vs-texans/) - **New York Post**
+1. [Michael Vaughan defends The Hundred against criticism, explains how it 'protects' UK cricket](https://www.cricketnews.com/en/cricket/news/michael-vaughan-defends-hundred-criticism-protects-uk-cricket/ad0407fc63060e75d868bc1e) - **Cricketnews.com**
+2. [Raiders’ Maxx Crosby Received Major Praise From Several Notable Texans](https://heavy.com/sports/nfl/las-vegas-raiders/maxx-crosby-praise-ryans-stroud-anderson/) - **Heavy.com**
+3. [US vs ICC row escalates: Trump administration sanctions international court president, senior lawyer](https://timesofindia.indiatimes.com/world/us/us-vs-icc-row-escalates-trump-administration-sanctions-international-court-president-senior-lawyer/articleshow/133335289.cms) - **The Times of India**
+4. [In 1831, the Blackburns fled slavery; 154 years later, their home was found](https://timesofindia.indiatimes.com/world/rest-of-world/in-1831-thornton-and-lucie-blackburn-escaped-slavery-in-kentucky-and-fled-to-canada-154-years-later-archaeologists-uncovered-their-lost-home/articleshow/133327197.cms) - **The Times of India**
+5. [Cops hunt for private parts of boy killed by ‘testicle traffickers’](https://timesofindia.indiatimes.com/city/bhopal/cops-hunt-for-private-parts-of-boy-killed-by-testicle-traffickers/articleshow/133335179.cms) - **The Times of India**
+6. [Video: Thane man throws stones, makes obscene gestures at local trains; FIR filed](https://timesofindia.indiatimes.com/city/thane/video-thane-man-throws-stones-makes-obscene-gestures-at-local-trains-fir-filed/articleshow/133335276.cms) - **The Times of India**
+7. [Ballistic missiles target UAE, trade ties snap: How Abu Dhabi responded to Iran's latest escalation](https://timesofindia.indiatimes.com/world/middle-east/ballistic-missiles-target-uae-trade-ties-snap-how-abu-dhabi-responded-to-irans-latest-escalation/articleshow/133335044.cms) - **The Times of India**
+8. [Watch: Lata Mangeshkar's film version of 'Vande Mataram' played at Marathi auto driver event, irks dy CM Shinde](https://timesofindia.indiatimes.com/city/thane/watch-lata-mangeshkars-film-version-of-vande-mataram-played-at-marathi-auto-driver-event-irks-dy-cm-shinde/articleshow/133335134.cms) - **The Times of India**
+9. ['Wanted to start new life': More skeletons tumble out as Bengaluru woman, lover kill husband](https://timesofindia.indiatimes.com/city/bengaluru/wanted-to-start-new-life-more-skeletons-tumble-out-as-bengaluru-woman-lover-kill-husband/articleshow/133335120.cms) - **The Times of India**
+10. [Minority-dominated seats in Delhi see higher SIR verifications](https://timesofindia.indiatimes.com/city/delhi/minority-dominated-seats-in-delhi-see-higher-sir-verifications/articleshow/133335070.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-08-20 10:34:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-20 11:41:43 (KST) / (하루 100회 제한 준수 중)*
