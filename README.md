@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Five Premier League stars to watch as new season begins](https://www.vanguardngr.com/2026/08/five-premier-league-stars-to-watch-as-new-season-begins/) - **Vanguard**
-2. [Al Hilal in talks to sign Watkins](https://www.skysports.com/transfer/news/12691/13574587/ollie-watkins-transfer-aston-villa-in-talks-with-saudi-club-al-hilal-over-england-striker) - **Sky Sports**
-3. ['I'm excited by the project they have going on here' - Gozo](https://www.bbc.com/sport/football/articles/cpd7gen58p3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Newcastle Working On Deal for Man City Midfielder, Barcelona’s La Masia Standout: Breaking](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/24667/newcastle-working-on-deal-for-man-city-midfielder-barcelonas-la-masia-standout-breaking) - **SB Nation**
-5. [Breakouts & wildcards: Man Utd's Lacey](https://www.bbc.com/sport/football/articles/ckgewp7qvylo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Breakouts & wildcards: Bournemouth's Milosavljevic](https://www.bbc.com/sport/football/articles/cwyrz2ldyw4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [I won FPL last season - here are my five best tips](https://www.bbc.co.uk/sport/football/articles/c3ekq87e214o) - **BBC News**
-8. [Breakouts & wildcards: Hull City's Herrington](https://www.bbc.com/sport/football/articles/cn4nkpp8d1go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Napoli join Aston Villa in pursuit of Chelsea forward Jackson](https://thefootballfaithful.com/napoli-join-aston-villa-in-pursuit-of-chelsea-forward-jackson/) - **The Football Faithful**
+2. [Manchester United forward Zirkzee linked with Serie A return](https://thefootballfaithful.com/manchester-united-forward-zirkzee-linked-with-serie-a-return/) - **The Football Faithful**
+3. [Official: Ruggeri joins Aston Villa from Atletico Madrid](https://football-italia.net/official-ruggeri-joins-villa-from-atletico/) - **Football Italia**
+4. [La Liga: How I convinced Vini Jr to stay at Madrid – Mourinho](https://punchng.com/la-liga-how-i-convinced-vini-jr-to-stay-at-madrid-mourinho/) - **The Punch**
+5. [Japanese 'keeper Suzuki signs for Aston Villa](https://sports.yahoo.com/articles/japanese-keeper-suzuki-signs-aston-083548745.html) - **Yahoo Entertainment**
+6. [Piroe joins West Ham on loan](https://www.bbc.com/sport/football/articles/cvg0jwg1ekjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [NBC Sports Names College Football Announce Teams as Season Kicks Off with No. 14 USC Trojans Hosting San Jose State Aug. 29 on NBC and Peacock](http://www.thefutoncritic.com/news/2026/08/19/nbc-sports-names-college-football-announce-teams-as-season-kicks-off-with-no-14-usc-trojans-hosting-san-jose-state-aug-29-on-nbc-and-peacock-627011/20260819nbc01/) - **Thefutoncritic.com**
+8. [Frank, Young and more join MOTD as BBC launches four new YouTube shows](https://www.bbc.com/sport/football/articles/c9d8wd8y36zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Frank, Young and more join MOTD as BBC launches four new YouTube shows](https://www.bbc.co.uk/sport/football/articles/c9d8wd8y36zo) - **BBC News**
+10. [Would Lampard take 17th now?](https://www.bbc.com/sport/football/articles/clylk8lqk34o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-20 16:42:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-20 17:40:52 (KST) / (하루 100회 제한 준수 중)*
