@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Di Marzio: Serie A giants keen on both Chelsea and Manchester United attackers](https://eplindex.com/149554/di-marzio-serie-a-giants-keen-on-both-chelsea-and-manchester-united-attackers.html) - **English Premier League Index - Opta Stats**
-2. [Newcastle United in contention to sign AC Milan’s Christopher Nkunku](https://www.getfootballnewsfrance.com/2026/newcastle-united-in-contention-to-sign-ac-milans-christopher-nkunku/) - **Get French Football News**
-3. [The Hoddle of Coffee: Tottenham Hotspur News and Links for Wednesday, August 19](https://cartilagefreecaptain.sbnation.com/hoddle-of-coffee/72860/the-hoddle-of-coffee-tottenham-hotspur-news-and-links-for-wednesday-august-19) - **SB Nation**
-4. [How Carrick's Man Utd are shaping up for Premier League season](https://www.bbc.com/sport/football/articles/cg5l9p58dv6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [How Carrick's Man Utd are shaping up for Premier League season](https://www.bbc.co.uk/sport/football/articles/cg5l9p58dv6o) - **BBC News**
-6. [Man Utd miss out on immediate cash injection as £43m bid for forward is swiftly rejected](https://utdreport.co.uk/2026/08/19/antony-manchester-united-real-betis-offer-rejected/) - **Utdreport.co.uk**
-7. [Wrexham's Moore aiming to stay the distance](https://www.bbc.com/sport/football/articles/cx2mzz1zd67o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [A positional shift is likely on the cards for a Manchester City full-back](https://esteemedkompany.com/2026/08/19/a-positional-shift-is-likely-on-the-cards-for-a-manchester-city-full-back/) - **Esteemedkompany.com**
-9. [Who am I? Guess Premier League star No 30](https://www.bbc.co.uk/sport/football/articles/c9342kw7zkqo) - **BBC News**
-10. [Regulator expects Irish energy demand to fall](https://www.irishtimes.com/business/2026/08/19/regulator-expects-energy-demand-to-fall-and-is-now-the-right-time-to-step-back-from-shares/) - **The Irish Times**
+1. [Five Premier League stars to watch as new season begins](https://www.vanguardngr.com/2026/08/five-premier-league-stars-to-watch-as-new-season-begins/) - **Vanguard**
+2. [Al Hilal in talks to sign Watkins](https://www.skysports.com/transfer/news/12691/13574587/ollie-watkins-transfer-aston-villa-in-talks-with-saudi-club-al-hilal-over-england-striker) - **Sky Sports**
+3. ['I'm excited by the project they have going on here' - Gozo](https://www.bbc.com/sport/football/articles/cpd7gen58p3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Newcastle Working On Deal for Man City Midfielder, Barcelona’s La Masia Standout: Breaking](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/24667/newcastle-working-on-deal-for-man-city-midfielder-barcelonas-la-masia-standout-breaking) - **SB Nation**
+5. [Breakouts & wildcards: Man Utd's Lacey](https://www.bbc.com/sport/football/articles/ckgewp7qvylo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Breakouts & wildcards: Bournemouth's Milosavljevic](https://www.bbc.com/sport/football/articles/cwyrz2ldyw4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [I won FPL last season - here are my five best tips](https://www.bbc.co.uk/sport/football/articles/c3ekq87e214o) - **BBC News**
+8. [Breakouts & wildcards: Hull City's Herrington](https://www.bbc.com/sport/football/articles/cn4nkpp8d1go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-20 15:50:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-20 16:42:33 (KST) / (하루 100회 제한 준수 중)*
