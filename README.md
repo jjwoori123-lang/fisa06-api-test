@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Premier League to phase in cyber compliance regime | Computer Weekly](https://www.computerweekly.com/news/366649555/Premier-League-to-phase-in-cyber-compliance-regime) - **ComputerWeekly.com**
-2. [Liverpool are about to secure the most important agreement of their season](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-are-about-to-secure-the-most-important-agreement-of-their-season/) - **Anfieldwatch.co.uk**
-3. [Aston Villa Reject Three Bids And Offer New Deal To Keep Star: Right Decision?](https://the4thofficial.net/2026/08/aston-villa-reject-three-bids-and-offer-new-deal-to-keep-star-right-decision/) - **The4thofficial.net**
-4. [USMNT, Coventry striker Haji Wright out up to 12 weeks with quad injury](https://sports.yahoo.com/soccer/breaking-news/article/usmnt-coventry-striker-haji-wright-out-up-to-12-weeks-with-quad-injury-203432636.html) - **Yahoo Entertainment**
-5. [Want to know what Jeff Bezos brings to Liverpool FC? Study Amazon’s Leadership Principles](https://www.geekwire.com/2026/want-to-know-what-jeff-bezos-brings-to-liverpool-fc-study-amazons-leadership-principles/) - **GeekWire**
-6. [A French midfielder is named as a Manchester City midfield target as the picture may be coming into view](https://esteemedkompany.com/2026/08/19/a-french-midfielder-is-named-as-a-manchester-city-midfield-target-as-the-picture-may-be-coming-into-view/) - **Esteemedkompany.com**
-7. [Marcus Rashford calls out Jamie Carragher after Gary Neville comments on Man Utd star](https://www.alloutsoccer.com/news/rashford-carragher-neville-manchester-united-1989515) - **Alloutsoccer.com**
-8. [Ligue 1 Full-Back Fails His Medical At Sunderland: Big Blow For Le Bris?](https://the4thofficial.net/2026/08/ligue-1-full-back-fails-his-medical-at-sunderland-big-blow-for-le-bris/) - **The4thofficial.net**
-9. [Crystal Palace Signs U.S. Teenager Zavier Gozo From Real Salt Lake In Club Record Sale](https://www.foxsports.com/stories/soccer/crystal-palace-signs-u-s-teenager-zavier-gozo-from-real-salt-lake-club-record-sale) - **Fox Sports**
-10. [West Ham United want Sunderland winger Jocelin Ta Bi](https://sportsview.co.uk/2026/08/west-ham-united-want-sunderland-winger-jocelin-ta-bi?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=west-ham-united-want-sunderland-winger-jocelin-ta-bi) - **Sportsview.co.uk**
+1. [Premier League chief insists Man City's 115 charges saga is 'NOT top of the list' in conversations with rival clubs - and adds verdict will take 'as long as it takes'](https://www.dailymail.com/sport/football/article-16064769/Premier-League-chief-insists-Man-Citys-115-charges-saga-NOT-list-conversations-rival-clubs-adds-verdict-long-takes.html) - **Dailymail.com**
+2. [Inside Arsenal's Title-Winning Season: Exclusive book extract reveals how Mikel Arteta's man-management skills ended 22-year wait for the title](https://www.dailymail.com/sport/football/article-16064069/Inside-Arsenal-Title-Winning-Season-extract.html) - **Dailymail.com**
+3. [Papers: Man City to bid for Fernandez despite missing Chelsea deadline](https://www.skysports.com/football/news/11095/13574860/man-city-transfer-news-enzo-fernandez-bid-incoming-despite-missing-chelsea-deadline-paper-talk) - **Sky Sports**
+4. [Rashford thanks Carragher after Neville comment](https://www.bbc.com/sport/football/articles/c1j1397zg1xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Haji Wright out “number of weeks” with serious quad injury](https://sbisoccer.com/2026/08/haji-wright-out-number-of-weeks-with-serious-quad-injury) - **Sbisoccer.com**
+6. [Rashford thanks Carragher after Neville comment](https://www.bbc.co.uk/sport/football/articles/c1j1397zg1xo) - **BBC News**
+7. [Southeastern girls volleyball looks to alum to lead revival](https://www.chillicothegazette.com/story/sports/high-school/2026/08/19/brittany-lougheed-tasked-with-leading-southeastern-volleyball/91313866007/) - **Chillicothegazette.com**
+8. [Aasgaard To Start? | Predicted 4-2-3-1 Rangers Lineup To Face Jablonec](https://the4thofficial.net/2026/08/aasgaard-to-start-predicted-4-2-3-1-rangers-lineup-to-face-jablonec/) - **The4thofficial.net**
+9. [Arsenal close in on Ezri Konsa as England star could make debut at Villa Park](https://www.alloutsoccer.com/news/arsenal-ezri-konsa-aston-villa-1989531) - **Alloutsoccer.com**
+10. [Man City eye Manu Kone as potential alternative to Enzo Fernandez](https://footballtoday.com/2026/08/19/man-city-eye-manu-kone-as-potential-alternative-to-enzo-fernandez/) - **Footballtoday.com**
 
 
 ---
-*최근 업데이트: 2026-08-21 05:38:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-21 06:03:58 (KST) / (하루 100회 제한 준수 중)*
