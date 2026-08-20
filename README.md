@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Is Turkey home to savvy signings or a new retirement league? We’ll soon find out](https://sports.yahoo.com/articles/turkey-home-savvy-signings-retirement-100012685.html) - **Yahoo Entertainment**
-2. [West Ham complete signing of striker but look set to miss out on another](https://hayters.com/west-ham-complete-signing-of-striker-but-look-set-to-miss-out-on-another/) - **Hayters.com**
-3. [FPL Scout: Gameweek 1 hints, tips and advice](https://www.brentfordfc.com/en/news/article/fpl-scout-gameweek-1-fantasy-premier-league-2026-27-hints-tips-advice) - **Brentfordfc.com**
-4. [Sebastiaan Bornauw joins Hamburg SV on loan](https://www.leedsunited.com/en/news/sebastiaan-bornauw-joins-hamburg-sv-on-loan) - **Leedsunited.com**
-5. [How right messaging can help in defence of title](https://www.bbc.com/sport/football/articles/clyq0zk40y4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Financial consequences from Celtic Champions League playoff with LASK](https://celticshorts.com/2026/08/financial-consequences-from-celtic-champions-league-playoff/) - **Celticshorts.com**
-7. [Report: Newcastle United could make move for Manchester City star](https://eplindex.com/149557/report-newcastle-united-could-make-move-for-manchester-city-star.html) - **English Premier League Index - Opta Stats**
-8. [Report: Liverpool progressing with moves for Ligue 1 stars](https://anfieldindex.com/98259/report-liverpool-progressing-with-moves-for-ligue-1-stars.html) - **Anfieldindex.com**
-9. [Ndukwe set for Levante loan as Liverpool invest in future](https://anfieldindex.com/98280/ndukwe-set-for-levante-loan-as-liverpool-invest-in-future.html) - **Anfieldindex.com**
-10. [Monaco ‘discussing options’ to replace Paul Pogba, Filipe Luís confirms](https://www.getfootballnewsfrance.com/2026/monaco-discussing-options-to-replace-paul-pogba-filipe-luis-confirms/) - **Get French Football News**
+1. [Everton keen on Eintracht Frankfurt attacker Jean-Matteo Bahoya](https://sportsview.co.uk/2026/08/everton-keen-on-eintracht-frankfurt-attacker-jean-matteo-bahoya?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=everton-keen-on-eintracht-frankfurt-attacker-jean-matteo-bahoya) - **Sportsview.co.uk**
+2. [Report: Sunderland move for £25m defender now in doubt](https://eplindex.com/149558/report-sunderland-move-for-25m-defender-now-in-doubt.html) - **English Premier League Index - Opta Stats**
+3. [Savinho, Gakpo, Neto, Marmoush! Spurs in market to sign THREE new forwards](https://www.skysports.com/football/news/11675/13574668/tottenham-transfer-news-spurs-considering-cody-gakpo-savinho-omar-marmoush-and-pedro-neto-in-search-for-three-new-forwards) - **Sky Sports**
+4. [The women’s soccer league trying to fix fantasy sports](https://www.theverge.com/entertainment/981880/womens-super-league-wsl-fantasy-league-app) - **The Verge**
+5. [Arsenal close in on deal to sign Ezri Konsa from Aston Villa](https://wp.fromthespot.co.uk/31378/arsenal-close-in-on-deal-to-sign-ezri-konsa-from-aston-villa/) - **Fromthespot.co.uk**
+6. [Real Madrid deny interest in Arsenal midfield star after fresh transfer links – report](https://madriduniversal.com/real-madrid-deny-interest-in-arsenal-midfield-star-after-fresh-transfer-links-report/) - **Madriduniversal.com**
+7. [Baleba an 'interesting' move for Man Utd](https://www.bbc.com/sport/football/articles/cgljwexe6plo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [BREAKING: Arsenal closing in on deal to sign England defender Konsa from Aston Villa](https://www.101greatgoals.com/football/premier-league/arsenal-closing-in-sign-konsa-aston-villa/) - **101 Great Goals**
+9. ['Building a beast' - Arteta on Arsenal pushing for title again](https://www.bbc.com/sport/football/articles/cd69djevgw6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Arsenal nears deal to sign Ezri Konsa from Aston Villa in move worth up to £65 million](https://cryptobriefing.com/arsenal-ezri-konsa-aston-villa-transfer/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-08-20 19:04:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-20 19:51:02 (KST) / (하루 100회 제한 준수 중)*
