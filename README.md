@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Blue Jays vs. Rays prediction: Odds, recent stats, trends, and best bets for August 19](https://www.nbcsports.com/mlb/news/blue-jays-vs-rays-prediction-odds-recent-stats-trends-and-best-bets-for-august-19) - **NBCSports.com**
-2. [Inter send written Jones offer to Liverpool, €30m plus €5m bonus](https://football-italia.net/inter-written-jones-liverpool-e30m-e5m-bonus/) - **Football Italia**
-3. [How to watch Hull City vs Manchester United live: Stream link, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-hull-city-vs-manchester-united-live-stream-link-tv-channel-team-news-prediction) - **NBCSports.com**
-4. [McInnes has no worries over Shankland form and says striker is 'too good' to fail at Rangers](https://www.dailymail.com/sport/football/article-16064761/McInnes-no-worries-Shankland-form-says-striker-good-fail-Rangers.html) - **Dailymail.com**
-5. [Surjay Saves Seal 1-1 Draw As Nangkiew Irat Frustrate Nongkseh](https://southasiaviews.com/featured/surjay-saves-seal-1-1-draw-as-nangkiew-irat-frustrate-nongkseh/) - **Southasiaviews.com**
-6. [Arsenal striker ‘offering himself daily’ to Barcelona – report](https://barcauniversal.com/arsenal-striker-offering-himself-daily-to-barcelona-report/) - **Barcauniversal.com**
-7. [2026 PLL playoffs preview: Players to watch, biggest concerns, X-factors](https://premierlacrosseleague.com/articles/2026-pll-playoffs-preview-players-to-watch-biggest-concerns-x-factors) - **Premierlacrosseleague.com**
-8. [Gozo & Herrington join Premier League, MLS to Middlesbrough & more](https://www.mlssoccer.com/news/gozo-herrington-premier-league-crystal-palace-hull-city-usmnt-middlesbrough-transfers) - **MLSsoccer.com**
-9. [Dunne keeps door open to taking Derry City job](https://www.rte.ie/sport/soccer/2026/0819/1588541-dunne-says-hed-be-open-to-taking-derry-city-job/) - **RTE**
-10. [Ex-Man Utd target lashes out on INEOS after getting snubbed for Baleba: “I could have joined another EPL club”](https://utdreport.co.uk/2026/08/19/ederson-man-utd-carlos-baleba-atalanta/) - **Utdreport.co.uk**
+1. [Now Man City turn to France midfielder Manu Kane - a target for rivals United this summer - as their post-Pep revolution gathers pace](https://www.dailymail.com/sport/football/article-16064917/Now-Man-City-turn-France-midfielder-Manu-Kane-target-rivals-United-summer-post-Pep-revolution-gathers-pace.html) - **Dailymail.com**
+2. [Reading Buy George Earthy From West Ham United](https://thetilehurstend.sbnation.com/news-info/57610/reading-buy-george-earthy-from-west-ham-united) - **SB Nation**
+3. [Reading sign midfielder Earthy from West Ham](https://www.bbc.com/sport/football/articles/c3eklpvykv9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [West Ham United Agree Deal For 28-year-old: Right Decision With His Departure?](https://the4thofficial.net/2026/08/west-ham-united-agree-deal-for-28-year-old-right-decision-with-his-departure/) - **The4thofficial.net**
+5. [Aston Villa reject Al Hilal opening bid for Ollie Watkins](https://sportsview.co.uk/2026/08/aston-villa-reject-al-hilal-opening-bid-for-ollie-watkins?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=aston-villa-reject-al-hilal-opening-bid-for-ollie-watkins) - **Sportsview.co.uk**
+6. [Premier League transfer fees are incredible - Lampard](https://www.bbc.com/sport/football/articles/cjrvw1j42y1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Varun Shekhawat, Ashish Gupta, Purvi emerge champions at Doctors Premier Pickleball League Monsoon Edition](https://timesofindia.indiatimes.com/city/jaipur/varun-shekhawat-ashish-gupta-purvi-emerge-champions-at-doctors-premier-pickleball-league-monsoon-edition/articleshow/133356568.cms) - **The Times of India**
+8. [Rodon signs new deal with Leeds until 2030](https://www.bbc.com/sport/football/articles/crk5yj4dev6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-21 02:49:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-21 03:41:42 (KST) / (하루 100회 제한 준수 중)*
