@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [What are realistic expectations for Guglielmo Vicario as Juventus’ new goalkeeper?](https://www.blackwhitereadallover.com/juventus-question-of-the-day/40687/what-are-realistic-expectations-for-guglielmo-vicario-as-juventus-new-goalkeeper) - **Black & White & Read All Over**
-2. [Aston Villa complete £47m double deal and close in on another signing](https://hayters.com/aston-villa-complete-47m-double-deal-and-close-in-on-another-signing/) - **Hayters.com**
-3. [Crystal Palace signs US teenager Gozo in $15M club record sale for Real Salt Lake](https://sports.yahoo.com/articles/crystal-palace-signs-us-teenager-092825045.html) - **Yahoo Entertainment**
-4. [Aston Villa confirm double signing of Zion Suzuki and Matteo Ruggeri](https://www.playmakerstats.com/news/aston-villa-confirm-double-signing-of-zion-suzuki-and-matteo-ruggeri/1178715) - **Playmakerstats.com**
-5. [Andoni Iraola yet to make decision on 21-y/o Liverpool sensation, time is running out](https://www.anfieldwatch.co.uk/liverpool-fc/news/andoni-iraola-yet-to-make-decision-on-21-yo-liverpool-sensation-time-is-running-out/) - **Anfieldwatch.co.uk**
-6. [Merson's Premier League season preview: Who wins the title and who stays up?](https://www.skysports.com/football/news/15205/13574632/paul-mersons-premier-league-season-preview-who-wins-title-and-finishes-in-top-five-and-who-are-relegation-contenders) - **Sky Sports**
-7. [David Ornstein bombshell: Man United finally closing in on third midfield signing in form of £65m PL-proven youngster](https://utdreport.co.uk/2026/08/19/david-ornstein-bombshell-man-united-finally-closing-in-on-third-midfield-signing-in-form-of-65m-pl-proven-youngster/) - **Utdreport.co.uk**
-8. [West Ham agree loan deal for Leeds striker Piroe](https://www.bbc.com/sport/football/articles/cly9d4jxkl3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Aston Villa make double swoop for Suzuki and Ruggeri](https://www.101greatgoals.com/football/premier-league/aston-villa-make-double-swoop-for-suzuki-and-ruggeri/) - **101 Great Goals**
-10. [Why Van Hecke holds the key to unlocking De Zerbi ball at Spurs](https://www.skysports.com/football/news/11095/13561628/jan-paul-van-hecke-to-tottenham-hotspur-why-defender-holds-the-key-to-roberto-de-zerbis-style-of-play-at-spurs) - **Sky Sports**
+1. [Is Turkey home to savvy signings or a new retirement league? We’ll soon find out](https://sports.yahoo.com/articles/turkey-home-savvy-signings-retirement-100012685.html) - **Yahoo Entertainment**
+2. [West Ham complete signing of striker but look set to miss out on another](https://hayters.com/west-ham-complete-signing-of-striker-but-look-set-to-miss-out-on-another/) - **Hayters.com**
+3. [FPL Scout: Gameweek 1 hints, tips and advice](https://www.brentfordfc.com/en/news/article/fpl-scout-gameweek-1-fantasy-premier-league-2026-27-hints-tips-advice) - **Brentfordfc.com**
+4. [Sebastiaan Bornauw joins Hamburg SV on loan](https://www.leedsunited.com/en/news/sebastiaan-bornauw-joins-hamburg-sv-on-loan) - **Leedsunited.com**
+5. [How right messaging can help in defence of title](https://www.bbc.com/sport/football/articles/clyq0zk40y4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Financial consequences from Celtic Champions League playoff with LASK](https://celticshorts.com/2026/08/financial-consequences-from-celtic-champions-league-playoff/) - **Celticshorts.com**
+7. [Report: Newcastle United could make move for Manchester City star](https://eplindex.com/149557/report-newcastle-united-could-make-move-for-manchester-city-star.html) - **English Premier League Index - Opta Stats**
+8. [Report: Liverpool progressing with moves for Ligue 1 stars](https://anfieldindex.com/98259/report-liverpool-progressing-with-moves-for-ligue-1-stars.html) - **Anfieldindex.com**
+9. [Ndukwe set for Levante loan as Liverpool invest in future](https://anfieldindex.com/98280/ndukwe-set-for-levante-loan-as-liverpool-invest-in-future.html) - **Anfieldindex.com**
+10. [Monaco ‘discussing options’ to replace Paul Pogba, Filipe Luís confirms](https://www.getfootballnewsfrance.com/2026/monaco-discussing-options-to-replace-paul-pogba-filipe-luis-confirms/) - **Get French Football News**
 
 
 ---
-*최근 업데이트: 2026-08-20 18:36:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-20 19:04:15 (KST) / (하루 100회 제한 준수 중)*
