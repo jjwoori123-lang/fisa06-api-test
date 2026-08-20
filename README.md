@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea launch new outcast training group of stars working separately to team-mates ahead of potential exits - as Blues look to trim squad](https://www.dailymail.com/sport/football/article-16064473/Chelsea-launch-new-outcast-training-group-stars-working-separately-team-mates-ahead-potential-exits-Blues-look-trim-squad.html) - **Dailymail.com**
-2. [What Bryson DeChambeau, Jon Rahm, Rory McIlroy and more said about LIV Golf — before and after](https://golfweek.usatoday.com/story/sports/golf/liv/2026/08/19/liv-golf-indianapolis-phil-mickelson-jon-rahm-bryson-dechambeau-brooks-koepka/91370007007/) - **USA Today**
-3. [How to watch Celtic vs LASK: Free Streams & TV Channels for Champions League 2026/27 Play-Offs](https://www.techradar.com/how-to-watch/football/celtic-vs-lask-champions-league-2026-27-qualifier-free) - **TechRadar**
-4. [Ezri Konsa to Arsenal: Why Arteta wants another centre-back and what's going on at Aston Villa](https://www.sportingnews.com/us/soccer/news/ezri-konsa-arsenal-arteta-centre-back-aston-villa/f5f472094658efb24748af73) - **Sporting News**
-5. [Balogun furore risks eroding faith in officiating, say Webb and Masters](https://www.channelnewsasia.com/sport/balogun-furore-risks-eroding-faith-in-officiating-say-webb-and-masters-6329216) - **CNA**
-6. [Howard Webb calls FIFA’s Balogun red card reversal ‘not helpful’ as referee trust erodes](https://cryptobriefing.com/howard-webb-balogun-red-card-controversy/) - **Crypto Briefing**
-7. [Referees chief Webb wants clamp-down on Premier League set-piece grappling](https://sports.yahoo.com/articles/referees-chief-webb-wants-clamp-162601181.html) - **Yahoo Entertainment**
-8. [Burnley add signing of French goalkeeper](https://hayters.com/burnley-add-signing-of-french-goalkeeper/) - **Hayters.com**
-9. [Galatasaray submits official bid to Crystal Palace for Ismaila Sarr](https://cryptobriefing.com/galatasaray-bid-crystal-palace-ismaila-sarr/) - **Crypto Briefing**
-10. [Fantasy Premier League 2026/27: Five goalkeepers to target in Gameweek 1 – an option for every strategy](https://www.101greatgoals.com/football/fantasy/fantasy-premier-league-goalkeepers-gameweek-transfers/) - **101 Great Goals**
+1. [Barcelona vs Al Ahly: Confirmed Joan Gamper Trophy teams and line ups](https://www.101greatgoals.com/football/la-liga/barcelona-vs-al-ahly-live-joan-gamper-trophy-teams-online-stream-tv-channel-where-to-watch/) - **101 Great Goals**
+2. [Paper names seven Brazilians among Premier League's best players](https://onefootball.com/en/news/paper-names-seven-brazilians-among-premier-leagues-best-players-43302654) - **Onefootball.com**
+3. [Arsenal is facing a Man Utd challenge in race for Brazilian attacker](https://www.justarsenal.com/arsenal-is-facing-a-man-utd-challenge-in-race-for-brazilian-attacker/420564) - **Just Arsenal News**
+4. [Mikel Arteta does Liverpool a massive favour](https://www.anfieldwatch.co.uk/liverpool-fc/news/mikel-arteta-does-liverpool-a-massive-favour/) - **Anfieldwatch.co.uk**
+5. [Masters, Webb criticise FIFA over Balogun red card controversy](https://www.skysports.com/football/news/11095/13574783/richard-masters-and-howard-webb-criticise-fifa-over-folarin-baloguns-red-card-controversy-at-2026-world-cup) - **Sky Sports**
+6. [Liam Delap and Nicolas Jackson among 12 Chelsea players training separately](https://www.alloutsoccer.com/news/delap-jackson-chelsea-training-separately-1989172) - **Alloutsoccer.com**
+7. [Nneka Ogwumike retires: Legendary WNBA player to call it a career after 15th season](https://www.cbssports.com/wnba/news/nneka-ogwumike-retires-legendary-wnba-career/) - **CBS Sports**
+8. [Moyes calls for more Everton signings before transfer window closes](https://hayters.com/moyes-calls-for-more-everton-signings-before-transfer-window-closes/) - **Hayters.com**
+9. [Coventry have survival inspiration says Lampard](https://sports.yahoo.com/articles/coventry-survival-inspiration-says-lampard-163901722.html) - **Yahoo Entertainment**
+10. [Chelsea launch new outcast training group of stars working separately to team-mates ahead of potential exits - as Blues look to trim squad](https://www.dailymail.com/sport/football/article-16064473/Chelsea-launch-new-outcast-training-group-stars-working-separately-team-mates-ahead-potential-exits-Blues-look-trim-squad.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-08-21 01:37:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-21 02:05:09 (KST) / (하루 100회 제한 준수 중)*
