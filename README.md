@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Seven defenders on the books - why Arsenal still want Konsa](https://www.bbc.co.uk/sport/football/articles/c62ey2y9n79o) - **BBC News**
-2. [Carrick on Rashford, injuries and 'tough start' at newly promoted Hull City](https://www.bbc.com/sport/football/articles/c0qvjey8e20o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Brentford v Tottenham Hotspur matchday guide](https://www.brentfordfc.com/en/news/article/supporter-information-brentford-v-tottenham-hotspur-premier-league-22-08-26) - **Brentfordfc.com**
-4. [Midfielder future decided after showdown talks with Andoni Iraola](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-james-mcconnell-preston-midfielder-future-decided-after-showdown-talks-with-andoni-iraola/) - **Anfieldwatch.co.uk**
-5. [Five new Premier League players we're excited to watch in 2026/27](https://www.footballmuse.com/features/premier-league-new-stars-to-watch-tzolis-arsenal-manzambi-villa-vuskovic-brighton-quenda-chelsea-munoz-liverpool) - **Footballmuse.com**
-6. [Premier League: five wonderkids set to break out this season ](https://onefootball.com/en/news/premier-league-five-wonderkids-set-to-break-out-this-season-43309289) - **Onefootball.com**
-7. [Carrick confirms Man Utd star will return ‘very, very soon’](https://thefootballfaithful.com/carrick-man-utd-mount-return/) - **The Football Faithful**
-8. [Alonso addresses Enzo Fernandez’ Chelsea future amid Man City links](https://thefootballfaithful.com/alonso-enzo-fernandez-chelsea-future-city/) - **The Football Faithful**
-9. [Brighton rejects Liverpool's $68M Yankuba Minteh bid as winger search continues](https://www.alloutsoccer.com/news/brighton-reject-liverpool-bid-minteh-1990729) - **Alloutsoccer.com**
-10. [EPL: Carrick rejects ‘easy start’ talk about Man United’s opening fixtures](https://punchng.com/epl-carrick-rejects-easy-start-talk-about-man-uniteds-opening-fixtures/) - **The Punch**
+1. [Zirkzee still a Juventus and Napoli target as Manchester United star’s future hinges on sales](https://football-italia.net/zirkzee-still-a-juventus-and-napoli-target/) - **Football Italia**
+2. [Stoke sign Scotland striker Hirst from Ipswich](https://www.bbc.com/sport/football/articles/c20j334p20yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Meunier To Start, Talbi On The Bench | 4-2-3-1 Sunderland Predicted Lineup Vs Ipswich Town](https://the4thofficial.net/2026/08/4-2-3-1-sunderland-predicted-lineup-vs-ipswich-town/) - **The4thofficial.net**
+4. [Michael Carrick hints at further Manchester United signings after Carlos Baleba](https://www.alloutsoccer.com/news/michael-carrick-manchester-united-transfers-1990788) - **Alloutsoccer.com**
+5. [Arsenal launch title defence as new-look Premier League kicks off](https://economictimes.indiatimes.com/news/sports/football/arsenal-launch-title-defence-as-new-look-premier-league-kicks-off/articleshow/133385776.cms) - **The Times of India**
+6. [West Brom's Heggebo banned for 'handball goal'](https://www.bbc.com/sport/football/articles/c7vg26r2yd1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [West Brom's Heggebo banned for 'handball goal'](https://www.bbc.co.uk/sport/football/articles/c7vg26r2yd1o) - **BBC News**
+8. [3 Arsenal fixtures 26/27 printable wallcharts](https://dailycannon.com/2026/08/3-arsenal-fixtures-26-27-printable-wallcharts/) - **Dailycannon.com**
+9. [Dalot And Mbeumo To Start | 4-2-3-1 Manchester United Predicted Lineup Vs Hull City](https://the4thofficial.net/2026/08/dalot-and-mbeumo-to-start-4-2-3-1-manchester-united-predicted-lineup-vs-hull-city/) - **The4thofficial.net**
+10. [TWG Global says Cadillac F1 team and motorsport interests not for sale](https://www.channelnewsasia.com/sport/twg-global-says-cadillac-f1-team-and-motorsport-interests-not-sale-6331886) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-08-22 02:49:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-22 03:39:08 (KST) / (하루 100회 제한 준수 중)*
