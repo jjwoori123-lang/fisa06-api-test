@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Onuachu, Ndidi, Yohanna lead 12 Nigerians into Europa, Conference League playoffs](https://punchng.com/onuachu-ndidi-yohanna-lead-12-nigerians-into-europa-conference-league-playoffs/) - **The Punch**
-2. [Vita Vea, Buccaneers Reportedly Agree On 1-Year, $30 Million Extension](https://www.foxsports.com/stories/nfl/vita-vea-buccaneers-reportedly-agree-1-year-30-million-extension) - **Fox Sports**
-3. [Algorithms amplified World Cup racism, says report](https://www.bbc.co.uk/sport/football/articles/c2k7en0lxkjo) - **BBC News**
-4. [Socceroos star Circati seals $33m transfer move to Portuguese giants](https://www.abc.net.au/news/2026-08-20/football-alessandro-circati-signs-with-benfica-33m-transfer/107056752) - **ABC News (AU)**
-5. [Brighton players pay cost of game tickets for their fans traveling to Arctic Circle for playoff](https://sports.yahoo.com/articles/brighton-players-pay-cost-game-224654348.html) - **Yahoo Entertainment**
-6. [Calais Campbell’s bond with Nnamdi Madubuike has come full circle](https://ravenswire.usatoday.com/story/sports/nfl/ravens/2026/08/19/ravens-calais-campbell-nnamdi-madubuike-mentor-comeback/91364484007/) - **USA Today**
-7. [O'Neill says Euro hero Duran has already paid for his transfer fee after 'fantastic' Colombian lights up Celtic Park with brilliant double](https://www.dailymail.com/sport/football/article-16065425/ONeill-says-Euro-hero-Duran-paid-transfer-fee-Colombian-lights-Celtic-Park-brilliant-double.html) - **Dailymail.com**
-8. [Manchester United Are Genuine Contenders For This Talented Full-Back: Good Option For Carrick?](https://the4thofficial.net/2026/08/manchester-united-are-genuine-contenders-for-this-talented-full-back/) - **The4thofficial.net**
-9. [Exceptional Duran has already repaid Celtic fee - O'Neill](https://www.rte.ie/sport/soccer/2026/0819/1588585-exceptional-duran-has-already-repaid-celtic-fee-oneill/) - **RTE**
-10. [Ederson speaks out on failed Manchester United transfer, insisting 'tests went well'](https://www.alloutsoccer.com/news/ederson-atalanta-manchester-united-transfer-1989611) - **Alloutsoccer.com**
+1. [Multiple departures expected before transfer window closes](https://www.blackwhitereadallover.com/juventus-transfer-rumors-news/40702/juventus-summer-transfer-window-2026-departure-koopmeiners-di-gregorio-perin-gatti-arthur) - **Black & White & Read All Over**
+2. [Michael Carrick has been set up to fail by Ineos - but it's not the first time he's been let down by his bosses. This is the proof he's the perfect manager for Man United's threadbare squad](https://www.dailymail.com/sport/football/article-16064485/michael-carrick-manchester-united-Ineos.html) - **Dailymail.com**
+3. ['He's not in it for the money': Insiders reveal the real reasons why football sceptic Jeff Bezos has bought into Liverpool - as well as his plans for his 'new toy', why Reds' commercial income will explode and angry fan groups' next steps](https://www.dailymail.com/sport/football/article-16064251/jeff-bezos-liverpool-investment.html) - **Dailymail.com**
+4. ['He's not in it for the money': Insiders reveal the real reasons why football sceptic Jeff Bezos has bought into Liverpool - as well as his plans for his 'new toy', why Reds' commercial income will explode and angry fan groups' next steps](https://www.dailymail.com/sport/football/article-16064251/jeff-bezos-liverpool-investment.html) - **Dailymail.com**
+5. ['We tell him off if he gets carried away!': Brighton star JACK HINSHELWOOD joins dad Adam and great-uncle Martin to reflect on three generations of serving the Seagulls, the club's 'incredible' journey and his goal target for this season](https://www.dailymail.com/sport/football/article-16063555/jack-hinshelwood-brighton-family-seagulls.html) - **Dailymail.com**
+6. [Pundit says Bayern Munich could have trouble matching up with PSG](https://www.bavarianfootballworks.com/bayern-munich-champions-league/245353/pundit-says-bayern-munich-could-have-trouble-matching-up-with-psg) - **Bavarian Football Works**
+7. [2026-27 Premier League Bold Predictions](https://theshortfuse.sbnation.com/2026-27-premier-league-season-preview/37269/2026-27-premier-league-season-bold-predictions-hot-take) - **SB Nation**
+8. [Onuachu, Ndidi, Yohanna lead 12 Nigerians into Europa, Conference League playoffs](https://punchng.com/onuachu-ndidi-yohanna-lead-12-nigerians-into-europa-conference-league-playoffs/) - **The Punch**
+9. [Vita Vea, Buccaneers Reportedly Agree On 1-Year, $30 Million Extension](https://www.foxsports.com/stories/nfl/vita-vea-buccaneers-reportedly-agree-1-year-30-million-extension) - **Fox Sports**
+10. [Algorithms amplified World Cup racism, says report](https://www.bbc.co.uk/sport/football/articles/c2k7en0lxkjo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-21 08:56:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-21 10:47:04 (KST) / (하루 100회 제한 준수 중)*
