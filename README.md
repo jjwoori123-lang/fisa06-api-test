@@ -1,14 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Curran's Test recall hopes dashed by surgery](https://www.bbc.co.uk/sport/cricket/articles/cd69dd2012qo) - **BBC News**
-2. [Disney+ and Netflix are buying into football – without buying the live action](https://theconversation.com/disney-and-netflix-are-buying-into-football-without-buying-the-live-action-289832) - **The Conversation Africa**
-3. [Where €35m Curtis Jones fits into Inter’s stacked midfield department](https://football-italia.net/where-jones-fits-into-inters-stacked-midfield/) - **Football Italia**
-4. [Match Officials Appointed: Nottingham Forest (A)](https://www.leedsunited.com/en/news/match-officials-appointed-nottingham-forest-a) - **Leedsunited.com**
-5. [Is it a wise move for Konsa?](https://www.bbc.com/sport/football/articles/cg5ljj1ng8do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [“Once you hear the music you know it’s a different level,” Martin O’Neill](https://celticshorts.com/2026/08/once-you-hear-the-music-you-know-its-a-different-level-martin-oneill/) - **Celticshorts.com**
-7. [Podcast Giant Goalhanger Hires Tom Miceli to Lead TV and Film Expansion (EXCLUSIVE)](https://variety.com/2026/digital/global/goalhanger-hires-tom-miceli-tv-and-film-expansion-1236838833/) - **Variety**
-8. [Man Utd academy duo in Arsenal talks](https://www.bbc.com/sport/football/articles/c39e8my9yeno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Football Daily](https://www.bbc.co.uk/sounds/play/p0p5cnlh?at_campaign=rss) - **BBC News**
+2. [“Magnificent signing” Rio Ferdinand reacts to Arsenal agreeing Konsa deal](https://www.justarsenal.com/magnificent-signing-rio-ferdinand-reacts-to-arsenal-agreeing-konsa-deal/420592) - **Just Arsenal News**
+3. [Missing 18-year-old Sydney hiker found dead after 8-day search in Australian bushland](https://timesofindia.indiatimes.com/world/rest-of-world/missing-18-year-old-sydney-hiker-found-dead-after-8-day-search-in-australian-bushland/articleshow/133374218.cms) - **The Times of India**
+4. [Report: Sunderland considering record-breaking £51m signing](https://eplindex.com/149597/report-sunderland-considering-record-breaking-51m-signing.html) - **English Premier League Index - Opta Stats**
+5. [Fabrizio Romano issues Federico Chiesa update after Liverpool forward missed training](https://www.empireofthekop.com/2026/08/20/romano-issues-chiesa-update-after-liverpool-forward-missed-training/) - **Empire of The Kop**
+6. [Once homeless and in liquidation, Coventry back in the Premier League after painful 25-year absence](https://sports.yahoo.com/articles/once-homeless-liquidation-coventry-back-104846960.html) - **Yahoo Entertainment**
+7. [FC Goa's AFC Challenge League 2026-27 Group Revealed](https://www.rediff.com/sports/report/fc-goa-drawn-in-tough-afc-challenge-league-group/20260820.htm) - **Rediff.com**
+8. [What's inside Brentford's 2026/27 matchday programme](https://www.brentfordfc.com/en/news/article/club-news-brentford-2026-27-premier-league-matchday-programmes) - **Brentfordfc.com**
+9. [Goalhanger appoints WME’s Tom Miceli to lead expansion into TV and film](https://www.c21media.net/news/goalhanger-appoints-wmes-tom-miceli-to-lead-expansion-into-tv-and-film/) - **C21media.net**
 
 
 ---
-*최근 업데이트: 2026-08-21 19:32:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-21 20:01:21 (KST) / (하루 100회 제한 준수 중)*
