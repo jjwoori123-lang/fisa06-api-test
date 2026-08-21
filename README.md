@@ -1,14 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle United tracking New York Red Bulls forward Julian Hall](https://sportsview.co.uk/2026/08/newcastle-united-are-tracking-new-york-red-bulls-forward-julian-hall?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-united-are-tracking-new-york-red-bulls-forward-julian-hall) - **Sportsview.co.uk**
-2. [Borussia Dortmund intensify efforts to acquire Barcelona’s Héctor Fort](https://www.getfootballnewsgermany.com/2026/hector-fort-dortmund-link/) - **Getfootballnewsgermany.com**
-3. [Journalist backs Spalletti’s plans for Douglas Luiz](https://talkjuve.com/2026/08/20/journalist-backs-spallettis-plans-for-douglas-luiz/) - **Talkjuve.com**
-4. [Newcastle United tracking New York Red Bulls forward Julian Hall](https://sportsview.co.uk/2026/08/newcastle-united-tracking-new-york-red-bulls-forward-julian-hall?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-united-tracking-new-york-red-bulls-forward-julian-hall) - **Sportsview.co.uk**
-5. [‘Hardest team to call’ – Theo Walcott’s Liverpool prediction will pleasantly surprise Reds fans](https://www.empireofthekop.com/2026/08/20/theo-walcott-liverpool-prediction-will-pleasantly-surprise-reds-fans/) - **Empire of The Kop**
-6. [Borussia Dortmund Opens Talks With Newcastle Over Nick Woltemade Deal: Breaking](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/24747/borussia-dortmund-opens-talks-with-newcastle-over-nick-woltemade-deal-breaking) - **SB Nation**
-7. [Official | Jordan James joins Wolves on loan](https://www.getfootballnewsfrance.com/2026/official-jordan-james-joins-wolves-on-loan/) - **Get French Football News**
-8. [Inter Finally Poised to Onboard Jones from Liverpool](https://cultofcalcio.com/inter-finally-poised-to-onboard-jones-from-liverpool/) - **Cultofcalcio.com**
+1. [Curran's Test recall hopes dashed by surgery](https://www.bbc.co.uk/sport/cricket/articles/cd69dd2012qo) - **BBC News**
+2. [Disney+ and Netflix are buying into football – without buying the live action](https://theconversation.com/disney-and-netflix-are-buying-into-football-without-buying-the-live-action-289832) - **The Conversation Africa**
+3. [Where €35m Curtis Jones fits into Inter’s stacked midfield department](https://football-italia.net/where-jones-fits-into-inters-stacked-midfield/) - **Football Italia**
+4. [Match Officials Appointed: Nottingham Forest (A)](https://www.leedsunited.com/en/news/match-officials-appointed-nottingham-forest-a) - **Leedsunited.com**
+5. [Is it a wise move for Konsa?](https://www.bbc.com/sport/football/articles/cg5ljj1ng8do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [“Once you hear the music you know it’s a different level,” Martin O’Neill](https://celticshorts.com/2026/08/once-you-hear-the-music-you-know-its-a-different-level-martin-oneill/) - **Celticshorts.com**
+7. [Podcast Giant Goalhanger Hires Tom Miceli to Lead TV and Film Expansion (EXCLUSIVE)](https://variety.com/2026/digital/global/goalhanger-hires-tom-miceli-tv-and-film-expansion-1236838833/) - **Variety**
+8. [Man Utd academy duo in Arsenal talks](https://www.bbc.com/sport/football/articles/c39e8my9yeno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-21 18:54:28 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-21 19:32:19 (KST) / (하루 100회 제한 준수 중)*
