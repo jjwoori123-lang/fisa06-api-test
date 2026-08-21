@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manav Suthar: How a PT teacher’s son from Rajasthan's Sri Ganganagar became India’s Test spin hero](https://economictimes.indiatimes.com/news/new-updates/manav-suthar-how-a-pt-teachers-son-from-rajasthans-sri-ganganagar-became-indias-test-spin-hero/articleshow/133364259.cms) - **The Times of India**
-2. [Premier League summer transfer spending set to break record](https://cryptobriefing.com/premier-league-summer-transfer-spending-set-to-break-record/) - **Crypto Briefing**
-3. [Mourinho told Vinicius Jr ‘not worth’ leaving Real](https://thechronicle.com.gh/mourinho-told-vinicius-jr-not-worth-leaving-real/) - **Thechronicle.com.gh**
-4. [Arsenal agree £50m-plus deal to sign Villa’s Konsa](https://thechronicle.com.gh/arsenal-agree-50m-plus-deal-to-sign-villas-konsa/) - **Thechronicle.com.gh**
-5. ['The Itch Isn't There Anymore': Harry Kane Rules Out Premier League Return](https://www.rediff.com/sports/report/the-itch-isnt-there-anymore-bayern-munichs-harry-kane-rules-out--return-to-english-premier-league/20260820.htm) - **Rediff.com**
-6. [Bayern Munich News: FC Bayern won’t add player to help with Jamal Musiala situation; José Mourinho is off to a good start at Real Madrid; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/244541/bayern-munich-musiala-real-madrid-chelsea-manchester-united-leeds-mourinho) - **Bavarian Football Works**
-7. [Kane content at Bayern, no longer feels same 'itch' to make Premier League return](https://www.channelnewsasia.com/sport/kane-content-bayern-no-longer-feels-same-itch-make-premier-league-return-6330201) - **CNA**
-8. [PSG start Ligue 1 defence with eye on Champions League hat-trick](https://sports.yahoo.com/articles/psg-start-ligue-1-defence-034755115.html) - **Yahoo Entertainment**
-9. [Arsenal can become world's best club: Arteta](https://sports.yahoo.com/articles/arsenal-become-worlds-best-club-034641858.html) - **Yahoo Entertainment**
-10. [Can Arteta's Arsenal defy history and retain Premier League title?](https://www.rediff.com/sports/report/english-premier-league-epl-2026-27-from-hunters-to-hunted-arsenal-ready-to-retain-premier-league-crown/20260820.htm) - **Rediff.com**
+1. [Haway The Podcast | NEWS ROUNDUP | Catamo & Methalie Latest + Membership Moans!](https://rokerreport.sbnation.com/haway-the-podcast/149227/haway-the-podcast-news-roundup-catamo-methalie-latest-membership-moans) - **SB Nation**
+2. [Phil Parkinson Facing Danny Imray Injury Concern Ahead of Watford Clash](https://roundtable.io/sports/soccer/efl/wrexham/news/phil-parkinson-facing-danny-imray-injury-concern-ahead-of-watford-clash) - **Roundtable.io**
+3. [Romano: United’s business ‘absolutely not over’, they’re already preparing for deal after Baleba is wrapped up](https://utdreport.co.uk/2026/08/20/romano-uniteds-business-absolutely-not-over-theyre-already-preparing-for-deal-after-baleba-is-wrapped-up/) - **Utdreport.co.uk**
+4. [Premier League predictions 2026-27: BBC Sport pundits pick their top four](https://www.bbc.com/sport/football/articles/cp8edryd7plo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Premier League predictions 2026-27: BBC Sport pundits pick their top four](https://www.bbc.co.uk/sport/football/articles/cp8edryd7plo) - **BBC News**
+6. [Ezri Konsa’s Aston Villa exit is understandable, replacing him won’t be easy](https://roundtable.io/sports/soccer/premier-league/aston-villa/news/ezri-konsa-s-aston-villa-exit-is-understandable-replacing-him-won-t-be-easy) - **Roundtable.io**
+7. [AC Milan season preview: Club surpasses €500 million in brand value, sets sight on UCL return](https://www.cbssports.com/soccer/news/ac-milan-season-preview-serie-a-europa-league-champions-league-hopes/) - **CBS Sports**
+8. [Ciarán Murphy: Croke Park’s concerts, soccer matches and boxing bouts benefit GAA members across country](https://www.irishtimes.com/sport/gaelic-games/2026/08/20/croke-parks-concerts-soccer-matches-and-boxing-bouts-benefit-gaa-members-across-country/) - **The Irish Times**
+9. [Shamrock Rovers to consult Arsenal over Victor Ozhianvuna ahead of Conference League playoffs](https://www.irishtimes.com/sport/soccer/2026/08/20/shamrock-rovers-to-consult-arsenal-over-victor-ozhianvuna-ahead-of-conference-league-playoffs/) - **The Irish Times**
+10. [On This Day (20 August 1991) Owers Targets Goals As Sunderland Make Oakwell Trip](https://rokerreport.sbnation.com/features/148933/on-this-day-20-august-1991-owers-targets-goals-as-sunderland-make-oakwell-trip) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-08-21 13:57:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-21 14:39:11 (KST) / (하루 100회 제한 준수 중)*
