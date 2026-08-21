@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Football Daily](https://www.bbc.co.uk/sounds/play/p0p5cnlh?at_campaign=rss) - **BBC News**
-2. [“Magnificent signing” Rio Ferdinand reacts to Arsenal agreeing Konsa deal](https://www.justarsenal.com/magnificent-signing-rio-ferdinand-reacts-to-arsenal-agreeing-konsa-deal/420592) - **Just Arsenal News**
-3. [Missing 18-year-old Sydney hiker found dead after 8-day search in Australian bushland](https://timesofindia.indiatimes.com/world/rest-of-world/missing-18-year-old-sydney-hiker-found-dead-after-8-day-search-in-australian-bushland/articleshow/133374218.cms) - **The Times of India**
-4. [Report: Sunderland considering record-breaking £51m signing](https://eplindex.com/149597/report-sunderland-considering-record-breaking-51m-signing.html) - **English Premier League Index - Opta Stats**
-5. [Fabrizio Romano issues Federico Chiesa update after Liverpool forward missed training](https://www.empireofthekop.com/2026/08/20/romano-issues-chiesa-update-after-liverpool-forward-missed-training/) - **Empire of The Kop**
-6. [Once homeless and in liquidation, Coventry back in the Premier League after painful 25-year absence](https://sports.yahoo.com/articles/once-homeless-liquidation-coventry-back-104846960.html) - **Yahoo Entertainment**
-7. [FC Goa's AFC Challenge League 2026-27 Group Revealed](https://www.rediff.com/sports/report/fc-goa-drawn-in-tough-afc-challenge-league-group/20260820.htm) - **Rediff.com**
-8. [What's inside Brentford's 2026/27 matchday programme](https://www.brentfordfc.com/en/news/article/club-news-brentford-2026-27-premier-league-matchday-programmes) - **Brentfordfc.com**
-9. [Goalhanger appoints WME’s Tom Miceli to lead expansion into TV and film](https://www.c21media.net/news/goalhanger-appoints-wmes-tom-miceli-to-lead-expansion-into-tv-and-film/) - **C21media.net**
+1. [Wayne Rooney shows off the results of his nose job and models trendy new specs as he and wife Coleen leave the football training ground](https://www.dailymail.com/tvshowbiz/article-16066595/Wayne-Rooney-shows-results-nose-job-models-trendy-new-specs-wife-Coleen-leave-football-training-ground.html) - **Dailymail.com**
+2. [Mourinho tells Real Madrid defender to find new club as super agent steps in](https://madriduniversal.com/mourinho-tells-real-madrid-defender-to-find-new-club-as-super-agent-steps-in/) - **Madriduniversal.com**
+3. [Man United told they’ve signed a player with ‘superb football intelligence’ and ‘elite potential’](https://utdreport.co.uk/2026/08/20/andrey-santos-praise-chelsea-manchester-united/) - **Utdreport.co.uk**
+4. [PREVIEW | Hull City vs Manchester United: team news, lineups, predictions (Premier League 22/08)](https://www.playmakerstats.com/news/preview-hull-city-vs-manchester-united-team-news-lineups-predictions-premier-league-22-08/1179207) - **Playmakerstats.com**
+5. [New reports name two Premier League sides “considering a move” for Liam Delap](https://www.talkchelsea.net/transfers/new-reports-name-two-premier-league-sides-considering-a-move/) - **Talk Chelsea**
+6. [Former Premier League referee explains what he learned when officiating ‘great talent’ Lionel Messi](https://www.hitc.com/former-premier-league-referee-explains-what-he-learned-when-officiating-great-talent-lionel-messi/) - **HITC - Football, Gaming, Movies, TV, Music**
+7. [Jaissle on pain which set him on path to Newcastle and speaking with Howe](https://www.bbc.com/sport/football/articles/c171k9kd94zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Jaissle on pain which set him on path to Newcastle and speaking with Howe](https://www.bbc.co.uk/sport/football/articles/c171k9kd94zo) - **BBC News**
+9. [West Ham urges fans to stop singing chant containing 'anti-Palestine message'](https://sports.yahoo.com/articles/west-ham-urges-fans-stop-112515943.html) - **Yahoo Entertainment**
+10. [Lyon’s Tanner Tessmann on the radar of two Premier League clubs](https://www.getfootballnewsfrance.com/2026/lyons-tanner-tessmann-on-the-radar-of-two-premier-league-clubs/) - **Get French Football News**
 
 
 ---
-*최근 업데이트: 2026-08-21 20:01:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-21 20:46:12 (KST) / (하루 100회 제한 준수 중)*
