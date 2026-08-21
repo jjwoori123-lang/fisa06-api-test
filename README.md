@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Farke on challenge of second top-flight season, Elvedi and 'excellent' business](https://www.bbc.com/sport/football/articles/cly8ekwp2rmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Parag's Football Favourites: Man Utd, Ronaldo](https://www.rediff.com/sports/report/riyan-parags-lifelong-love-for-manchester-united-ronaldo/20260820.htm) - **Rediff.com**
-3. [‘Let’s see’: Premier League CEO put on spot regarding potential deal with Man United this week](https://utdreport.co.uk/2026/08/20/carlos-baleba-brighton-and-hove-albion-ceo-manchester-united/) - **Utdreport.co.uk**
-4. [The Hunt Is On: Arsenal Begin Title Defence in a New-Look EPL](https://www.rediff.com/sports/report/arsenal-open-championship-defence-with-rivals-reshaped-and-premier-league-reborn/20260820.htm) - **Rediff.com**
-5. [Le Bris on opener to 'exciting' season, Xhaka and transfer business](https://www.bbc.com/sport/football/articles/clyj3yn1k8jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Chelsea boss Alonso happy with ‘top player’ Fernandez and praises Argentine’s attitude](https://www.101greatgoals.com/football/premier-league/chelsea-boss-alonso-happy-with-top-player-fernandez-and-praises-argentines-attitude/) - **101 Great Goals**
-7. [West Ham agrees loan deal for Divine Mukasa from Manchester City](https://cryptobriefing.com/west-ham-loan-divine-mukasa-manchester-city/) - **Crypto Briefing**
-8. [Sage on Henderson injury, transfer targets and Wharton's future](https://www.bbc.com/sport/football/articles/cz978dy43ddo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Xabi Alonso refuses to rule out Enzo Fernandez exit with Chelsea set to demand MORE than £120m asking price for star man after Man City missed transfer deadline](https://www.dailymail.com/sport/football/article-16067207/Xabi-Alonso-refuses-rule-Enzo-Fernandez-exit-Chelsea-set-demand-120m-asking-price-star-man-Man-City-missed-transfer-deadline.html) - **Dailymail.com**
-10. [“One of the best in the world” – Alonso has massive praise for centre back who will be key player for his Chelsea](https://www.talkchelsea.net/news-now/alonso-praise-centre-back-one-of-the-best/) - **Talk Chelsea**
+1. [Arsenal still looking to improve squad as Arteta reveals Bruno doubt for Premier League opener](https://www.101greatgoals.com/football/premier-league/arsenal-improve-squad-arteta-reveals-bruno-doubt/) - **101 Great Goals**
+2. [EPL: Referees to crack down on grappling at corners, free-kicks](https://punchng.com/epl-referees-to-crack-down-on-grappling-at-corners-free-kicks/) - **The Punch**
+3. [Arteta challenges Arsenal side to prove title credentials once again](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260820-930-559104/) - **Dpa-international.com**
+4. [Newcastle's Saudi owners signal commitment to club by agreeing to $260 training-ground purchase](https://sports.yahoo.com/articles/newcastles-saudi-owners-signal-commitment-143511442.html) - **Yahoo Entertainment**
+5. [Crystal Palace 2026/27 Premier League preview: Eagles set for a tough campaign under Sage](https://footballtoday.com/2026/08/20/crystal-palace-2026-27-premier-league-preview-eagles-set-for-a-tough-campaign-under-sage/) - **Footballtoday.com**
+6. [In Search Of Aura And Alphas, Troy's Dream Move To Betis, The Power Of Protest](https://shows.acast.com/the-second-captains-podcast-1/episodes/in-search-of-aura-and-alphas-troys-dream-move-to-seville-the) - **Acast.com**
+7. [TWG denies sale of Cadillac F1 team](https://www.autosport.com/f1/news/twg-denies-sale-of-cadillac-f1-team/10847649/) - **autosport.com**
+8. [Jared Goff Reveals Why Jameson Williams’ Journey Means So Much to Him](https://detroitsportsnation.com/jared-goff-jameson-williams-rewarding-journey/ddrysdale/detroit-lions/08/20/2026/490811/) - **Detroit Sports Nation**
+9. [PREVIEW | Everton vs Crystal Palace: team news, lineups, predictions (Premier League 22/08)](https://www.playmakerstats.com/news/preview-everton-vs-crystal-palace-team-news-lineups-predictions-premier-league-22-08/1179342) - **Playmakerstats.com**
+10. [One moment in time: Doku rips up the record books!](https://www.mancity.com/news/mens/one-moment-in-time-manchester-city-v-bournemouth-jeremy-doku-63922823) - **Manchester City FC**
 
 
 ---
-*최근 업데이트: 2026-08-21 22:47:50 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-21 23:37:17 (KST) / (하루 100회 제한 준수 중)*
