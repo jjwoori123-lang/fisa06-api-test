@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool Midfielder Is Subject Of Another Bid From Inter Milan: Should Iraola Cash In On Him?](https://the4thofficial.net/2026/08/liverpool-midfielder-is-subject-of-another-bid-from-inter-milan-should-iraola-cash-in-on-him/) - **The4thofficial.net**
-2. [Real Betis signs Troy Parrott from AZ Alkmaar on five-year contract](https://cryptobriefing.com/real-betis-signs-troy-parrott-az/) - **Crypto Briefing**
-3. [Manchester City Launch Enquiry For This Crystal Palace Star: Good Choice For Maresca?](https://the4thofficial.net/2026/08/manchester-city-launch-enquiry-for-this-crystal-palace-star/) - **The4thofficial.net**
-4. [Report – Juventus wants to sign Manchester City defender](https://talkjuve.com/2026/08/20/report-juventus-wants-to-sign-manchester-city-defender/) - **Talkjuve.com**
-5. [Premier League's nine new rules for upcoming 2026/27 season explained](https://www.alloutsoccer.com/news/premier-league-nine-new-rules-1990933) - **Alloutsoccer.com**
-6. [Frankfurt shot-stopper inching towards shock Leeds United switch](https://bulinews.com/frankfurt-shot-stopper-shock-leeds-united-switch) - **Bulinews.com**
-7. [Conference wrap: Larne in command, Brighton draw](https://www.rte.ie/sport/soccer/2026/0820/1588708-conference-wrap-larne-in-command-brighton-draw/) - **RTE**
-8. [Breaking down the top Big Ten commits in the 2027 Rivals300 rankings](https://www.on3.com/rivals/news/breaking-down-the-top-big-ten-commits-in-the-2027-rivals300-rankings-august/) - **On3.com**
-9. [Xabi Alonso remains evasive on Enzo Fernandez’s Chelsea future amid Man City links](https://worldsoccertalk.com/news/xabi-alonso-remains-evasive-on-enzo-fernandezs-chelsea-future-amid-man-city-links/) - **Worldsoccertalk.com**
-10. [Brazil’s LiveMode was a big winner at the World Cup. Now it’s coming for Europe’s biggest leagues.](https://www.tubefilter.com/2026/08/20/live-mode-cazetv-english-premier-league-uefa-champions-league/) - **Tubefilter**
+1. [FPL Gameweek 1 Clean Sheet Odds: Teams Most Likely to Keep a Clean Sheet](https://www.nevermanagealone.com/playerpicks/16353/fpl-gameweek-1-clean-sheet-odds-teams-most-likely-to-keep-a-clean-sheet) - **Nevermanagealone.com**
+2. [MLS Plots More Format Tweaks To Maximize Postseason TV Revenues](https://www.forbes.com/sites/johncassillo/2026/08/20/mls-plots-more-format-tweaks-to-maximize-postseason-tv-revenues/) - **Forbes**
+3. [PREMIER LEAGUE PREDICTIONS: Our experts pick which side will win title, who will go down, biggest flop and best new signing ahead of the new season](https://www.dailymail.com/sport/football/article-16064079/PREMIER-LEAGUE-PREDICTIONS-experts-new-season.html) - **Dailymail.com**
+4. [Fresh Julián Alvarez twist: Arsenal, Atlético & Barcelona all on alert](https://getfootballnewsspain.com/fresh-julian-alvarez-twist-arsenal-atletico-barcelona-all-on-alert/) - **Getfootballnewsspain.com**
+5. [Crystal Palace set €60m asking price for Galatasaray target Ismaila Sarr](https://sportsview.co.uk/2026/08/crystal-palace-set-e60m-asking-price-for-galatasaray-target-ismaila-sarr?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=crystal-palace-set-e60m-asking-price-for-galatasaray-target-ismaila-sarr) - **Sportsview.co.uk**
+6. [Is Peacock’s Latest Price Hike an Overreach?](http://www.vulture.com/article/peacock-price-hike-2026.html) - **Vulture**
+7. [New York Jets owner Woody Johnson acquires stake in F1 team Aston Martin](https://sports.yahoo.com/articles/york-jets-owner-woody-johnson-204157813.html) - **Yahoo Entertainment**
+8. [Kalshi vs Polymarket: Which Prediction Market Platform is Best for the New EPL Season?](https://www.foxsports.com/stories/betting/kalshi-vs-polymarket-which-prediction-market-platform-best-new-epl-season) - **Fox Sports**
+9. [Liverpool Midfielder Is Subject Of Another Bid From Inter Milan: Should Iraola Cash In On Him?](https://the4thofficial.net/2026/08/liverpool-midfielder-is-subject-of-another-bid-from-inter-milan-should-iraola-cash-in-on-him/) - **The4thofficial.net**
+10. [Real Betis signs Troy Parrott from AZ Alkmaar on five-year contract](https://cryptobriefing.com/real-betis-signs-troy-parrott-az/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-08-22 05:28:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-22 05:57:46 (KST) / (하루 100회 제한 준수 중)*
