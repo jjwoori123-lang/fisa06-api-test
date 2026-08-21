@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Fabrizio Romano confirms surprise Liverpool deal: Star has completed move](https://www.anfieldwatch.co.uk/liverpool-fc/news/fabrizio-romano-confirms-surprise-liverpool-deal-star-has-completed-move/) - **Anfieldwatch.co.uk**
-2. [£5m Flop Breaks Silence After Leaving Leeds United: Right Decision From The Whites?](https://the4thofficial.net/2026/08/5m-flop-breaks-silence-after-leaving-leeds-united-right-decision-from-the-whites/) - **The4thofficial.net**
-3. [‘Need to face reality’ – Arteta delivers honest message to Arsenal fringe players](https://thefootballfaithful.com/arteta-arsenal-fringe-players/) - **The Football Faithful**
-4. [A bet well-played: Hampstead kicker's unlikely path to football stardom](https://www.derrynews.com/sports/local_sports/a-bet-well-played-hampstead-kickers-unlikely-path-to-football-stardom/article_20c54ca6-04e4-5093-945e-6997968a27ef.html) - **Derrynews.com**
-5. [Nottingham Forest and Crystal Palace chase Fiorentina midfielder Fagioli](https://football-italia.net/forest-palace-fiorentina-fagioli-torreira/) - **Football Italia**
-6. [Real Madrid preview: Will sensational Jose Mourinho return pay off for Florentino Perez?](https://www.cbssports.com/soccer/news/real-madrid-preview-jose-mourinho-era-starts-again/) - **CBS Sports**
-7. [Ohio State Buckeyes 2026 College Football Schedule: Dates, Opponents, Times, TV/ Stream info](https://www.nbcsports.com/college-football/news/ohio-state-buckeyes-2026-college-football-schedule-dates-opponents-times-tv-stream-info) - **NBCSports.com**
-8. [Brighton held to stalemate in Conference League play-off first leg](https://www.playmakerstats.com/news/brighton-held-to-stalemate-in-conference-league-play-off-first-leg/1179484) - **Playmakerstats.com**
+1. [Liverpool Midfielder Is Subject Of Another Bid From Inter Milan: Should Iraola Cash In On Him?](https://the4thofficial.net/2026/08/liverpool-midfielder-is-subject-of-another-bid-from-inter-milan-should-iraola-cash-in-on-him/) - **The4thofficial.net**
+2. [Real Betis signs Troy Parrott from AZ Alkmaar on five-year contract](https://cryptobriefing.com/real-betis-signs-troy-parrott-az/) - **Crypto Briefing**
+3. [Manchester City Launch Enquiry For This Crystal Palace Star: Good Choice For Maresca?](https://the4thofficial.net/2026/08/manchester-city-launch-enquiry-for-this-crystal-palace-star/) - **The4thofficial.net**
+4. [Report – Juventus wants to sign Manchester City defender](https://talkjuve.com/2026/08/20/report-juventus-wants-to-sign-manchester-city-defender/) - **Talkjuve.com**
+5. [Premier League's nine new rules for upcoming 2026/27 season explained](https://www.alloutsoccer.com/news/premier-league-nine-new-rules-1990933) - **Alloutsoccer.com**
+6. [Frankfurt shot-stopper inching towards shock Leeds United switch](https://bulinews.com/frankfurt-shot-stopper-shock-leeds-united-switch) - **Bulinews.com**
+7. [Conference wrap: Larne in command, Brighton draw](https://www.rte.ie/sport/soccer/2026/0820/1588708-conference-wrap-larne-in-command-brighton-draw/) - **RTE**
+8. [Breaking down the top Big Ten commits in the 2027 Rivals300 rankings](https://www.on3.com/rivals/news/breaking-down-the-top-big-ten-commits-in-the-2027-rivals300-rankings-august/) - **On3.com**
+9. [Xabi Alonso remains evasive on Enzo Fernandez’s Chelsea future amid Man City links](https://worldsoccertalk.com/news/xabi-alonso-remains-evasive-on-enzo-fernandezs-chelsea-future-amid-man-city-links/) - **Worldsoccertalk.com**
+10. [Brazil’s LiveMode was a big winner at the World Cup. Now it’s coming for Europe’s biggest leagues.](https://www.tubefilter.com/2026/08/20/live-mode-cazetv-english-premier-league-uefa-champions-league/) - **Tubefilter**
 
 
 ---
-*최근 업데이트: 2026-08-22 04:41:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-22 05:28:00 (KST) / (하루 100회 제한 준수 중)*
