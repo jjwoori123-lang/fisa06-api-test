@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Scintillating performance leaves Celtic within touching distance of Champions League](https://celticshorts.com/2026/08/scintillating-performance-leaves-celtic-within-touching-distance/) - **Celticshorts.com**
-2. [Four Ligue 1 clubs in for Sunderland’s Ta Bi](https://www.getfootballnewsfrance.com/2026/four-ligue-1-clubs-in-for-sunderlands-ta-bi/) - **Get French Football News**
-3. [View From The Town End: George Earthy](https://thetilehurstend.sbnation.com/view-from-the-town-end/57638/view-from-the-town-end-george-earthy) - **SB Nation**
-4. ['90% of this deal is done' - Ilicali on Garcia pursuit](https://www.bbc.com/sport/football/articles/cx2v3v9nlz7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Arsenal legend makes bold Liverpool prediction ahead of the new season](https://anfieldindex.com/98306/arsenal-legend-makes-bold-liverpool-prediction-ahead-of-the-new-season.html) - **Anfieldindex.com**
-6. [Report: Everton have joined the race to sign Serie A forward](https://eplindex.com/149593/report-everton-have-joined-the-race-to-sign-serie-a-forward.html) - **English Premier League Index - Opta Stats**
-7. [ETPL 2026 tickets: Prices, weekend passes, venue passes and guide on how to book tickets for European T20 Premier League](https://www.cricketnews.com/en/cricket/news/etpl-2026-tickets-prices-weekend-venue-passes-guide-book-european-t20/a124df69fc39eda00f42950a) - **Cricketnews.com**
-8. [Newcastle Join Premier League Rivals in Race for €50 Million Bundesliga Talent](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/24506/newcastle-join-premier-league-rivals-in-race-for-e50-million-bundesliga-talent) - **SB Nation**
-9. [Today’s Papers: Inter land Jones, Moreira like Kaka, Lautaro concerns](https://football-italia.net/todays-papers-inter-land-jones-moreira-kaka/) - **Football Italia**
-10. [Arsenal can become world’s best club – Arteta](https://www.vanguardngr.com/2026/08/arsenal-can-become-worlds-best-club-arteta/) - **Vanguard**
+1. [Jayden Bogle: There is a good vibe around the place](https://www.leedsunited.com/en/news/jayden-bogle-there-is-a-good-vibe-around-the-place) - **Leedsunited.com**
+2. [Brighton on Sunday, Watkins, Konsa, incomings, mini season preview and match facts from the BBC](https://www.thevillablog.co.uk/brighton-on-sunday-watkins-konsa-incomings-mini-season-preview-and-match-facts-from-the-bbc/) - **Thevillablog.co.uk**
+3. [Meet Coventry’s new midfield powerhouse tipped to thrive by Essien](https://www.skysports.com/football/news/11095/13571775/caleb-yirenkyi-is-coventrys-unique-midfield-powerhouse-tipped-by-michael-essien-to-thrive-under-frank-lampard) - **Sky Sports**
+4. [Inter Milan linked with a move for Arsenal winger Gabriel Martinelli](https://sportsview.co.uk/2026/08/inter-milan-linked-with-a-move-for-arsenal-winger-gabriel-martinelli?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=inter-milan-linked-with-a-move-for-arsenal-winger-gabriel-martinelli) - **Sportsview.co.uk**
+5. [How to stream Premier League 2026/27 free with trial offers](https://www.techradar.com/streaming/entertainment/how-to-stream-premier-league-2026-27-free-with-trial-offers) - **TechRadar**
+6. [Belgium winger Diego Moreira joins AC Milan in latest big-money sale by Strasbourg](https://sports.yahoo.com/articles/belgium-winger-diego-moreira-joins-085629118.html) - **Yahoo Entertainment**
+7. [FPL GW1 Captain Picks: Who Should You Captain?](https://www.nevermanagealone.com/playerpicks/16347/fpl-gw1-captain-picks-who-should-you-captain) - **Nevermanagealone.com**
+8. [Report: Wolves considering move for 21-year-old forward](https://eplindex.com/149594/report-wolves-considering-move-for-21-year-old-forward.html) - **English Premier League Index - Opta Stats**
+9. [Barcelona face striker dilemma - could they cope without one?](https://www.bbc.com/sport/football/articles/cyvlr6mz15no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [West Ham urge fans not to sing anti-Palestine song](https://www.101greatgoals.com/football/west-ham-song-manor-solomon-palestine/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-08-21 17:00:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-21 18:01:22 (KST) / (하루 100회 제한 준수 중)*
