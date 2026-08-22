@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Newcastle United midfielder McQuade joins Hibernian on loan](https://fawslfulltime.co.uk/2026/08/21/newcastle-united-midfielder-mcquade-joins-hibernian-on-loan/) - **Fawslfulltime.co.uk**
-2. [James Tarkowski named new captain of Everton ahead of 2026/27 season](https://cryptobriefing.com/tarkowski-named-everton-captain-2026-27/) - **Crypto Briefing**
-3. [Why Premier League 2026-27 promises blockbuster drama from the very start](https://www.business-standard.com/sports/football-news/why-premier-league-2026-27-promises-blockbuster-drama-from-the-very-start-126082100542_1.html) - **Business Standard**
-4. [De Zerbi let us bond over a few beers - Maddison](https://www.bbc.co.uk/sport/football/videos/c0km6pzplrzo) - **BBC News**
-5. [Atletico prepared to sell Alvarez to Arsenal but there’s a problem](https://dailycannon.com/2026/08/atletico-alvarez-arsenal/) - **Dailycannon.com**
-6. [Tottenham Land Savinho in 75m Pound Deal with Man City](https://www.rediff.com/sports/report/tottenham-hotspur-agree-75m-pound-deal-to-sign-manchester-city-winger-savinho/20260821.htm) - **Rediff.com**
-7. [What Yankuba Minteh is thinking after Liverpool's failed £50m forward offer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-what-yankuba-minteh-is-thinking-after-failed-ps50m-forward-offer/) - **Anfieldwatch.co.uk**
-8. [Bid imminent as Andoni Iraola confirms Liverpool “will definitely sign some players”](https://www.empireofthekop.com/2026/08/21/bid-imminent-as-andoni-iraola-confirms-liverpool-will-definitely-sign-some-players/) - **Empire of The Kop**
-9. [Palace boss shuts down Adam Wharton transfer talk amid Man City interest](https://thefootballfaithful.com/palace-boss-shuts-down-adam-wharton-transfer-talk-amid-man-city-interest/) - **The Football Faithful**
-10. [Coventry City return to the Premier League: The Sky Blues’ journey back to the top](https://www.playmakerstats.com/news/coventry-city-return-to-the-premier-league-the-sky-blues-journey-back-to-the-top/1179915) - **Playmakerstats.com**
+1. [FPL Gameweek 1 Scout Picks: Our Best FPL XI](https://www.nevermanagealone.com/playerpicks/16350/fpl-gameweek-1-scout-picks-our-best-fpl-xi) - **Nevermanagealone.com**
+2. [Mika Baur earns Scott Brown approval after being thrown into Celtic deep end](https://celticshorts.com/2026/08/mika-baur-earns-scott-brown-approval-after-being-thrown-into-celtic-deep-end/) - **Celticshorts.com**
+3. [Report: Liverpool are one of the clubs interested in £17m-rated forward](https://eplindex.com/149633/report-liverpool-are-one-of-the-clubs-interested-in-17m-rated-forward.html) - **English Premier League Index - Opta Stats**
+4. [Report: Liverpool considering another bid to sign Premier League star](https://anfieldindex.com/98383/report-liverpool-considering-another-bid-to-sign-premier-league-star.html) - **Anfieldindex.com**
+5. [What the Lazio-Polymarket Split Reveals About Football Sponsorship Rules in Italy](https://football-italia.net/lazio-polymarket-split-football-sponsorship/) - **Football Italia**
+6. [Why are Villa a selling club?](https://www.bbc.com/sport/football/articles/c62vpwn533vo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [What's on the agenda for Maresca?](https://www.bbc.com/sport/football/articles/c1d1v06e4q3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [In 2014, Texas conservationists built a 54-acre underwater reef from artificial substrate; four years later oysters covered 70% of its surface](https://timesofindia.indiatimes.com/world/us/in-2014-texas-conservationists-built-a-54-acre-underwater-reef-from-artificial-substrate-four-years-later-oysters-covered-70-of-its-surface/articleshow/133401977.cms) - **The Times of India**
+9. [Hull City v Manchester United: Preview, expected line-ups, stats and where to watch](https://www.101greatgoals.com/match-previews/premier-league-matches/hull-city-v-manchester-united-preview-expected-line-ups-stats-where-to-watch/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-08-22 20:26:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-22 20:55:12 (KST) / (하루 100회 제한 준수 중)*
