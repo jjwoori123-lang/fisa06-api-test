@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Hayters season predictions: Who we think will win the league, get relegated, be the Footballer of the Year and MORE](https://hayters.com/hayters-season-predictions-who-we-think-will-win-the-league-get-relegated-be-the-footballer-of-the-year-and-more/) - **Hayters.com**
-2. [The new rules that will be implemented in the Premier League this season](https://hayters.com/the-new-rules-that-will-be-implemented-in-the-premier-league-this-season/) - **Hayters.com**
-3. [Who's scored the most goals in Premier League history?](https://www.usatoday.com/story/sports/soccer/epl/2026/08/21/premier-league-all-time-top-goal-scorers-ranked/91391101007/) - **USA Today**
-4. [Arsenal vs. Coventry City odds, prediction, time: 2026 EPL picks for Aug. 21 by expert on 7-1 roll](https://www.cbssports.com/betting/news/arsenal-coventry-city-odds-prediction-line-time-2026-english-premier-league-picks-for-august-21/) - **CBS Sports**
-5. [Konsa hungry to ‘keep winning’ after £51m Arsenal transfer](https://thefootballfaithful.com/konsa-hungry-to-keep-winning-after-51m-arsenal-transfer/) - **The Football Faithful**
-6. [Arsenal signs Ezri Konsa from Aston Villa for £55M](https://cryptobriefing.com/arsenal-signs-ezri-konsa-aston-villa-3/) - **Crypto Briefing**
-7. [Martin O’Neill impressed by Mika Baur after major Champions League test](https://celticshorts.com/2026/08/martin-oneill-impressed-by-mika-baur-after-major-champions-league-test/) - **Celticshorts.com**
-8. [Shakhtar to play Champions League home games at Chelsea's Stamford Bridge](https://www.channelnewsasia.com/sport/shakhtar-play-champions-league-home-games-chelseas-stamford-bridge-6333961) - **CNA**
-9. [Mawlai hold top spot after goalless draw with Shillong Lajong](https://www.syllad.com/mawlai-hold-top-spot-after-goalless-draw-with-shillong-lajong/) - **Syllad.com**
+1. [Mohamed Salah's moving reunion with Liverpool fan Isaac Kearney in Türkiye](https://www.alloutsoccer.com/news/salah-reunion-liverpool-fan-kearney-1992185) - **Alloutsoccer.com**
+2. [Enzo Maresca’s Premier League debut as Manchester City boss ends in disappointment](https://cryptobriefing.com/maresca-premier-league-debut-manchester-city-bournemouth/) - **Crypto Briefing**
+3. [Liverpool submits £60M bid for Yankuba Minteh, rejected by Brighton](https://cryptobriefing.com/liverpool-60m-bid-minteh-rejected-brighton/) - **Crypto Briefing**
+4. [Luka Doncic keeps Lakers near top of surprising 2030 NBA projection](https://www.sportingnews.com/us/nba/los-angeles-lakers/news/luka-doncic-keeps-lakers-near-top-surprising-2030-nba-projection/11d04ccd3222b50a40a5d6b5) - **Sporting News**
+5. [Racing Recap](https://richmondmagazine.com/life-style/leisure/nascar-races-2026/) - **Richmondmagazine.com**
+6. [Report: Liverpool ready to push for Premier League midfielder](https://eplindex.com/149648/report-liverpool-ready-to-push-for-premier-league-midfielder.html) - **English Premier League Index - Opta Stats**
+7. [Sunderland complete signing of French prospect Dayann Methalie](https://www.playmakerstats.com/news/sunderland-complete-signing-of-french-prospect-dayann-methalie/1180101) - **Playmakerstats.com**
+8. [EPL: Watkins, Martinez could leave Aston Villa, says Emery](https://punchng.com/epl-watkins-martinez-could-leave-aston-villa-says-emery/) - **The Punch**
+9. [EPL: I’m hungry for more, Ezri Konsa targets trophies after Arsenal move](https://punchng.com/epl-im-hungry-for-more-ezri-konsa-targets-trophies-after-arsenal-move/) - **The Punch**
+10. [Tony Mowbray plays down Balazs Toth to Celtic talk with ‘no bids, no contact’ claim](https://celticshorts.com/2026/08/tony-mowbray-plays-down-balazs-toth-to-celtic-talk-with-no-bids-no-contact-claim/) - **Celticshorts.com**
 
 
 ---
-*최근 업데이트: 2026-08-23 01:26:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-23 01:57:21 (KST) / (하루 100회 제한 준수 중)*
