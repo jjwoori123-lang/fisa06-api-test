@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [West Ham's Wan‑Bissaka joins Aston Villa on loan](https://www.bbc.co.uk/sport/football/articles/c629pr7lwd1o) - **BBC News**
-2. [Arsenal complete £51m Konsa deal](https://www.skysports.com/football/news/11095/13574990/ezri-konsa-arsenal-complete-lb51m-deal-for-aston-villa-and-england-defender) - **Sky Sports**
-3. [Arteta confirms Arsenal seeking replacement for injured Saliba, EPL begins Friday](https://punchng.com/arteta-confirms-arsenal-seeking-replacement-for-injured-saliba-epl-begins-friday/) - **The Punch**
-4. [Alonso: My plan for Rogers and working with 'top talent' Palmer](https://www.skysports.com/football/news/11668/13575335/xabi-alonso-new-chelsea-manager-on-morgan-rogers-cole-palmer-and-working-on-soul-of-the-blues) - **Sky Sports**
-5. [Axel Disasi closes in on Crystal Palace loan move as Chelsea continue their summer fire sale in attempt to trim Blues' bloated squad](https://www.dailymail.com/sport/football/article-16069599/Axel-Disasi-closes-Crystal-Palace-loan-Chelsea-continue-summer-fire-sale-attempt-trim-Blues-bloated-squad.html) - **Dailymail.com**
-6. [Why don't Chelsea or Sunderland have a shirt sponsor?](https://www.bbc.com/sport/articles/cn0r9xk94l9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Carra meets Iraola: Reds boss on playing style, signings & Newcastle trip](https://www.skysports.com/football/news/11669/13575327/andoni-iraola-new-liverpool-boss-explains-his-coaching-philosophy-ahead-of-premier-league-opener-at-newcastle) - **Sky Sports**
-8. [Why don't Chelsea or Sunderland have a shirt sponsor?](https://www.bbc.co.uk/sport/articles/cn0r9xk94l9o) - **BBC News**
-9. [Arsenal vs Coventry: How to watch 2026/27 Premier League opener](https://thefootballfaithful.com/arsenal-vs-coventry-how-to-watch-2026-27-premier-league-opener/) - **The Football Faithful**
-10. [Whitwell reveals Man Utd consider fielding Baleba in surprising new role](https://utdreport.co.uk/2026/08/21/laurie-whitwell-man-utd-carlos-baleba-brighton/) - **Utdreport.co.uk**
+1. [What would Marmoush give Spurs?](https://www.bbc.com/sport/football/articles/cgljrgy8x6eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. ['Hull City will survive' - fan views on ex-players comments](https://www.bbc.com/sport/football/articles/cy07xvykkrpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Predicting the full Premier League table: Arsenal on top as new Man City era begins without Pep Guardiola](https://www.cbssports.com/soccer/news/predicting-premier-league-table-arsenal-man-city-era/) - **CBS Sports**
+4. ['This is the most positive' - Shaw on Man Utd atmosphere](https://www.bbc.com/sport/football/articles/cq89len2gz1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Arsenal vs Coventry City: Match Preview, Latest Team News and Score Prediction](https://eplindex.com/149632/arsenal-vs-coventry-city-match-preview-latest-team-news-and-score-prediction.html) - **English Premier League Index - Opta Stats**
+6. [New Premier League 2026-27 rules revealed: MORE VAR involvement, strictly timed substitutions - and the plan to crack down on time-wasting goalkeepers](https://www.dailymail.com/sport/football/article-16066141/New-Premier-League-2026-27-rules-revealed-VAR-timed-substitutions-time-wasting-goalkeepers.html) - **Dailymail.com**
+7. [Top 10 Premier League kits for 2026-27 EPL season, and 3 worst](https://www.usatoday.com/story/sports/soccer/epl/2026/08/21/premier-league-kits-ranking-best-worst-2026-tottenham-epl/91332114007/) - **USA Today**
+8. [Aston Villa bring Aaron Wan-Bissaka back to the Premier League](https://www.playmakerstats.com/news/aston-villa-bring-aaron-wan-bissaka-back-to-the-premier-league/1179912) - **Playmakerstats.com**
+9. [Carrick not taking Hull for granted in season opener](https://www.rte.ie/sport/soccer/2026/0821/1588763-carrick-not-taking-hull-for-granted-in-season-opener/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-08-22 19:25:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-22 19:56:45 (KST) / (하루 100회 제한 준수 중)*
