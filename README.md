@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [What would Marmoush give Spurs?](https://www.bbc.com/sport/football/articles/cgljrgy8x6eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. ['Hull City will survive' - fan views on ex-players comments](https://www.bbc.com/sport/football/articles/cy07xvykkrpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Predicting the full Premier League table: Arsenal on top as new Man City era begins without Pep Guardiola](https://www.cbssports.com/soccer/news/predicting-premier-league-table-arsenal-man-city-era/) - **CBS Sports**
-4. ['This is the most positive' - Shaw on Man Utd atmosphere](https://www.bbc.com/sport/football/articles/cq89len2gz1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Arsenal vs Coventry City: Match Preview, Latest Team News and Score Prediction](https://eplindex.com/149632/arsenal-vs-coventry-city-match-preview-latest-team-news-and-score-prediction.html) - **English Premier League Index - Opta Stats**
-6. [New Premier League 2026-27 rules revealed: MORE VAR involvement, strictly timed substitutions - and the plan to crack down on time-wasting goalkeepers](https://www.dailymail.com/sport/football/article-16066141/New-Premier-League-2026-27-rules-revealed-VAR-timed-substitutions-time-wasting-goalkeepers.html) - **Dailymail.com**
-7. [Top 10 Premier League kits for 2026-27 EPL season, and 3 worst](https://www.usatoday.com/story/sports/soccer/epl/2026/08/21/premier-league-kits-ranking-best-worst-2026-tottenham-epl/91332114007/) - **USA Today**
-8. [Aston Villa bring Aaron Wan-Bissaka back to the Premier League](https://www.playmakerstats.com/news/aston-villa-bring-aaron-wan-bissaka-back-to-the-premier-league/1179912) - **Playmakerstats.com**
-9. [Carrick not taking Hull for granted in season opener](https://www.rte.ie/sport/soccer/2026/0821/1588763-carrick-not-taking-hull-for-granted-in-season-opener/) - **RTE**
+1. [Newcastle United midfielder McQuade joins Hibernian on loan](https://fawslfulltime.co.uk/2026/08/21/newcastle-united-midfielder-mcquade-joins-hibernian-on-loan/) - **Fawslfulltime.co.uk**
+2. [James Tarkowski named new captain of Everton ahead of 2026/27 season](https://cryptobriefing.com/tarkowski-named-everton-captain-2026-27/) - **Crypto Briefing**
+3. [Why Premier League 2026-27 promises blockbuster drama from the very start](https://www.business-standard.com/sports/football-news/why-premier-league-2026-27-promises-blockbuster-drama-from-the-very-start-126082100542_1.html) - **Business Standard**
+4. [De Zerbi let us bond over a few beers - Maddison](https://www.bbc.co.uk/sport/football/videos/c0km6pzplrzo) - **BBC News**
+5. [Atletico prepared to sell Alvarez to Arsenal but there’s a problem](https://dailycannon.com/2026/08/atletico-alvarez-arsenal/) - **Dailycannon.com**
+6. [Tottenham Land Savinho in 75m Pound Deal with Man City](https://www.rediff.com/sports/report/tottenham-hotspur-agree-75m-pound-deal-to-sign-manchester-city-winger-savinho/20260821.htm) - **Rediff.com**
+7. [What Yankuba Minteh is thinking after Liverpool's failed £50m forward offer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-what-yankuba-minteh-is-thinking-after-failed-ps50m-forward-offer/) - **Anfieldwatch.co.uk**
+8. [Bid imminent as Andoni Iraola confirms Liverpool “will definitely sign some players”](https://www.empireofthekop.com/2026/08/21/bid-imminent-as-andoni-iraola-confirms-liverpool-will-definitely-sign-some-players/) - **Empire of The Kop**
+9. [Palace boss shuts down Adam Wharton transfer talk amid Man City interest](https://thefootballfaithful.com/palace-boss-shuts-down-adam-wharton-transfer-talk-amid-man-city-interest/) - **The Football Faithful**
+10. [Coventry City return to the Premier League: The Sky Blues’ journey back to the top](https://www.playmakerstats.com/news/coventry-city-return-to-the-premier-league-the-sky-blues-journey-back-to-the-top/1179915) - **Playmakerstats.com**
 
 
 ---
-*최근 업데이트: 2026-08-22 19:56:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-22 20:26:25 (KST) / (하루 100회 제한 준수 중)*
