@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Break-up of Villa's Europa heroes leaves cracks for Emery to fill](https://www.bbc.com/sport/football/articles/c20j3vjvy48o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Aston Villa’s Harwood-Bellis pursuit shows the scale of the challenge after Konsa](https://roundtable.io/sports/soccer/premier-league/aston-villa/news/aston-villa-s-harwood-bellis-pursuit-shows-the-scale-of-the-challenge-after-konsa) - **Roundtable.io**
-3. [Aston Villa faces squad challenges after selling three key players](https://cryptobriefing.com/aston-villa-squad-challenges-summer-sales/) - **Crypto Briefing**
-4. [Mohamed Salah's perfect successor is about to be taken away from Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/mohamed-salahs-perfect-successor-is-about-to-be-taken-away-from-liverpool/) - **Anfieldwatch.co.uk**
-5. [Will Enzo Fernandez Stay At Chelsea? Xabi Alonso Breaks Silence](https://www.rediff.com/sports/report/will-enzo-fernandez-stay-at-chelsea-manager-xabi-alonso-breaks-silence-on-rumours/20260821.htm) - **Rediff.com**
-6. [Liverpool have Yankuba Minteh bid turned down by Brighton](https://sportsview.co.uk/2026/08/liverpool-have-yankuba-minteh-bid-turned-down-by-brighton?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=liverpool-have-yankuba-minteh-bid-turned-down-by-brighton) - **Sportsview.co.uk**
-7. [Despite the uncertainty, a new era officially gets at Manchester City this weekend](https://esteemedkompany.com/2026/08/21/despite-the-uncertainty-a-new-era-officially-gets-at-manchester-city-this-weekend/) - **Esteemedkompany.com**
-8. [Arsenal vs Coventry City – Predicted lineup and team news](https://thefootballfaithful.com/arsenal-vs-coventry-city-predicted-lineup-and-team-news/) - **The Football Faithful**
-9. [Coventry City XI vs Arsenal – Predicted lineup and team news](https://thefootballfaithful.com/coventry-city-xi-vs-arsenal-predicted-lineup-and-team-news/) - **The Football Faithful**
-10. [Arsenal vs Coventry City – Match preview and team news](https://thefootballfaithful.com/arsenal-vs-coventry-city-match-preview/) - **The Football Faithful**
+1. [Barcelona priority target Julian Alvarez rejects Arsenal after Atletico Madrid agree to negotiate exit](https://barcauniversal.com/barcelona-priority-target-julian-alvarez-rejects-arsenal-after-atletico-madrid-agree-to-negotiate-exit/) - **Barcauniversal.com**
+2. [New York Jets owner Woody Johnson acquires stake in F1 team Aston Martin](https://www.business-standard.com/sports/football-news/new-york-jets-owner-woody-johnson-acquires-stake-in-f1-team-aston-martin-126082100146_1.html) - **Business Standard**
+3. [City’s last five meetings with Bournemouth](https://www.mancity.com/news/mens/last-five-meetings-bournemouth-63922840) - **Manchester City FC**
+4. [Predicting Xabi Alonso's First Season In Charge Of Chelsea - Success, Surprises & Goals](https://roundtable.io/sports/soccer/premier-league/chelsea/opinions/predicting-xabi-alonsos-first-season-in-charge-of-chelsea---success-surprises-goals) - **Roundtable.io**
+5. [The Hoddle of Coffee: Tottenham Hotspur News and Links for Friday, August 21](https://cartilagefreecaptain.sbnation.com/hoddle-of-coffee/72866/the-hoddle-of-coffee-tottenham-hotspur-news-and-links-for-friday-august-21) - **SB Nation**
+6. [Arteta enjoying being 'hunted', urges players to show desire to retain PL](https://www.business-standard.com/sports/football-news/arteta-enjoying-being-hunted-urges-players-to-show-desire-to-retain-pl-126082001415_1.html) - **Business Standard**
+7. [BCB chief Tamim Iqbal hints India series date shift, BPL unlikely this year](https://www.business-standard.com/cricket/news/bcb-chief-tamim-iqbal-hints-india-series-date-shift-bpl-unlikely-this-year-126082100230_1.html) - **Business Standard**
+8. [How to watch Newcastle vs Liverpool live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-newcastle-vs-liverpool-live-stream-tv-channel-team-news-prediction-2026-27) - **NBCSports.com**
+9. [Premier League 2026/27 matchday 1 predictions: New era beckons as Newcastle vs Liverpool headlines opening weekend](https://footballtoday.com/2026/08/21/premier-league-matchday-one-preview-predictions/) - **Footballtoday.com**
 
 
 ---
-*최근 업데이트: 2026-08-22 14:46:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-22 15:42:42 (KST) / (하루 100회 제한 준수 중)*
