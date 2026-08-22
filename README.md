@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [FPL Gameweek 1 Scout Picks: Our Best FPL XI](https://www.nevermanagealone.com/playerpicks/16350/fpl-gameweek-1-scout-picks-our-best-fpl-xi) - **Nevermanagealone.com**
-2. [Mika Baur earns Scott Brown approval after being thrown into Celtic deep end](https://celticshorts.com/2026/08/mika-baur-earns-scott-brown-approval-after-being-thrown-into-celtic-deep-end/) - **Celticshorts.com**
-3. [Report: Liverpool are one of the clubs interested in £17m-rated forward](https://eplindex.com/149633/report-liverpool-are-one-of-the-clubs-interested-in-17m-rated-forward.html) - **English Premier League Index - Opta Stats**
-4. [Report: Liverpool considering another bid to sign Premier League star](https://anfieldindex.com/98383/report-liverpool-considering-another-bid-to-sign-premier-league-star.html) - **Anfieldindex.com**
-5. [What the Lazio-Polymarket Split Reveals About Football Sponsorship Rules in Italy](https://football-italia.net/lazio-polymarket-split-football-sponsorship/) - **Football Italia**
-6. [Why are Villa a selling club?](https://www.bbc.com/sport/football/articles/c62vpwn533vo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [What's on the agenda for Maresca?](https://www.bbc.com/sport/football/articles/c1d1v06e4q3o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [In 2014, Texas conservationists built a 54-acre underwater reef from artificial substrate; four years later oysters covered 70% of its surface](https://timesofindia.indiatimes.com/world/us/in-2014-texas-conservationists-built-a-54-acre-underwater-reef-from-artificial-substrate-four-years-later-oysters-covered-70-of-its-surface/articleshow/133401977.cms) - **The Times of India**
-9. [Hull City v Manchester United: Preview, expected line-ups, stats and where to watch](https://www.101greatgoals.com/match-previews/premier-league-matches/hull-city-v-manchester-united-preview-expected-line-ups-stats-where-to-watch/) - **101 Great Goals**
+1. [Delhi leg-spinner Medhavi Bidhuri goes viral with '6-7' celebration, switches No. 12 to No. 67 jersey on sister's suggestion](https://www.cricketnews.com/en/cricket/news/delhi-medhavi-bidhuri-viral-6-7-celebration/755607788dea2a12a1fce062) - **Cricketnews.com**
+2. [Brighton boss Hurzeler on futures of Man Utd target Baleba and Liverpool target Minteh](https://hayters.com/brighton-boss-hurzeler-on-futures-of-man-utd-target-baleba-and-liverpool-target-minteh/) - **Hayters.com**
+3. [Arsenal vs. Coventry City odds, prediction, time: 2026 EPL picks for Aug. 21 by expert on 7-1 roll](https://www.cbssports.com/betting/news/arsenal-coventry-city-odds-prediction-time-2026-english-premier-league-picks-for-august-21/) - **CBS Sports**
+4. [Liverpool’s Andoni Iraola discusses playing style and transfers ahead of Newcastle opener](https://cryptobriefing.com/iraola-liverpool-playing-style-newcastle-opener/) - **Crypto Briefing**
+5. [Napoli making it hard for Juventus to sign Premier League star](https://talkjuve.com/2026/08/21/napoli-making-it-hard-for-juventus-to-sign-premier-league-star/) - **Talkjuve.com**
+6. [Ronaldinho, Szczęsny, others – 7 footballers who came out of retirement to play](https://www.vanguardngr.com/2026/08/ronaldinho-szczesny-others-7-footballers-who-came-out-of-retirement-to-play/) - **Vanguard**
+7. [Premier League Home Kits 2026/27 Ranked Worst To Best](https://www.buzzfeed.com/bendzialdowski/premier-league-kits-ranked-2026?origin=bf-yahoo) - **Buzzfeed**
+8. [Arsenal’s new signing is a doubt for the Coventry match](https://www.justarsenal.com/arsenals-new-signing-is-a-doubt-for-the-coventry-match/420648) - **Just Arsenal News**
+9. [Iraola confident Liverpool will seal late-window deals amid thin squad and forward pursuit](https://www.footballmuse.com/news/iraola-confident-liverpool-will-seal-late-window-deals-amid-thin-squad-and-forward-pursuit) - **Footballmuse.com**
 
 
 ---
-*최근 업데이트: 2026-08-22 20:55:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-22 21:42:55 (KST) / (하루 100회 제한 준수 중)*
