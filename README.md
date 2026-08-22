@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [UNC's top pass-rusher named to prestigious preseason list](https://tarheelswire.usatoday.com/story/sports/college/tarheels/football/2026/08/21/unc-football-melkart-abou-jaoude-senior-bowl-top-300/91391623007/) - **USA Today**
-2. [How to Watch Manchester City vs. Bournemouth Live for Free](https://uk.pcmag.com/video-streaming-services/166855/how-to-watch-manchester-city-vs-bournemouth-live-for-free) - **PCMag.com**
-3. [Inter complete £30m deal for Liverpool's Jones](https://www.bbc.com/sport/football/articles/czdm9pjd0ero?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Liverpool dealt huge blow as head coach confirms transfer decision](https://anfieldindex.com/98424/liverpool-dealt-huge-blow-as-head-coach-confirms-transfer-decision.html) - **Anfieldindex.com**
-5. [Goalless but gripping: Mawlai stay on top after Lajong stalemate](https://southasiaviews.com/featured/goalless-but-gripping-mawlai-stay-on-top-after-lajong-stalemate/) - **Southasiaviews.com**
-6. [Inter complete £30m deal for Liverpool's Jones](https://www.bbc.co.uk/sport/football/articles/czdm9pjd0ero) - **BBC News**
-7. [West Ham United Land Teenage Man City Playmaker On Loan: His Role In Nuno’s System?](https://the4thofficial.net/2026/08/west-ham-united-land-teenage-man-city-playmaker-on-loan-his-role-in-nunos-system/) - **The4thofficial.net**
-8. [The week that blew up the Swans and called out AFL culture](https://www.abc.net.au/news/2026-08-22/the-week-that-blew-up-the-swans-and-called-out-afl-culture/107063866) - **ABC News (AU)**
-9. [Ten Japanese footballers to play in Premier League this season, a record for any Asian nation](https://cryptobriefing.com/ten-japanese-players-premier-league-record/) - **Crypto Briefing**
-10. [Not Minteh: Liverpool's interest in phenomenal £55m forward is leaked](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-endrick-real-madrid-interest-in-phenomenal-ps55m-forward-is-leaked/) - **Anfieldwatch.co.uk**
+1. [Here we go, Liverpool readying massive bid to sign African star](https://www.anfieldwatch.co.uk/liverpool-fc/news/here-we-go-liverpool-readying-massive-bid-to-sign-african-star/) - **Anfieldwatch.co.uk**
+2. [Arsenal sign defender Ezri Konsa from Aston Villa](https://www.rediff.com/sports/report/arsenal-secure-england-international-ezri-konsa-from-aston-villa-in-55m-deal/20260822.htm) - **Rediff.com**
+3. [José Mourinho reflects on how he's changed ahead of second Real Madrid debut](https://www.alloutsoccer.com/news/jose-mourinho-real-madrid-debut-1992365) - **Alloutsoccer.com**
+4. [Man Utd agree £70m deal for Baleba](https://www.skysports.com/football/news/11095/13575603/carlos-baleba-transfer-news-manchester-united-and-brighton-agree-lb70m-deal-for-midfielder) - **Sky Sports**
+5. [Arsenal v Coventry City: Havertz and Saka get Gunners’ title defence off and running](https://www.101greatgoals.com/football/premier-league/arsenal-coventry-city-havertz-saka-title-defence/) - **101 Great Goals**
+6. [ Bukayo Saka eclipses cult hero as Arsenal hit cruise control vs Coventry](https://onefootball.com/en/news/bukayo-saka-eclipses-cult-hero-as-arsenal-hit-cruise-control-vs-coventry-43315876) - **Onefootball.com**
+7. [Trading Joey Porter Jr. would be a colossal mistake for Steelers](https://steelerswire.usatoday.com/story/sports/nfl/steelers/2026/08/21/steelers-joey-porter-jr-trade/91408978007/) - **USA Today**
+8. [Premier League 2026-27 scoring leaders: The race for the Golden Boot begins](https://www.nbcsports.com/soccer/news/premier-league-2026-27-scoring-leaders-the-race-for-the-golden-boot-begins) - **NBCSports.com**
+9. [Arsenal opens Premier League title defense with 2-0 win as Bukayo Saka finds the net](https://cryptobriefing.com/arsenal-saka-premier-league-opener-win/) - **Crypto Briefing**
+10. [Nottingham Forest to rival Crystal Palace in race to sign Kevin Danois from Auxerre](https://www.getfootballnewsfrance.com/2026/nottingham-forest-to-rival-crystal-palace-in-race-to-sign-kevin-danois-from-auxerre/) - **Get French Football News**
 
 
 ---
-*최근 업데이트: 2026-08-23 04:01:28 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-23 04:40:19 (KST) / (하루 100회 제한 준수 중)*
