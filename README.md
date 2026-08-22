@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Emery left to find transfer solutions](https://www.bbc.com/sport/football/articles/ceqe42151w8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [The inside story of how Trabzonspor pulled off Salah deal](https://www.bbc.com/sport/football/articles/cvg0jgy929do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. ['Pace, ball carrying and one-against-one ability' - why Spurs want Savinho](https://www.bbc.com/sport/football/articles/c4gknwzyqrwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Crystal Palace start talks over signing Arsenal star’s twin brother](https://dailycannon.com/2026/08/crystal-palace-quinten-timber/) - **Dailycannon.com**
-5. [Arsenal Predictions: Opta Supercomputer’s Projections for Premier League 2026-27 - Opta Analyst](https://slashdot.org/firehose.pl?op=view&amp;id=185081180) - **Slashdot.org**
-6. [Premier League Predictions Part Two: Man United 5th and Spurs 7th?](https://www.justarsenal.com/premier-league-predictions-part-two-man-united-5th-and-spurs-7th/420661) - **Just Arsenal News**
-7. ['Vitality Stadium will absolutely be ready' - Frevola](https://www.bbc.com/sport/football/articles/c4gjnlxwnwpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Football ticket crackdowns and price hikes are excluding traditional fans](https://theconversation.com/football-ticket-crackdowns-and-price-hikes-are-excluding-traditional-fans-290093) - **The Conversation Africa**
-9. [Could Ibrahim Osman Be Brighton's Next Breakout Star?](https://roundtable.io/sports/soccer/premier-league/brighton-and-hove-albion/news/could-ibrahim-osman-be-brightons-next-breakout-star) - **Roundtable.io**
-10. ['I expect Ngumoha to end season with new squad number and new contract'](https://www.bbc.com/sport/football/articles/c04k0kxxkz6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [West Ham's Wan‑Bissaka joins Aston Villa on loan](https://www.bbc.co.uk/sport/football/articles/c629pr7lwd1o) - **BBC News**
+2. [Arsenal complete £51m Konsa deal](https://www.skysports.com/football/news/11095/13574990/ezri-konsa-arsenal-complete-lb51m-deal-for-aston-villa-and-england-defender) - **Sky Sports**
+3. [Arteta confirms Arsenal seeking replacement for injured Saliba, EPL begins Friday](https://punchng.com/arteta-confirms-arsenal-seeking-replacement-for-injured-saliba-epl-begins-friday/) - **The Punch**
+4. [Alonso: My plan for Rogers and working with 'top talent' Palmer](https://www.skysports.com/football/news/11668/13575335/xabi-alonso-new-chelsea-manager-on-morgan-rogers-cole-palmer-and-working-on-soul-of-the-blues) - **Sky Sports**
+5. [Axel Disasi closes in on Crystal Palace loan move as Chelsea continue their summer fire sale in attempt to trim Blues' bloated squad](https://www.dailymail.com/sport/football/article-16069599/Axel-Disasi-closes-Crystal-Palace-loan-Chelsea-continue-summer-fire-sale-attempt-trim-Blues-bloated-squad.html) - **Dailymail.com**
+6. [Why don't Chelsea or Sunderland have a shirt sponsor?](https://www.bbc.com/sport/articles/cn0r9xk94l9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Carra meets Iraola: Reds boss on playing style, signings & Newcastle trip](https://www.skysports.com/football/news/11669/13575327/andoni-iraola-new-liverpool-boss-explains-his-coaching-philosophy-ahead-of-premier-league-opener-at-newcastle) - **Sky Sports**
+8. [Why don't Chelsea or Sunderland have a shirt sponsor?](https://www.bbc.co.uk/sport/articles/cn0r9xk94l9o) - **BBC News**
+9. [Arsenal vs Coventry: How to watch 2026/27 Premier League opener](https://thefootballfaithful.com/arsenal-vs-coventry-how-to-watch-2026-27-premier-league-opener/) - **The Football Faithful**
+10. [Whitwell reveals Man Utd consider fielding Baleba in surprising new role](https://utdreport.co.uk/2026/08/21/laurie-whitwell-man-utd-carlos-baleba-brighton/) - **Utdreport.co.uk**
 
 
 ---
-*최근 업데이트: 2026-08-22 18:46:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-22 19:25:45 (KST) / (하루 100회 제한 준수 중)*
