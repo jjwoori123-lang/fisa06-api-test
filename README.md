@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal signs Ezri Konsa from Aston Villa for £51M plus add-ons](https://cryptobriefing.com/arsenal-signs-ezri-konsa-aston-villa-2/) - **Crypto Briefing**
-2. [Newcastle Dealing with Potential Nick Pope Transfer Situation: Report](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/24786/newcastle-dealing-with-concerning-nick-pope-transfer-situation-report) - **SB Nation**
-3. [How Have Liverpool Fared in the Immediate Aftermath of Losing a Talisman?](https://www.empireofthekop.com/2026/08/21/how-have-liverpool-fared-in-immediate-aftermath-of-losing-a-talisman/) - **Empire of The Kop**
-4. [We asked fans how many points Newcastle United will get from first 6 matches, interesting response](https://www.themag.co.uk/2026/08/we-asked-fans-how-many-points-newcastle-united-will-get-from-first-6-matches-interesting-response/) - **The Mag**
-5. [Today’s Papers – More new Juventus signings, Napoli step forward for Gabriel Jesus](https://football-italia.net/todays-papers-juventus-new-signings-napoli/) - **Football Italia**
-6. [EPL: Spurs agree £75m deal to sign Savinho from Manchester City](https://punchng.com/epl-spurs-agree-75m-deal-to-sign-savinho-from-manchester-city/) - **The Punch**
-7. [Would Marmoush joining Tottenham be a masterstroke or risk?](https://www.bbc.com/sport/football/articles/cr49yypz01eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Best and worst Premier League jerseys this season: Ranking the best kits, from Fulham style to Bournemouth horror](https://www.sportingnews.com/us/soccer/news/best-and-worst-premier-league-jerseys-season-ranking/a5d0bb452c8bfd7777205623) - **Sporting News**
-9. [View From The Town End: Dons Fans ‘Expecting Another Struggle’ In 2026/27](https://thetilehurstend.sbnation.com/view-from-the-town-end/57623/view-from-the-town-end-dons-fans-expecting-another-struggle-in-2026-27) - **SB Nation**
+1. [Arsenal sign Konsa ahead of Premier League opener](https://www.101greatgoals.com/football/premier-league/arsenal-sign-ezri-konsa-ahead-of-premier-league-opener/) - **101 Great Goals**
+2. [Manchester City have a major weapon that will be crucial while they put their squad together](https://esteemedkompany.com/2026/08/21/manchester-city-have-a-major-weapon-that-will-be-crucial-while-they-put-their-squad-together/) - **Esteemedkompany.com**
+3. [TCS joins European T20 Premier League as digital transformation partner](https://economictimes.indiatimes.com/news/sports/cricket/tcs-joins-european-t20-premier-league-as-digital-transformation-partner/articleshow/133397094.cms) - **The Times of India**
+4. [FC Hansa Rostock vs. VfB Stuttgart DFB-Pokal first round preview](https://bulinews.com/hansa-rostock-vfb-stuttgart-dfb-pokal-first-round-preview) - **Bulinews.com**
+5. [Tottenham's £85MILLION deal, Everton pull out of Man United move, Arsenal's kick-off preparations and Andoni Iraola set to speak: Transfer news and Premier League press conferences LIVE](https://www.dailymail.com/sport/football/article-16069199/tottenham-savinho-transfer-arsenal-iraola.html) - **Dailymail.com**
+6. [Can Alonso Restore Chelsea's Glory After Radical Overhaul?](https://www.rediff.com/sports/report/english-premier-league-2026-27-can-xabi-alonso-restore-chelseas-glory-after-radical-overhaul/20260821.htm) - **Rediff.com**
+7. [Tottenham close in on Savinho after agreeing £85m fee with Manchester City](https://www.101greatgoals.com/football/premier-league/tottenham-savinho-after-agreeing-85m-fee-manchester-city/) - **101 Great Goals**
+8. [Ornstein: Konsa to Arsenal complete](https://dailycannon.com/2026/08/konsa-arsenal-complete/) - **Dailycannon.com**
+9. [PSG get Liverpool answer in 'problematic' talks over forward deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-ibrahim-mbaye-psg-get-answer-in-problematic-talks-over-forward-deal/) - **Anfieldwatch.co.uk**
+10. [OneFootball x Capo Lee: Chelsea will win a trophy this season!](https://onefootball.com/en/news/onefootball-x-capo-lee-chelsea-will-win-a-trophy-this-season-43311726) - **Onefootball.com**
 
 
 ---
-*최근 업데이트: 2026-08-22 16:33:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-22 16:58:24 (KST) / (하루 100회 제한 준수 중)*
