@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Today in sports history, September 10](https://www.usatoday.com/story/sports/history/2026/08/21/today-in-sports-history-september-10/91411673007/) - **USA Today**
-2. [Arsenal beat Lampard’s Coventry 3-0 in Premier League opener](https://www.vanguardngr.com/2026/08/arsenal-beat-lampards-coventry-3-0-in-premier-league-opener/) - **Vanguard**
-3. [Chelsea: Napoli ready for Guiu, Roma request Gittens loan](https://football-italia.net/chelsea-napoli-ready-guiu-roma-request-gittens/) - **Football Italia**
-4. [Dominant Arsenal take down Coventry City to kick off Premier League title defense](https://www.alloutsoccer.com/news/arsenal-coventry-city-premier-league-1992465) - **Alloutsoccer.com**
-5. [Wildcard woes: Why the Crows are walking a tightrope](https://www.abc.net.au/news/2026-08-22/adelaide-crows-walk-wildcard-tightrope-on-eve-of-afl-finals/107058378) - **ABC News (AU)**
-6. [Arsenal Opens Premier League Title Defense With Shutout Win vs. Newly-Promoted Coventry](https://www.foxsports.com/stories/soccer/arsenal-opens-premier-league-title-defense-shutout-win-vs-newly-promoted-coventry) - **Fox Sports**
-7. [Arsenal begin title defence with win over Coventry](https://www.bbc.com/sport/football/live/cmy0jjenxx24t?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Champions Arsenal Cruise Past Coventry in Perfect Start to Title Defence](https://www.justarsenal.com/champions-arsenal-cruise-past-coventry-in-perfect-start-to-title-defence/420694) - **Just Arsenal News**
-9. [EPL: Arsenal thrash Coventry 3-0 to open season in style](https://punchng.com/epl-arsenal-thrash-coventry-3-0-to-open-season-in-style/) - **The Punch**
-10. [Arsenal start title defence with comfortable win over Coventry](https://www.bbc.co.uk/sport/football/videos/cgr7e17010go) - **BBC News**
+1. [Bukayo Saka and Kai Havertz shine together as Arsenal open Premier League title defense with dominant win](https://www.cbssports.com/soccer/news/bukayo-saka-kai-havertz-arsenal-premier-league-title-defense-win/) - **CBS Sports**
+2. [Carrick targeting permanent return to Champions League](https://www.rte.ie/sport/soccer/2026/0821/1588818-carrick-targeting-permanent-return-to-champions-league/) - **RTE**
+3. [Crystal Palace Owner Woody Johnson Buys Into Lawrence Stroll's Aston Martin Formula 1 Team](https://f1chronicle.com/crystal-palace-owner-woody-johnson-buys-into-lawrence-strolls-aston-martin-formula-1-team/) - **F1chronicle.com**
+4. [Arsenal Begin EPL Title Defence With Coventry Rout](https://www.rediff.com/sports/report/epl-arsenal-begin-premier-league-title-defence-with-coventry-rout/20260822.htm) - **Rediff.com**
+5. [Curtis Jones bids touching farewell to Liverpool after completing Inter Milan move](https://www.alloutsoccer.com/news/curtis-jones-liverpool-message-transfer-1992490) - **Alloutsoccer.com**
+6. ['A massive 10 days' - Neville calls on Arsenal to go for Alvarez before deadline](https://www.skysports.com/football/news/29326/13575645/arsenal-transfer-news-julian-alvarez-would-add-magic-to-gunners-frontline-says-gary-neville-as-he-urges-them-to-sign-atletico-madrid-striker) - **Sky Sports**
+7. ['A massive 10 days' - Neville calls on Arsenal to go for Alvarez before deadline](https://www.skysports.com/football/news/29326/13575645/arsenal-transfer-news-julian-alvarez-would-add-magic-to-gunners-frontline-says-gary-neville-as-he-urges-them-to-sign-atletico-madrid-striker) - **Sky Sports**
+8. [Arteta hails Arsenal's desire after perfect start to title defence](https://sports.yahoo.com/articles/arteta-hails-arsenals-desire-perfect-220419723.html) - **Yahoo Entertainment**
+9. [Arsenal: Arteta praises ‘phenomenal’ Tzolis and rules out prolonged Bruno absence](https://www.101greatgoals.com/football/premier-league/arsenal-arteta-praises-phenomenal-tzolis/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-08-23 06:55:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-23 07:24:15 (KST) / (하루 100회 제한 준수 중)*
