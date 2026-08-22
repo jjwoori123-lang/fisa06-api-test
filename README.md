@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Delhi leg-spinner Medhavi Bidhuri goes viral with '6-7' celebration, switches No. 12 to No. 67 jersey on sister's suggestion](https://www.cricketnews.com/en/cricket/news/delhi-medhavi-bidhuri-viral-6-7-celebration/755607788dea2a12a1fce062) - **Cricketnews.com**
-2. [Brighton boss Hurzeler on futures of Man Utd target Baleba and Liverpool target Minteh](https://hayters.com/brighton-boss-hurzeler-on-futures-of-man-utd-target-baleba-and-liverpool-target-minteh/) - **Hayters.com**
-3. [Arsenal vs. Coventry City odds, prediction, time: 2026 EPL picks for Aug. 21 by expert on 7-1 roll](https://www.cbssports.com/betting/news/arsenal-coventry-city-odds-prediction-time-2026-english-premier-league-picks-for-august-21/) - **CBS Sports**
-4. [Liverpool’s Andoni Iraola discusses playing style and transfers ahead of Newcastle opener](https://cryptobriefing.com/iraola-liverpool-playing-style-newcastle-opener/) - **Crypto Briefing**
-5. [Napoli making it hard for Juventus to sign Premier League star](https://talkjuve.com/2026/08/21/napoli-making-it-hard-for-juventus-to-sign-premier-league-star/) - **Talkjuve.com**
-6. [Ronaldinho, Szczęsny, others – 7 footballers who came out of retirement to play](https://www.vanguardngr.com/2026/08/ronaldinho-szczesny-others-7-footballers-who-came-out-of-retirement-to-play/) - **Vanguard**
-7. [Premier League Home Kits 2026/27 Ranked Worst To Best](https://www.buzzfeed.com/bendzialdowski/premier-league-kits-ranked-2026?origin=bf-yahoo) - **Buzzfeed**
-8. [Arsenal’s new signing is a doubt for the Coventry match](https://www.justarsenal.com/arsenals-new-signing-is-a-doubt-for-the-coventry-match/420648) - **Just Arsenal News**
-9. [Iraola confident Liverpool will seal late-window deals amid thin squad and forward pursuit](https://www.footballmuse.com/news/iraola-confident-liverpool-will-seal-late-window-deals-amid-thin-squad-and-forward-pursuit) - **Footballmuse.com**
+1. [Andoni Iraola names Liverpool's new vice-captain as Alisson - but WON'T allow him to wear the armband on the pitch to combat Premier League rule](https://www.dailymail.com/sport/football/article-16069967/andoni-iraola-liverpool-alisson-vice-captain.html) - **Dailymail.com**
+2. [The 2026-27 Premier League Power Rankings - The Ringer](https://slashdot.org/firehose.pl?op=view&amp;id=185084696) - **Slashdot.org**
+3. [Hurzeler on Baleba, transfers and team news](https://www.bbc.com/sport/football/articles/cx2v05g87nlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Manchester United 2026-27 Season Preview: Bold Predictions](https://thebusbybabe.sbnation.com/general/35446/manchester-united-2026-27-season-preview-bold-predictions) - **SB Nation**
+5. [IG makes major Premier League marketing bet with Sky Sports deal | Football Business News](https://footballbusiness.news/article/ig-makes-major-premier-league-marketing-bet-with-sky-sports-deal) - **Footballbusiness.news**
+6. [The Premier League returns today! How to watch games on Sling this weekend](https://www.usatoday.com/story/shopping/sports/streaming/2026/08/21/how-to-stream-english-premier-league-soccer-sling/91384329007/) - **USA Today**
+7. [Spurs trio out for opening game against Brentford](https://hayters.com/spurs-trio-out-for-opening-game-against-brentford/) - **Hayters.com**
+8. [We know exactly what we need to do – Maresca on transfer approach](https://www.mancity.com/news/mens/enzo-maresca-manchester-city-afc-bournemouth-preview-63922911) - **Manchester City FC**
+9. [Five talking points from Andrews’ pre-Tottenham press conference](https://www.brentfordfc.com/en/news/article/first-team-keith-andrews-press-conference-brentford-v-tottenham-hotspur-premier-league-2025-26) - **Brentfordfc.com**
 
 
 ---
-*최근 업데이트: 2026-08-22 21:42:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-22 22:33:01 (KST) / (하루 100회 제한 준수 중)*
