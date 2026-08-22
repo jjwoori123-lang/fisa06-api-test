@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [5 Reasons The Proposed New MLS Cup Playoff Format Actually Works](https://www.forbes.com/sites/ianquillen/2026/08/21/5-reasons-the-proposed-new-mls-cup-playoff-format-actually-works/) - **Forbes**
-2. [Newcastle Return to Familiar Striker Target With Transfer Deadline Approaching](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/24585/newcastle-return-to-familiar-striker-target-with-transfer-deadline-approaching) - **SB Nation**
-3. [Man City agrees to club-record sale of Savinho to Tottenham in $115M deal, AP source says](https://sports.yahoo.com/articles/man-city-agrees-club-record-085810114.html) - **Yahoo Entertainment**
-4. [ I like pizza: this footballer even leaves confusion confused](https://onefootball.com/en/news/i-like-pizza-this-footballer-even-leaves-confusion-confused-43312054) - **Onefootball.com**
-5. [Journalist hints that Liverpool could yet sign a midfielder this summer](https://anfieldindex.com/98367/journalist-hints-that-liverpool-could-yet-sign-a-midfielder-this-summer.html) - **Anfieldindex.com**
-6. [Fantasy Premier League 2026/27: Five forwards to target ahead of Gameweek 1 – including a 5%-owned gem](https://www.101greatgoals.com/football/fantasy/fantasy-premier-league-2026-27-five-forwards-to-target-ahead-gameweek-1/) - **101 Great Goals**
-7. [Five Premier League games to watch this weekend](https://wp.fromthespot.co.uk/31402/five-premier-league-games-to-watch-this-weekend/) - **Fromthespot.co.uk**
-8. [Video: Liverpool midfielder Jones arrives for Inter medical](https://football-italia.net/video-liverpool-jones-arrives-inter-medical/) - **Football Italia**
-9. [Man Utd's Devaney in talks with Hibs over loan move](https://www.bbc.com/sport/football/articles/c9w09yeprjno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Emery left to find transfer solutions](https://www.bbc.com/sport/football/articles/ceqe42151w8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [The inside story of how Trabzonspor pulled off Salah deal](https://www.bbc.com/sport/football/articles/cvg0jgy929do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. ['Pace, ball carrying and one-against-one ability' - why Spurs want Savinho](https://www.bbc.com/sport/football/articles/c4gknwzyqrwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Crystal Palace start talks over signing Arsenal star’s twin brother](https://dailycannon.com/2026/08/crystal-palace-quinten-timber/) - **Dailycannon.com**
+5. [Arsenal Predictions: Opta Supercomputer’s Projections for Premier League 2026-27 - Opta Analyst](https://slashdot.org/firehose.pl?op=view&amp;id=185081180) - **Slashdot.org**
+6. [Premier League Predictions Part Two: Man United 5th and Spurs 7th?](https://www.justarsenal.com/premier-league-predictions-part-two-man-united-5th-and-spurs-7th/420661) - **Just Arsenal News**
+7. ['Vitality Stadium will absolutely be ready' - Frevola](https://www.bbc.com/sport/football/articles/c4gjnlxwnwpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Football ticket crackdowns and price hikes are excluding traditional fans](https://theconversation.com/football-ticket-crackdowns-and-price-hikes-are-excluding-traditional-fans-290093) - **The Conversation Africa**
+9. [Could Ibrahim Osman Be Brighton's Next Breakout Star?](https://roundtable.io/sports/soccer/premier-league/brighton-and-hove-albion/news/could-ibrahim-osman-be-brightons-next-breakout-star) - **Roundtable.io**
+10. ['I expect Ngumoha to end season with new squad number and new contract'](https://www.bbc.com/sport/football/articles/c04k0kxxkz6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-22 18:03:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-22 18:46:12 (KST) / (하루 100회 제한 준수 중)*
