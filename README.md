@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal 3-0 Coventry City: Gunners cruise past new boys in flying start to title defence](https://www.101greatgoals.com/football/premier-league/arsenal-coventry-report/) - **101 Great Goals**
-2. [Man City suffer injury blow as Jeremy Doku faces sideline stint to start Premier League season](https://www.alloutsoccer.com/news/manchester-city-jeremy-doku-injury-1992441) - **Alloutsoccer.com**
-3. [Here we go! How to watch our season opener against Forest](https://www.leedsunited.com/en/news/here-we-go-how-to-watch-our-season-opener-against-forest) - **Leedsunited.com**
-4. [Arsenal 3-0 Coventry PLAYER RATINGS: Which Gunners star left the opposition defence terrified? Who needs to add goals to their game? And who looks back to their best?](https://www.dailymail.com/sport/football/article-16066901/Arsenal-3-0-Coventry-PLAYER-RATINGS-Gunners-star-left-opposition-defence-terrified-needs-add-goals-game-looks-best.html) - **Dailymail.com**
-5. [Arsenal thrash promoted Coventry to kick off the Premier League!](https://onefootball.com/en/news/arsenal-thrash-promoted-coventry-to-kick-off-the-premier-league-43316314) - **Onefootball.com**
-6. [Tzolis shines on Premier League debut - Arsenal v Coventry player ratings](https://www.bbc.com/sport/football/articles/crl7g4e4pdno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Premier League – Arsenal lance parfaitement sa saison contre Coventry](https://www.sofoot.com/breves/premier-league-arsenal-lance-parfaitement-sa-saison-contre-coventry) - **SO FOOT**
-8. [Tzolis shines on Premier League debut - Arsenal v Coventry player ratings](https://www.bbc.co.uk/sport/football/articles/crl7g4e4pdno) - **BBC News**
-9. [Mikel Arteta reaction to Arsenal's win over Frank Lampard's Coventry City](https://www.nbcsports.com/soccer/news/mikel-arteta-reaction-to-arsenals-win-over-frank-lampards-coventry-city) - **NBCSports.com**
-10. [How Good Is Arsenal’s New Winger Christos Tzolis?](https://www.forbes.com/sites/grahamruthven/2026/08/21/how-good-is-arsenals-new-winger-christos-tzolis/) - **Forbes**
+1. [Pat's hold off stubborn Drogheda to keep tabs on Rovers](https://www.rte.ie/sport/soccer/2026/0821/1588738-pats-hold-off-stubborn-drogheda-to-keep-tabs-on-rovers/) - **RTE**
+2. [Analysis: Champions send early warning](https://www.bbc.com/sport/football/articles/cn4nkpgpwk2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Analysis: Hard work begins now](https://www.bbc.com/sport/football/articles/cgq5xpgdx7go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Tzolis shines as Arsenal opens Premier League season by sweeping aside promoted Coventry](https://sports.yahoo.com/articles/tzolis-shines-arsenal-opens-premier-212017099.html) - **Yahoo Entertainment**
+5. [It's clear Klay Thompson needed the Heat as much as the Heat needed him](https://www.sportingnews.com/us/nba/miami-heat/news/klay-thompson-heat-much-needed-him/ae46df027a1dd64ca6c5e5c4) - **Sporting News**
+6. [White, Saka And Havertz Get 8 | Arsenal Players Rated In Impressive Win Vs Coventry City](https://the4thofficial.net/2026/08/white-saka-and-havertz-get-8-arsenal-players-rated-in-impressive-win-vs-coventry-city/) - **The4thofficial.net**
+7. [Premier League Soccer: Stream Hull City vs. Man United Live from Anywhere - CNET](https://www.cnet.com/tech/services-and-software/premier-league-soccer-stream-hull-city-vs-man-united-live-from-anywhere/) - **CNET**
+8. [Arsenal make emphatic winning start to title defence](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260821-930-565482/) - **Dpa-international.com**
+9. [Arsenal sweep Coventry aside to start Premier League title defence in style](https://www.irishtimes.com/sport/soccer/2026/08/21/arsenal-sweep-coventry-aside-to-start-premier-league-title-defence-in-style/) - **The Irish Times**
+10. [Arsenal 3 – Coventry City 0 match report: off to a good start](https://theshortfuse.sbnation.com/premier-league/37344/arsenal-conventry-city-match-report-player-ratings) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-08-23 05:56:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-23 06:28:08 (KST) / (하루 100회 제한 준수 중)*
