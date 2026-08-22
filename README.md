@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sunderland sign rising star Methalie](https://www.101greatgoals.com/football/premier-league/sunderland-sign-rising-star-dayann-methalie-after-back-problem-proved-minor/) - **101 Great Goals**
-2. [Arsenal sign Villa centre-back Konsa as champions bolster defence](https://sports.yahoo.com/articles/arsenal-sign-villa-centre-back-152305175.html) - **Yahoo Entertainment**
-3. ['Hungry to win' - Villa's Konsa joins Arsenal in £51m deal](https://www.bbc.com/sport/football/articles/ckg97jpkkego?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Chelsea reject initial Leeds loan bid for Mudryk](https://www.bbc.com/sport/football/articles/c4gjv4xq2l8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Chelsea reject initial Leeds loan bid for Mudryk](https://www.bbc.co.uk/sport/football/articles/c4gjv4xq2l8o) - **BBC News**
-6. [Arsenal boost defence with £51m Konsa signing from Villa](https://www.vanguardngr.com/2026/08/arsenal-boost-defence-with-51m-konsa-signing-from-villa/) - **Vanguard**
-7. [Andrews on transfers, Sangare's position and expectations](https://www.bbc.com/sport/football/articles/c5y412jk4r7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. ['Hungry to win' - Villa's Konsa joins Arsenal in £51m deal](https://www.bbc.co.uk/sport/football/articles/ckg97jpkkego) - **BBC News**
-9. [Konsa ‘hungry for more’ after completing move to Arsenal from Aston Villa](https://hayters.com/konsa-hungry-for-more-after-completing-move-to-arsenal-from-aston-villa/) - **Hayters.com**
-10. [Arsenal bolster defence with Konsa signing from Villa](https://www.channelnewsasia.com/sport/arsenal-bolster-defence-konsa-signing-villa-6333871) - **CNA**
+1. [Ashely Cole names his Premier League breakout star: ‘I think this is going to be a big year for him’](https://www.sbnation.com/soccer/1125633/ashely-cole-interview-premier-league-breakout-star-lewis-hall) - **SB Nation**
+2. [Shakhtar Donetsk confirm Stamford Bridge for Champions League home matches](https://punchng.com/shakhtar-donetsk-confirm-stamford-bridge-for-champions-league-home-matches/) - **The Punch**
+3. [9 Super Eagles players to feature in 2026/27 EPL season](https://www.vanguardngr.com/2026/08/9-super-eagles-players-to-feature-in-2026-27-epl-season/) - **Vanguard**
+4. [What does Heggebo's deception ban mean for football?](https://www.bbc.com/sport/football/articles/c05q3946r6ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [What does Heggebo's deception ban mean for football?](https://www.bbc.co.uk/sport/football/articles/c05q3946r6ro) - **BBC News**
+6. [Zavier Gozo: The Start of a New USMNT Era](https://urbanpitch.com/zavier-gozo-the-start-of-a-new-usmnt-era/) - **Urbanpitch.com**
+7. [Arsenal signs England defender Konsa from Villa to strengthen defensive options](https://sports.yahoo.com/articles/arsenal-signs-england-defender-konsa-154443150.html) - **Yahoo Entertainment**
+8. [Everton vs Crystal Palace: Match Preview| The new season starts here #EFC](https://royalbluemersey.sbnation.com/everton-2026-27-season-premier-league/82201/everton-vs-crystal-palace-match-preview-the-new-season-starts-here) - **SB Nation**
+9. [Bruins Share Special Patrice Bergeron Appearance At Zdeno Chara’s Farewell](https://nesn.com/boston-bruins/news/bruins-share-special-patrice-bergeron-appearance-zdeno-charas-farewell/e6b8b92874363ae1d26f2585) - **NESN**
+10. [Ezri Konsa completes £51 million move to Arsenal](https://wp.fromthespot.co.uk/31420/ezri-konsa-completes-51-million-move-to-arsenal/) - **Fromthespot.co.uk**
 
 
 ---
-*최근 업데이트: 2026-08-23 00:25:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-23 00:54:47 (KST) / (하루 100회 제한 준수 중)*
