@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ashely Cole names his Premier League breakout star: ‘I think this is going to be a big year for him’](https://www.sbnation.com/soccer/1125633/ashely-cole-interview-premier-league-breakout-star-lewis-hall) - **SB Nation**
-2. [Shakhtar Donetsk confirm Stamford Bridge for Champions League home matches](https://punchng.com/shakhtar-donetsk-confirm-stamford-bridge-for-champions-league-home-matches/) - **The Punch**
-3. [9 Super Eagles players to feature in 2026/27 EPL season](https://www.vanguardngr.com/2026/08/9-super-eagles-players-to-feature-in-2026-27-epl-season/) - **Vanguard**
-4. [What does Heggebo's deception ban mean for football?](https://www.bbc.com/sport/football/articles/c05q3946r6ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [What does Heggebo's deception ban mean for football?](https://www.bbc.co.uk/sport/football/articles/c05q3946r6ro) - **BBC News**
-6. [Zavier Gozo: The Start of a New USMNT Era](https://urbanpitch.com/zavier-gozo-the-start-of-a-new-usmnt-era/) - **Urbanpitch.com**
-7. [Arsenal signs England defender Konsa from Villa to strengthen defensive options](https://sports.yahoo.com/articles/arsenal-signs-england-defender-konsa-154443150.html) - **Yahoo Entertainment**
-8. [Everton vs Crystal Palace: Match Preview| The new season starts here #EFC](https://royalbluemersey.sbnation.com/everton-2026-27-season-premier-league/82201/everton-vs-crystal-palace-match-preview-the-new-season-starts-here) - **SB Nation**
-9. [Bruins Share Special Patrice Bergeron Appearance At Zdeno Chara’s Farewell](https://nesn.com/boston-bruins/news/bruins-share-special-patrice-bergeron-appearance-zdeno-charas-farewell/e6b8b92874363ae1d26f2585) - **NESN**
-10. [Ezri Konsa completes £51 million move to Arsenal](https://wp.fromthespot.co.uk/31420/ezri-konsa-completes-51-million-move-to-arsenal/) - **Fromthespot.co.uk**
+1. [Hayters season predictions: Who we think will win the league, get relegated, be the Footballer of the Year and MORE](https://hayters.com/hayters-season-predictions-who-we-think-will-win-the-league-get-relegated-be-the-footballer-of-the-year-and-more/) - **Hayters.com**
+2. [The new rules that will be implemented in the Premier League this season](https://hayters.com/the-new-rules-that-will-be-implemented-in-the-premier-league-this-season/) - **Hayters.com**
+3. [Who's scored the most goals in Premier League history?](https://www.usatoday.com/story/sports/soccer/epl/2026/08/21/premier-league-all-time-top-goal-scorers-ranked/91391101007/) - **USA Today**
+4. [Arsenal vs. Coventry City odds, prediction, time: 2026 EPL picks for Aug. 21 by expert on 7-1 roll](https://www.cbssports.com/betting/news/arsenal-coventry-city-odds-prediction-line-time-2026-english-premier-league-picks-for-august-21/) - **CBS Sports**
+5. [Konsa hungry to ‘keep winning’ after £51m Arsenal transfer](https://thefootballfaithful.com/konsa-hungry-to-keep-winning-after-51m-arsenal-transfer/) - **The Football Faithful**
+6. [Arsenal signs Ezri Konsa from Aston Villa for £55M](https://cryptobriefing.com/arsenal-signs-ezri-konsa-aston-villa-3/) - **Crypto Briefing**
+7. [Martin O’Neill impressed by Mika Baur after major Champions League test](https://celticshorts.com/2026/08/martin-oneill-impressed-by-mika-baur-after-major-champions-league-test/) - **Celticshorts.com**
+8. [Shakhtar to play Champions League home games at Chelsea's Stamford Bridge](https://www.channelnewsasia.com/sport/shakhtar-play-champions-league-home-games-chelseas-stamford-bridge-6333961) - **CNA**
+9. [Mawlai hold top spot after goalless draw with Shillong Lajong](https://www.syllad.com/mawlai-hold-top-spot-after-goalless-draw-with-shillong-lajong/) - **Syllad.com**
 
 
 ---
-*최근 업데이트: 2026-08-23 00:54:47 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-23 01:26:42 (KST) / (하루 100회 제한 준수 중)*
