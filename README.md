@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['I'm very happy and have many compliments for my players' - Farke](https://www.bbc.co.uk/sport/football/videos/cn5n57dwewko) - **BBC News**
-2. [Ipswich 2-1 Sunderland: What Le Bris said](https://www.bbc.com/sport/football/articles/c5y0ym3p66eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [‘Won’t knock us’: Carrick stays defiant after Man Utd suffer shock defeat to promoted Hull City](https://www.hitc.com/wont-knock-us-carrick-stays-defiant-after-man-utd-suffer-shock-defeat-to-promoted-hull-city/) - **HITC - Football, Gaming, Movies, TV, Music**
-4. [Everton 2-0 Crystal Palace: What Moyes and Hackney said](https://www.bbc.com/sport/football/articles/czrjrl5ke53o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [PL round-up: Opening wins for Everton, Ipswich and Leeds](https://www.rte.ie/sport/soccer/2026/0822/1588873-pl-wrap-opening-wins-for-everton-ipswich-and-leeds/) - **RTE**
-6. [Nottingham Forest 0-1 Leeds United: Stach free-kick seals opening-day win at City Ground](https://wp.fromthespot.co.uk/31423/nottingham-forest-0-1-leeds-united-stach-free-kick-seals-opening-day-win-at-city-ground/) - **Fromthespot.co.uk**
-7. [Report: Nottingham Forest 0-1 Leeds United](https://www.leedsunited.com/en/news/report-nottingham-forest-0-1-leeds-united) - **Leedsunited.com**
-8. [Charlton beats West Ham 2-1, maintaining perfect Championship start](https://cryptobriefing.com/charlton-beats-west-ham-championship/) - **Crypto Briefing**
-9. [Angulo, Xhaka And Meunier Get 7 | Sunderland Players Rated In Tough Loss Vs Ipswich Town](https://the4thofficial.net/2026/08/angulo-xhaka-and-meunier-get-7-sunderland-players-rated-in-tough-loss-vs-ipswich-town/) - **The4thofficial.net**
-10. [Hull start season in style with shock win over Man Utd, Ipswich joy](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260822-930-568179/) - **Dpa-international.com**
+1. [WATCH: Lewis-Potter and Janelt on target as Brentford batter big-spending Tottenham](https://www.101greatgoals.com/football/premier-league/lewis-potter-janelt-brentford-batter-tottenham/) - **101 Great Goals**
+2. [Brentford dismantle Spurs with two first-half goals as Janelt doubles the lead](https://cryptobriefing.com/brentford-janelt-spurs-2-0-premier-league/) - **Crypto Briefing**
+3. [Nottingham Forest 0-1 Leeds United: Forest Player Ratings](https://roundtable.io/sports/soccer/premier-league/nottingham-forest/news/nottingham-forest-0-1-leeds-united-forest-player-ratings) - **Roundtable.io**
+4. [Carrick refuses to panic after Man United’s 2-0 Hull City defeat](https://punchng.com/carrick-refuses-to-panic-after-man-uniteds-2-0-hull-city-defeat/) - **The Punch**
+5. [Everton 2-0 Crystal Palace: What Sage and Richards said](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_9712620e-efd7-4dbd-9bae-5eb4e12a6b06) - **Yahoo Entertainment**
+6. [Joao Pedro extends Chelsea stay with new long-term deal](https://www.vanguardngr.com/2026/08/joao-pedro-extends-chelsea-stay-with-new-long-term-deal/) - **Vanguard**
+7. [Arsenal tell Osimhen to make one sacrifice to join them](https://www.justarsenal.com/arsenal-tell-osimhen-to-make-one-sacrifice-to-join-them/420725) - **Just Arsenal News**
+8. [Newcastle Facing Multiple Injury Concerns for Season Opener vs. Liverpool](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/24669/newcastle-facing-multiple-injury-concerns-for-season-opener-vs-liverpool) - **SB Nation**
+9. [⚠️ Talks progress, and BRAZUCA moves closer to Manchester City](https://onefootball.com/en/news/talks-progress-and-brazuca-moves-closer-to-manchester-city-43320385) - **Onefootball.com**
+10. ['I'm very happy and have many compliments for my players' - Farke](https://www.bbc.co.uk/sport/football/videos/cn5n57dwewko) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-24 01:58:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-24 02:27:38 (KST) / (하루 100회 제한 준수 중)*
