@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Official | Dayann Methalie completes Sunderland transfer](https://www.getfootballnewsfrance.com/2026/official-dayann-methalie-completes-sunderland-transfer/) - **Get French Football News**
-2. [Mikel Arteta gives new Bruno Guimaraes injury update](https://dailycannon.com/2026/08/arteta-bruno-guimaraes-injury-update/) - **Dailycannon.com**
-3. [Michael Carrick Delivers Clear Response To Man Utd Left-Back Question Amid Jorge Salinas Links](https://roundtable.io/sports/soccer/premier-league/manchester-united/transfers/michael-carrick-delivers-clear-response-to-man-utd-left-back-question-amid-jorge-salinas-links) - **Roundtable.io**
-4. [Spurs deny Roma’s attempt for Mathys Tel](https://romapress.net/spurs-deny-romas-attempt-for-mathys-tel/) - **RomaPress**
-5. [How to watch Hull vs Manchester United: TV channel and live streaming details](https://eplindex.com/149665/how-to-watch-hull-vs-manchester-united-tv-channel-and-live-streaming-details.html) - **English Premier League Index - Opta Stats**
-6. [Fiorentina set to beat Sunderland and Nottingham Forest to Poku signing](https://bulinews.com/fiorentina-set-beat-sunderland-nottingham-poku-signing) - **Bulinews.com**
-7. [Arteta explains why Arsenal’s win v Coventry impressed him so much](https://dailycannon.com/2026/08/arteta-arsenal-coventry/) - **Dailycannon.com**
-8. [Tomorrow A Football Community Will Unite To Remember Kevin Keegan](https://roundtable.io/sports/soccer/premier-league/newcastle-united/news/tomorrow-a-football-community-will-unite-to-remember-kevin-keegan) - **Roundtable.io**
-9. [“Just a great performance” Arteta delighted with win against Coventry](https://www.justarsenal.com/just-a-great-performance-arteta-delighted-with-win-against-coventry/420704) - **Just Arsenal News**
-10. [Five children, two sets of twins ease Maddison's injury recovery](https://www.channelnewsasia.com/sport/five-children-two-sets-twins-ease-maddisons-injury-recovery-6334711) - **CNA**
+1. [Game over for Liverpool midfielder with contract termination close](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-stefan-bajcetic-celta-vigo-midfielder-with-contract-termination-close/) - **Anfieldwatch.co.uk**
+2. [Man Utd predicted XI vs Hull City: Sesko’s absence sparks dilemma, £83m midfield unleashed](https://utdreport.co.uk/2026/08/22/man-united-predicted-lineup-hull-city-sesko/) - **Utdreport.co.uk**
+3. [Pape Matar Sarr deletes Instagram posts about Spurs as he is told to leave](https://sportsview.co.uk/2026/08/pape-matar-sarr-deletes-instagram-posts-about-spurs-as-he-is-told-to-leave?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=pape-matar-sarr-deletes-instagram-posts-about-spurs-as-he-is-told-to-leave) - **Sportsview.co.uk**
+4. [Celtic set to overtake Scotland’s self-appointed Coefficient Kings](https://celticshorts.com/2026/08/celtic-set-to-overtake-scotlands-self-appointed-coefficient-kings/) - **Celticshorts.com**
+5. [Where to watch Everton vs. Crystal Palace live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-everton-crystal-palace-live-stream-channel-time-premier-league/33eeecc29069bc44261a64bd) - **Sporting News**
+6. [US soccer wants excitement after the World Cup – the Open Cup provides it](https://sports.yahoo.com/articles/us-soccer-wants-excitement-world-090002323.html) - **Yahoo Entertainment**
+7. [PIF Sets Shocking Expectation for Newcastle’s 2026/27 Premier League Season](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/24821/pif-sets-shocking-expectation-for-newcastles-2026-27-premier-league-season) - **SB Nation**
+8. [How to watch Hull City vs Man Utd: Free Streams + TV Channels for Premier League 2026/27](https://www.techradar.com/how-to-watch/football/how-to-watch-hull-city-vs-man-utd-free-streams-tv-channels-for-premier-league-2026-27) - **TechRadar**
+9. [Ipswich Town target Breel Embolo heads to Atlanta United to complete MLS move](https://www.getfootballnewsfrance.com/2026/ipswich-town-target-breel-embolo-heads-to-atlanta-united-to-complete-mls-move/) - **Get French Football News**
 
 
 ---
-*최근 업데이트: 2026-08-23 17:40:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-23 18:29:48 (KST) / (하루 100회 제한 준수 중)*
