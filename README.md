@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool Are Expected To Make An Improved Offer For This Brighton Winger: Good Choice For Iraola?](https://the4thofficial.net/2026/08/liverpool-are-expected-to-make-an-improved-offer-for-this-brighton-winger-good-choice-for-iraola/) - **The4thofficial.net**
-2. [De Zerbi: Tottenham ‘were not ready to fight’ in desperate Brentford defeat](https://www.101greatgoals.com/football/premier-league/de-zerbi-tottenham-not-ready-fight-desperate-brentford-defeat/) - **101 Great Goals**
-3. [Is Barry emerging as frontman Everton can finally count on?](https://www.bbc.com/sport/football/articles/c39e9vpjg1do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [‘Tottenham are in tatters’: Bill Simmons reacts to Spurs matching their worst-ever Premier League opening-day defeat](https://www.hitc.com/tottenham-are-in-tatters-bill-simmons-reacts-to-spurs-matching-their-worst-ever-premier-league-opening-day-defeat/) - **HITC - Football, Gaming, Movies, TV, Music**
-5. [Leeds United Linked With €40m Winger: Should Farke Walk Away?](https://the4thofficial.net/2026/08/leeds-united-linked-with-e40m-winger-should-farke-walk-away/) - **The4thofficial.net**
-6. [Daizen Maeda makes winning competitive debut for Ipswich Town](https://celticshorts.com/2026/08/daizen-maeda-makes-winning-competitive-debut-for-ipswich-town/) - **Celticshorts.com**
-7. [Roberto De Zerbi warns big-spending Tottenham need time and must improve 'physical condition' and 'organisation' - as boss apologises after crushing loss to Brentford](https://www.dailymail.com/sport/football/article-16072663/Roberto-Zerbi-Tottenham-need-time-apologises-crushing-loss-Brentford.html) - **Dailymail.com**
-8. [Roberto De Zerbi warns big-spending Tottenham need time and must improve 'physical condition' and 'organisation' - as boss apologises after crushing loss to Brentford](https://www.dailymail.com/sport/football/article-16072663/Roberto-Zerbi-Tottenham-need-time-apologises-crushing-loss-Brentford.html) - **Dailymail.com**
-9. [Atlético boss Simeone provides Julián Alvarez update before Villarreal clash](https://getfootballnewsspain.com/atletico-boss-simeone-provides-julian-alvarez-update-before-villarreal-clash/) - **Getfootballnewsspain.com**
-10. [Tote bags & derby wins - how Pressley has defied Dundee expectations](https://www.bbc.com/sport/football/articles/c86n6j1x36zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [De Zerbi admits 'we're not a team yet' as Redknapp labels Spurs 'strangers'](https://www.skysports.com/football/news/11675/13575888/roberto-de-zerbi-tottenham-boss-admits-were-not-a-team-yet-after-new-look-side-suffer-dismal-brentford-loss) - **Sky Sports**
+2. [De Zerbi doesn’t hide from Spurs’ woeful performance at Brentford in remarks to press](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/73078/tottenham-hotspur-transfer-news-rumors-brentford-de-zerbi-press-conference) - **SB Nation**
+3. [Manchester City want Liverpool star to lead midfielder rebuild](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-alexis-mac-allister-manchester-city-want-star-to-lead-midfielder-rebuild/) - **Anfieldwatch.co.uk**
+4. [West Ham United Eye £21m Scottish Premiership Star: Good Deal For The Hammers?](https://the4thofficial.net/2026/08/west-ham-united-eye-21m-scottish-premiership-star-good-deal-for-the-hammers/) - **The4thofficial.net**
+5. [Brentford's mature season debut sends Premier League message on day of surprises](https://www.nbcsports.com/soccer/news/brentfords-mature-season-debut-sends-premier-league-message-on-day-of-surprises) - **NBCSports.com**
+6. [Tottenham's expensive rebuild begins with familiar collapse](https://www.channelnewsasia.com/sport/tottenhams-expensive-rebuild-begins-familiar-collapse-6335316) - **CNA**
+7. [Andy Burnham's faces pressure to sack 'climate tsar' who has racked up enough air miles to get to the Moon](https://www.dailymail.com/news/article-16072507/Andy-Burnhams-faces-pressure-sack-climate-tsar.html) - **Dailymail.com**
+8. [Papers: Arsenal pair Arteta and Berta in 'frequent contact' with Alvarez](https://www.skysports.com/football/transfer-paper-talk/12709/13576128/arsenal-transfer-news-mikel-arteta-and-andrea-berta-in-frequent-contact-with-julian-alvarez-amid-hope-of-luring-atletico-madrid-star-paper-talk) - **Sky Sports**
+9. [Rolly Romero vs. Teofimo Lopez Livestream: Where to Watch the Welterweight Pay-Per-View Match Online](https://variety.com/2026/shopping/news/how-to-watch-rolly-romero-vs-teofimo-lopez-ppv-boxing-live-online-1236838232/) - **Variety**
+10. [Liverpool Are Expected To Make An Improved Offer For This Brighton Winger: Good Choice For Iraola?](https://the4thofficial.net/2026/08/liverpool-are-expected-to-make-an-improved-offer-for-this-brighton-winger-good-choice-for-iraola/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-08-24 05:56:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-24 06:27:48 (KST) / (하루 100회 제한 준수 중)*
