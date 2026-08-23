@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea reject Roma’s loan offer for Jamie Bynoe-Gittens](https://sportsview.co.uk/2026/08/chelsea-reject-romas-loan-offer-for-jamie-bynoe-gittens?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-reject-romas-loan-offer-for-jamie-bynoe-gittens) - **Sportsview.co.uk**
-2. [Everton Starting XI vs Crystal Palace: Confirmed Team News and Predicted Lineup](https://eplindex.com/149660/everton-starting-xi-vs-crystal-palace-confirmed-team-news-and-predicted-lineup.html) - **English Premier League Index - Opta Stats**
-3. [In-demand João Pedro extends his Chelsea deal](https://onefootball.com/en/news/in-demand-joao-pedro-extends-his-chelsea-deal-43318212) - **Onefootball.com**
-4. [How Liverpool are preparing to face six new managers in first six games](https://www.bbc.com/sport/football/articles/cg5l9qz1dvno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [How Liverpool are preparing to face six new managers in first six games](https://www.bbc.co.uk/sport/football/articles/cg5l9qz1dvno) - **BBC News**
-6. [Tzolis credits Arsenal fans for his impressive debut](https://dailycannon.com/2026/08/tzolis-debut-arsenal-fans/) - **Dailycannon.com**
-7. [‘Being a player is my passion’: Keisuke Honda targets Singapore Premier League title with FC Jurong](https://www.channelnewsasia.com/sport/keisuke-honda-singapore-premier-league-fc-jurong-6334741) - **CNA**
-8. [Where to watch Brentford vs. Tottenham live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-brentford-tottenham-live-stream-tv-channel-premier-league/ed90fc58186b5bdaa45cc5f1) - **Sporting News**
-9. [Saturday Football Open Thread](https://cartilagefreecaptain.sbnation.com/general/73040/saturday-football-open-thread) - **SB Nation**
-10. [Hull City interested in Paris FC’s Ilan Kebbal](https://www.getfootballnewsfrance.com/2026/hull-city-interested-in-paris-fcs-ilan-kebbal/) - **Get French Football News**
+1. [Man Utd take on Hull City in early PL kick-off](https://onefootball.com/en/news/man-utd-take-on-hull-city-in-early-pl-kick-off-43318433) - **Onefootball.com**
+2. [Premier League: Rashford on bench as Man Utd visit promoted Hull on opening weekend](https://www.bbc.com/sport/football/live/clyx03e7y2lt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Opposition watch: Who do Fulham need to be wary of in Chelsea squad](https://roundtable.io/sports/soccer/premier-league/fulham/news/opposition-watch-who-do-fulham-need-to-be-wary-of-in-chelsea-squad) - **Roundtable.io**
+4. [Hull vs Manchester United: Line-ups confirmed for Red Devil’s trip to promoted side](https://www.101greatgoals.com/football/premier-league/hull-vs-manchester-united-line-ups-confirmed/) - **101 Great Goals**
+5. [Former Real Madrid academy ace could bring significant windfall amid Premier League interest](https://madriduniversal.com/former-real-madrid-academy-ace-could-bring-significant-windfall-amid-premier-league-interest/) - **Madriduniversal.com**
+6. [Is this what the Newcastle United PIF Project was supposed to look like?](https://www.themag.co.uk/2026/08/is-this-what-the-newcastle-united-pif-project-was-supposed-to-look-like/) - **The Mag**
+7. [Joao Pedro signs improved Chelsea deal](https://www.rte.ie/sport/soccer/2026/0822/1588843-joao-pedro-signs-improved-chelsea-deal/) - **RTE**
+8. [Hull vs Manchester United - Premier League LIVE: Michael Carrick's Red Devils kick off campaign at the newly-promoted side as Marcus Rashford's new number revealed](https://www.dailymail.com/sport/football/article-16063807/Hull-vs-Manchester-United-Premier-League-2026-27-LIVE.html) - **Dailymail.com**
+9. [Hull vs Manchester United - Premier League LIVE: Michael Carrick's Red Devils kick off campaign at the newly-promoted side as Marcus Rashford's new number revealed](https://www.dailymail.com/sport/football/article-16063807/Hull-vs-Manchester-United-Premier-League-2026-27-LIVE.html) - **Dailymail.com**
+10. [BBC Sport pundit predictions - 'Pressure on Maresca from the off'](https://www.bbc.com/sport/football/articles/c629ykz0x91o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-23 18:56:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-23 19:30:59 (KST) / (하루 100회 제한 준수 중)*
