@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [EPL: Liverpool, Man City face new-era test without Salah, Guardiola](https://punchng.com/epl-liverpool-man-city-face-new-era-test-without-salah-guardiola/) - **The Punch**
-2. [Everton vs Crystal Palace – Match preview and team news](https://thefootballfaithful.com/everton-vs-crystal-palace-match-preview-and-team-news-2/) - **The Football Faithful**
-3. [Sunderland XI vs Ipswich Town – Predicted lineup and team news](https://thefootballfaithful.com/sunderland-xi-vs-ipswich-town-lineup/) - **The Football Faithful**
-4. [Everton vs Crystal Palace – Predicted lineup and team news](https://thefootballfaithful.com/everton-vs-crystal-palace-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-5. [Hull City vs Manchester United – Match preview and team news](https://thefootballfaithful.com/hull-city-vs-manchester-united-match-preview-and-team-news/) - **The Football Faithful**
-6. [Crystal Palace XI vs Everton – Predicted lineup and team news](https://thefootballfaithful.com/crystal-palace-xi-vs-everton-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-7. [Where to watch Hull City vs. Man United live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-hull-city-man-united-live-stream-channel-time-premier-league/ece72f67883daaddf072e0ae) - **Sporting News**
-8. [In the 2026/27 Premier League season, Manchester City are the Erling Haaland Team](https://www.sportingnews.com/us/soccer/news/premier-league-season-manchester-city-erling-haaland-team/3b2678e45ab8102925ad508f) - **Sporting News**
-9. [Score Predictions: We Go Again - Can SAFC Prevail in Suffolk?](https://rokerreport.sbnation.com/match-previews/149323/score-predictions-can-sunderland-start-with-a-bang-at-ipswich) - **SB Nation**
-10. [Starting XI: Is This The Sunderland Team To Take On Ipswich Today?](https://rokerreport.sbnation.com/match-previews/149306/starting-xi-is-this-the-sunderland-team-to-take-on-ipswich-today) - **SB Nation**
+1. [Fab Four and Fleming on the phone - England's first-Test takeaways](https://www.bbc.com/sport/cricket/articles/c5yr18gp9j9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [A midfielder has reportedly been told that be can also leave Manchester City](https://esteemedkompany.com/2026/08/22/a-midfielder-has-reportedly-been-told-that-be-can-also-leave-manchester-city/) - **Esteemedkompany.com**
+3. [Winning starts for Arsenal, Marseille and Betis as new league seasons begin](https://www.business-standard.com/sports/football-news/winning-starts-for-arsenal-marseille-and-betis-as-new-league-seasons-begin-126082200146_1.html) - **Business Standard**
+4. [Aston Villa in talks to sign former Bayern midfielder Goretzka](https://bulinews.com/aston-villa-talks-sign-former-bayern-midfielder-goretzka) - **Bulinews.com**
+5. [Seven things we've learned ahead of Town's Premier League return](https://www.bbc.com/news/articles/cwyq481z3ewo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [The Way-Too-Early Rams 53-Man Roster: Offense](https://www.thesportingtribune.com/2026/08/21/way-too-early-rams-53-man-roster-offense) - **Thesportingtribune.com**
+7. [Football in Nigeria and the Teslim Balogun’s enduring legacies (1927-1972)](https://www.vanguardngr.com/2026/08/football-in-nigeria-and-the-teslim-baloguns-enduring-legacies-1927-1972/) - **Vanguard**
+8. [Enzo Maresca knows that Manchester City know what they have to do in the transfer market](https://esteemedkompany.com/2026/08/22/enzo-maresca-knows-that-manchester-city-know-what-they-have-to-do-in-the-transfer-market/) - **Esteemedkompany.com**
+9. [Second set of twins a good distraction from injury - Maddison](https://www.bbc.com/sport/football/articles/c20j3vx6ne4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Haway The Podcast | MATCHDAY PREVIEW | SAFC v Ipswich | Here We Gan!](https://rokerreport.sbnation.com/haway-the-podcast/149382/haway-the-podcast-matchday-preview-safc-v-ipswich-here-we-gan) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-08-23 14:12:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-23 14:48:57 (KST) / (하루 100회 제한 준수 중)*
