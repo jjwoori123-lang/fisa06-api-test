@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal 3-0 Coventry - the fans' verdict](https://www.bbc.com/sport/football/articles/cgljlkgne3zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Gen.G secures top spot in LCK, advances to second playoff round](https://cryptobriefing.com/geng-secures-top-spot-in-lck-advances-to-second-playoff-round/) - **Crypto Briefing**
-3. [Report – Roma Submit Formal Offer for Chelsea Winger](https://cultofcalcio.com/roma-submit-formal-offer-for-chelsea-winger-jamie-gittens/) - **Cultofcalcio.com**
-4. [Report: Arsenal still keen on move to sign world-class striker](https://eplindex.com/149661/report-arsenal-still-keen-on-move-to-sign-world-class-striker.html) - **English Premier League Index - Opta Stats**
-5. [Kentucky Wildcats News: Mark Mitchell Watch is on for UK Basketball](https://www.aseaofblue.com/kentucky-wildcats-news/178594/mark-mitchell-watch-uk-basketball-transfers) - **A Sea Of Blue**
-6. [‘I came here as a kid with a dream’ – Jones bids heartfelt farewell to Liverpool after joining Inter Milan](https://hayters.com/i-came-here-as-a-kid-with-a-dream-jones-bids-heartfelt-farewell-to-liverpool-after-joining-inter-milan/) - **Hayters.com**
-7. [MICHAEL OWEN: Every club bar Arsenal has big questions to answer... but here's why I wouldn't be surprised to see Liverpool win back the Premier League title](https://www.dailymail.com/sport/football/article-16069785/MICHAEL-OWEN-Arsenal-big-questions-Liverpool-win-Premier-League-title.html) - **Dailymail.com**
-8. [MICHAEL OWEN: Every club bar Arsenal has big questions to answer... but here's why I wouldn't be surprised to see Liverpool win back the Premier League title](https://www.dailymail.com/sport/football/article-16069785/MICHAEL-OWEN-Arsenal-big-questions-Liverpool-win-Premier-League-title.html) - **Dailymail.com**
-9. [ Hull City-Manchester United XIs: no Diallo, Rashford on bench](https://onefootball.com/en/news/hull-city-manchester-united-xis-no-diallo-rashford-on-bench-43318451) - **Onefootball.com**
-10. [Man Utd take on Hull City in early PL kick-off](https://onefootball.com/en/news/man-utd-take-on-hull-city-in-early-pl-kick-off-43318433) - **Onefootball.com**
+1. [Rashford returns as Man Utd starting lineup vs Hull revealed](https://thefootballfaithful.com/rashford-man-utd-starting-lineup-hullvs/) - **The Football Faithful**
+2. [Arteta hails ‘phenomenal’ new Arsenal signing following debut](https://thefootballfaithful.com/arteta-new-arsenal-signing-tzolis/) - **The Football Faithful**
+3. [João Pedro signs improved Chelsea deal](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260822-930-567064/) - **Dpa-international.com**
+4. [‘For sure it will be explosive in the first 10, 15 minutes’ Liverpool star on Newcastle United expectations](https://www.themag.co.uk/2026/08/for-sure-it-will-be-explosive-in-the-first-10-15-minutes-liverpool-star-on-newcastle-united-expectations-milos-kerkez/) - **The Mag**
+5. [Premier League kicks off US campaign with Arsenal watch party in Denver](https://www.usatoday.com/story/sports/soccer/epl/2026/08/22/premier-league-arsenal-watch-party-denver/91416163007/) - **USA Today**
+6. ['We're not Brendon and Ben' - Root's calmness praised](https://www.bbc.com/sport/cricket/articles/cly9yzrgp21o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. ['We're not Brendon and Ben' - Root's calmness praised](https://www.bbc.co.uk/sport/cricket/articles/cly9yzrgp21o) - **BBC News**
+8. [Aston Villa reportedly in talks with former Bayern Munich star Leon Goretzka](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/246189/aston-villa-reportedly-in-talks-with-former-bayern-munich-star-leon-goretzka) - **Bavarian Football Works**
+9. [Nottm Forest vs Leeds Live Streams: How to watch Premier League 2026/27 from anywhere in the world](https://www.techradar.com/how-to-watch/football/nottm-forest-vs-leeds-premier-league-2026-27) - **TechRadar**
+10. [Everton vs Crystal Palace Live Streams: How to watch Premier League 2026/27 from anywhere in the world](https://www.techradar.com/how-to-watch/football/everton-vs-crystal-palace-premier-league-2026-27) - **TechRadar**
 
 
 ---
-*최근 업데이트: 2026-08-23 19:56:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-23 20:26:03 (KST) / (하루 100회 제한 준수 중)*
