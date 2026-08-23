@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Rashford returns as Man Utd starting lineup vs Hull revealed](https://thefootballfaithful.com/rashford-man-utd-starting-lineup-hullvs/) - **The Football Faithful**
-2. [Arteta hails ‘phenomenal’ new Arsenal signing following debut](https://thefootballfaithful.com/arteta-new-arsenal-signing-tzolis/) - **The Football Faithful**
-3. [João Pedro signs improved Chelsea deal](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260822-930-567064/) - **Dpa-international.com**
-4. [‘For sure it will be explosive in the first 10, 15 minutes’ Liverpool star on Newcastle United expectations](https://www.themag.co.uk/2026/08/for-sure-it-will-be-explosive-in-the-first-10-15-minutes-liverpool-star-on-newcastle-united-expectations-milos-kerkez/) - **The Mag**
-5. [Premier League kicks off US campaign with Arsenal watch party in Denver](https://www.usatoday.com/story/sports/soccer/epl/2026/08/22/premier-league-arsenal-watch-party-denver/91416163007/) - **USA Today**
-6. ['We're not Brendon and Ben' - Root's calmness praised](https://www.bbc.com/sport/cricket/articles/cly9yzrgp21o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. ['We're not Brendon and Ben' - Root's calmness praised](https://www.bbc.co.uk/sport/cricket/articles/cly9yzrgp21o) - **BBC News**
-8. [Aston Villa reportedly in talks with former Bayern Munich star Leon Goretzka](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/246189/aston-villa-reportedly-in-talks-with-former-bayern-munich-star-leon-goretzka) - **Bavarian Football Works**
-9. [Nottm Forest vs Leeds Live Streams: How to watch Premier League 2026/27 from anywhere in the world](https://www.techradar.com/how-to-watch/football/nottm-forest-vs-leeds-premier-league-2026-27) - **TechRadar**
-10. [Everton vs Crystal Palace Live Streams: How to watch Premier League 2026/27 from anywhere in the world](https://www.techradar.com/how-to-watch/football/everton-vs-crystal-palace-premier-league-2026-27) - **TechRadar**
+1. [Liverpool forward returns from injury in major boost](https://anfieldindex.com/98462/liverpool-forward-returns-from-injury-in-major-boost.html) - **Anfieldindex.com**
+2. [APL Season 2: Global Archery Stars Head To Hyderabad](https://www.rediff.com/sports/report/olympic-medallist-casey-kaufhold-set-for-apl-debut/20260822.htm) - **Rediff.com**
+3. [How to watch Brentford vs Tottenham: TV channel and live streaming details](https://eplindex.com/149666/how-to-watch-brentford-vs-tottenham-tv-channel-and-live-streaming-details.html) - **English Premier League Index - Opta Stats**
+4. [Martinelli deserves better from Arsenal - Wright](https://www.bbc.com/sport/football/articles/cj636ewwz46o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Martinelli deserves better from Arsenal - Wright](https://www.bbc.co.uk/sport/football/articles/cj636ewwz46o) - **BBC News**
+6. [Mumbai Indians appoints Zubin Bharucha as Director of Performance](https://economictimes.indiatimes.com/news/sports/cricket/mumbai-indians-appoints-zubin-bharucha-as-director-of-performance/articleshow/133423367.cms) - **The Times of India**
+7. [Chelsea confirms João Pedro’s contract extension until 2034](https://cryptobriefing.com/chelsea-joao-pedro-contract-extension-2034/) - **Crypto Briefing**
+8. [Report – Juventus Can Sign Man Utd Star on One Condition](https://cultofcalcio.com/juventus-can-sign-man-utd-star-joshua-zirkzee-on-one-condition/) - **Cultofcalcio.com**
+9. [‘I am very happy’ – Joao Pedro signs new Chelsea contract until 2034](https://footballtoday.com/2026/08/22/i-am-very-happy-joao-pedro-signs-new-chelsea-contract-until-2034/) - **Footballtoday.com**
+10. [Report – Wantaway Napoli Striker Draws Interest from Turkey](https://cultofcalcio.com/napoli-star-lorenzo-lucca-draws-interest-from-trabzon/) - **Cultofcalcio.com**
 
 
 ---
-*최근 업데이트: 2026-08-23 20:26:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-23 20:55:15 (KST) / (하루 100회 제한 준수 중)*
