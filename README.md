@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Brighton vs Aston Villa – Match preview and team news](https://thefootballfaithful.com/brighton-vs-aston-villa-match-preview-and-team-news-2/) - **The Football Faithful**
-2. [Brighton vs Aston Villa – Predicted lineup and team news](https://thefootballfaithful.com/brighton-vs-aston-villa-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-3. [Premier League Bet Builder hos Expekt – Odds 4,50 i Newcastle – Liverpool](https://www.bt.dk/betting/premier-league-bet-builder-hos-expekt--odds-450-i-newcastle--liverpool) - **Www.bt.dk**
-4. [Elche vs Barcelona, La Liga: Preview](https://www.barcablaugranes.com/barcelona-la-liga/130009/elche-barcelona-la-liga-team-news-match-preview-lineups-prediction) - **Barca Blaugranes**
-5. [Premier League: Manchester United, Tottenham Hotspur suffer shock defeats in season opener](https://timesofindia.indiatimes.com/sports/football/epl/top-stories/premier-league-manchester-united-tottenham-hotspur-suffer-shock-defeats-in-season-opener/articleshow/133433589.cms) - **The Times of India**
-6. [Yohanna leads young Nigerian talents to watch in 2026/27](https://punchng.com/yohanna-leads-young-nigerian-talents-to-watch-in-2026-27/) - **The Punch**
-7. [Roma vs Fiorentina: Preview](https://www.violanation.com/fiorentina-match-coverage/22615/roma-vs-fiorentina-preview-serie-a-score-prediction) - **Violanation.com**
-8. [WA by-election puts One Nation's growing appeal to the test](https://www.abc.net.au/news/2026-08-23/wa-by-election-puts-one-nation-growing-appeal-to-the-test/107061162) - **ABC News (AU)**
-9. [Arsenal want Osimhen to accept pay-cut for transfer](https://punchng.com/arsenal-want-osimhen-to-accept-pay-cut-for-transfer/) - **The Punch**
-10. [Amazing to score, beat United — Ajayi](https://punchng.com/amazing-to-score-beat-united-ajayi/) - **The Punch**
+1. [Teammate reveals how Bayern Munich tried — and failed — to convince João Palhinha about Newcastle](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/246414/bayern-munich-joao-palhinha-benfica-transfer-newcastle-united-epl-diogo-viana) - **Bavarian Football Works**
+2. [Mourinho wins on Madrid return; Inter cruise while Man United stumble](https://www.business-standard.com/sports/football-news/mourinho-wins-on-madrid-return-inter-cruise-while-man-united-stumble-126082300097_1.html) - **Business Standard**
+3. [Relive: Keegan's Newcastle lose thriller to Liverpool](https://www.bbc.co.uk/sport/football/videos/c4gvjep9wr2o) - **BBC News**
+4. [Everything’s the Best: New Horizons on the Horizon](https://liverpooloffside.sbnation.com/general/82937/liverpool-fc-premier-league-andoni-iraola-everythings-the-best-new-horizons-on-the-horizon) - **SB Nation**
+5. [Frosinone vs Juventus – Match preview and team news](https://thefootballfaithful.com/frosinone-vs-juventus-match-preview/) - **The Football Faithful**
+6. [Atletico Madrid vs Villarreal – Match preview and team news](https://thefootballfaithful.com/atletico-madrid-vs-villarreal-preview/) - **The Football Faithful**
+7. [Juventus XI vs Frosinone – Predicted lineup and team news](https://thefootballfaithful.com/juventus-xi-vs-frosinone-predicted-lineup/) - **The Football Faithful**
+8. [Manchester City vs Bournemouth – Predicted lineup and team news](https://thefootballfaithful.com/manchester-city-vs-bournemouth-predicted-lineup-and-team-news-3/) - **The Football Faithful**
+9. [Bournemouth XI vs Manchester City – Predicted lineup and team news](https://thefootballfaithful.com/bournemouth-xi-vs-manchester-city-lineup/) - **The Football Faithful**
+10. [Manchester City vs Bournemouth – Match preview and team news](https://thefootballfaithful.com/manchester-city-vs-bournemouth-match-preview-and-team-news-2/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-08-24 13:50:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-24 14:39:51 (KST) / (하루 100회 제한 준수 중)*
