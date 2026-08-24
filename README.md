@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Six midfielders on the Liverpool shortlist to replace Curtis Jones](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-tonali-guimaraes-anderson-camara-scott-wharton-replace-curtis-jones/) - **Anfieldwatch.co.uk**
-2. [Newcastle 2-2: What Jaissle and Elanga said](https://www.bbc.com/sport/football/articles/cpd7d73y1yzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Who will be the most dangerous offensive weapon in the Region? Vote now](https://www.monroenews.com/story/sports/high-school/football/2026/08/23/who-will-be-the-most-dangerous-offensive-weapon-in-the-region-vote-now/91398652007/) - **Monroe Evening News**
-4. [Dominik Szoboszlai rescues Liverpool with last-gasp penalty at Newcastle](https://www.the42.ie/newcastle-v-liverpool-7139634-Aug2026/) - **The42**
-5. [Arsenal could make huge Gyokeres plus cash offer for Julian Alvarez](https://www.justarsenal.com/arsenal-could-make-huge-gyokeres-plus-cash-offer-for-julian-alvarez/420771) - **Just Arsenal News**
-6. ['When you score at the end it tastes better' - Iraola](https://www.bbc.co.uk/sport/football/videos/c4gvgj0w9j2o) - **BBC News**
-7. [Barcelona star wanted by 5 Premier League clubs ahead of transfer deadline](https://getfootballnewsspain.com/barcelona-star-wanted-by-5-premier-league-clubs-ahead-of-transfer-deadline/) - **Getfootballnewsspain.com**
-8. [‘Very impressive’ – BBC pundit lauds ‘powerful’ Liverpool brute who won 4 duels v Newcastle](https://www.empireofthekop.com/2026/08/23/pat-nevin-lauds-powerful-liverpool-brute-won-4-duels-v-newcastle/) - **Empire of The Kop**
-9. [fplkit 2.1.0](https://pypi.org/project/fplkit/2.1.0/) - **Pypi.org**
-10. [Amid Metropolitano boos, Enrique Cerezo insists Julian Alvarez is staying at Atletico Madrid](https://worldsoccertalk.com/news/amid-metropolitano-boos-enrique-cerezo-insists-julian-alvarez-is-staying-at-atletico-madrid/) - **Worldsoccertalk.com**
+1. [Relief for Iraola but Liverpool have work to do](https://www.bbc.com/sport/football/articles/cdrvr73egnlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Relief for Iraola but Liverpool have work to do after snatching draw at Newcastle](https://www.bbc.co.uk/sport/football/articles/cdrvr73egnlo) - **BBC News**
+3. [Iraola praises Liverpool substitutes while Jaissle hails Newcastle’s ‘heart’ after dramatic stalemate](https://www.101greatgoals.com/football/premier-league/iraola-praises-liverpool-substitutes-while-jaissle-hails-newcastles-heart-after-dramatic-stalemate/) - **101 Great Goals**
+4. [Jude Bellingham sends Erling Haaland a message over his shock new haircut](https://www.hitc.com/jude-bellingham-sends-erling-haaland-a-message-over-his-shock-new-haircut/) - **HITC - Football, Gaming, Movies, TV, Music**
+5. [Report: Liverpool yet to make decision on forward’s future](https://anfieldindex.com/98486/report-liverpool-yet-to-make-decision-on-forwards-future.html) - **Anfieldindex.com**
+6. [Erling Haaland Sparks Frenzy With Drastic New Haircut As He Gets His Blond Locks Chopped Off](https://www.boredpanda.com/erling-haaland-sparks-frenzy-as-he-gets-his-blond-locks-chopped-off/) - **Boredpanda.com**
+7. [Liverpool snatch late draw with Newcastle as Iraola era begins](https://www.channelnewsasia.com/sport/liverpool-snatch-late-draw-newcastle-iraola-era-begins-6336411) - **CNA**
+8. [Three Premier League talking points](https://sports.yahoo.com/articles/three-premier-league-talking-points-190751378.html) - **Yahoo Entertainment**
+9. [Elanga Gets 7.5, Miley With 7 | Newcastle United Players Rated In Entertaining Draw Vs Liverpool](https://the4thofficial.net/2026/08/elanga-gets-7-5-miley-with-7-newcastle-united-players-rated-in-entertaining-draw-vs-liverpool/) - **The4thofficial.net**
+10. [Tottenham Hotspur Are In The Running To Land This Chelsea Striker: What Will He Add To De Zerbi’s Side?](https://the4thofficial.net/2026/08/tottenham-hotspur-are-in-the-running-to-land-this-chelsea-striker/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-08-25 03:42:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-25 04:31:23 (KST) / (하루 100회 제한 준수 중)*
