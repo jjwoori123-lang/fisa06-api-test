@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ayyoub Bouaddi to Manchester City: Why 18-year-old was prioritized amidst Rodri, Silva exits](https://www.nbcsports.com/soccer/news/ayyoub-bouaddi-to-manchester-city-why-18-year-old-was-prioritized-amidst-rodri-silva-exits) - **NBCSports.com**
-2. [Report: Manchester United ready to move for La Liga star](https://eplindex.com/149693/report-manchester-united-ready-to-move-for-la-liga-star.html) - **English Premier League Index - Opta Stats**
-3. [Portuguese soccer star Quévin Castro dead at 25 after mid-game collapse](https://nypost.com/2026/08/23/sports/quevin-castro-dead-at-25-after-mid-game-collapse/) - **New York Post**
-4. [Saudi side Al Hilal working on sensational swoop for Arsenal's Gabriel Martinelli and Aston Villa's Ollie Watkins](https://www.dailymail.com/sport/football/article-16073771/Saudi-Al-Hilal-working-sensational-swoop-Arsenals-Gabriel-Martinelli-Aston-Villas-Ollie-Watkins.html) - **Dailymail.com**
-5. [Saudi side Al Hilal working on sensational swoop for Arsenal's Gabriel Martinelli and Aston Villa's Ollie Watkins](https://www.dailymail.com/sport/football/article-16073771/Saudi-Al-Hilal-working-sensational-swoop-Arsenals-Gabriel-Martinelli-Aston-Villas-Ollie-Watkins.html) - **Dailymail.com**
-6. [Midfielder Ayyoub Bouaddi left out of Lille squad amid a reported big-money move to Manchester City](https://sports.yahoo.com/articles/midfielder-ayyoub-bouaddi-left-lille-134647303.html) - **Yahoo Entertainment**
-7. [Another Richard Hughes disasterclass: Liverpool face making transfer loss as forward closes in on move away](https://www.anfieldwatch.co.uk/liverpool-fc/news/another-richard-hughes-disasterclass-federico-chiesa-inter-milan-liverpool-face-making-transfer-loss-as-forward-closes-in-on-move-away/) - **Anfieldwatch.co.uk**
-8. [Jack Hinshelwood scores two goals in 79 seconds as Premier League returns](https://cryptobriefing.com/hinshelwood-two-goals-79-seconds-brighton/) - **Crypto Briefing**
-9. [Arsenal icon criticises club's treatment of Gabriel Martinelli](https://onefootball.com/en/news/arsenal-icon-criticises-clubs-treatment-of-gabriel-martinelli-43325615) - **Onefootball.com**
-10. [Bournemouth takes early lead against Manchester City with Tavernier goal](https://cryptobriefing.com/bournemouth-tavernier-goal-manchester-city/) - **Crypto Briefing**
+1. [Hull City agrees to sign Mohamed-Ali Cho from OGC Nice for £13M](https://cryptobriefing.com/hull-city-mohamed-ali-cho-transfer/) - **Crypto Briefing**
+2. [Newcastle United hosts Liverpool with tributes to Kevin Keegan in season opener](https://cryptobriefing.com/newcastle-liverpool-keegan-tribute/) - **Crypto Briefing**
+3. [Al-Hilal pushing for Watkins and Martinelli transfers](https://thefootballfaithful.com/al-hilal-pushing-for-watkins-and-martinelli-transfers/) - **The Football Faithful**
+4. [Manchester City agree €100m Ayouub Bouaddi deal](https://thefootballfaithful.com/manchester-city-agree-e100m-ayouub-bouaddi-deal/) - **The Football Faithful**
+5. [Nightmare debut: Aston Villa’s Joao Gomes first in 14 years to receive first-half red on Premier League debut](https://www.footballmuse.com/news/nightmare-debut-aston-villas-joao-gomes-first-in-14-years-with-first-half-red-on-premier-league-debut) - **Footballmuse.com**
+6. [Erling Haaland cuts off signature hair before Manchester City opener — leaving his girlfriend in shock: ‘I think I will cry’](https://nypost.com/2026/08/23/sports/erling-haaland-cuts-off-hair-before-man-city-opener-leaving-girlfriend-shocked/) - **New York Post**
+7. [Real Madrid aware of Premier League threat as club eye potential departures](https://madriduniversal.com/real-madrid-aware-of-premier-league-threat-as-club-eye-potential-departures/) - **Madriduniversal.com**
+8. [Lyon interested in Brighton midfielder Matt O’Riley](https://www.getfootballnewsfrance.com/2026/lyon-interested-in-brighton-midfielder-matt-oriley/) - **Get French Football News**
+9. [Newcastle vs. Liverpool — Team News & Match Preview](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/24808/newcastle-vs-liverpool-team-news-match-preview) - **SB Nation**
+10. [Elliot Anderson exits pitch due to injury during Premier League debut](https://cryptobriefing.com/elliot-anderson-injury-premier-league-debut/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-08-24 22:53:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-24 23:44:25 (KST) / (하루 100회 제한 준수 중)*
