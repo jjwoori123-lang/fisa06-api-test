@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Guéhi and Gvardiol late show earns Manchester City dramatic win against Bournemouth](https://www.irishtimes.com/sport/soccer/2026/08/23/guehi-and-gvardiol-late-show-earns-manchester-city-dramatic-win-against-bournemouth/) - **The Irish Times**
-2. [Man City come back late to snatch win over Bournemouth](https://thefootballfaithful.com/man-city-come-back-late-to-snatch-win-over-bournemouth/) - **The Football Faithful**
-3. [“I’m delighted” – Chelsea loanee already making incredible impact at 17](https://www.talkchelsea.net/news-now/im-delighted-chelsea-loanee-already-making-incredible-impact-at-17/) - **Talk Chelsea**
-4. [Ollie Watkins faces uncertain Aston Villa future amid Al Hilal transfer interest](https://economictimes.indiatimes.com/news/international/global-trends/ollie-watkins-faces-uncertain-aston-villa-future-amid-al-hilal-transfer-interest/articleshow/133442148.cms) - **The Times of India**
-5. [Newcastle and Liverpool pay tribute to Kevin Keegan in emotional scenes at St James' Park following football legend's death aged 75](https://www.dailymail.com/sport/football/article-16073657/Newcastle-Liverpool-pay-tribute-Kevin-Keegan.html) - **Dailymail.com**
-6. [ Omar Marmoush set to join Tottenham (Fabrizio Romano)](https://sports.yahoo.com/articles/omar-marmoush-set-to-join-tottenham-fabrizio-romano-153300203.html) - **Yahoo Entertainment**
-7. [EPL: Maresca begins Man City reign with comeback win over Bournemouth](https://www.vanguardngr.com/2026/08/epl-maresca-begins-man-city-reign-with-comeback-win-over-bournemouth/) - **Vanguard**
-8. [Woke broke women’s sports. Now everyone is pretending to be surprised](https://www.rt.com/pop-culture/644556-woke-broke-womens-sports/) - **RT**
-9. [Man City 2-1 Bournemouth: What Rose said](https://www.bbc.com/sport/football/articles/cqx7x1gdygvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Gvardiol 'proud' after thrilling comeback victory over Bournemouth](https://www.mancity.com/news/mens/gvardiol-post-bournemouth-reaction-pl-23-aug-63923072) - **Manchester City FC**
+1. ['I can answer only with my silence': Aston Villa boss Unai Emery hints Ollie Watkins refused to play for club in Brighton drubbing - as England striker's move to Saudi Arabia looms](https://www.dailymail.com/sport/football/article-16073999/Aston-Villa-Unai-Emery-Ollie-Watkins.html) - **Dailymail.com**
+2. [Manchester United forward Amad Diallo could now be out for six weeks following injury training](https://sportsview.co.uk/2026/08/manchester-united-forward-amad-diallo-could-now-be-out-for-six-weeks-following-injury-training?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-forward-amad-diallo-could-now-be-out-for-six-weeks-following-injury-training) - **Sportsview.co.uk**
+3. ['Up front next week?' Guehi proves Maresca's midfield masterstroke](https://www.bbc.com/sport/football/articles/cqx7x1wpz20o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Seeing RED! Five Premier League club debuts to forget](https://www.skysports.com/football/video/30998/13576377/joao-gomes-joao-felix-gervinho-joe-cole-and-laurent-koscielny-five-red-cards-on-premier-league-club-debuts) - **Sky Sports**
+5. [Elche vs Barcelona, La Liga: TV & Streaming, Live Thread](https://www.barcablaugranes.com/barcelona-la-liga/130003/elche-barcelona-live-stream-lineups-kickoff-time-tv-channel-how-to-watch-la-liga-online) - **Barca Blaugranes**
+6. [WATCH: Elanga breaks deadlock for Newcastle against Liverpool](https://www.101greatgoals.com/football/premier-league/watch-elanga-breaks-deadlock-for-newcastle-against-liverpool/) - **101 Great Goals**
+7. [Brighton start Premier League season with 4-0 rout of Aston Villa](https://www.vanguardngr.com/2026/08/brighton-start-premier-league-season-with-4-0-rout-of-aston-villa/) - **Vanguard**
+8. ['Up front next week?' Guehi proves Maresca's midfield masterstroke](https://www.bbc.co.uk/sport/football/articles/cqx7x1wpz20o) - **BBC News**
+9. [Erling Haaland debuts new look in Manchester City win, cutting iconic long hair](https://sports.yahoo.com/soccer/article/erling-haaland-debuts-new-look-in-manchester-city-win-cutting-iconic-long-hair-162023348.html) - **Yahoo Entertainment**
+10. [Manchester United attacker Amad Diallo could now be out for six weeks following injury training](https://sportsview.co.uk/2026/08/manchester-united-attacker-amad-diallo-could-now-be-out-for-six-weeks-following-injury-training?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=manchester-united-attacker-amad-diallo-could-now-be-out-for-six-weeks-following-injury-training) - **Sportsview.co.uk**
 
 
 ---
-*최근 업데이트: 2026-08-25 00:41:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-25 01:39:28 (KST) / (하루 100회 제한 준수 중)*
