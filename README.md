@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester City star Erling Haaland cuts iconic long hair](https://www.usatoday.com/story/sports/soccer/epl/2026/08/23/erling-haaland-new-hair-man-city-star-gets-haircut/91431148007/) - **USA Today**
-2. [Report: Arsenal could still have a chance at landing Julian Alvarez this summer](https://eplindex.com/149691/report-arsenal-could-still-have-a-chance-at-landing-julian-alvarez-this-summer.html) - **English Premier League Index - Opta Stats**
-3. ['New season, new trim': Man City star Haaland chops off flowing locks](https://sports.yahoo.com/articles/season-trim-man-city-star-124904453.html) - **Yahoo Entertainment**
-4. [Premier League plays first game without Mohamed Salah in nearly 10 years](https://cryptobriefing.com/premier-league-first-game-without-salah/) - **Crypto Briefing**
-5. [Brentford 3-0 Tottenham: player ratings to the theme of Masterpieces from the Lewis Family Art Sale](https://cartilagefreecaptain.sbnation.com/community-player-ratings/73080/brentford-3-0-tottenham-player-ratings-to-the-theme-of-masterpieces-from-the-lewis-family-art-sale) - **SB Nation**
-6. [How to Watch This Weekend's Premier League Matches Live (Even for Free)](https://uk.pcmag.com/video-streaming-services/166522/how-to-watch-the-premier-league-live-even-for-free-aug-23) - **PCMag.com**
-7. ['New season, new trim' - Haaland reveals buzzcut](https://www.bbc.com/sport/football/articles/cr4941zkgevo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. ['New season, new trim' - Haaland reveals buzzcut](https://www.bbc.co.uk/sport/football/articles/cr4941zkgevo) - **BBC News**
-9. [Shaw: Man United will bounce back from ‘smack in the face’ at Hull](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260823-930-571115/) - **Dpa-international.com**
-10. [Man City agree €100 million deal with Lille for teen talent Ayyoub Bouaddi](https://footballtoday.com/2026/08/23/man-city-agree-e100-million-deal-with-lille-for-teen-talent-ayyoub-bouaddi/) - **Footballtoday.com**
+1. [Ayyoub Bouaddi to Manchester City: Why 18-year-old was prioritized amidst Rodri, Silva exits](https://www.nbcsports.com/soccer/news/ayyoub-bouaddi-to-manchester-city-why-18-year-old-was-prioritized-amidst-rodri-silva-exits) - **NBCSports.com**
+2. [Report: Manchester United ready to move for La Liga star](https://eplindex.com/149693/report-manchester-united-ready-to-move-for-la-liga-star.html) - **English Premier League Index - Opta Stats**
+3. [Portuguese soccer star Quévin Castro dead at 25 after mid-game collapse](https://nypost.com/2026/08/23/sports/quevin-castro-dead-at-25-after-mid-game-collapse/) - **New York Post**
+4. [Saudi side Al Hilal working on sensational swoop for Arsenal's Gabriel Martinelli and Aston Villa's Ollie Watkins](https://www.dailymail.com/sport/football/article-16073771/Saudi-Al-Hilal-working-sensational-swoop-Arsenals-Gabriel-Martinelli-Aston-Villas-Ollie-Watkins.html) - **Dailymail.com**
+5. [Saudi side Al Hilal working on sensational swoop for Arsenal's Gabriel Martinelli and Aston Villa's Ollie Watkins](https://www.dailymail.com/sport/football/article-16073771/Saudi-Al-Hilal-working-sensational-swoop-Arsenals-Gabriel-Martinelli-Aston-Villas-Ollie-Watkins.html) - **Dailymail.com**
+6. [Midfielder Ayyoub Bouaddi left out of Lille squad amid a reported big-money move to Manchester City](https://sports.yahoo.com/articles/midfielder-ayyoub-bouaddi-left-lille-134647303.html) - **Yahoo Entertainment**
+7. [Another Richard Hughes disasterclass: Liverpool face making transfer loss as forward closes in on move away](https://www.anfieldwatch.co.uk/liverpool-fc/news/another-richard-hughes-disasterclass-federico-chiesa-inter-milan-liverpool-face-making-transfer-loss-as-forward-closes-in-on-move-away/) - **Anfieldwatch.co.uk**
+8. [Jack Hinshelwood scores two goals in 79 seconds as Premier League returns](https://cryptobriefing.com/hinshelwood-two-goals-79-seconds-brighton/) - **Crypto Briefing**
+9. [Arsenal icon criticises club's treatment of Gabriel Martinelli](https://onefootball.com/en/news/arsenal-icon-criticises-clubs-treatment-of-gabriel-martinelli-43325615) - **Onefootball.com**
+10. [Bournemouth takes early lead against Manchester City with Tavernier goal](https://cryptobriefing.com/bournemouth-tavernier-goal-manchester-city/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-08-24 21:54:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-24 22:53:18 (KST) / (하루 100회 제한 준수 중)*
