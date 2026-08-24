@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool given Bradley Barcola transfer warning which simply must jolt Richard Hughes into action](https://www.empireofthekop.com/2026/08/23/liverpool-given-barcola-transfer-warning-which-must-jolt-hughes-into-action/) - **Empire of The Kop**
-2. [How to watch Man City vs Bournemouth: TV Channel and streaming details](https://eplindex.com/149703/how-to-watch-man-city-vs-bournemouth-tv-channel-and-streaming-details.html) - **English Premier League Index - Opta Stats**
-3. [Manchester United loses consecutive EPL openers for first time in history](https://cryptobriefing.com/manchester-united-loses-consecutive-epl-openers-for-first-time-in-history/) - **Crypto Briefing**
-4. [Real Madrid face European competition for Spanish midfield talent: Romano](https://madriduniversal.com/real-madrid-face-european-competition-for-spanish-midfield-talent-romano/) - **Madriduniversal.com**
-5. [Why a new stand has become symbolic for Wrexham](https://www.bbc.com/sport/football/articles/c1714xr0w7jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Serie A: Frosinone vs. Juventus – Probable line-ups and where to watch on TV](https://football-italia.net/frosinone-vs-juventus-probable-line-ups/) - **Football Italia**
-7. [A Summer Of Change | Newcastle Kick Off The Season With No Pressure](https://roundtable.io/sports/soccer/premier-league/newcastle-united/news/a-summer-of-change-newcastle-kick-off-the-season-with-no-pressure) - **Roundtable.io**
-8. ["I Am Not Calm..." Michael Carrick Explains Reaction To Hull City Defeat](https://roundtable.io/sports/soccer/premier-league/manchester-united/news/i-am-not-calm-michael-carrick-explains-reaction-to-hull-city-defeat) - **Roundtable.io**
+1. [Report: Arsenal agree deal to sign 18-year-old wonderkid](https://eplindex.com/149688/report-arsenal-agree-deal-to-sign-18-year-old-wonderkid.html) - **English Premier League Index - Opta Stats**
+2. [Barcelona First Team Star Set For Imminent Exit After Squad List Snub](https://www.forbes.com/sites/tomsanderson/2026/08/23/barcelona-first-team-star-set-for-imminent-exit-after-squad-list-snub/) - **Forbes**
+3. [Arsenal u18s in need of imminent double transfer boost](https://dailycannon.com/2026/08/arsenal-u18s-ipswich-transfer-boost/) - **Dailycannon.com**
+4. [ Erling Haaland has cut his hair, he shows off his new look!](https://onefootball.com/en/news/erling-haaland-has-cut-his-hair-he-shows-off-his-new-look-43324598) - **Onefootball.com**
+5. [Confirmed: Barcelona squad list to face Elche CF as star defender misses out](https://barcauniversal.com/confirmed-barcelona-squad-list-to-face-elche-cf-as-star-defender-misses-out/) - **Barcauniversal.com**
+6. [Spence and Jones may need to be patient after stand-out Inter performances](https://football-italia.net/spence-and-jones-may-need-to-be-patient-inter/) - **Football Italia**
+7. [Sunderland Transfer Needs Are Glaring After 2-1 Ipswich Town Opening Defeat](https://roundtable.io/sports/soccer/premier-league/sunderland/news/sunderland-transfer-needs-are-glaring-after-2-1-ipswich-town-opening-defeat) - **Roundtable.io**
+8. [Exequiel Palacios Nears Ipswich Move as Third Offer Could Finally Bring Breakthrough](https://roundtable.io/sports/soccer/bundesliga/bayer-leverkusen/news/exequiel-palacios-nears-ipswich-move-as-third-offer-could-finally-bring-breakthrough) - **Roundtable.io**
+9. [Opposition View: What To Expect From Fulham As Chelsea Prepare For Premier League Opener](https://roundtable.io/sports/soccer/premier-league/chelsea/match-day/opposition-view-what-to-expect-from-fulham-as-chelsea-prepare-for-premier-league-opener) - **Roundtable.io**
+10. [Liverpool’s 26/27 Season Begins: You’ll Never Walk Alone](https://liverpooloffside.sbnation.com/general/82928/liverpools-26-27-season-begins-youll-never-walk-alone) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-08-24 17:50:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-24 18:50:26 (KST) / (하루 100회 제한 준수 중)*
