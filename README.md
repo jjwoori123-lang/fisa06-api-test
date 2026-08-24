@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Dundee 'in a good place right now' - Wright](https://www.bbc.com/sport/articles/cn4n4j2vwypo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [What makes Gwinn so valuable for FCB Women](https://fcbayern.com/frauen/en/news/2026/08/what-makes-giulia-gwinn-so-valuable-for-fc-bayern-women) - **Fcbayern.com**
-3. [Four-time IPL champion Karn Sharma announces retirement from all formats during UPT20 League 2026](https://economictimes.indiatimes.com/news/sports/cricket/four-time-ipl-champion-karn-sharma-announces-retirement-from-all-formats-during-upt20-league-2026/articleshow/133437932.cms) - **The Times of India**
-4. [Where's it all gone? Haaland reveals new shaven haircut](https://www.skysports.com/football/news/11095/13576220/erling-haaland-haircut-manchester-city-forward-reveals-fresh-shaven-style-ahead-of-new-premier-league-season) - **Sky Sports**
-5. [Nottingham Forest bids £70M for striker Igor Thiago](https://cryptobriefing.com/nottingham-forest-70m-bid-igor-thiago/) - **Crypto Briefing**
-6. [“Goal” demands Arteta be sacked for his tactics, after 3-0 victory and league title](https://untold-arsenal.com/archives/122548) - **Untold-arsenal.com**
-7. [Arsenal make request to Atletico Madrid & Julian Alvarez](https://dailycannon.com/2026/08/arsenal-alvarez-request/) - **Dailycannon.com**
-8. [Newcastle United vs. Liverpool: Premier League 2026-27 Live Coverage & How to Watch](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/82954/newcastle-united-liverpool-premier-league-2026-27-live-coverage-how-to-watch-streaming-tv-epl) - **SB Nation**
-9. [New season, new hairstyle for Haaland! Man City star Erling appears to chop off iconic long hair and shows off new look ahead of Premier League campaign](https://www.dailymail.com/sport/football/article-16073549/erling-haaland-hairstyle-new-man-city.html) - **Dailymail.com**
+1. [Report: Arsenal haven’t ended talks for 27yo striker](https://dailycannon.com/2026/08/arsenal-osimhen-talks-not-done/) - **Dailycannon.com**
+2. [Reports: Transfer of Goretzka to Aston Villa close to be completed](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260823-930-570746/) - **Dpa-international.com**
+3. [Why Spurs were BULLIED by Brentford: Inexperienced youngsters exposed, a pre-season tour that has caused Roberto De Zerbi a major headache and the surpising Sandro Tonali problem](https://www.dailymail.com/sport/football/article-16073565/spurs-brentford-zerbi-tonali.html) - **Dailymail.com**
+4. [TV and streaming viewing picks for August 23, 2026: How to watch MLB](https://awfulannouncing.com/viewing-picks/tv-and-streaming-viewing-picks-for-august-23-2026-how-to-watch-mlb.html) - **Awful Announcing**
+5. [Newcastle Reportedly Agrees £45 Million Transfer for Man City Midfielder: Breaking](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/24977/agree-nico-gonzalez-45-million-transfer-man-city) - **SB Nation**
+6. [Sunday football open thread](https://cartilagefreecaptain.sbnation.com/general/73095/sunday-football-open-thread) - **SB Nation**
+7. [U21s Team News: Leeds United vs West Bromwich Albion](https://www.leedsunited.com/en/news/u21s-team-news-leeds-united-vs-west-bromwich-albion) - **Leedsunited.com**
+8. [Liam Gallagher denies Oasis Glastonbury rumours](https://www.rte.ie/entertainment/2026/0823/1588905-liam-gallagher-denies-oasis-glastonbury-rumours/) - **RTE**
+9. [Fulham v Chelsea: Preview, expected line-ups, stats and where to watch](https://www.101greatgoals.com/match-previews/premier-league-matches/fulham-v-chelsea-preview-expected-line-ups-stats-and-where-to-watch/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-08-24 19:38:50 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-24 20:08:04 (KST) / (하루 100회 제한 준수 중)*
