@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [FC Augsburg 2026/27 season preview: Transfers, pre-season, predicted lineup and predictions](https://bulinews.com/augsburg-2026/27-season-preview-transfers-pre-season-predicted-lineup-and-predictions) - **Bulinews.com**
-2. [Stuttgart reportedly place transfer ban on Hull-linked defender](https://bulinews.com/stuttgart-reportedly-place-transfer-ban-hull-linked-defender) - **Bulinews.com**
-3. [Premier League Shirts Go Betting-Free This Season – But Italy’s Biggest Clubs are Still Cashing In](https://football-italia.net/premier-league-shirts-betting-free-italy-cash/) - **Football Italia**
-4. [How to live stream Fulham vs Chelsea: English Premier League, TV channel](https://www.thebiglead.com/how-to-live-stream-fulham-vs-chelsea-english-premier-league-tv-channel/) - **The Big Lead**
-5. [Arsenal faces dilemma in Julián Álvarez transfer tussle as €150 million offer takes shape](https://cryptobriefing.com/arsenal-alvarez-transfer-dilemma/) - **Crypto Briefing**
-6. [Not just Spurs: Liverpool could soon have another club to fear in Cody Gakpo transfer race](https://www.empireofthekop.com/2026/08/24/liverpool-could-soon-have-another-club-to-fear-in-gakpo-transfer-race/) - **Empire of The Kop**
-7. [Birmingham City expected to miss out on top transfer target](https://hayters.com/birmingham-city-expected-to-miss-out-on-top-transfer-target/) - **Hayters.com**
-8. [How to watch Fulham vs Chelsea: Free streams and TV channels for Premier League 2026/27](https://www.techradar.com/how-to-watch/football/fulham-vs-chelsea-premier-league-2026-27) - **TechRadar**
-9. [Liverpool could finalise “done deal” today before Bradley Barcola transfer](https://www.empireofthekop.com/2026/08/24/liverpool-could-finalise-done-deal-today-before-bradley-barcola-transfer/) - **Empire of The Kop**
+1. [49ers owner Jed York was sentenced after his Ohio arrest. He paid $1,150 and spent a day in jail. Here’s what happened](https://economictimes.indiatimes.com/news/international/global-trends/49ers-owner-jed-york-was-sentenced-after-his-ohio-arrest-he-paid-1150-and-spent-a-day-in-jail-heres-what-happened/articleshow/133474140.cms) - **The Times of India**
+2. [(VIDEO) Erling Haaland's Girlfriend Reacts in Shock as Soccer Star Buzzes Off Signature Long Hair](https://www.ibtimes.com.au/erling-haaland-buzz-cut-new-season-1874508) - **Ibtimes.com.au**
+3. [Fulham vs Chelsea - Premier League LIVE: Xabi Alonso kicks off Blues reign with west London derby](https://www.dailymail.com/sport/football/article-16076227/Fulham-vs-Chelsea-Premier-League-LIVE.html) - **Dailymail.com**
+4. [Dan Snyder has ‘gone invisible’ after $6.05 billion Commanders sale](https://nypost.com/2026/08/24/sports/dan-snyder-has-gone-invisible-after-6-05-billion-commanders-sale/) - **New York Post**
+5. [Fulham vs Chelsea - Premier League LIVE: Xabi Alonso kicks off Blues reign with west London derby](https://www.dailymail.com/sport/football/article-16076227/Fulham-vs-Chelsea-Premier-League-LIVE.html) - **Dailymail.com**
+6. [NAVI League breaks Fnatic’s win streak, moves closer to playoffs](https://cryptobriefing.com/navi-beats-fnatic-lec-summer-playoffs/) - **Crypto Briefing**
+7. [Marc Cucurella: “It’s an honor to wear the shirt of the best club in the world”](https://www.managingmadrid.com/real-madrid-cf-news/111786/marc-cucurella-its-an-honor-to-wear-the-shirt-of-the-best-club-in-the-world) - **Managing Madrid**
+8. [Watkins' departure would cut deepest - and Villa did not see it coming](https://www.bbc.com/sport/football/articles/cq63ry9q6jzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Sunderland sign Ahoka from Royal Antwerp](https://www.bbc.com/sport/football/articles/cx2ze3dz4jro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Sunderland sign Ahoka from Royal Antwerp](https://www.bbc.co.uk/sport/football/articles/cx2ze3dz4jro) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-26 01:39:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-26 02:15:35 (KST) / (하루 100회 제한 준수 중)*
