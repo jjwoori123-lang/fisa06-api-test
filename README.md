@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Milan Send Nkunku to RB Leipzig, More Exits Incoming](https://cultofcalcio.com/milan-send-nkunku-to-rb-leipzig-more-exits-incoming/) - **Cultofcalcio.com**
-2. [Athletic, tenacious and crisp in his passing: Sangaré stars against Spurs](https://www.brentfordfc.com/en/news/article/analysis-mamadou-sangare-premier-league-debut-brentford-3-tottenham-hotspur-0) - **Brentfordfc.com**
-3. [Report: Aston Villa could make double defender move](https://eplindex.com/149726/report-aston-villa-could-make-double-defender-move.html) - **English Premier League Index - Opta Stats**
-4. [Liverpool told to fix major issue in the transfer market](https://anfieldindex.com/98564/liverpool-told-to-fix-major-issue-in-the-transfer-market.html) - **Anfieldindex.com**
-5. [Premier League weekend reaction with Ref Watch to come LIVE!](https://www.skysports.com/football/live-blog/11095/13576553/ref-watch-and-premier-league-weekend-reaction-live-dermot-gallagher-assesses-the-big-refereeing-decisions) - **Sky Sports**
-6. [Köln still confident of signing Tottenham youngster](https://bulinews.com/koln-still-confident-signing-tottenham-youngster) - **Bulinews.com**
-7. [Chelsea must compete at top of Premier League — Morgan Rogers](https://punchng.com/chelsea-must-compete-at-top-of-premier-league-morgan-rogers/) - **The Punch**
-8. [Change the plan, Richard Hughes! Liverpool want the wrong Brighton star](https://www.anfieldwatch.co.uk/liverpool-fc/news/change-the-plan-richard-hughes-liverpool-want-the-wrong-brighton-star/) - **Anfieldwatch.co.uk**
-9. [Haaland Stuns with Bold New Buzz Cut](https://www.rediff.com/sports/report/epl-haaland-stuns-with-bold-new-buzz-cut/20260824.htm) - **Rediff.com**
-10. ['No chance!': Peter Schmeichel is shot down live on TV by Newcastle boss Matthias Jaissle on Man United's hopes of signing Lewis Hall](https://www.dailymail.com/sport/football/article-16075049/No-chance-Peter-Schmeichel-shot-live-TV-Newcastle-boss-Matthias-Jaissle-Man-Uniteds-hopes-signing-Lewis-Hall.html) - **Dailymail.com**
+1. [Just in: Journo confirms that Man United attacker has green-lit imminent transfer this week](https://utdreport.co.uk/2026/08/24/ethan-wheatley-agrees-lincoln-city-move-from-manchester-united/) - **Utdreport.co.uk**
+2. [RBL Cup providing more competitive games for academy players](https://rbleipzig.com/en/news/david-wagner-head-of-youth-development-interview-rbl-cup) - **Rbleipzig.com**
+3. [Newcastle nearing a deal to sign Nico Gonzalez from Manchester City](https://sportsview.co.uk/2026/08/newcastle-nearing-a-deal-to-sign-nico-gonzalez-from-manchester-city?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-nearing-a-deal-to-sign-nico-gonzalez-from-manchester-city) - **Sportsview.co.uk**
+4. [Nottingham Forest wants to beat Arsenal to La Liga star](https://www.justarsenal.com/nottingham-forest-wants-to-beat-arsenal-to-la-liga-star/420791) - **Just Arsenal News**
+5. [Al-Hilal make decision on pursuit of Chelsea winger Neto](https://thefootballfaithful.com/al-hilal-make-decision-on-pursuit-of-chelsea-winger-neto/) - **The Football Faithful**
+6. [Could Leeds United Be European Contenders This Season?](https://www.forbes.com/sites/grahamruthven/2026/08/24/could-leeds-united-be-european-contenders-this-season/) - **Forbes**
+7. [The fraud allegation that is being made against clubs in the Premier League](https://untold-arsenal.com/archives/122568) - **Untold-arsenal.com**
+8. [Premier League footballer says ‘faith helped me through injury’](https://www.christiantoday.com/news/premier-league-footballer-says-faith-helped-me-through-injury) - **Christiantoday.com**
+9. [Why are Aston Villa a selling club?](https://www.bbc.com/sport/football/articles/c9805y6667no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-25 18:02:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-25 18:54:43 (KST) / (하루 100회 제한 준수 중)*
