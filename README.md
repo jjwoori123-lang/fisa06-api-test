@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool Hold Newcastle In Dramatic Keegan Tribute Match](https://www.rediff.com/sports/report/epl-dominik-szoboszlais-late-penalty-seals-thrilling-liverpool-draw-at-newcastle-amidst-kevin-keegan-tribute/20260824.htm) - **Rediff.com**
-2. [AG.AL Crowned Esports World Cup 2026 Club Champion After Landmark Competition in Paris](https://www.prnewswire.com/news-releases/agal-crowned-esports-world-cup-2026-club-champion-after-landmark-competition-in-paris-302857840.html) - **PRNewswire**
-3. [How Hull kept plan to stun Man Utd secret](https://www.bbc.com/sport/football/articles/ce343r7245no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [How Hull kept plan to stun Man Utd secret](https://www.bbc.co.uk/sport/football/articles/ce343r7245no) - **BBC News**
-5. [Soccer fans boo U.S. anthem as Canadians react to breakdown in trade negotiations](https://www.cbc.ca/news/canada/canadians-react-carney-trump-tariffs-9.7317664) - **CBC News**
-6. [How the Guehi gamble paid off for Maresca](https://www.bbc.co.uk/sport/football/videos/cdewe13009do) - **BBC News**
-7. ['Energy, pace, passion' - Newcastle's dynamic performance against Liverpool](https://www.bbc.co.uk/sport/football/videos/cr595yvrevjo) - **BBC News**
-8. [Cristiano Ronaldo’s SPL rival Al Hilal reportedly preparing moves for Watkins and Martinelli amid Benzema’s uncertain future](https://worldsoccertalk.com/news/cristiano-ronaldos-spl-rival-al-hilal-reportedly-preparing-moves-for-watkins-and-martinelli-amid-benzemas-uncertain-future/) - **Worldsoccertalk.com**
-9. [AG.AL Crowned Esports World Cup 2026 Club Champion After Landmark Competition in Paris](https://www.prnewswire.com/news-releases/agal-crowned-esports-world-cup-2026-club-champion-after-landmark-competition-in-paris-302857837.html) - **PRNewswire**
-10. [Elche 0-5 Barcelona: Gordon stars as debut as Barça return to LaLiga action](https://wp.fromthespot.co.uk/31443/elche-0-5-barcelona-gordon-stars-as-debut-as-barca-return-to-laliga-action/) - **Fromthespot.co.uk**
+1. [The AFL finals haven’t changed in 25 years, until now. What is the wildcard round?](https://theconversation.com/the-afl-finals-havent-changed-in-25-years-until-now-what-is-the-wildcard-round-289296) - **The Conversation Africa**
+2. [Ex-Gotham FC star stunningly signs with new team shortly after release to deal with ‘personal matters’](https://nypost.com/2026/08/23/sports/esther-gonzalez-signs-with-saudi-arabia-club-after-gotham-fc-release/) - **New York Post**
+3. [Journey to Wembley: After a fortnight of fretting over floodlights on the fritz, Nelson's FA Cup journey ends at Witton Albion - where home fans toasted victory with pina coladas!](https://www.dailymail.com/sport/football/article-16073641/Journey-Wembley-Nelson-FA-Cup-Witton-Albion.html) - **Dailymail.com**
+4. [Why Andoni Iraola should be concerned after Newcastle draw: The key problem Liverpool must solve, the player they desperately need in the transfer window and a worrying lack of depth in attack](https://www.dailymail.com/sport/football/article-16066955/Liverpools-draw-Newcastle-midfield-worry-Andoni-Iraola.html) - **Dailymail.com**
+5. [Football: Whanganui Athletic edge one step closer to promotion after emphatic win](https://www.nzherald.co.nz/whanganui-chronicle/sport/football-whanganui-athletic-edge-one-step-closer-to-promotion-after-emphatic-win/ITDDNN6BS5FXHH2EHDBMBUEMXI/) - **New Zealand Herald**
+6. [The last days of LIV Golf and what the hell any of it was for](https://sports.yahoo.com/articles/last-days-liv-golf-hell-005647786.html) - **Yahoo Entertainment**
+7. [I wasn’t sure I scored – Ajayi](https://punchng.com/i-wasnt-sure-i-scored-ajayi/) - **The Punch**
+8. [Dean defends Aina’s yellow card in Leeds defeat](https://punchng.com/dean-defends-ainas-yellow-card-in-leeds-defeat/) - **The Punch**
+9. [Yohanna fourth-youngest Nigerian to make EPL debut](https://punchng.com/yohanna-fourth-youngest-nigerian-to-make-epl-debut/) - **The Punch**
+10. [‘Osimhen can end Man United’s woes’](https://punchng.com/osimhen-can-end-man-uniteds-woes/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-08-25 08:55:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-25 10:23:01 (KST) / (하루 100회 제한 준수 중)*
