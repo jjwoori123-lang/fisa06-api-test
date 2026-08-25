@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Former Celtic star Matt O’Riley set for summer transfer](https://celticshorts.com/2026/08/former-celtics-star-matt-oriley-set-for-summer-transfer/) - **Celticshorts.com**
-2. [From Messi to Ferdinand, 14 disastrous debuts in football history](https://punchng.com/from-messi-to-ferdinand-14-disastrous-debuts-in-football-history/) - **The Punch**
-3. [Arbeloa v Alonso: Benitez on his former players turned managers](https://www.bbc.com/sport/football/articles/ckge725zy1zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Video: Netflix Confirms Renewals for UK Fan Favourites and Debuts Trailer for "The Gentlemen" Season 2](http://www.thefutoncritic.com/video/2026/08/24/video-netflix-confirms-renewals-for-uk-fan-favourites-and-debuts-trailer-for-the-gentlemen-season-2-616510/20260824netflix02/) - **Thefutoncritic.com**
-5. [Weekly Palace News Round Up - Monday 24th August](https://roundtable.io/sports/soccer/premier-league/crystal-palace/news/weekly-palace-news-round-up---monday-24th-august) - **Roundtable.io**
-6. [Yoane Wissa Shines In Newcastle’s Spirited Draw Against Liverpool](https://roundtable.io/sports/soccer/premier-league/newcastle-united/news/yoane-wissa-shines-in-newcastle-s-spirited-draw-against-liverpool) - **Roundtable.io**
-7. [USMNT players in Europe: List of Americans abroad in 2026-27 as USA stars build international profile](https://www.sportingnews.com/us/soccer/news/usmnt-players-europe-usa-2026-27/b4ba1703d4ee7e68428903dd) - **Sporting News**
-8. [Newcastle 2-2 Liverpool — Match Report: ‘Soft’ Penalty Ruins Dream Debut](https://cominghomenewcastle.sbnation.com/newcastle-united-match-reports/24924/newcastle-2-2-liverpool-match-report-soft-penalty) - **SB Nation**
-9. [With the ground still sweeping with love for Kevin and hate for Alex…](https://www.themag.co.uk/2026/08/with-the-ground-still-sweeping-with-love-for-kevin-and-hate-for-alex-liverpool-newcastle-united/) - **The Mag**
-10. [Why are Australians thriving in WSL but not Premier League?](https://www.bbc.com/sport/football/articles/cx2v3yy9ed9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Teams in Champions League 2026-27: Updated list of club sides playing in league phase of UEFA tournament](https://www.sportingnews.com/us/soccer/news/champions-league-teams-2026-27-list-uefa-tournament/d4ffd5ec58682a83f3a6b189) - **Sporting News**
+2. [Gossip: Man City considering shock bid for Barcelona’s Frenkie de Jong](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/130172/gossip-man-city-frenkie-de-jong-offer) - **Barca Blaugranes**
+3. [Will Hull defy a 'lazy but understandable' prediction?](https://www.bbc.com/sport/football/articles/ckg3gp6pgz4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Mateta cult-hero status under threat](https://www.bbc.com/sport/football/articles/cqlxl7nrz7xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Video: Di Gregorio flies out for Bournemouth medical](https://football-italia.net/di-gregorio-flies-out-bournemouth-medical/) - **Football Italia**
+6. [Forest targeting two new signings](https://www.bbc.com/sport/football/articles/c0m3nvp94l1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Chris Sutton urges Celtic to get serious with this transfer window](https://celticshorts.com/2026/08/chris-sutton-urges-celtic-to-get-serious-with-this-transfer-window/) - **Celticshorts.com**
+8. [The Premier League Weekend as a Movie: The Good, the Bad and the Ugly](https://www.footballmuse.com/features/the-premier-league-weekend-as-a-movie-the-good-the-bad-and-the-ugly) - **Footballmuse.com**
+9. [In Pulwama, one man’s big bet on cricket and all eyes are on it across J&K](https://timesofindia.indiatimes.com/city/srinagar/in-pulwama-one-mans-big-bet-on-cricket-and-all-eyes-are-on-it-across-jk/articleshow/133456133.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-08-25 16:12:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-25 17:02:09 (KST) / (하루 100회 제한 준수 중)*
