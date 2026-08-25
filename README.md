@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Three reasons Chelsea could challenge for title - and one they may not](https://www.bbc.co.uk/sport/football/articles/c62e2y1p7njo) - **BBC News**
-2. [Xabi Alonso urges Robert Sanchez to 'relax and carry on' after Chelsea goalkeeper endured a nightmare Premier League opener at Fulham](https://www.dailymail.com/sport/football/article-16077117/xabi-alonso-robert-sanchez-chelsea-fulham.html) - **Dailymail.com**
-3. [Attacking trio can be Chelsea's heart, Alonso says after debut win](https://www.channelnewsasia.com/sport/attacking-trio-can-be-chelseas-heart-alonso-says-after-debut-win-6338736) - **CNA**
-4. [Fulham deserved more in Chelsea defeat - Arbeloa](https://www.bbc.co.uk/sport/football/videos/cnvlyev7v42o) - **BBC News**
-5. [Alonso wants attacking trio to lead and inspire Chelsea](https://www.rte.ie/sport/soccer/2026/0824/1589075-alonso-wants-attacking-trio-to-lead-and-inspire-chelsea/) - **RTE**
-6. [“It’s about the team” – Alonso avoids criticising unpopular player who struggled again](https://www.talkchelsea.net/news-now/alonso-avoids-criticising-unpopular-player/) - **Talk Chelsea**
-7. [Man City Acquire Brazilian Winger on €40 Million Total Package](https://heavy.com/sports/soccer/premier-league/manchester-city-fc/man-city-acquire-winger-allan-elias/) - **Heavy.com**
-8. [Nottingham Forest in talks with Chelsea over move for Liam Delap - after forward was left out of Blues squad for win over Fulham](https://www.dailymail.com/sport/football/article-16077053/Nottingham-Forest-talks-Chelsea-Liam-Delap-forward-left-Blues-squad-win-Fulham.html) - **Dailymail.com**
-9. [Analysis: Garcia makes impact as King shows potential](https://www.bbc.com/sport/football/articles/c8r6x08n03ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Papers: Arsenal ready to make £130m Alvarez push as Martinelli nears Saudi move](https://www.skysports.com/football/transfer-paper-talk/12709/13576722/xxxx-paper-talk) - **Sky Sports**
+1. [Sky Sports pundits make their MNF predictions for the season: Gary Neville and Jamie Carragher are torn on Man United and Liverpool and name the 'best signing by a mile'](https://www.dailymail.com/sport/football/article-16077059/Sky-Sports-pundits-make-MNF-predictions-season-Gary-Neville-Jamie-Carragher-torn-Man-United-Liverpool-best-signing-mile.html) - **Dailymail.com**
+2. [Erling Haaland Debuts Buzz Cut Hours Before Man City Opener: ‘New Season, New Trim’](https://wealthofgeeks.com/erling-haaland-debuts-buzz-cut-hours-before-man-city-opener-new-season-new-trim/) - **Wealthofgeeks.com**
+3. [Three reasons Chelsea could challenge for title - and one they may not](https://www.bbc.com/sport/football/articles/c62e2y1p7njo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Champions? Relegated? One to watch? Carra and Neville's season predictions!](https://www.skysports.com/football/news/11661/13576703/premier-league-season-predictions-jamie-carragher-and-gary-neville-pick-the-title-winner-and-players-to-watch-in-2026-27) - **Sky Sports**
+5. [Champions? Relegated? One to watch? Carra and Neville's season predictions!](https://www.skysports.com/football/news/11661/13576703/premier-league-season-predictions-jamie-carragher-and-gary-neville-pick-the-title-winner-and-players-to-watch-in-2026-27) - **Sky Sports**
+6. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/cg59814gvj9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Revealed: Ollie Watkins returned to Aston Villa to apologise to team-mates for missing Brighton defeat as Saudi move draws closer - and Villans begin talks with AC Milan over Rafael Leao](https://www.dailymail.com/sport/football/article-16077107/Ollie-Watkins-says-sorry-Aston-Villa-missing-Brighton-defeat-Saudi-expected-ahead-club-begin-talks-AC-Milan-Rafael-Leao.html) - **Dailymail.com**
+8. [Who has made Troy's Premier League team of the week?](https://www.bbc.co.uk/sport/football/articles/cg59814gvj9o) - **BBC News**
+9. [Three reasons Chelsea could challenge for title - and one they may not](https://www.bbc.co.uk/sport/football/articles/c62e2y1p7njo) - **BBC News**
+10. [Xabi Alonso urges Robert Sanchez to 'relax and carry on' after Chelsea goalkeeper endured a nightmare Premier League opener at Fulham](https://www.dailymail.com/sport/football/article-16077117/xabi-alonso-robert-sanchez-chelsea-fulham.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-08-26 08:00:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-26 08:32:54 (KST) / (하루 100회 제한 준수 중)*
