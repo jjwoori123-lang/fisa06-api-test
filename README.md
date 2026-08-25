@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Teams in Champions League 2026-27: Updated list of club sides playing in league phase of UEFA tournament](https://www.sportingnews.com/us/soccer/news/champions-league-teams-2026-27-list-uefa-tournament/d4ffd5ec58682a83f3a6b189) - **Sporting News**
-2. [Gossip: Man City considering shock bid for Barcelona’s Frenkie de Jong](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/130172/gossip-man-city-frenkie-de-jong-offer) - **Barca Blaugranes**
-3. [Will Hull defy a 'lazy but understandable' prediction?](https://www.bbc.com/sport/football/articles/ckg3gp6pgz4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Mateta cult-hero status under threat](https://www.bbc.com/sport/football/articles/cqlxl7nrz7xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Video: Di Gregorio flies out for Bournemouth medical](https://football-italia.net/di-gregorio-flies-out-bournemouth-medical/) - **Football Italia**
-6. [Forest targeting two new signings](https://www.bbc.com/sport/football/articles/c0m3nvp94l1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Chris Sutton urges Celtic to get serious with this transfer window](https://celticshorts.com/2026/08/chris-sutton-urges-celtic-to-get-serious-with-this-transfer-window/) - **Celticshorts.com**
-8. [The Premier League Weekend as a Movie: The Good, the Bad and the Ugly](https://www.footballmuse.com/features/the-premier-league-weekend-as-a-movie-the-good-the-bad-and-the-ugly) - **Footballmuse.com**
-9. [In Pulwama, one man’s big bet on cricket and all eyes are on it across J&K](https://timesofindia.indiatimes.com/city/srinagar/in-pulwama-one-mans-big-bet-on-cricket-and-all-eyes-are-on-it-across-jk/articleshow/133456133.cms) - **The Times of India**
+1. [Milan Send Nkunku to RB Leipzig, More Exits Incoming](https://cultofcalcio.com/milan-send-nkunku-to-rb-leipzig-more-exits-incoming/) - **Cultofcalcio.com**
+2. [Athletic, tenacious and crisp in his passing: Sangaré stars against Spurs](https://www.brentfordfc.com/en/news/article/analysis-mamadou-sangare-premier-league-debut-brentford-3-tottenham-hotspur-0) - **Brentfordfc.com**
+3. [Report: Aston Villa could make double defender move](https://eplindex.com/149726/report-aston-villa-could-make-double-defender-move.html) - **English Premier League Index - Opta Stats**
+4. [Liverpool told to fix major issue in the transfer market](https://anfieldindex.com/98564/liverpool-told-to-fix-major-issue-in-the-transfer-market.html) - **Anfieldindex.com**
+5. [Premier League weekend reaction with Ref Watch to come LIVE!](https://www.skysports.com/football/live-blog/11095/13576553/ref-watch-and-premier-league-weekend-reaction-live-dermot-gallagher-assesses-the-big-refereeing-decisions) - **Sky Sports**
+6. [Köln still confident of signing Tottenham youngster](https://bulinews.com/koln-still-confident-signing-tottenham-youngster) - **Bulinews.com**
+7. [Chelsea must compete at top of Premier League — Morgan Rogers](https://punchng.com/chelsea-must-compete-at-top-of-premier-league-morgan-rogers/) - **The Punch**
+8. [Change the plan, Richard Hughes! Liverpool want the wrong Brighton star](https://www.anfieldwatch.co.uk/liverpool-fc/news/change-the-plan-richard-hughes-liverpool-want-the-wrong-brighton-star/) - **Anfieldwatch.co.uk**
+9. [Haaland Stuns with Bold New Buzz Cut](https://www.rediff.com/sports/report/epl-haaland-stuns-with-bold-new-buzz-cut/20260824.htm) - **Rediff.com**
+10. ['No chance!': Peter Schmeichel is shot down live on TV by Newcastle boss Matthias Jaissle on Man United's hopes of signing Lewis Hall](https://www.dailymail.com/sport/football/article-16075049/No-chance-Peter-Schmeichel-shot-live-TV-Newcastle-boss-Matthias-Jaissle-Man-Uniteds-hopes-signing-Lewis-Hall.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-08-25 17:02:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-25 18:02:43 (KST) / (하루 100회 제한 준수 중)*
