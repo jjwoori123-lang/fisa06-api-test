@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Just in: Journo confirms that Man United attacker has green-lit imminent transfer this week](https://utdreport.co.uk/2026/08/24/ethan-wheatley-agrees-lincoln-city-move-from-manchester-united/) - **Utdreport.co.uk**
-2. [RBL Cup providing more competitive games for academy players](https://rbleipzig.com/en/news/david-wagner-head-of-youth-development-interview-rbl-cup) - **Rbleipzig.com**
-3. [Newcastle nearing a deal to sign Nico Gonzalez from Manchester City](https://sportsview.co.uk/2026/08/newcastle-nearing-a-deal-to-sign-nico-gonzalez-from-manchester-city?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=newcastle-nearing-a-deal-to-sign-nico-gonzalez-from-manchester-city) - **Sportsview.co.uk**
-4. [Nottingham Forest wants to beat Arsenal to La Liga star](https://www.justarsenal.com/nottingham-forest-wants-to-beat-arsenal-to-la-liga-star/420791) - **Just Arsenal News**
-5. [Al-Hilal make decision on pursuit of Chelsea winger Neto](https://thefootballfaithful.com/al-hilal-make-decision-on-pursuit-of-chelsea-winger-neto/) - **The Football Faithful**
-6. [Could Leeds United Be European Contenders This Season?](https://www.forbes.com/sites/grahamruthven/2026/08/24/could-leeds-united-be-european-contenders-this-season/) - **Forbes**
-7. [The fraud allegation that is being made against clubs in the Premier League](https://untold-arsenal.com/archives/122568) - **Untold-arsenal.com**
-8. [Premier League footballer says ‘faith helped me through injury’](https://www.christiantoday.com/news/premier-league-footballer-says-faith-helped-me-through-injury) - **Christiantoday.com**
-9. [Why are Aston Villa a selling club?](https://www.bbc.com/sport/football/articles/c9805y6667no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Aston Villa keen on Manchester United striker Joshua Zirkzee](https://sportsview.co.uk/2026/08/aston-villa-keen-on-manchester-united-striker-joshua-zirkzee?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=aston-villa-keen-on-manchester-united-striker-joshua-zirkzee) - **Sportsview.co.uk**
+2. [Arsenal in talks with Al Hilal over Gabriel Martinelli transfer](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260824-930-574709/) - **Dpa-international.com**
+3. [Harry Maguire is caught tackling his OWN TEAM-MATE in new angle of Man United's defensive horror show - as Luke Shaw's comments sparks concern about weaknesses](https://www.dailymail.com/sport/football/article-16075033/harry-maguire-man-united-hull-city.html) - **Dailymail.com**
+4. [Lacroix predicts ‘beautiful season’ for Chelsea ahead of new era](https://thefootballfaithful.com/lacroix-predicts-beautiful-season-for-chelsea-ahead-of-new-era/) - **The Football Faithful**
+5. [Newcastle advancing in talks to sign Manchester City midfielder](https://thefootballfaithful.com/newcastle-advancing-in-talks-to-sign-manchester-city-midfielder/) - **The Football Faithful**
+6. [Barcelona boss insists he has not told Man United target Balde to leave](https://thefootballfaithful.com/barcelona-boss-insists-he-has-not-told-man-united-target-balde-to-leave/) - **The Football Faithful**
+7. [Where do Liverpool sit among contenders for Champions League glory in 2026/27?](https://www.empireofthekop.com/2026/08/24/where-do-liverpool-sit-among-contenders-for-champions-league-2026-27/) - **Empire of The Kop**
+8. [Villa 'completely capitulated' at Brighton - Murphy](https://www.bbc.com/sport/football/articles/cwyz71g8m22o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Does Watkins want out?](https://www.bbc.com/sport/football/articles/c9805y696ldo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-25 18:54:43 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-25 19:35:08 (KST) / (하루 100회 제한 준수 중)*
