@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [EFL Cup Preview: Nottingham Forest vs Leeds United](https://www.leedsunited.com/en/news/efl-cup-preview-nottingham-forest-vs-leeds-united) - **Leedsunited.com**
-2. [Barcelona defender has a ‘serious offer’ from Man United; waiting for talks with club](https://barcauniversal.com/barcelona-defender-has-a-serious-offer-from-man-united-waiting-for-talks-with-club/) - **Barcauniversal.com**
-3. ['Ready to play': Troy Parrott is set to make La Liga debut tomorrow for Real Betis](https://www.the42.ie/troy-parrott-real-betis-transfer-debut-7140045-Aug2026/) - **The42**
-4. [Young fundraiser stops at Elland Road on 970-mile cycle](https://www.leedsunited.com/en/news/young-fundraiser-stops-at-elland-road-on-970-mile-cycle) - **Leedsunited.com**
-5. [Say Good-bye to Erling Haaland’s Little Pony-Bun](http://www.thecut.com/article/erling-haaland-buzzcut.html) - **The Cut**
-6. [Farke issues encouraging injury updates on Leeds trio](https://hayters.com/farke-issues-encouraging-injury-updates-on-leeds-trio/) - **Hayters.com**
-7. [Leeds boss Farke on Mudryk links and transfer latest](https://hayters.com/leeds-boss-farke-on-mudryk-links-and-transfer-latest/) - **Hayters.com**
-8. [Saudi move for Conceição, Tomori to Premier League, Roma back for Rios ](https://onefootball.com/en/news/saudi-move-for-conceicao-tomori-to-premier-league-roma-back-for-rios-43331465) - **Onefootball.com**
-9. [Don't panic! Why Man Utd and Carrick get a pass after flat Hull defeat](https://www.skysports.com/football/news/11667/13576671/man-utd-why-there-shouldnt-be-panic-after-michael-carricks-side-suffered-premier-league-loss-at-hull-on-opening-day) - **Sky Sports**
-10. [Un Parrott Andaluz, Hoops at KuPS, Cup semis, Egan excels](https://www.rte.ie/sport/soccer/2026/0824/1588987-un-parrott-andaluz-hoops-at-kups-cup-semis-egan-excels/) - **RTE**
+1. [How to Watch This Week's Premier League Matches Live (Even for Free)](https://uk.pcmag.com/video-streaming-services/166522/how-to-watch-the-premier-league-live-even-for-free-2026-august) - **PCMag.com**
+2. [O'Neil expecting 'really tough game' against Leicester](https://www.bbc.com/sport/football/articles/c2dwg51950do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Man United want a loan-to-buy deal for Barcelona defender; Catalans prefer €30-40m sale](https://barcauniversal.com/man-united-want-a-loan-to-buy-deal-for-barcelona-defender-catalans-prefer-e30-40m-sale/) - **Barcauniversal.com**
+4. [It’s too late to cap spending power: clubs can spend what they want](https://untold-arsenal.com/archives/122536) - **Untold-arsenal.com**
+5. [Crystal Palace agree loan move for Premier League defender](https://eplindex.com/149736/crystal-palace-agree-loan-move-for-premier-league-defender.html) - **English Premier League Index - Opta Stats**
+6. [How to watch Fulham vs Chelsea: TV channel and streaming details](https://eplindex.com/149742/how-to-watch-fulham-vs-chelsea-tv-channel-and-streaming-details.html) - **English Premier League Index - Opta Stats**
+7. [C Palace Crystal Palace Man City Manchester City](https://www.mancity.com/news/mens/crystal-palace-kick-off-time-and-tv-information-63923172) - **Manchester City FC**
+8. [Lewis Koumas sends pointed 12-word message to Andoni Iraola after ’emotional’ top-flight debut](https://www.empireofthekop.com/2026/08/24/lewis-koumas-sends-pointed-message-to-iraola-after-top-flight-debut/) - **Empire of The Kop**
+9. [Patience is key after Derby's underwhelming start](https://www.bbc.com/sport/football/articles/cq63r9vrq6zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Postponement Of Saudi Arabia’s Esports Nations Cup Intensifies Concerns About Gulf Sport](https://www.forbes.com/sites/simonchadwick/2026/08/24/postponement-of-saudi-arabias-esports-nations-cup-intensifies-concerns-about-gulf-sport/) - **Forbes**
 
 
 ---
-*최근 업데이트: 2026-08-25 23:48:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-26 00:43:32 (KST) / (하루 100회 제한 준수 중)*
