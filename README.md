@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ipswich 2-1 Sunderland - the fans' verdict](https://www.bbc.com/sport/football/articles/cwymyd3997lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Aston Villa fans turn on Ollie Watkins and wife Ellie after manager hinted he REFUSED to play to force £34m move to Saudi Arabia's Al-Hilal](https://www.dailymail.com/sport/football/article-16075351/Aston-Villa-fans-turn-Ollie-Watkins-wife-Ellie-manager-hinted-REFUSED-play-force-34m-Saudi-Arabias-Al-Hilal.html) - **Dailymail.com**
-3. [Brighton 4-0 Aston Villa - the fans' verdict](https://www.bbc.com/sport/football/articles/cjejeg7d8yxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Chelsea “formally reject” loan offer from Premier League side for Mykhailo Mudryk](https://www.talkchelsea.net/transfers/chelsea-formally-reject-loan-premier-league-side-mudryk/) - **Talk Chelsea**
-5. [OLIVER HOLT: After last season's rescue job Michael Carrick should have been backed to the hilt this summer by Man United. Instead here's how club's dawdling and crowded hierarchy has hung him out to dry](https://www.dailymail.com/sport/football/article-16075485/OLIVER-HOLT-Michael-Carrick-Man-United-hierarchy.html) - **Dailymail.com**
-6. [A scary Alexander Isak issue, the punditry duo who outshone struggling Wayne Rooney and who from Man United's 'spine' is still on the beach? IAN LADYMAN on My Football Weekend](https://www.dailymail.com/sport/football/article-16075303/alexander-isak-liverpool-newcastle-ian-ladyman.html) - **Dailymail.com**
-7. [Chelsea boss backs ‘world-class’ Palmer for great season](https://thefootballfaithful.com/chelsea-boss-backs-world-class-palmer-for-great-season/) - **The Football Faithful**
-8. [Blues looking at other options for Mudryk](https://www.bbc.com/sport/football/articles/cdx56q7xy23o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Tottenham & Man United flop, FPL mayhem, European draws & more](https://footballtoday.com/2026/08/24/tottenham-man-united-flop-fpl-mayhem-european-draws-more/) - **Footballtoday.com**
-10. [Bournemouth formalizes loan move for Michele Di Gregorio from Juventus](https://cryptobriefing.com/bournemouth-di-gregorio-loan-juventus/) - **Crypto Briefing**
+1. [Bukayo Saka reveals what he did to be fit and fresh to lead Arsenal's back-to-back title hopes](https://www.nbcsports.com/soccer/news/bukayo-saka-reveals-what-he-did-to-be-fit-and-fresh-to-lead-arsenals-back-to-back-title-hopes) - **NBCSports.com**
+2. [Irish players prepare for European T20 Premier League](https://www.rte.ie/sport/cricket/2026/0824/1589011-irish-players-prepare-for-european-t20-premier-league/) - **RTE**
+3. [Manchester United still hopeful Arsenal can be persuaded to sell Myles Lewis-Skelly](https://footballtoday.com/2026/08/24/manchester-united-still-hopeful-arsenal-can-be-persuaded-to-sell-myles-lewis-skelly/) - **Footballtoday.com**
+4. [Ep 3638: Man United Mauled, Liverpool Have Holes, Republic Of Brentford, Arsenal Cruise, Haaland's Haircut - 24/08/26](https://shows.acast.com/the-second-captains-podcast-1/episodes/ep-3638-man-united-mauled-liverpool-have-holes-republic-of-b) - **Acast.com**
+5. [Chelsea explore Julian Alvarez deal amid Atletico fallout](https://thefootballfaithful.com/chelsea-explore-julian-alvarez-deal-amid-atletico-fallout/) - **The Football Faithful**
+6. [20 year old Chelsea striker seen as potential “Haaland understudy” in wildest rumour of the week](https://www.talkchelsea.net/transfers/20-chelsea-striker-portential-haaland-understudy/) - **Talk Chelsea**
+7. [Carabao Cup second round: 11 PL teams are in - watch EVERY match live](https://www.skysports.com/football/news/13866/13576598/carabao-cup-2026-27-watch-nottm-forest-vs-leeds-chelsea-vs-luton-tottenham-vs-charlton-and-more-with-every-game-live-on-sky-sports) - **Sky Sports**
+8. [Virgil van Dijk demands response after ‘unnaceptable’ season](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260824-930-575425/) - **Dpa-international.com**
+9. [Dan Burn now set to be missing due to new injury for longer than originally reported](https://www.themag.co.uk/2026/08/dan-burn-now-set-to-be-missing-due-to-new-injury-for-longer-than-originally-reported-newcastle-united/) - **The Mag**
+10. [Harry Wilson becomes Leeds United’s 900th senior player](https://www.leedsunited.com/en/news/harry-wilson-becomes-leeds-uniteds-900th-senior-player) - **Leedsunited.com**
 
 
 ---
-*최근 업데이트: 2026-08-25 20:48:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-25 21:51:08 (KST) / (하루 100회 제한 준수 중)*
