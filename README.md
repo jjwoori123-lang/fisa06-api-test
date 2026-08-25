@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [ Premier League opening day, first howler for Robert Sánchez ](https://onefootball.com/en/news/opening-day-of-the-premier-league-and-first-howler-for-robert-sanchez-43333187) - **Onefootball.com**
-2. [Chelsea’s João Pedro scores fastest-ever Matchweek 1 goal in Premier League history at 31 seconds](https://cryptobriefing.com/chelsea-joao-pedro-fastest-matchweek-1-goal/) - **Crypto Briefing**
-3. [Manchester United Are Locked In A Three-Way Battle For This Talented Striker: Good Fit For Carrick?](https://the4thofficial.net/2026/08/manchester-united-are-locked-in-a-three-way-battle-for-this-talented-striker/) - **The4thofficial.net**
-4. [Forest working on deal for Chelsea striker Delap](https://www.bbc.com/sport/football/articles/c8xkl50ylweo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Frattesi: ‘This is how I am at my best, I came to Lazio because of Gattuso’](https://football-italia.net/frattesi-this-is-how-i-am-at-my-best/) - **Football Italia**
-6. [Forest working on deal for Chelsea striker Delap](https://www.bbc.co.uk/sport/football/articles/c8xkl50ylweo) - **BBC News**
-7. [Joao Pedro scores first Premier League goal as Chelsea cruise past West Ham 5-1](https://cryptobriefing.com/joao-pedro-first-premier-league-goal-chelsea/) - **Crypto Briefing**
-8. [Unai Emery addresses England star's absence during Aston Villa's brutal season-opening loss](https://www.alloutsoccer.com/news/villa-emery-england-watkins-absence-1995644) - **Alloutsoccer.com**
-9. [32 seconds! Joao Pedro gets Alonso's Chelsea off to dream PL start](https://www.skysports.com/football/video/12606/13576774/goal-j-pedro-1-fulham-0-1-chelsea) - **Sky Sports**
-10. [WATCH: Chelsea make lightning start to Alonso reign as Pedro chips Blues in front after 31 seconds vs Fulham](https://www.101greatgoals.com/football/premier-league/fulham-chelsea-watch-goal-joao-pedro/) - **101 Great Goals**
+1. [Joshua King scores equalizer for Fulham against Chelsea in Premier League opener](https://cryptobriefing.com/joshua-king-fulham-equalizer-chelsea-premier-league/) - **Crypto Briefing**
+2. [Jamie Carragher claims Liverpool's infamous £445m transfer spend of 2025 could be the WORST in Premier League history as Anfield legend shares fear flops have set club back 'a year or two'](https://www.dailymail.com/sport/football/article-16076701/Jamie-Carragher-claims-Liverpools-infamous-445m-transfer-spend-2025-WORST-Premier-League-history-Anfield-legend-shares-fear-flops-set-club-year-two.html) - **Dailymail.com**
+3. [Chelsea takes lead against Fulham with Morgan Rogers goal in Xabi Alonso’s debut](https://cryptobriefing.com/chelsea-rogers-goal-fulham-premier-league/) - **Crypto Briefing**
+4. [Ipswich Town and Hull City enquire about PSG midfielder Renato Sanches](https://www.getfootballnewsfrance.com/2026/ipswich-town-and-hull-city-enquire-about-psg-midfielder-renato-sanches/) - **Get French Football News**
+5. [Report: Man City ready to finally move for Chelsea star](https://eplindex.com/149748/report-man-city-ready-to-finally-move-for-chelsea-star.html) - **English Premier League Index - Opta Stats**
+6. [Sunderland Are Showing Interest In This Talented Midfielder: What Will He Add To Le Bris’ Side?](https://the4thofficial.net/2026/08/sunderland-are-showing-interest-in-this-talented-midfielder/) - **The4thofficial.net**
+7. [Enzo Maresca admits Manchester City starting XI issue as Marc Guehi deployed in midfield](https://www.alloutsoccer.com/news/manchester-city-maresca-guehi-bournemouth-1995666) - **Alloutsoccer.com**
+8. [Juventus express interest in Milan’s Rafael Leao](https://www.getfootballnewsitaly.com/2026/juventus-express-interest-in-milans-rafael-leao/) - **Getfootballnewsitaly.com**
+9. [Training: Recovery after late Bournemouth drama](https://www.mancity.com/news/mens/man-city-bournemouth-recovery-training-63923197) - **Manchester City FC**
+10. [Transfers: Fabinho reunites with Salah at Trabzonspor](https://www.rte.ie/sport/soccer/2026/0824/1589067-transfers-fabinho-reunites-with-salah-at-trabzonspor/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-08-26 04:33:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-26 04:59:25 (KST) / (하루 100회 제한 준수 중)*
