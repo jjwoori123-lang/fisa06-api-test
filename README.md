@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [49ers owner Jed York was sentenced after his Ohio arrest. He paid $1,150 and spent a day in jail. Here’s what happened](https://economictimes.indiatimes.com/news/international/global-trends/49ers-owner-jed-york-was-sentenced-after-his-ohio-arrest-he-paid-1150-and-spent-a-day-in-jail-heres-what-happened/articleshow/133474140.cms) - **The Times of India**
-2. [(VIDEO) Erling Haaland's Girlfriend Reacts in Shock as Soccer Star Buzzes Off Signature Long Hair](https://www.ibtimes.com.au/erling-haaland-buzz-cut-new-season-1874508) - **Ibtimes.com.au**
-3. [Fulham vs Chelsea - Premier League LIVE: Xabi Alonso kicks off Blues reign with west London derby](https://www.dailymail.com/sport/football/article-16076227/Fulham-vs-Chelsea-Premier-League-LIVE.html) - **Dailymail.com**
-4. [Dan Snyder has ‘gone invisible’ after $6.05 billion Commanders sale](https://nypost.com/2026/08/24/sports/dan-snyder-has-gone-invisible-after-6-05-billion-commanders-sale/) - **New York Post**
-5. [Fulham vs Chelsea - Premier League LIVE: Xabi Alonso kicks off Blues reign with west London derby](https://www.dailymail.com/sport/football/article-16076227/Fulham-vs-Chelsea-Premier-League-LIVE.html) - **Dailymail.com**
-6. [NAVI League breaks Fnatic’s win streak, moves closer to playoffs](https://cryptobriefing.com/navi-beats-fnatic-lec-summer-playoffs/) - **Crypto Briefing**
-7. [Marc Cucurella: “It’s an honor to wear the shirt of the best club in the world”](https://www.managingmadrid.com/real-madrid-cf-news/111786/marc-cucurella-its-an-honor-to-wear-the-shirt-of-the-best-club-in-the-world) - **Managing Madrid**
-8. [Watkins' departure would cut deepest - and Villa did not see it coming](https://www.bbc.com/sport/football/articles/cq63ry9q6jzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Sunderland sign Ahoka from Royal Antwerp](https://www.bbc.com/sport/football/articles/cx2ze3dz4jro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Sunderland sign Ahoka from Royal Antwerp](https://www.bbc.co.uk/sport/football/articles/cx2ze3dz4jro) - **BBC News**
+1. [New soccer WAG used ChatGPT to help with bizarre squirrel encounter](https://nypost.com/2026/08/24/sports/new-soccer-wag-used-chatgpt-to-help-with-bizarre-squirrel-encounter/) - **New York Post**
+2. [Dan Snyder Has Ghosted Basically Everyone He Worked With And Turned ‘Invisible’ Three Years After Selling The Commanders For $6.05 Billion](https://brobible.com/sports/article/what-happened-to-dan-snyder-after-selling-commanders/) - **BroBible**
+3. [Erling Haaland cut his hair off and some people are losing it: 'The Viking era is over'](https://www.cbc.ca/news/world/erling-haaland-hair-9.7318164) - **CBC News**
+4. [Crystal Palace launch pursuit of two Moroccan internationals](https://www.getfootballnewsfrance.com/2026/crystal-palace-launch-pursuit-of-two-moroccan-internationals/) - **Get French Football News**
+5. [Gary Neville, 51, Still Loves Heavy Squats – and 5 Other Lifts That Have Kept Him Strong for Decades](https://www.menshealth.com/uk/fitness/a73510371/gary-neville-training/) - **menshealth.com**
+6. [Sam Byram: It feels like a fairytale](https://www.leedsunited.com/en/news/sam-byram-it-feels-like-a-fairytale) - **Leedsunited.com**
+7. [Journalist believes Liverpool are closing in on next signing – “He will be holding up the shirt soon”](https://anfieldindex.com/98615/journalist-liverpools-next-potential-signing-is-going-to-surprise-a-lot-of-people.html) - **Anfieldindex.com**
+8. [Real Madrid president takes charge of club’s plan to renew another key superstar](https://madriduniversal.com/real-madrid-president-takes-charge-of-clubs-plan-to-renew-another-key-superstar/) - **Madriduniversal.com**
+9. [Sunderland complete the signing of midfielder Jules Ahoka](https://www.playmakerstats.com/news/sunderland-complete-the-signing-of-midfielder-jules-ahoka/1182238) - **Playmakerstats.com**
+10. [Gabriel Martinelli nears Arsenal exit as Al-Hilal close in on deal for Brazilian winger](https://www.cbssports.com/soccer/news/gabriel-martinelli-arsenal-exit-al-hilal-brazilian-winger/) - **CBS Sports**
 
 
 ---
-*최근 업데이트: 2026-08-26 02:15:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-26 02:48:43 (KST) / (하루 100회 제한 준수 중)*
