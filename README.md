@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man United sign Carlos Baleba: How does he fit with Fernandes, Tielemans in midfield?](https://www.nbcsports.com/soccer/news/man-united-sign-carlos-baleba-how-does-he-fit-with-fernandes-tielemans-in-midfield) - **NBCSports.com**
-2. [Forest agree £50m deal for Chelsea striker Delap](https://www.bbc.com/sport/football/articles/c4g5zg526gdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Forest agree £50m deal for Chelsea striker Delap](https://www.bbc.co.uk/sport/football/articles/c4g5zg526gdo) - **BBC News**
-4. [Richard Hughes takes Cody Gakpo transfer decision amid interest from Spurs and Man City](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-richard-hughes-takes-cody-gakpo-decision-amid-interest-from-spurs-and-man-city/) - **Anfieldwatch.co.uk**
-5. [Official | Christopher Nkunku joins RB Leipzig on loan from Milan](https://www.getfootballnewsgermany.com/2026/christopher-nkunku-joins-rb-leipzig-loan-milan/) - **Getfootballnewsgermany.com**
-6. [Birmingham v Brentford confirmed team news: Wilson, Anthony and Schuster make first starts](https://www.brentfordfc.com/en/news/article/first-team-birmingham-city-v-brentford-callum-wilson-jaidon-anthony-jannik-schuster-carabao-cup) - **Brentfordfc.com**
-7. [Alvarez left with two options: Atletico or Arsenal](https://www.skysports.com/football/news/11095/13576975/julian-alvarez-transfer-latest-atletico-standing-firm-on-barcelona-as-arsenal-become-only-get-out-for-argentine-striker) - **Sky Sports**
-8. [Journalist Reveals Minteh’s True Injury Timeline as Liverpool Prepare Third Bid](https://anfieldindex.com/98688/journalist-reveals-mintehs-true-injury-timeline-as-liverpool-prepare-third-bid.html) - **Anfieldindex.com**
-9. [Team news: Daniel Farke names XI for Carabao Cup clash](https://www.leedsunited.com/en/news/team-news-daniel-farke-names-xi-for-carabao-cup-clash) - **Leedsunited.com**
-10. [Forest agree club-record fee for Chelsea's Delap](https://www.skysports.com/football/news/11095/13577090/liam-delap-transfer-nottingham-forest-agree-club-record-deal-to-sign-chelsea-striker) - **Sky Sports**
+1. [Brighton sign Algeria defender Hadjam on deal until 2031](https://www.channelnewsasia.com/sport/brighton-sign-algeria-defender-hadjam-deal-until-2031-6340896) - **CNA**
+2. [‘Erling Haaland leaving Man City one day is inevitable’: Ex-Man City star predicts when striker could push for exit](https://timesofindia.indiatimes.com/sports/football/top-stories/erling-haaland-leaving-man-city-one-day-is-inevitable-ex-man-city-star-predicts-when-striker-could-push-for-exit/articleshow/133523860.cms) - **The Times of India**
+3. [Amid drama, FIFA alliances could change international soccer forever | Opinion](https://www.usatoday.com/story/sports/soccer/2026/08/25/concacaf-uefa-nations-league-conmebol-fifa-power-shift/91446768007/) - **USA Today**
+4. [Baseball's Greatest Players: The Unsung and 10 numbers that define them](https://www.sportingnews.com/us/mlb/news/baseballs-greatest-players-unsung-and-10-numbers-define-them/fe229d73241189612c2e8ebc) - **Sporting News**
+5. [Manchester City face early deadline to complete Ayyoub Bouaddi transfer](https://www.alloutsoccer.com/news/manchester-city-transfer-deadline-bouaddi-1997235) - **Alloutsoccer.com**
+6. [Man United's Fernandes named PFA Player of the Year](https://www.channelnewsasia.com/sport/man-uniteds-fernandes-named-pfa-player-year-6340886) - **CNA**
+7. [Will Osula’s Injury Highlights A Problem With Football’s New Rule](https://cominghomenewcastle.sbnation.com/newcastle-united-opinion/25151/will-osulas-injury-highlights-a-problem-with-footballs-new-rule) - **SB Nation**
+8. [Fernandes crowned PFA Players' Player of the Year as Shaw wins women's award](https://www.skysports.com/football/news/11095/13577089/bruno-fernandes-man-utd-captain-wins-2025-26-pfa-players-player-of-the-year-as-bunny-shaw-wins-womens-award) - **Sky Sports**
+9. [Chelsea preparing another offer to Bournemouth to sign Alex Scott](https://sportsview.co.uk/2026/08/chelsea-preparing-another-offer-to-bournemouth-to-sign-alex-scott?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=chelsea-preparing-another-offer-to-bournemouth-to-sign-alex-scott) - **Sportsview.co.uk**
+10. [Liverpool exodus expected with six players set to leave before transfer deadline day](https://anfieldindex.com/98690/liverpool-exodus-expected-with-six-players-set-to-leave-before-transfer-deadline-day.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-08-27 03:08:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-27 05:12:16 (KST) / (하루 100회 제한 준수 중)*
