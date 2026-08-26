@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Israeli basketball legend Mickey Berkowitz’s severe dementia diagnosis revealed in documentary](https://www.jpost.com/israel-news/sports/article-906478) - **The Jerusalem Post**
-2. [Ibrahima Konate records most touches in La Liga debut for Real Madrid](https://cryptobriefing.com/konate-most-touches-la-liga-debut-real-madrid/) - **Crypto Briefing**
-3. [Bayern Munich News: Move to Benfica ‘imminent’ for FC Bayern midfielder João Palhinha; Bayern secures sell-on clause in sale of youngster; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/247348/benfica-bayern-munich-chelsea-fc-barcelona-psg-arsenal-palhinha-delap-nottingham-forest-gordon-brugge) - **Bavarian Football Works**
-4. [Canadiens’ 101-Point Star Has Case to Leap $53 Million Rival in NHL Ranking](https://heavy.com/sports/nhl/montreal-canadiens/canadiens-nick-suzuki-nhl-center-ranking-auston-matthews/) - **Heavy.com**
-5. [Alonso's Chelsea kick off season with thrilling win at Fulham](https://www.rediff.com/sports/report/english-premier-league-palmer-morgan-pedro-score-as-chelsea-down-fulham-in-a-thriller/20260825.htm) - **Rediff.com**
-6. [Shaikin: Amid Dodgers' uncertainty, Padres' new owners promise to 'win it all!'](https://sports.yahoo.com/articles/shaikin-amid-dodgers-uncertainty-padres-020608058.html) - **Yahoo Entertainment**
-7. [Stephon Castle reveals he has been working hard to improve his perimeter shooting](https://www.sportingnews.com/us/nba/san-antonio-spurs/news/stephon-castle-has-been-working-improve-perimeter-shooting/80f045193f7c46f767ac8053) - **Sporting News**
-8. [Ruben Amorim says Rafael Leao’s situation ‘is not important’ at AC Milan as agents reportedly offer him to Aston Villa](https://worldsoccertalk.com/news/ruben-amorim-says-rafael-leaos-situation-is-not-important-at-ac-milan-as-agents-reportedly-offer-him-to-aston-villa/) - **Worldsoccertalk.com**
+1. [It looks like Manchester City are finally about to pull the trigger on a move everyone’s been expecting](https://esteemedkompany.com/2026/08/25/it-looks-like-manchester-city-are-finally-about-to-pull-the-trigger-on-a-move-everyones-been-expecting/) - **Esteemedkompany.com**
+2. [Stoke City vs Hull City – Match preview and team news](https://thefootballfaithful.com/stoke-city-vs-hull-city-match-preview-and-team-news/) - **The Football Faithful**
+3. [Leeds United XI vs Nottingham Forest – Predicted lineup and team news](https://thefootballfaithful.com/leeds-united-xi-vs-nottingham-forest-predicted-lineup-and-team-news-3/) - **The Football Faithful**
+4. [Plymouth Argyle vs Coventry City – Match preview and team news](https://thefootballfaithful.com/plymouth-argyle-vs-coventry-city-match-preview-and-team-news/) - **The Football Faithful**
+5. [Nottingham Forest vs Leeds United – Predicted lineup and team news](https://thefootballfaithful.com/nottingham-forest-vs-leeds-united-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+6. [Coventry City XI vs Plymouth Argyle – Predicted lineup and team news](https://thefootballfaithful.com/coventry-city-xi-vs-plymouth-argyle-predicted-lineup-and-team-news/) - **The Football Faithful**
+7. [Hull City XI vs Stoke City – Predicted lineup and team news](https://thefootballfaithful.com/hull-city-xi-vs-stoke-city-predicted-lineup-and-team-news/) - **The Football Faithful**
+8. [Nottingham Forest vs Leeds United – Match preview and team news](https://thefootballfaithful.com/nottingham-forest-vs-leeds-united-match-preview-and-team-news-3/) - **The Football Faithful**
+9. [Swansea City Make Enquiry for Wrexham Defender Conor Coady](https://roundtable.io/sports/soccer/efl/wrexham/news/swansea-city-make-enquiry-for-wrexham-defender-conor-coady) - **Roundtable.io**
+10. [Pundit stunned that Nicolas Jackson couldn’t stick with Bayern Munich](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/247098/pundit-stunned-that-nicolas-jackson-couldnt-stick-with-bayern-munich) - **Bavarian Football Works**
 
 
 ---
-*최근 업데이트: 2026-08-26 13:58:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-26 14:42:18 (KST) / (하루 100회 제한 준수 중)*
