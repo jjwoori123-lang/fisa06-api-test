@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Massive Bradley Barcola to Liverpool update coming out of France this morning](https://www.empireofthekop.com/2026/08/25/massive-bradley-barcola-to-liverpool-update-coming-out-of-france-this-morning/) - **Empire of The Kop**
-2. [“I’m not convinced” – Gary Neville makes familiar Liverpool prediction as Jamie Carragher disagrees](https://www.empireofthekop.com/2026/08/25/neville-makes-familiar-liverpool-prediction-as-carragher-disagrees/) - **Empire of The Kop**
-3. [Leeds and Rangers co-owner York arrested](https://www.skysports.com/football/news/11095/13576878/leeds-and-rangers-co-owner-jed-york-arrested-in-ohio-and-pleads-no-contest-to-misdemeanour-charges-of-disorderly-conduct-and-possessing-criminal-tools) - **Sky Sports**
-4. [Ranking the best managers in Premier League history](https://www.bbc.com/sport/football/articles/cr59zj42plvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Ranking the best managers in Premier League history](https://www.bbc.co.uk/sport/football/articles/cr59zj42plvo) - **BBC News**
-6. [Perhaps the writing is on the wall](https://www.bbc.com/sport/football/articles/cj3d5rme45ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Arsenal reach agreement with Al-Hilal on Martinelli fee](https://thefootballfaithful.com/arsenal-reach-agreement-with-al-hilal-on-martinelli-fee/) - **The Football Faithful**
-8. [Rio Ferdinand sets ‘realistic’ target for Manchester United’s season](https://thefootballfaithful.com/rio-ferdinand-sets-realistic-target-for-manchester-uniteds-season/) - **The Football Faithful**
-9. [Nottingham Forest closing in on agreement with Chelsea for Liam Delap deal](https://thefootballfaithful.com/nottingham-forest-closing-in-on-agreement-with-chelsea-for-liam-delap-deal/) - **The Football Faithful**
-10. [Andoni Iraola suffering consequences of major Richard Hughes transfer error](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-andoni-iraola-suffering-consequences-of-major-richard-hughes-error/) - **Anfieldwatch.co.uk**
+1. [What does your Premier League club still need in the transfer window?](https://www.bbc.com/sport/football/articles/c4gql9p0qn2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [What does your Premier League club still need in the transfer window?](https://www.bbc.co.uk/sport/football/articles/c4gql9p0qn2o) - **BBC News**
+3. [Andoni Iraola blown away by 19-year-old midfielder to replace Curtis Jones](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-trey-nyoni-andoni-iraola-blown-away-by-19-year-old-midfielder-to-replace-curtis-jones/) - **Anfieldwatch.co.uk**
+4. [Iraola could add ‘outstanding’ player to Liverpool squad for free](https://www.empireofthekop.com/2026/08/25/iraola-could-add-outstanding-player-to-liverpool-squad-for-free/) - **Empire of The Kop**
+5. [Lille reach an agreement to loan Nottingham Forest’s Dilane Bakwa](https://www.getfootballnewsfrance.com/2026/lille-reach-an-agreement-to-loan-nottingham-forests-dilane-bakwa/) - **Get French Football News**
+6. [Barcelona homegrown star ‘not ruling out’ summer departure after Flick’s warning – report](https://barcauniversal.com/barcelona-homegrown-star-not-ruling-out-summer-departure-after-flicks-warning-report/) - **Barcauniversal.com**
+7. [FC Barcelona Star Balde Makes Decision On Future At Club](https://www.forbes.com/sites/tomsanderson/2026/08/25/fc-barcelona-star-balde-makes-decision-on-future-at-club/) - **Forbes**
+8. [Borussia Dortmund 26/27 Season Preview: Explosive Talent & The Yellow Wall, But Is Kovac The Manager To Mould A Meister?](https://worldfootballindex.com/2026/08/borussia-dortmund-26-27-season-preview-explosive-talent-the-yellow-wall-but-is-kovac-the-manager-to-mould-a-meister/) - **World Football Index**
+9. [Real Madrid midfield starlet leaning towards Italy move even as Fulham circle](https://madriduniversal.com/real-madrid-midfield-starlet-leaning-towards-italy-move-even-as-fulham-circle/) - **Madriduniversal.com**
+10. [Chelsea sets asking price of £65M for Nicolas Jackson amid Aston Villa interest](https://cryptobriefing.com/chelsea-nicolas-jackson-asking-price-aston-villa/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-08-26 16:49:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-26 17:47:00 (KST) / (하루 100회 제한 준수 중)*
