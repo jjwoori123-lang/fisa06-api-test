@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tottenham signs Savinho from Man City to take summer spending to more than $400M](https://sports.yahoo.com/articles/tottenham-signs-savinho-man-city-094133856.html) - **Yahoo Entertainment**
-2. [The Athletic reveals the three Man Utd first-team players who could still leave this summer](https://utdreport.co.uk/2026/08/25/joshua-zirkzee-man-utd-transfer-deadline/) - **Utdreport.co.uk**
-3. [Dominink Szoboszlai: Ice in His Veins, Fire in His Heart](https://liverpooloffside.sbnation.com/liverpool-fc-tactics-longform/82993/dominink-szoboszlai-liverpool-future-captain-reacts-crowd-noise-2-2-newcastle) - **SB Nation**
-4. [‘Huge Potential’: Sunderland Chief Offers Exciting Jules Ahoka Insight After £8.6m Signing](https://roundtable.io/sports/soccer/premier-league/sunderland/news/huge-potential-sunderland-chief-offers-exciting-jules-ahoka-insight-after-8-6m-signing) - **Roundtable.io**
-5. [Arsenal look to include sell-on clause in club-record sale](https://dailycannon.com/2026/08/arsenal-martinelli-al-hilal-sell-on/) - **Dailycannon.com**
-6. [Palestra, Caicedo: Latest On Chelsea Pair After Xabi Alonso Confirms Double Setback](https://roundtable.io/sports/soccer/premier-league/chelsea/news/palestra-caicedo-latest-on-chelsea-pair-after-xabi-alonso-confirms-double-setback) - **Roundtable.io**
-7. [When is the Champions League draw? Date, time, schedule, where to watch](https://www.101greatgoals.com/football/champions-league/when-is-champions-league-draw-2026-date-time-tv-channel-live-online-stream-where-to-watch-schedule-results/) - **101 Great Goals**
-8. [Arsenal star shocked at the way he has been treated this summer](https://www.justarsenal.com/arsenal-star-shocked-at-the-way-he-has-been-treated-this-summer/420855) - **Just Arsenal News**
-9. [Official announcement from Liverpool this morning effectively ends one player’s Anfield career](https://www.empireofthekop.com/2026/08/25/liverpool-confirm-calvin-ramsay-st-mirren-loan-move/) - **Empire of The Kop**
-10. [Tottenham sign Savinho from Man City for £75m](https://www.bbc.com/sport/football/articles/cy7z637nj8jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Can Declan Rice beat Bruno Fernandes this time? The nominees for tonight’s PFA awards](https://hayters.com/can-declan-rice-beat-bruno-fernandes-this-time-the-nominees-for-tonights-pfa-awards/) - **Hayters.com**
+2. [Barcola? Mbaye? Both? How does Liverpool fix their attack this transfer window?](https://www.empireofthekop.com/2026/08/25/barcola-mbaye-both-how-does-liverpool-fix-their-attack-this-transfer-window/) - **Empire of The Kop**
+3. [Champions League draw live on Inter TV](https://www.inter.it/en/news/champions-league-where-to-watch-draw-league-phase-26-27) - **Inter.it**
+4. [Have Arsenal only got one world class player as Carragher suggests or is he talking nonsense as usual?](https://untold-arsenal.com/archives/122591) - **Untold-arsenal.com**
+5. [Savinho seals £75m Spurs move from Manchester City – and changes name to Sávio](https://www.irishtimes.com/sport/soccer/2026/08/25/savinho-seals-75m-spurs-move-from-manchester-city-and-changes-name-to-savio/) - **The Irish Times**
+6. [Leeds and Rangers co-owner jailed after prostitution arrest](https://www.bbc.co.uk/news/articles/c790wyyv71vo) - **BBC News**
+7. ['Sensational' Palmer 'hungry' again](https://www.bbc.com/sport/football/articles/c07le250kmlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Aston Villa have made an offer for Jean-Philippe Mateta](https://sportsview.co.uk/2026/08/aston-villa-have-made-an-offer-for-jean-philippe-mateta?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=aston-villa-have-made-an-offer-for-jean-philippe-mateta) - **Sportsview.co.uk**
+9. [Nottingham Forest open talks to sign Barcelona target Luis Suarez](https://www.getfootballnewsfrance.com/2026/nottingham-forest-open-talks-to-sign-barcelona-target-luis-suarez/) - **Get French Football News**
+10. [Spurs splash out £75 million for Man City's Savinho](https://sports.yahoo.com/articles/spurs-splash-75-million-man-102437677.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-08-26 18:43:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-26 19:37:00 (KST) / (하루 100회 제한 준수 중)*
