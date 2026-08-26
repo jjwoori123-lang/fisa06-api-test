@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [What does your Premier League club still need in the transfer window?](https://www.bbc.com/sport/football/articles/c4gql9p0qn2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [What does your Premier League club still need in the transfer window?](https://www.bbc.co.uk/sport/football/articles/c4gql9p0qn2o) - **BBC News**
-3. [Andoni Iraola blown away by 19-year-old midfielder to replace Curtis Jones](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-fc-news-trey-nyoni-andoni-iraola-blown-away-by-19-year-old-midfielder-to-replace-curtis-jones/) - **Anfieldwatch.co.uk**
-4. [Iraola could add ‘outstanding’ player to Liverpool squad for free](https://www.empireofthekop.com/2026/08/25/iraola-could-add-outstanding-player-to-liverpool-squad-for-free/) - **Empire of The Kop**
-5. [Lille reach an agreement to loan Nottingham Forest’s Dilane Bakwa](https://www.getfootballnewsfrance.com/2026/lille-reach-an-agreement-to-loan-nottingham-forests-dilane-bakwa/) - **Get French Football News**
-6. [Barcelona homegrown star ‘not ruling out’ summer departure after Flick’s warning – report](https://barcauniversal.com/barcelona-homegrown-star-not-ruling-out-summer-departure-after-flicks-warning-report/) - **Barcauniversal.com**
-7. [FC Barcelona Star Balde Makes Decision On Future At Club](https://www.forbes.com/sites/tomsanderson/2026/08/25/fc-barcelona-star-balde-makes-decision-on-future-at-club/) - **Forbes**
-8. [Borussia Dortmund 26/27 Season Preview: Explosive Talent & The Yellow Wall, But Is Kovac The Manager To Mould A Meister?](https://worldfootballindex.com/2026/08/borussia-dortmund-26-27-season-preview-explosive-talent-the-yellow-wall-but-is-kovac-the-manager-to-mould-a-meister/) - **World Football Index**
-9. [Real Madrid midfield starlet leaning towards Italy move even as Fulham circle](https://madriduniversal.com/real-madrid-midfield-starlet-leaning-towards-italy-move-even-as-fulham-circle/) - **Madriduniversal.com**
-10. [Chelsea sets asking price of £65M for Nicolas Jackson amid Aston Villa interest](https://cryptobriefing.com/chelsea-nicolas-jackson-asking-price-aston-villa/) - **Crypto Briefing**
+1. [Tottenham signs Savinho from Man City to take summer spending to more than $400M](https://sports.yahoo.com/articles/tottenham-signs-savinho-man-city-094133856.html) - **Yahoo Entertainment**
+2. [The Athletic reveals the three Man Utd first-team players who could still leave this summer](https://utdreport.co.uk/2026/08/25/joshua-zirkzee-man-utd-transfer-deadline/) - **Utdreport.co.uk**
+3. [Dominink Szoboszlai: Ice in His Veins, Fire in His Heart](https://liverpooloffside.sbnation.com/liverpool-fc-tactics-longform/82993/dominink-szoboszlai-liverpool-future-captain-reacts-crowd-noise-2-2-newcastle) - **SB Nation**
+4. [‘Huge Potential’: Sunderland Chief Offers Exciting Jules Ahoka Insight After £8.6m Signing](https://roundtable.io/sports/soccer/premier-league/sunderland/news/huge-potential-sunderland-chief-offers-exciting-jules-ahoka-insight-after-8-6m-signing) - **Roundtable.io**
+5. [Arsenal look to include sell-on clause in club-record sale](https://dailycannon.com/2026/08/arsenal-martinelli-al-hilal-sell-on/) - **Dailycannon.com**
+6. [Palestra, Caicedo: Latest On Chelsea Pair After Xabi Alonso Confirms Double Setback](https://roundtable.io/sports/soccer/premier-league/chelsea/news/palestra-caicedo-latest-on-chelsea-pair-after-xabi-alonso-confirms-double-setback) - **Roundtable.io**
+7. [When is the Champions League draw? Date, time, schedule, where to watch](https://www.101greatgoals.com/football/champions-league/when-is-champions-league-draw-2026-date-time-tv-channel-live-online-stream-where-to-watch-schedule-results/) - **101 Great Goals**
+8. [Arsenal star shocked at the way he has been treated this summer](https://www.justarsenal.com/arsenal-star-shocked-at-the-way-he-has-been-treated-this-summer/420855) - **Just Arsenal News**
+9. [Official announcement from Liverpool this morning effectively ends one player’s Anfield career](https://www.empireofthekop.com/2026/08/25/liverpool-confirm-calvin-ramsay-st-mirren-loan-move/) - **Empire of The Kop**
+10. [Tottenham sign Savinho from Man City for £75m](https://www.bbc.com/sport/football/articles/cy7z637nj8jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-26 17:47:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-26 18:43:58 (KST) / (하루 100회 제한 준수 중)*
