@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: Nottingham Forest closing in on move for Chelsea star](https://eplindex.com/149766/report-nottingham-forest-closing-in-on-move-for-chelsea-star.html) - **English Premier League Index - Opta Stats**
-2. [De Zerbi explains where new Tottenham signing Savio is ‘one of the best players’](https://www.101greatgoals.com/football/premier-league/de-zerbi-tottenham-signing-savio-one-of-the-best-players/) - **101 Great Goals**
-3. [Bayern's Kim reportedly rejected Arsenal amid prior hunt for Konsa alternative](https://bulinews.com/bayern-kim-reportedly-rejected-arsenal-amid-prior-hunt-for-konsa-alternative) - **Bulinews.com**
-4. [Professional Women's Hockey League not for sale as co-founder Mark Walter is investigated](https://www.cbc.ca/sports/hockey/pwhl/pwhl-not-for-sale-mark-walter-investigation-tax-fraud-9.7319513) - **CBC News**
-5. [TEAM NEWS: Van de Ven, Porro on bench for Charlton, Kudus, Maddison out](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/73167/tottenham-hotspur-news-charlton-fa-cup-press-conference-injury-list) - **SB Nation**
-6. [Cunningham relishing 'exciting' Salthill Devon journey](https://www.rte.ie/sport/soccer/2026/0825/1589171-cunningham-relishing-exciting-salthill-devon-journey/) - **RTE**
-7. [Nangkiew Irat seal first SPL win with 2-0 victory over Laitkor](https://www.syllad.com/nangkiew-irat-seal-first-spl-win-with-2-0-victory-over-laitkor/) - **Syllad.com**
-8. [‘Have we not learnt?’: Paul Scholes tears into Michael Carrick and INEOS after matchweek one](https://utdreport.co.uk/2026/08/25/have-we-not-learnt-paul-scholes-tears-into-michael-carrick-and-ineos-after-matchweek-one/) - **Utdreport.co.uk**
-9. [Townsend 'baffled' by Tottenham's performance](https://www.bbc.com/sport/football/articles/cg49yd32r00o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Fans say owners can no longer fund football club](https://www.bbc.com/news/articles/cx2z9wl1dyno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Cameroon's Baleba joins as Man United boost midfield options](https://sports.yahoo.com/articles/cameroons-baleba-joins-man-united-162321976.html) - **Yahoo Entertainment**
+2. [Is 16-year-old Cavan Sullivan really ready for the USMNT?](https://www.usatoday.com/story/sports/soccer/usmnt/2026/08/25/cavan-sullivan-usmnt-how-old-philadelphia-union/91342116007/) - **USA Today**
+3. [Aston Villa, Tottenham Hotspur, Manchester United all suffer defeats in Premier League opener](https://cryptobriefing.com/premier-league-opening-weekend-defeats/) - **Crypto Briefing**
+4. [Tottenham's $116 million signing Savinho makes Spurs request after Man City exit](https://www.alloutsoccer.com/news/tottenham-hotspur-savinho-manchester-city-1996888) - **Alloutsoccer.com**
+5. [Austin FC names Khaled El-Ahmad as new sporting director as MLS club continues major rebuild](https://sports.yahoo.com/articles/austin-fc-names-khaled-el-160814747.html) - **Yahoo Entertainment**
+6. [Man Utd's midfield spending is done - now for a left-back?](https://www.bbc.com/sport/football/articles/clykngy3gldo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Has Wirtz really underperformed at Liverpool?](https://www.bbc.com/sport/football/articles/c790wpdz4ero?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Leicester are feeling the full impact of the Russell Martin effect - just like Rangers did 12 months ago](https://www.dailymail.com/sport/football/article-16078955/Leicester-feeling-impact-Russell-Martin-effect-just-like-Rangers-did-12-months-ago.html) - **Dailymail.com**
+9. [Manchester United signs Carlos Baleba from Brighton for £70M](https://cryptobriefing.com/manchester-united-signs-carlos-baleba-brighton-2/) - **Crypto Briefing**
+10. [What's next for Ollie Watkins and Aston Villa: TOM COLLOMOSSE reveals last week's summit with Unai Emery, why he could still sign new contract and Villa's targets to replace star striker if he goes to Saudi](https://www.dailymail.com/sport/football/article-16078633/Ollie-Watkins-Aston-Villa-Emery-Saudi-transfers.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-08-26 23:51:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-27 01:24:25 (KST) / (하루 100회 제한 준수 중)*
