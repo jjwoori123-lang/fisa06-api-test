@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [ Luck or skill? English League Cup sees goal from miles out, watch](https://onefootball.com/en/news/luck-or-skill-league-cup-gets-a-halfway-line-stunner-watch-43339787) - **Onefootball.com**
-2. [Stubborn Italian soccer boss Roberto De Zerbi blames recent Australian tour for horrible start to their season: 'He won't last long!'](https://www.dailymail.com/sport/football/article-16077549/Stubborn-Italian-soccer-boss-Roberto-Zerbi-blames-recent-Australian-tour-horrible-start-season-wont-long.html) - **Dailymail.com**
-3. [‘This team had a relegation battle for nine months’ – Glasner says Nottingham Forest cannot ‘ignore the reality’](https://hayters.com/glasner-says-nottingham-forest-cannot-ignore-the-reality/) - **Hayters.com**
-4. [“Here we go” – Chelsea lock in impressive £45m deal for forward](https://www.talkchelsea.net/news/here-we-go-chelsea-impressive-forward/) - **Talk Chelsea**
-5. [Bruno Fernandes Crowned 'PFA Player Of The Year'](https://www.rediff.com/sports/report/epl-bruno-fernandes-wins-pfa-player-of-the-year-award/20260826.htm) - **Rediff.com**
-6. [The Atlanta Hawks Must Still Address Their Lack of Halfcourt Offense](https://theleadsm.com/the-atlanta-hawks-must-still-address-their-lack-of-halfcourt-offense/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=the-atlanta-hawks-must-still-address-their-lack-of-halfcourt-offense) - **Theleadsm.com**
-7. [Curve announce 1st Hall of Fame class to be inducted Sunday](https://www.tribdem.com/sports/curve-announce-1st-hall-of-fame-class-to-be-inducted-sunday/article_c0a03884-3072-4600-aa4c-42593eb1d0c0.html) - **TribDem.com**
-8. [Bruno Fernandes wins it ALL: Man Utd captain crowned PFA Player of the Year to seal stunning awards hat-trick](https://timesofindia.indiatimes.com/sports/football/bruno-fernandes-wins-it-all-man-utd-captain-crowned-pfa-player-of-the-year-to-seal-stunning-awards-hat-trick/articleshow/133524184.cms) - **The Times of India**
-9. [Cristiano Ronaldo joined by Bruno Fernandes as the only Portuguese winners of an exclusive Premier League award](https://worldsoccertalk.com/news/cristiano-ronaldo-joined-by-bruno-fernandes-as-the-only-portuguese-winners-of-an-exclusive-premier-league-award/) - **Worldsoccertalk.com**
-10. [Bruno Fernandes crowned PFA Player of the Year to seal stunning awards hat-trick](https://timesofindia.indiatimes.com/sports/football/top-stories/bruno-fernandes-wins-it-all-man-utd-captain-crowned-pfa-player-of-the-year-to-seal-stunning-awards-hat-trick/articleshow/133524184.cms) - **The Times of India**
+1. [Tottenham Hotspur star set to be out for weeks](https://eplindex.com/149791/tottenham-hotspur-star-set-to-be-out-for-weeks.html) - **English Premier League Index - Opta Stats**
+2. [Brighton & Hove Albion sign Algerian left-back Jaouen Hadjam](https://www.aljazeera.com/sports/2026/8/26/brighton-hove-albion-sign-algerian-left-back-jaouen-hadjam) - **Al Jazeera English**
+3. [Newcastle agree £52m deal for Man City's Gonzalez](https://www.bbc.com/sport/football/articles/cx2zlnpnk4zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Sportradar Scores with Euroleague Basketball Official Data and AV Betting Rights Deal](https://financialpost.com/globe-newswire/sportradar-scores-with-euroleague-basketball-official-data-and-av-betting-rights-deal) - **Financial Post**
+5. [Romano reveals how Atletico Madrid will help Man Utd sign a new striker](https://utdreport.co.uk/2026/08/26/atletico-madrid-man-utd-joshua-zirkzee-juventus/) - **Utdreport.co.uk**
+6. [One moment in time: Toure turns the title race](https://www.mancity.com/news/mens/crystal-palace-one-moment-in-time-yaya-toure-63923325) - **Manchester City FC**
+7. [Scholes discusses Arsenal winning the treble this season](https://www.justarsenal.com/scholes-discusses-arsenal-winning-the-treble-this-season/420912) - **Just Arsenal News**
+8. [Sterling charged with dangerous driving after crash](https://www.skysports.com/football/news/11095/13577278/raheem-sterling-charged-with-dangerous-driving-and-possession-of-nitrous-oxide-after-a-crash-involving-a-lamborghini-on-the-motorway) - **Sky Sports**
+9. [Report: Liverpool move for Premier League star remains uncertain](https://anfieldindex.com/98718/report-liverpool-move-for-premier-league-star-remains-uncertain.html) - **Anfieldindex.com**
+10. [Sterling charged with dangerous driving after crash](https://www.bbc.com/sport/football/articles/c23xkk1vkkpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-08-27 08:44:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-27 17:14:48 (KST) / (하루 100회 제한 준수 중)*
