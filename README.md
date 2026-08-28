@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United Are Preparing A €30m Move For This Barcelona Full-Back: Good Choice For Carrick?](https://the4thofficial.net/2026/08/manchester-united-are-preparing-a-e30m-move-for-this-barcelona-full-back-good-choice-for-carrick/) - **The4thofficial.net**
-2. [PREVIEW | Crystal Palace vs Manchester City: team news, lineups, predictions (Premier League 28/08)](https://www.playmakerstats.com/news/preview-crystal-palace-vs-manchester-city-team-news-lineups-predictions-premier-league-28-08/1184046) - **Playmakerstats.com**
-3. [Why is Arsenal not looking to sign Rafa Leao?](https://www.justarsenal.com/why-is-arsenal-not-looking-to-sign-rafa-leao/420944) - **Just Arsenal News**
-4. [fplkit 2.3.2](https://pypi.org/project/fplkit/2.3.2/) - **Pypi.org**
-5. [Chelsea have reportedly targeted Enzo Fernandez’s replacement amid Manchester City talks](https://worldsoccertalk.com/news/chelsea-have-reportedly-targeted-enzo-fernandezs-replacement-amid-manchester-city-talks/) - **Worldsoccertalk.com**
-6. [Newcastle complete £52m signing of ‘proven winner’ Gonzalez](https://www.101greatgoals.com/football/premier-league/newcastle-complete-gonzalez-signing/) - **101 Great Goals**
-7. [West Ham grants permission for El Hadji Malick Diouf to undergo medical with Brentford](https://cryptobriefing.com/diouf-medical-brentford-west-ham-transfer/) - **Crypto Briefing**
-8. [Nico Gonzalez joins Newcastle United](https://www.mancity.com/news/mens/nico-gonzalez-joins-newcastle-man-city-63923363) - **Manchester City FC**
-9. [Why Juventus and Crystal Palace could swap strikers](https://talkjuve.com/2026/08/26/why-juventus-and-crystal-palace-could-swap-strikers/) - **Talkjuve.com**
-10. ['He's the one we wanted': Newcastle sign Gonzalez from Man City](https://www.skysports.com/football/news/11678/13577494/newcastle-transfer-news-nico-gonzalez-completes-lb50m-move-from-man-city) - **Sky Sports**
+1. [2026-27 UEFA Champions League draw: Time, date, teams playing and pot distribution](https://worldsoccertalk.com/news/2026-27-uefa-champions-league-draw-time-date-teams-playing-and-pot-distribution/) - **Worldsoccertalk.com**
+2. [League Cup: Newcastle, Spurs, Everton advance with convincing wins](https://www.rediff.com/sports/report/newcastle-tottenham-everton-progress-to-league-cup-third-round-with-convincing-wins/20260827.htm) - **Rediff.com**
+3. [Transgender athlete who was born a male cleared to play in Australia's Women's Big Bash League after not receiving a response from India](https://www.dailymail.com/sport/cricket/article-16082835/Anaya-Bangar.html) - **Dailymail.com**
+4. [Sunil Narine makes history! Joins Rashid Khan in elite T20 wicket club](https://timesofindia.indiatimes.com/sports/cricket/news/sunil-narine-makes-t20-history-joins-rashid-khan-in-elite-t20-wicket-club/articleshow/133554436.cms) - **The Times of India**
+5. [Kompany threads the needle as ambitious Bayern target 'big goals'](https://sports.yahoo.com/articles/kompany-threads-needle-ambitious-bayern-030404576.html) - **Yahoo Entertainment**
+6. [UEFA set to withdraw FIFA boycott threat ahead of Champions League draw](https://sports.yahoo.com/articles/uefa-set-withdraw-fifa-boycott-022224936.html) - **Yahoo Entertainment**
+7. [Rodri could make Barcelona debut against Athletic Bilbao](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260827-930-587907/) - **Dpa-international.com**
+8. [Where to watch Chelsea vs. Luton live stream, TV channel, start time for EFL Cup match](https://www.sportingnews.com/us/soccer/news/watch-chelsea-luton-live-stream-channel-time-efl-cup-match/8172e9832baf466b356c33cc) - **Sporting News**
+9. [FIFA World Cup’s most-hated hydration breaks could be ‘soft-launched’ in the Champions League](https://timesofindia.indiatimes.com/sports/football/top-stories/fifa-world-cups-most-hated-hydration-breaks-could-be-soft-launched-in-the-champions-league/articleshow/133553196.cms) - **The Times of India**
+10. [Nico Gonzalez excited by Newcastle project after making move from City](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260827-930-587789/) - **Dpa-international.com**
 
 
 ---
-*최근 업데이트: 2026-08-28 04:08:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-28 12:36:34 (KST) / (하루 100회 제한 준수 중)*
