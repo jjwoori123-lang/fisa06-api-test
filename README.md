@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Today in sports history, September 16](https://www.usatoday.com/story/sports/history/2026/08/27/today-in-sports-history-september-16/91499013007/) - **USA Today**
-2. [Premier Wrestling Training Center comes to Mercer Mall](https://www.wvnstv.com/news/west-virginia-news/mercer-county/premier-wrestling-training-center-comes-to-mercer-mall/) - **WVNS-TV**
-3. [Kelowna sets sights on Canadian Premier League soccer team by 2028](https://www.cbc.ca/news/canada/british-columbia/kelowna-canadian-premier-league-apple-bowl-9.7323363) - **CBC News**
-4. [Champions League: These are the opponents BVB is looking forward to facing in the group stage](https://www.bvb.de/de/en/news/news-overview/news.html/2026/8/27/Champions-League-These-are-the-opponents-BVB-is-looking-forward-to-facing-in-the-group-stage.html) - **Www.bvb.de**
-5. [Champions League: BVB relish these league-phase opponents](https://onefootball.com/en/news/champions-league-bvb-relish-these-league-phase-opponents-43352638) - **Onefootball.com**
-6. [Borussia Dortmund’s Full Champions League Draw](https://www.fearthewall.com/bvb-european-games/24660/borussia-dortmunds-full-champions-league-draw) - **Fear The Wall**
-7. [Can anyone match Bayern? OneFootball’s Bundesliga 26/27 guide ](https://onefootball.com/en/news/can-anyone-match-bayern-onefootballs-bundesliga-2627-guide-43352621) - **Onefootball.com**
-8. [Xabi Alonso explains decision to leave Enzo Fernandez out of Chelsea’s squad for EFL Cup clash](https://worldsoccertalk.com/news/xabi-alonso-explains-decision-to-leave-enzo-fernandez-out-of-chelseas-squad-for-efl-cup-clash/) - **Worldsoccertalk.com**
-9. [Ipswich sign World Cup winner Exequiel Palacios from Leverkusen](https://www.playmakerstats.com/news/ipswich-sign-world-cup-winner-exequiel-palacios-from-leverkusen/1185498) - **Playmakerstats.com**
-10. [Should Arsenal Break The Bank To Land Julian Alvarez?](https://www.forbes.com/sites/grahamruthven/2026/08/27/should-arsenal-break-the-bank-to-land-julian-alvarez/) - **Forbes**
+1. [Former Tottenham midfielder Yves Bissouma emerges on Celtic transfer radar](https://celticshorts.com/2026/08/former-tottenham-midfielder-yves-bissouma-emerges-on-celtic-transfer-radar/) - **Celticshorts.com**
+2. [Last-chance transfers: The Premier League talents who urgently need exits before the deadline](https://www.footballmuse.com/features/last-chance-transfers-the-premier-league-talents-who-urgently-need-exits-before-the-deadline) - **Footballmuse.com**
+3. [EFL Cup | Newcastle 3-2 West Brom — Player Ratings: Avoiding the Banana Peel](https://cominghomenewcastle.sbnation.com/newcastle-united-match-reports/25283/efl-cup-newcastle-3-2-west-brom-player-ratings-avoiding-the-banana-peel) - **SB Nation**
+4. [Liverpool set to clash with former star in Champions League](https://anfieldindex.com/98867/liverpool-set-to-clash-with-former-star-in-champions-league.html) - **Anfieldindex.com**
+5. [Hurzeler says Brighton 'ready' for European adventure](https://www.bbc.com/sport/football/articles/cq8jve9j35qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Report: Everton ready to sell star in with Serie A club interested](https://eplindex.com/149857/report-everton-ready-to-sell-star-in-with-serie-a-club-interested.html) - **English Premier League Index - Opta Stats**
+7. [Gore close to Luton loan; Amass and Leon futures still to be sorted](https://www.bbc.com/sport/football/articles/cn07dxjdyq8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Werder Bremen 2026/27 season preview: Transfers, pre-season, predicted lineup & predictions](https://bulinews.com/werder-bremen-2026/27-season-preview-transfers-pre-season-predicted-lineup-predictions) - **Bulinews.com**
+9. [What is the secret for making a poor club better?](https://untold-arsenal.com/archives/122630) - **Untold-arsenal.com**
+10. [FPL Gameweek 2 Predicted Lineups: Latest Starting XI Predictions](https://www.nevermanagealone.com/playerpicks/16386/fpl-gameweek-2-predicted-lineups-latest-starting-xi-predictions) - **Nevermanagealone.com**
 
 
 ---
-*최근 업데이트: 2026-08-29 09:07:20 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-29 16:10:20 (KST) / (하루 100회 제한 준수 중)*
