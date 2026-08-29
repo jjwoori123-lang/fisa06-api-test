@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Carrick on Baleba, Amad's injury and JJ Gabriel](https://www.bbc.com/sport/football/articles/c0lrpj1dd8do?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Europe, Arab world and +! Find out when the transfer window shuts](https://onefootball.com/en/news/europe-arab-world-and-find-out-when-the-transfer-window-shuts-43355657) - **Onefootball.com**
-3. [Manchester City vs. Crystal Palace odds, prediction, time: 2026 EPL picks for Aug. 28 by expert on 7-1 roll](https://www.cbssports.com/betting/news/manchester-city-vs-crystal-palace-odds-prediction-time-2026-english-premier-league-picks-for-august-28/) - **CBS Sports**
-4. [Barcelona youth team star nears Serie A move as Venezia take pole position](https://barcauniversal.com/barcelona-youth-team-star-nears-serie-a-move-as-venezia-take-pole-position/) - **Barcauniversal.com**
-5. [Spurs want Iliman Ndiaye, Richarlison could move to Everton in return](https://sportsview.co.uk/2026/08/spurs-want-iliman-ndiaye-richarlison-could-move-to-everton-in-return?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=spurs-want-iliman-ndiaye-richarlison-could-move-to-everton-in-return) - **Sportsview.co.uk**
-6. [Sunderland’s Europa League Draw: Milan, Here We Come!](https://rokerreport.sbnation.com/opinion/150831/sunderlands-europa-league-draw-milan-here-we-come) - **SB Nation**
-7. [Esther González, Saudi Arabia and the questions around an unexpected transfer saga](https://sports.yahoo.com/articles/esther-gonz-lez-saudi-arabia-130001852.html) - **Yahoo Entertainment**
-8. [Will Konsa and Guimaraes make their Premier League debuts on Monday?](https://www.justarsenal.com/will-konsa-and-guimaraes-make-their-premier-league-debuts-on-monday/421043) - **Just Arsenal News**
-9. [How to Watch Liverpool vs. Nottingham Forest Live for Free](https://uk.pcmag.com/video-streaming-services/166955/how-to-watch-liverpool-vs-nottingham-forest-live-for-free) - **PCMag.com**
-10. [Chelsea manager Xabi Alonso confirms no injury concerns ahead of match](https://cryptobriefing.com/chelsea-alonso-no-injury-concerns/) - **Crypto Briefing**
+1. [Lithuanian Soccer Team Finds Brilliant Way To Promote Women’s Sports By Inviting Jason Sudeikis To Coach Them](https://www.boredpanda.com/lithuanian-soccer-team-found-brilliant-way-to-promote-women-sports/) - **Boredpanda.com**
+2. [Ousted Milan Star Picks Galatasaray over Aston Villa](https://cultofcalcio.com/ousted-milan-star-leao-picks-galatasaray-over-aston-villa/) - **Cultofcalcio.com**
+3. [Eintracht Frankfurt’s Hugo Larsson negotiating €25m Premier League switch](https://www.getfootballnewsgermany.com/2026/hugo-larsson-epl-links/) - **Getfootballnewsgermany.com**
+4. [Chelsea v Brighton: Preview, expected line-ups and stats](https://www.101greatgoals.com/match-previews/premier-league-matches/chelsea-v-brighton-preview-expected-line-ups-stats-prediction-where-to-watch-tv-channel-live-online-stream/) - **101 Great Goals**
+5. [Juventus want to finalise talks in deal for Liverpool defender](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-kostas-tsimikas-juventus-want-to-finalise-talks-in-deal-for-defender/) - **Anfieldwatch.co.uk**
+6. [Frankfurt midfielder travels to London as Crystal Palace take interest](https://bulinews.com/frankfurt-midfielder-travels-london-crystal-palace-take-interest) - **Bulinews.com**
+7. [Real Madrid v Malaga: Preview, expected line-ups, stats and where to watch](https://www.101greatgoals.com/match-previews/la-liga-matches/real-madrid-v-malaga-line-ups-prediction-where-to-watch-tv-channel-live-online-stream/) - **101 Great Goals**
+8. [Gap Between Live Sports and Gaming Nears Primetime](https://www.streamingmedia.com/Articles/ReadArticle.aspx?ArticleID=176359) - **Streamingmedia.com**
+9. [Leeds United reach agreement to sign Michael Zetterer](https://www.getfootballnewsgermany.com/2026/leeds-united-reach-agreement-to-sign-michael-zetterer/) - **Getfootballnewsgermany.com**
+10. [Hugo Larsson in London & speaking with Crystal Palace over move to Selhurst Park](https://sportsview.co.uk/2026/08/hugo-larsson-in-london-speaking-with-crystal-palace-over-move-to-selhurst-park?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=hugo-larsson-in-london-speaking-with-crystal-palace-over-move-to-selhurst-park) - **Sportsview.co.uk**
 
 
 ---
-*최근 업데이트: 2026-08-29 22:11:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-30 02:12:03 (KST) / (하루 100회 제한 준수 중)*
