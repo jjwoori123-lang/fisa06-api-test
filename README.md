@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Goretzka completes Aston Villa move](https://bulinews.com/goretzka-completes-aston-villa-move) - **Bulinews.com**
-2. [Champions League power rankings: Every team from 1-36 in this year's tournament](https://www.usatoday.com/story/sports/soccer/ucl/2026/08/27/champions-league-power-rankings-26-27-uefa/91473890007/) - **USA Today**
-3. [Canadian World Cup hero Stephen Eustaquio signs with Swansea City](https://www.cbc.ca/sports/soccer/canadian-world-cup-hero-stephen-eustaquio-signs-with-swansea-city-9.7322681) - **CBC News**
-4. [Live Champions League draw: League phase pairings to be drawn in Monaco](https://www.irishtimes.com/sport/soccer/2026/08/27/live-champions-league-draw-league-phase-pairings-to-be-drawn-in-monaco/) - **The Irish Times**
-5. [Arsenal's rivals seek to lay down markers after tough starts](https://www.channelnewsasia.com/sport/arsenals-rivals-seek-lay-down-markers-after-tough-starts-6345831) - **CNA**
-6. [Ex-Liverpool legend Carragher faces bankruptcy over £700,000 tax debt](https://punchng.com/ex-liverpool-legend-carragher-faces-bankruptcy-over-700000-tax-debt/) - **The Punch**
-7. [Manchester United competes with Tottenham, Fiorentina for Igor Matanović](https://cryptobriefing.com/manchester-united-tottenham-matanovic-transfer/) - **Crypto Briefing**
-8. [Sunderland defender Seelt joins Swansea on loan](https://www.bbc.com/sport/football/articles/cj06405yd22o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Chelsea Starting XI vs Luton Town: Confirmed Team News and Predicted Lineup](https://eplindex.com/149847/chelsea-starting-xi-vs-luton-town-confirmed-team-news-and-predicted-lineup.html) - **English Premier League Index - Opta Stats**
+1. [Today in sports history, September 16](https://www.usatoday.com/story/sports/history/2026/08/27/today-in-sports-history-september-16/91499013007/) - **USA Today**
+2. [Premier Wrestling Training Center comes to Mercer Mall](https://www.wvnstv.com/news/west-virginia-news/mercer-county/premier-wrestling-training-center-comes-to-mercer-mall/) - **WVNS-TV**
+3. [Kelowna sets sights on Canadian Premier League soccer team by 2028](https://www.cbc.ca/news/canada/british-columbia/kelowna-canadian-premier-league-apple-bowl-9.7323363) - **CBC News**
+4. [Champions League: These are the opponents BVB is looking forward to facing in the group stage](https://www.bvb.de/de/en/news/news-overview/news.html/2026/8/27/Champions-League-These-are-the-opponents-BVB-is-looking-forward-to-facing-in-the-group-stage.html) - **Www.bvb.de**
+5. [Champions League: BVB relish these league-phase opponents](https://onefootball.com/en/news/champions-league-bvb-relish-these-league-phase-opponents-43352638) - **Onefootball.com**
+6. [Borussia Dortmund’s Full Champions League Draw](https://www.fearthewall.com/bvb-european-games/24660/borussia-dortmunds-full-champions-league-draw) - **Fear The Wall**
+7. [Can anyone match Bayern? OneFootball’s Bundesliga 26/27 guide ](https://onefootball.com/en/news/can-anyone-match-bayern-onefootballs-bundesliga-2627-guide-43352621) - **Onefootball.com**
+8. [Xabi Alonso explains decision to leave Enzo Fernandez out of Chelsea’s squad for EFL Cup clash](https://worldsoccertalk.com/news/xabi-alonso-explains-decision-to-leave-enzo-fernandez-out-of-chelseas-squad-for-efl-cup-clash/) - **Worldsoccertalk.com**
+9. [Ipswich sign World Cup winner Exequiel Palacios from Leverkusen](https://www.playmakerstats.com/news/ipswich-sign-world-cup-winner-exequiel-palacios-from-leverkusen/1185498) - **Playmakerstats.com**
+10. [Should Arsenal Break The Bank To Land Julian Alvarez?](https://www.forbes.com/sites/grahamruthven/2026/08/27/should-arsenal-break-the-bank-to-land-julian-alvarez/) - **Forbes**
 
 
 ---
-*최근 업데이트: 2026-08-29 00:39:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-29 09:07:20 (KST) / (하루 100회 제한 준수 중)*
