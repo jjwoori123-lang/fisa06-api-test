@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['Sorry' De Zerbi won't panic after Spurs shambles](https://sports.yahoo.com/articles/sorry-zerbi-wont-panic-spurs-193631783.html) - **Yahoo Entertainment**
-2. [Tottenham 0-2 Newcastle: What de Zerbi said](https://www.bbc.com/sport/football/articles/cwyz3gdlxyzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [ Cody Gakpo on the verge of joining Man City (Fabrizio Romano)](https://onefootball.com/en/news/cody-gakpo-on-the-verge-of-joining-man-city-fabrizio-romano-43364060) - **Onefootball.com**
-4. [Hits and misses: Newcastle duo Elanga and Wissa are reborn under Jaissle](https://www.skysports.com/football/news/11661/13578505/newcastle-duo-anthony-elanga-and-yoane-wissa-thriving-under-matthias-jaissle-after-win-over-tottenham-premier-league-hits-and-misses) - **Sky Sports**
-5. [Hits and misses: Newcastle duo Elanga and Wissa are reborn under Jaissle](https://www.skysports.com/football/news/11661/13578505/newcastle-duo-anthony-elanga-and-yoane-wissa-thriving-under-matthias-jaissle-after-win-over-tottenham-premier-league-hits-and-misses) - **Sky Sports**
-6. [Hits and misses: Newcastle duo Elanga and Wissa are reborn under Jaissle](https://www.skysports.com/football/news/11661/13578505/newcastle-duo-anthony-elanga-and-yoane-wissa-thriving-under-matthias-jaissle-after-win-over-tottenham-premier-league-hits-and-misses) - **Sky Sports**
-7. [Jaissle claims first Premier League win at lacklustre Spurs](https://www.bbc.co.uk/sport/football/videos/c1kxe87ye7ro) - **BBC News**
-8. [Report Hutchinson ready for Milan after verbal agreement with Nottingham Forest](https://football-italia.net/report-hutchinson-read-milan-nottingham-forest/) - **Football Italia**
-9. [Manchester City make move for Liverpool’s Cody Gakpo amid Tottenham interest](https://cryptobriefing.com/cody-gakpo-manchester-city-transfer/) - **Crypto Briefing**
-10. [Hall Gets 9, Dedic With 8 | Newcastle United Players Rated In Solid Win Vs Tottenham Hotspur](https://the4thofficial.net/2026/08/hall-gets-9-dedic-with-8-newcastle-united-players-rated-in-solid-win-vs-tottenham-hotspur/) - **The4thofficial.net**
+1. [Premier League referee 'suspended over inappropriate behaviour with a woman amid investigation into £110k-a-year official'](https://www.dailymail.com/sport/football/article-16090227/premier-league-linesman-simon-bennett-suspended.html) - **Dailymail.com**
+2. [Dominic Calvert-Lewin: We know it’s going to be a very intense game](https://www.leedsunited.com/en/news/dominic-calvert-lewin-we-know-its-going-to-be-a-very-intense-game) - **Leedsunited.com**
+3. [Phil Foden's seven-year-old son Ronnie is looking to hire a £50,000-a-year social media manager...after he hit nearly 4 million followers on Instagram](https://www.dailymail.com/tvshowbiz/article-16089977/Phil-Fodens-son-Ronnie-social-media-manager-Instagram.html) - **Dailymail.com**
+4. [Juventus 2 – Parma 0: Initial reaction and random observations](https://www.blackwhitereadallover.com/previews-reviews/40988/juventus-parma-2026-serie-a-matchday-2-final-score-result-initial-reaction-random-observations) - **Black & White & Read All Over**
+5. [Why Joao Palhinha was always destined to fail at Bayern Munich](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/249543/why-joao-palhinha-was-always-destined-to-fail-at-bayern-munich) - **Bavarian Football Works**
+6. [Atletico wins without Álvarez, Elversberg beats Leverkusen in 1st ever Bundesliga match](https://sports.yahoo.com/articles/atletico-wins-without-lvarez-elversberg-215938134.html) - **Yahoo Entertainment**
+7. [Furious Liverpool star loses cool and kicks fourth official’s substitution board after controversial penalty in 2-2 draw](https://timesofindia.indiatimes.com/sports/football/top-stories/furious-liverpool-star-loses-cool-and-kicks-fourth-officials-substitution-board-after-controversial-penalty-in-2-2-draw/articleshow/133619579.cms) - **The Times of India**
+8. [EPL: Man City in talks to sign Gakpo from Liverpool](https://punchng.com/epl-man-city-in-talks-to-sign-gakpo-from-liverpool/) - **The Punch**
+9. [Sarr pushing hard for Juventus, but Tottenham want obligation to buy](https://football-italia.net/sarr-push-juventus-tottenham-want-obligation/) - **Football Italia**
+10. ['I don't need to give a reason' - Carrick's interesting exchange on Man Utd's 'passion'](https://www.skysports.com/football/video/30998/13578718/michael-carrick-and-reporters-interesting-exchange-on-man-utds-passion-i-dont-need-to-give-a-reason) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-08-31 04:39:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-31 07:05:46 (KST) / (하루 100회 제한 준수 중)*
