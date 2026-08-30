@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [U17 regional derby for first place – U23 aims to build on success](https://www.bvb.de/de/en/news/news-overview/news.html/2026/8/28/U17-regional-derby-for-first-place-U23-aims-to-build-on-success.html) - **Www.bvb.de**
-2. [U17 Ruhr derby for top spot, U23 look to build on it](https://onefootball.com/en/news/u17-ruhr-derby-for-top-spot-u23-look-to-build-on-it-43359462) - **Onefootball.com**
-3. [Erling Haaland Scores Brace To Keep Man City Perfect In Premier League Play](https://www.foxsports.com/stories/soccer/erling-haaland-scores-brace-keep-man-city-perfect-premier-league-play) - **Fox Sports**
-4. [NPFL: Salisu vows 3SC improvement after opening win](https://punchng.com/npfl-salisu-vows-3sc-improvement-after-opening-win/) - **The Punch**
-5. [Ikpeme, Abdulrahaman take charge of NFF, NPFL](https://punchng.com/ikpeme-abdulrahaman-take-charge-of-nff-npfl/) - **The Punch**
-6. [A magician and a maverick - this could be Cherki's moment for Man City](https://www.bbc.com/sport/football/articles/c24j5jnnr9eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [A magician and a maverick - this could be Cherki's moment for Man City](https://www.bbc.co.uk/sport/football/articles/c24j5jnnr9eo) - **BBC News**
-8. [Have you heard? 20 years of Super Simple Songs, AMP in the Club, and Shyamalan’s next twist.](https://www.tubefilter.com/2026/08/28/have-you-heard-super-simple-songs-amp-club-m-night-shyamalan/) - **Tubefilter**
-9. [Another Crystal Palace blow revealed after heavy defeat to Man City – and Sage expresses desire for more new signings](https://hayters.com/another-crystal-palace-blow-revealed-after-heavy-defeat-to-man-city-and-sage-expresses-desire-for-more-new-signings/) - **Hayters.com**
-10. [Cherki conjured up the complete display, says admiring Maresca](https://www.mancity.com/news/mens/enzo-maresca-post-crystal-palace-reaction-63923552) - **Manchester City FC**
+1. [Trippier praises Miley's 'big presence' as Newcastle face Tonali reunion](https://www.bbc.com/sport/football/articles/c07ler0rxlro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Trippier praises Miley's 'big presence' as Newcastle face Tonali reunion](https://www.bbc.co.uk/sport/football/articles/c07ler0rxlro) - **BBC News**
+3. [Concrete interest: Liverpool get answer in deal for £78m England midfielder](https://www.anfieldwatch.co.uk/liverpool-fc/news/concrete-interest-liverpool-transfer-news-adam-wharton-crystal-palace-answer-in-deal-for-ps78m-england-midfielder/) - **Anfieldwatch.co.uk**
+4. [Chelsea vs Brighton - Premier League Preview, Team News, Prediction & How To Watch](https://roundtable.io/sports/soccer/premier-league/chelsea/match-day/chelsea-vs-brighton---premier-league-preview-team-news-prediction-how-to-watch) - **Roundtable.io**
+5. [How to watch Spurs vs Newcastle](https://www.skysports.com/football/news/11675/13578022/spurs-vs-newcastle-how-to-watch-tv-channel-live-stream-now-tv-team-news-and-score-prediction) - **Sky Sports**
+6. [Here we go: Venezia agree €4 million deal to sign 18-year-old Barcelona talent](https://barcauniversal.com/here-we-go-venezia-agree-e4-million-deal-to-sign-18-year-old-barcelona-talent/) - **Barcauniversal.com**
+7. [Tottenham Hotspur vs Newcastle United – Predicted lineup and team news](https://thefootballfaithful.com/tottenham-hotspur-vs-newcastle-united-predicted-lineup-and-team-news/) - **The Football Faithful**
+8. [Hull City XI vs Coventry City – Predicted lineup and team news](https://thefootballfaithful.com/hull-city-xi-vs-coventry-city-predicted-lineup-and-team-news/) - **The Football Faithful**
+9. [Tottenham Hotspur vs Newcastle United – Match preview and team news](https://thefootballfaithful.com/tottenham-hotspur-vs-newcastle-united-match-preview-and-team-news-2/) - **The Football Faithful**
+10. [Bournemouth vs Everton – Predicted lineup and team news](https://thefootballfaithful.com/bournemouth-vs-everton-predicted-lineup/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-08-30 09:41:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-08-30 15:19:36 (KST) / (하루 100회 제한 준수 중)*
