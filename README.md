@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Football Daily](https://www.bbc.co.uk/sounds/play/m003123c?at_campaign=rss) - **BBC News**
-2. [Lyon enquire about Reims’ Keito Nakamura to anticipate Malick Fofana’s exit](https://www.getfootballnewsfrance.com/2026/lyon-enquire-about-reims-keito-nakamura-to-anticipate-malick-fofanas-exit/) - **Get French Football News**
-3. [A new Man Utd era - but Fernandes still sets the standard](https://www.bbc.co.uk/sport/football/articles/cpwl248p5vgo) - **BBC News**
-4. [Chelsea told what they must do to win the Premier League after Brighton win](https://footballtoday.com/2026/08/30/chelsea-told-what-they-must-do-to-win-the-premier-league-after-brighton-win/) - **Footballtoday.com**
-5. [Liverpool Are Ready To Launch A Move For This Crystal Palace Winger: Should Iraola Snap Him Up?](https://the4thofficial.net/2026/08/liverpool-are-ready-to-launch-a-move-for-this-crystal-palace-winger/) - **The4thofficial.net**
-6. [Ollie Watkins’ Al Hilal arrival could reportedly lead to Karim Benzema’s retirement after contract termination](https://worldsoccertalk.com/news/ollie-watkins-al-hilal-arrival-could-reportedly-lead-to-karim-benzemas-retirement-after-contract-termination/) - **Worldsoccertalk.com**
-7. [Brighton sign highly-rated Colombian teenager Matias Orozco](https://www.playmakerstats.com/news/brighton-sign-highly-rated-colombian-teenager-matias-orozco/1188898) - **Playmakerstats.com**
-8. [Three talking points from the Premier League weekend](https://punchng.com/three-talking-points-from-the-premier-league-weekend-3/) - **The Punch**
-9. [Bruno Fernandes fires hat-trick as Manchester United thrash Ipswich](https://www.irishtimes.com/sport/soccer/2026/08/30/bruno-fernandes-fires-hat-trick-as-manchester-united-thrash-ipswich/) - **The Irish Times**
-10. [Talented PSG Attacker Completes Medical Tests at Aston Villa](https://psgtalk.com/2026/08/talented-psg-attacker-completes-medical-tests-at-aston-villa/) - **Psgtalk.com**
+1. [Provider turns Predator: Fernandes 'trick' at Old Trafford](https://www.rediff.com/sports/report/epl-premier-league-bruno-fernandes-hat-trick-manchester-united-star-midfielder-shines/20260831.htm) - **Rediff.com**
+2. [Can Chelsea win the league with three at the back? - Given's verdict](https://www.bbc.co.uk/sport/football/videos/cwyz17d1vy9o) - **BBC News**
+3. [Carrick leaves door open to late swoop in window](https://www.rte.ie/sport/soccer/2026/0830/1589748-carrick-leaves-door-open-to-late-swoop-in-window/) - **RTE**
+4. [Ollie Watkins' wife Ellie breaks down in tears over sudden move to Saudi Arabia after footballer's transfer from Aston Villa to Al-Hilal](https://www.dailymail.com/tvshowbiz/article-16091783/Ollie-Watkins-wife-Ellie-tears-Saudi-Arabia-Aston-Villa-Al-Hilal.html) - **Dailymail.com**
+5. [Arsenal signs Scanlon, Ogunneye from Man Utd for under-21 squad](https://cryptobriefing.com/arsenal-signs-scanlon-ogunneye-from-man-utd-for-under-21-squad/) - **Crypto Briefing**
+6. [Report: Liverpool ‘in talks’ over late move for Chelsea star](https://anfieldindex.com/99074/report-liverpool-in-talks-over-late-move-for-chelsea-star.html) - **Anfieldindex.com**
+7. [Atalanta defender Ahanor to Chelsea for €48m then Crystal Palace loan agreement](https://football-italia.net/atalanta-ahanor-chelsea-then-crystal-palace/) - **Football Italia**
+8. [Juventus make new Zirkzee bid for €30m, consider Newcastle United striker Plan B](https://football-italia.net/juventus-make-new-zirkzee-bid-e30m-newcastle/) - **Football Italia**
+9. [Arsenal Academy Update: Four New Arrivals And A First Professional Contract](https://www.justarsenal.com/arsenal-academy-update-four-new-arrivals-and-a-first-professional-contract/421116) - **Just Arsenal News**
+10. [Reports: Nick Woltemade, Joshua Zirkzee emerge as Juve’s options if Jonathan David leaves](https://www.blackwhitereadallover.com/juventus-transfer-rumors-news/41036/juventus-nick-woltemade-joshua-zirkzee-newcastle-manchester-united-2026-serie-a-premier-league-summer-transfer-rumors) - **Black & White & Read All Over**
 
 
 ---
-*최근 업데이트: 2026-09-01 05:11:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-01 08:54:56 (KST) / (하루 100회 제한 준수 중)*
