@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tottenham agree deal to sign Chelsea defender Tosin Adarabioyo](https://sportsview.co.uk/2026/08/tottenham-agree-deal-to-sign-chelsea-defender-tosin-adarabioyo?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=tottenham-agree-deal-to-sign-chelsea-defender-tosin-adarabioyo) - **Sportsview.co.uk**
-2. [“Something can always happen” Simeone offers new update on Alvarez’s future](https://www.justarsenal.com/something-can-always-happen-simeone-offers-new-update-on-alvarezs-future/421189) - **Just Arsenal News**
-3. [Too-early season predictions: Insiders see a slim but real chance the Raptors make a ‘big’ move before the trade deadline](https://www.raptorshq.com/raptors-analysis/51365/too-early-season-predictions-insiders-see-a-slim-but-real-chance-the-raptors-make-a-big-move-before-the-trade-deadline) - **RaptorsHQ**
-4. [“Something can always happen” Simeone offers new update on Alvarez’s future](https://www.justarsenal.com/?p=421189) - **Just Arsenal News**
-5. [Journalist believes Liverpool already have their Curtis Jones replacement](https://anfieldindex.com/99150/journalist-believes-liverpool-already-have-their-curtis-jones-replacement.html) - **Anfieldindex.com**
-6. [Liverpool Are In Talks To Land This Gifted Keeper: One For The Future?](https://the4thofficial.net/2026/08/liverpool-are-in-talks-to-land-this-gifted-keeper/) - **The4thofficial.net**
-7. [Boost as Arsenal target turns down move to Hull City](https://www.justarsenal.com/boost-as-arsenal-target-turns-down-move-to-hull-city/421198) - **Just Arsenal News**
-8. [Jamie Reid Is Reading’s New Striker](https://thetilehurstend.sbnation.com/news-info/58064/jamie-reid-is-readings-new-striker) - **SB Nation**
-9. [First XV rugby: Westlake, Tauranga and St Patrick’s College Silverstream qualify for nationals; Manukura are girls’ National Top Four favourites](https://www.nzherald.co.nz/sport/rugby/school-rugby/first-xv-rugby-westlake-again-qualify-for-nationals-at-the-expense-of-aucklands-best-tauranga-get-there-at-the-expense-of-hamilton-while-st-patricks-college-silverstream-make-the-cut-for-the-first-time-manukura-are-girls-national-top-four-favourites/premium/FTAZE3XZ2VHIDEQ5VC4H5FICAE/) - **New Zealand Herald**
+1. [Arteta expects Arsenal to be active on transfer deadline day](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260831-930-612146/) - **Dpa-international.com**
+2. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/c74em1dx0pjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Who has made Troy's Premier League team of the week?](https://www.bbc.co.uk/sport/football/articles/c74em1dx0pjo) - **BBC News**
+4. [Eli Tomac to retire | Celebrating a legendary 17-season career](https://www.mcnews.com.au/eli-tomac-retirement-2026-smx-finale/) - **Mcnews.com.au**
+5. [Boise State vs Oregon Prediction: Odds, expert picks, team and player news, betting trends, and stats](https://www.nbcsports.com/college-football/news/boise-state-vs-oregon-prediction-odds-expert-picks-team-and-player-news-betting-trends-and-stats) - **NBCSports.com**
+6. [Yanited on the Board!](https://thebusbybabe.sbnation.com/the-busby-babe-podcast/35701/yanited-on-the-board) - **SB Nation**
+7. [USA's Folarin Balogun Reportedly Nearing Premier League Return With Everton](https://www.foxsports.com/stories/soccer/usas-folarin-balogun-reportedly-nearing-premier-league-return-everton) - **Fox Sports**
+8. [Arsenal analysis: Job done for Arteta's side](https://www.bbc.com/sport/football/articles/cly4e9453yeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Everton have bid accepted for United States striker Folarin Balogun](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260831-930-612093/) - **Dpa-international.com**
+10. [Analysis: Emery's new-look team need time](https://www.bbc.com/sport/football/articles/cqxv9yvrggjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-09-02 05:45:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-02 08:07:17 (KST) / (하루 100회 제한 준수 중)*
