@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Provider turns Predator: Fernandes 'trick' at Old Trafford](https://www.rediff.com/sports/report/epl-premier-league-bruno-fernandes-hat-trick-manchester-united-star-midfielder-shines/20260831.htm) - **Rediff.com**
-2. [Can Chelsea win the league with three at the back? - Given's verdict](https://www.bbc.co.uk/sport/football/videos/cwyz17d1vy9o) - **BBC News**
-3. [Carrick leaves door open to late swoop in window](https://www.rte.ie/sport/soccer/2026/0830/1589748-carrick-leaves-door-open-to-late-swoop-in-window/) - **RTE**
-4. [Ollie Watkins' wife Ellie breaks down in tears over sudden move to Saudi Arabia after footballer's transfer from Aston Villa to Al-Hilal](https://www.dailymail.com/tvshowbiz/article-16091783/Ollie-Watkins-wife-Ellie-tears-Saudi-Arabia-Aston-Villa-Al-Hilal.html) - **Dailymail.com**
-5. [Arsenal signs Scanlon, Ogunneye from Man Utd for under-21 squad](https://cryptobriefing.com/arsenal-signs-scanlon-ogunneye-from-man-utd-for-under-21-squad/) - **Crypto Briefing**
-6. [Report: Liverpool ‘in talks’ over late move for Chelsea star](https://anfieldindex.com/99074/report-liverpool-in-talks-over-late-move-for-chelsea-star.html) - **Anfieldindex.com**
-7. [Atalanta defender Ahanor to Chelsea for €48m then Crystal Palace loan agreement](https://football-italia.net/atalanta-ahanor-chelsea-then-crystal-palace/) - **Football Italia**
-8. [Juventus make new Zirkzee bid for €30m, consider Newcastle United striker Plan B](https://football-italia.net/juventus-make-new-zirkzee-bid-e30m-newcastle/) - **Football Italia**
-9. [Arsenal Academy Update: Four New Arrivals And A First Professional Contract](https://www.justarsenal.com/arsenal-academy-update-four-new-arrivals-and-a-first-professional-contract/421116) - **Just Arsenal News**
-10. [Reports: Nick Woltemade, Joshua Zirkzee emerge as Juve’s options if Jonathan David leaves](https://www.blackwhitereadallover.com/juventus-transfer-rumors-news/41036/juventus-nick-woltemade-joshua-zirkzee-newcastle-manchester-united-2026-serie-a-premier-league-summer-transfer-rumors) - **Black & White & Read All Over**
+1. [Bayern Munich News: Jamal Musiala subject of documentary; Has FC Barcelona found its next striker?; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/249454/bayern-munich-musiala-fc-barcelona-tottenham-atletico-liverpool-arsenal-borussia-dortmund-as-roma-vfb-stuttgart-rb-leipzig-manchester-city) - **Bavarian Football Works**
+2. [Rafael Leao’s AC Milan-to-Galatasaray fee and salary officially revealed as Amorim reportedly secures Premier League replacement](https://worldsoccertalk.com/news/rafael-leaos-ac-milan-to-galatasaray-fee-and-salary-officially-revealed-as-amorim-reportedly-secures-premier-league-replacement/) - **Worldsoccertalk.com**
+3. [Unstoppable Arokodare scores first Eredivisie goal](https://punchng.com/unstoppable-arokodare-scores-first-eredivisie-goal/) - **The Punch**
+4. ['I hate losing' Bruno Fernandes hat trick helps Manchester United bounce back](https://www.usatoday.com/story/sports/soccer/epl/2026/08/30/bruno-fernandes-hat-trick-manchester-united/91542078007/) - **USA Today**
+5. [Players will not be considered for Delhi in other formats if they dodge Ranji: DDCA president Rohan Jaitley](https://timesofindia.indiatimes.com/sports/cricket/news/players-will-not-be-considered-for-delhi-in-other-formats-if-they-dodge-ranji-ddca-president-rohan-jaitley/articleshow/133640156.cms) - **The Times of India**
+6. [NPFL: Ikorodu City take early lead after opening-day win](https://punchng.com/npfl-ikorodu-city-take-early-lead-after-opening-day-win/) - **The Punch**
+7. [Shohei Ohtani’s slump is killing his MVP chances –– and the Dodgers’ offense](https://nypost.com/2026/08/30/sports/shohei-ohtanis-slump-hurting-his-mvp-chances-and-dodgers-offense/) - **New York Post**
+8. [Chelsea and Aston Villa are turning into the Premier League's greatest swap shop and it looks like the Blues are getting the better deal - but here's why the trades suit BOTH parties... and how Unai Emery can get the best out of Nicolas Jackson](https://www.dailymail.com/sport/football/article-16081907/Chelsea-Aston-Villa-turning-Premier-Leagues-greatest-swap-shop-looks-like-Blues-getting-better-deal-heres-trades-suit-parties-Unai-Emery-best-Nicolas-Jackson.html) - **Dailymail.com**
+9. [Crystal Palace Keen On Signing Moroccan Star Abde Ezzalzouli As Potential Ismaïla Sarr Replacement](https://roundtable.io/sports/soccer/premier-league/crystal-palace/news/crystal-palace-keen-on-signing-moroccan-star-abde-ezzalzouli-as-potential-ismaila-sarr-replacement) - **Roundtable.io**
 
 
 ---
-*최근 업데이트: 2026-09-01 08:54:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-01 13:12:55 (KST) / (하루 100회 제한 준수 중)*
