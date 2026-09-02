@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [LA Rams and Arsenal billionaire owner Stan Kroenke expands his sporting empire as he buys MLB's Angels](https://www.dailymail.com/sport/mlb/article-16096863/stan-kroenke-la-angels-purchase.html) - **Dailymail.com**
-2. [Rams owner Stan Kroenke buys Angels from Arte Moreno for record-breaking price](https://nypost.com/2026/09/01/sports/rams-owner-stan-kroenke-buys-angels-from-arte-moreno-for-record-price/) - **New York Post**
-3. [Everton striker Beto completes move to Fiorentina](https://www.channelnewsasia.com/sport/everton-striker-beto-completes-move-fiorentina-6355771) - **CNA**
-4. [Five Ravens land on ESPN’s top 100 players ranking for 2026](https://ravenswire.usatoday.com/story/sports/nfl/ravens/2026/09/01/ravens-espn-nfl-top-100-players-rankings-2026/91560370007/) - **USA Today**
-5. [Stan Kroenke buys the MLB's L.A. Angels](https://www.nbcsports.com/nfl/profootballtalk/rumor-mill/news/stan-kroenke-buys-the-mlbs-l-a-angels) - **NBCSports.com**
-6. [Stan Kroenke agrees to buy Angels from Arte Moreno](https://www.thesportingtribune.com/2026/09/01/stan-kroenke-agrees-to-buy-angels) - **Thesportingtribune.com**
-7. [“Done Deal”: South Korean star Hwang set to join Schalke from Wolves](https://bulinews.com/done-deal-south-korean-star-hwang-set-join-schalke-wolves) - **Bulinews.com**
-8. [AEW All In turned London into 'the epicenter of the pro-wrestling universe.' Can British wrestling make it last?](https://sports.yahoo.com/wrestling/article/aew-all-in-turned-london-into-the-epicenter-of-the-pro-wrestling-universe-can-british-wrestling-make-it-last-182507993.html) - **Yahoo Entertainment**
-9. [Wrexham sign Championship duo after being accused of ‘blanket bombing’ transfer market](https://www.alloutsoccer.com/news/wrexham-championship-ohare-worrall-transfers-2006466) - **Alloutsoccer.com**
-10. [Juventus sign forward Woltemade on loan from Newcastle](https://www.channelnewsasia.com/sport/juventus-sign-forward-woltemade-loan-newcastle-6355716) - **CNA**
+1. [Lamine Yamal surpasses Lionel Messi to become Barcelona’s youngest player to reach 50 goals](https://worldsoccertalk.com/news/lamine-yamal-surpasses-lionel-messi-to-become-barcelonas-youngest-player-to-reach-50-goals/) - **Worldsoccertalk.com**
+2. [Championship wrap: Idah on target as Swansea go top](https://www.rte.ie/sport/soccer/2026/0901/1590014-championship-wrap-idah-on-target-as-swansea-go-top/) - **RTE**
+3. [Everton hopeful of completing Folarin Balogun signing from AS Monaco](https://www.getfootballnewsfrance.com/2026/everton-hopeful-of-completing-folarin-balogun-signing-from-as-monaco/) - **Get French Football News**
+4. [Why Norton-Cuffy is ready after long road to the Premier League](https://www.skysports.com/football/news/11095/13549731/brooke-norton-cuffy-to-hull-from-genoa-how-loans-at-lincoln-rotherham-coventry-and-millwall-got-him-to-the-top) - **Sky Sports**
+5. [Sunderland make last-minute offer for Augsburg star](https://bulinews.com/sunderland-make-last-minute-offer-for-augsburg-star) - **Bulinews.com**
+6. [‘Easily score 10 or 15 goals’ – Former Man City teammate tips Gabriel Jesus to thrive at Barcelona](https://getfootballnewsspain.com/easily-score-10-or-15-goals-former-man-city-teammate-tips-gabriel-jesus-to-thrive-at-barcelona/) - **Getfootballnewsspain.com**
+7. [Transfer Deadline Day: Fernandez, Ndiaye, Woltemade, and more](https://sbisoccer.com/2026/09/transfer-deadline-day-fernandez-ndiaye-woltemade-and-more) - **Sbisoccer.com**
+8. [Mykhailo Mudryk joins Tottenham on loan from Chelsea](https://www.playmakerstats.com/news/mykhailo-mudryk-joins-tottenham-on-loan-from-chelsea/1191862) - **Playmakerstats.com**
+9. [Grealish returns to Everton for second loan spell](https://www.mancity.com/news/mens/jack-grealish-second-season-long-loan-everton-63923846) - **Manchester City FC**
 
 
 ---
-*최근 업데이트: 2026-09-03 03:46:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-03 06:37:34 (KST) / (하루 100회 제한 준수 중)*
