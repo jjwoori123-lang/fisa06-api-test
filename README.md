@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Lamine Yamal surpasses Lionel Messi to become Barcelona’s youngest player to reach 50 goals](https://worldsoccertalk.com/news/lamine-yamal-surpasses-lionel-messi-to-become-barcelonas-youngest-player-to-reach-50-goals/) - **Worldsoccertalk.com**
-2. [Championship wrap: Idah on target as Swansea go top](https://www.rte.ie/sport/soccer/2026/0901/1590014-championship-wrap-idah-on-target-as-swansea-go-top/) - **RTE**
-3. [Everton hopeful of completing Folarin Balogun signing from AS Monaco](https://www.getfootballnewsfrance.com/2026/everton-hopeful-of-completing-folarin-balogun-signing-from-as-monaco/) - **Get French Football News**
-4. [Why Norton-Cuffy is ready after long road to the Premier League](https://www.skysports.com/football/news/11095/13549731/brooke-norton-cuffy-to-hull-from-genoa-how-loans-at-lincoln-rotherham-coventry-and-millwall-got-him-to-the-top) - **Sky Sports**
-5. [Sunderland make last-minute offer for Augsburg star](https://bulinews.com/sunderland-make-last-minute-offer-for-augsburg-star) - **Bulinews.com**
-6. [‘Easily score 10 or 15 goals’ – Former Man City teammate tips Gabriel Jesus to thrive at Barcelona](https://getfootballnewsspain.com/easily-score-10-or-15-goals-former-man-city-teammate-tips-gabriel-jesus-to-thrive-at-barcelona/) - **Getfootballnewsspain.com**
-7. [Transfer Deadline Day: Fernandez, Ndiaye, Woltemade, and more](https://sbisoccer.com/2026/09/transfer-deadline-day-fernandez-ndiaye-woltemade-and-more) - **Sbisoccer.com**
-8. [Mykhailo Mudryk joins Tottenham on loan from Chelsea](https://www.playmakerstats.com/news/mykhailo-mudryk-joins-tottenham-on-loan-from-chelsea/1191862) - **Playmakerstats.com**
-9. [Grealish returns to Everton for second loan spell](https://www.mancity.com/news/mens/jack-grealish-second-season-long-loan-everton-63923846) - **Manchester City FC**
+1. [Mike Trout on $4 billion sale of Angels: 'It was needed'](https://sports.yahoo.com/mlb/article/mike-trout-on-4-billion-sale-of-angels-it-was-needed-233108942.html) - **Yahoo Entertainment**
+2. [Ainsley Maitland-Niles returns to Premier League to join Everton](https://www.playmakerstats.com/news/ainsley-maitland-niles-returns-to-premier-league-to-join-everton/1191999) - **Playmakerstats.com**
+3. [The story of Deadline Day: Man City finally land £125m Enzo Fernandez as Chelsea are enraged by Monaco over Lamine Camara - Jack Grealish completes Everton return, Spurs secure Mykhailo Mudryk and total Prem spend hits £3.2BILLION](https://www.dailymail.com/sport/football/article-16097527/Transfer-deadline-day-deals-Enzo-Fernandez-Lamine-Camara-Jack-Grealish-Mykhailo-Mudryk-Premier-League.html) - **Dailymail.com**
+4. [Deadlines, acrimony and a record as Man City back Maresca for Fernandez deal](https://www.bbc.com/sport/football/articles/cz0z377mxero?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Deadlines, acrimony and a record as Man City back Maresca for Fernandez deal](https://www.bbc.co.uk/sport/football/articles/cz0z377mxero) - **BBC News**
+6. [Sunderland complete Fofana signing after dramatic saga](https://www.skysports.com/football/news/11695/13580106/malick-fofana-sunderland-finally-complete-signing-of-lyon-winger-after-deadline-day-drama-with-crystal-palace) - **Sky Sports**
+7. [Arte Moreno Sells the Los Angeles Angels to Stan Kroenke](https://sports.yahoo.com/articles/arte-moreno-sells-los-angeles-231149208.html) - **Yahoo Entertainment**
+8. [Crystal Palace re-sign Chilwell on permanent deal](https://www.bbc.com/sport/football/articles/crr4d0x0175o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Crystal Palace re-sign Chilwell on permanent deal](https://www.bbc.co.uk/sport/football/articles/crr4d0x0175o) - **BBC News**
+10. [Indian Streamer JioHotstar Launches in U.K., Canada and Singapore With Interactive Features](https://variety.com/2026/tv/news/jiohotstar-uk-canada-singapore-launch-1236848067/) - **Variety**
 
 
 ---
-*최근 업데이트: 2026-09-03 06:37:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-03 08:32:54 (KST) / (하루 100회 제한 준수 중)*
