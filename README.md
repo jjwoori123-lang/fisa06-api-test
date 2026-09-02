@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Aston Villa complete the signing of Ibrahim Mbaye](https://www.playmakerstats.com/news/aston-villa-complete-the-signing-of-ibrahim-mbaye/1191196) - **Playmakerstats.com**
-2. [Fulham open talks over late move for Bayern defender](https://bulinews.com/fulham-open-talks-over-late-move-for-bayern-defender) - **Bulinews.com**
-3. [OFFICIAL: Chelsea announce £40m Honest Ahanor signing, Premier League loan to follow soon](https://www.talkchelsea.net/transfers/chelsea-ahanor-40m-loan-to-follow-premier-league/) - **Talk Chelsea**
-4. [Former England Captain Stokes joins BBL side Adelaide Strikers](https://www.channelnewsasia.com/sport/former-england-captain-stokes-joins-bbl-side-adelaide-strikers-6354806) - **CNA**
-5. [Official | Aston Villa sign Ibrahim Mbaye from PSG](https://www.getfootballnewsfrance.com/2026/official-aston-villa-sign-ibrahim-mbaye-from-psg/) - **Get French Football News**
-6. [PSG prepare January deal for Parisian defender playing in the Premier League](https://psgtalk.com/2026/09/psg-prepare-january-deal-for-parisian-defender/) - **Psgtalk.com**
-7. [Man City chase Fernandez, Arsenal eye Alvarez on transfer deadline day](https://punchng.com/man-city-chase-fernandez-arsenal-eye-alvarez-on-transfer-deadline-day/) - **The Punch**
-8. [ Official: Ibrahim Mbaye leaves PSG for Aston Villa](https://onefootball.com/en/news/official-ibrahim-mbaye-leaves-psg-for-aston-villa-43380809) - **Onefootball.com**
-9. [Official | RB Leipzig complete striker reshuffle with Marc Guiu arrival and Conrad Harder loan](https://www.getfootballnewsgermany.com/2026/rb-leipzig-guiu-harder/) - **Getfootballnewsgermany.com**
+1. [2,400 Baseball Games for the Price of 1](https://sports.yahoo.com/articles/2-400-baseball-games-price-150014599.html) - **Yahoo Entertainment**
+2. [The Mavericks go for gold (again) with City Edition jersey](https://www.mavsmoneyball.com/mavericks-news/61930/dallas-mavericks-city-edition-jersey-cooper-flagg) - **Mavs Moneyball**
+3. [2,400 Baseball Games for the Price of 1](https://reason.com/2026/09/01/2400-baseball-games-for-the-price-of-1/) - **Reason**
+4. [Newcastle confirm £51million signing of ‘top target’ Fernandez-Pardo](https://www.101greatgoals.com/football/premier-league/newcastle-sign-fernandez-pardo/) - **101 Great Goals**
+5. [Deadline day: Spurs go for Chelsea duo as Villa splash the cash](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260901-930-616749/) - **Dpa-international.com**
+6. [Fulham in advanced talks to sign David Affengruber from Elche](https://cryptobriefing.com/fulham-david-affengruber-elche-transfer/) - **Crypto Briefing**
+7. [French winger Diaby rejoins Leverkusen from Al-Ittihad](https://www.channelnewsasia.com/sport/french-winger-diaby-rejoins-leverkusen-al-ittihad-6355336) - **CNA**
+8. [Official: Juventus sign Sarr from Tottenham in potential €30m deadline day deal](https://football-italia.net/official-juventus-sign-sarr-from-tottenham/) - **Football Italia**
+9. [Barcelona sign Gabriel Jesus from Arsenal for reported £8.6m](https://punchng.com/barcelona-sign-gabriel-jesus-from-arsenal-for-reported-8-6m/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-09-02 19:53:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-03 00:00:34 (KST) / (하루 100회 제한 준수 중)*
