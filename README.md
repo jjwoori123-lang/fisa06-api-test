@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mike Trout on $4 billion sale of Angels: 'It was needed'](https://sports.yahoo.com/mlb/article/mike-trout-on-4-billion-sale-of-angels-it-was-needed-233108942.html) - **Yahoo Entertainment**
-2. [Ainsley Maitland-Niles returns to Premier League to join Everton](https://www.playmakerstats.com/news/ainsley-maitland-niles-returns-to-premier-league-to-join-everton/1191999) - **Playmakerstats.com**
-3. [The story of Deadline Day: Man City finally land £125m Enzo Fernandez as Chelsea are enraged by Monaco over Lamine Camara - Jack Grealish completes Everton return, Spurs secure Mykhailo Mudryk and total Prem spend hits £3.2BILLION](https://www.dailymail.com/sport/football/article-16097527/Transfer-deadline-day-deals-Enzo-Fernandez-Lamine-Camara-Jack-Grealish-Mykhailo-Mudryk-Premier-League.html) - **Dailymail.com**
-4. [Deadlines, acrimony and a record as Man City back Maresca for Fernandez deal](https://www.bbc.com/sport/football/articles/cz0z377mxero?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Deadlines, acrimony and a record as Man City back Maresca for Fernandez deal](https://www.bbc.co.uk/sport/football/articles/cz0z377mxero) - **BBC News**
-6. [Sunderland complete Fofana signing after dramatic saga](https://www.skysports.com/football/news/11695/13580106/malick-fofana-sunderland-finally-complete-signing-of-lyon-winger-after-deadline-day-drama-with-crystal-palace) - **Sky Sports**
-7. [Arte Moreno Sells the Los Angeles Angels to Stan Kroenke](https://sports.yahoo.com/articles/arte-moreno-sells-los-angeles-231149208.html) - **Yahoo Entertainment**
-8. [Crystal Palace re-sign Chilwell on permanent deal](https://www.bbc.com/sport/football/articles/crr4d0x0175o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Crystal Palace re-sign Chilwell on permanent deal](https://www.bbc.co.uk/sport/football/articles/crr4d0x0175o) - **BBC News**
-10. [Indian Streamer JioHotstar Launches in U.K., Canada and Singapore With Interactive Features](https://variety.com/2026/tv/news/jiohotstar-uk-canada-singapore-launch-1236848067/) - **Variety**
+1. [Chelle gets U-23 Eagles assistant coaches](https://punchng.com/chelle-gets-u-23-eagles-assistant-coaches/) - **The Punch**
+2. [Folarin Balogun not going to Everton as deal falls apart in Premier League stunner](https://nypost.com/2026/09/01/sports/folarin-balogun-not-going-to-everton-as-deal-falls-apart/) - **New York Post**
+3. [Manchester City are laughing in the face of the 115 charges as they hoover up rivals' star players - thanks to the new clues that the Premier League's case against them is slipping away, writes IAN HERBERT](https://www.dailymail.com/sport/football/article-16095813/manchester-city-premier-league-charges-transfers.html) - **Dailymail.com**
+4. [Hull City make late double signing of Sorba Thomas and Christos Mouzakitis](https://www.playmakerstats.com/news/hull-city-make-late-double-signing-of-sorba-thomas-and-christos-mouzakitis/1192072) - **Playmakerstats.com**
+5. [Deadline day: Enzo Fernandez makes £125m Manchester City move](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260902-930-618711/) - **Dpa-international.com**
+6. [€1 billion in 18 months: Enzo Fernandez deal means Enzo Maresca has no excuses in first Man City season](https://www.sportingnews.com/us/soccer/manchester-city/news/%E2%82%AC1-billion-18-months-enzo-fernandez-enzo-maresca-man-city/97d2bba8aa72f6eb3e4317c0) - **Sporting News**
+7. [Man City complete £125 million signing of Enzo Fernandez from Chelsea](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260902-930-618699/) - **Dpa-international.com**
+8. [Barcelona Completes Transfer Deadline Day Deal For Gabriel Jesus From Arsenal](https://www.foxsports.com/stories/soccer/barcelona-completes-transfer-deadline-day-deal-gabriel-jesus-from-arsenal) - **Fox Sports**
+9. [Official | Leeds land Jean-Mattéo Bahoya in €30m obligation deal](https://www.getfootballnewsgermany.com/2026/bahoya-leeds-official/) - **Getfootballnewsgermany.com**
 
 
 ---
-*최근 업데이트: 2026-09-03 08:32:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-03 10:25:42 (KST) / (하루 100회 제한 준수 중)*
