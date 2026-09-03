@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea make contact with Wijnaldum - Thursday's gossip](https://www.bbc.co.uk/sport/football/articles/cj647945e88o) - **BBC News**
-2. [Real IDP Hunter's IDP Primer For The 2026 Season](https://www.thehuddle.com/story/sports/fantasy/football/idp-analysis/2026/09/02/real-idp-hunters-biggest-fantasy-football-trends-from-the-2025-season/91567230007/) - **Thehuddle.com**
-3. [Scott McTominay opens up on heart surgery after Napoli confirms impending procedure](https://www.alloutsoccer.com/news/napoli-scott-mctominay-heart-surgery-2008227) - **Alloutsoccer.com**
-4. [Cristiano Ronaldo may have been right all along as new rival Ollie Watkins delivers Saudi Pro League verdict after bold Premier League comparison](https://worldsoccertalk.com/news/cristiano-ronaldo-may-have-been-right-all-along-as-new-rival-ollie-watkins-delivers-saudi-pro-league-verdict-after-bold-premier-league-comparison/) - **Worldsoccertalk.com**
-5. [A glimpse into the future, Andoni Iraola-ball is finally here](https://www.anfieldwatch.co.uk/liverpool-fc/news/a-glimpse-into-the-future-andoni-iraola-ball-is-finally-here/) - **Anfieldwatch.co.uk**
-6. [Dan’s EPL Predictions Week 3: A Draw for Arsenal v Chelsea and Massive Win for Man City?](https://www.justarsenal.com/dans-epl-predictions-week-3-a-draw-for-arsenal-v-chelsea-and-massive-win-for-man-city/421334) - **Just Arsenal News**
-7. [Folarin Balogun reportedly could join Cristiano Ronaldo’s Saudi Pro League as reasons for rejecting Everton surface](https://worldsoccertalk.com/news/folarin-balogun-reportedly-could-join-cristiano-ronaldos-saudi-pro-league-as-reasons-for-rejecting-everton-surface/) - **Worldsoccertalk.com**
-8. [Leeds United Star Excited After Leaving The Club: Best Decision For The Whites?](https://the4thofficial.net/2026/09/leeds-united-star-excited-after-leaving-the-club-best-decision-for-the-whites/) - **The4thofficial.net**
-9. [Everton gamble on Jack Grealish's return to form with second Manchester City loan](https://www.alloutsoccer.com/news/everton-jack-grealish-city-loan-2008198) - **Alloutsoccer.com**
-10. [Papers: Wantaway Spurs striker Richarlison agrees Trabzonspor terms](https://www.skysports.com/football/transfer-paper-talk/12709/13580536/richarlison-transfer-news-tottenham-striker-agrees-terms-with-trabzonspor-paper-talk) - **Sky Sports**
+1. [3 free agent midfielders Fiorentina could sign (but probably shouldn’t)](https://www.violanation.com/fiorentina-latest-news-updates/22804/3-free-agent-midfielders-fiorentina-could-sign-probably-shouldnt-brozovic-bissouma-bennacer) - **Violanation.com**
+2. [JJ Gabriel and Man United starlet who almost left on deadline day join training ahead of Everton clash](https://thepeoplesperson.com/2026/09/02/jj-gabriel-and-man-united-starlet-who-almost-left-on-deadline-day-join-training-ahead-of-everton-clash-314902/) - **The Peoples Person**
+3. [/C O R R E C T I O N -- Authentic Brands Group/](https://www.prnewswire.com/news-releases/shaquille-oneal-authentic-brands--tnt-sports-dunkman-to-expand-in-2027-introducing-team-competitions-junior-division--global-regional-qualifiers-series-302868132.html) - **PRNewswire**
+4. [Man City buy costly new midfield - but have they overlooked Haaland cover?](https://www.bbc.com/sport/football/articles/cpq02z298p7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [USMNT’s Ricardo Pepi sets sky-high goal for PSV after opting against summer transfer](https://www.alloutsoccer.com/news/usmnt-ricardo-pepi-psv-eredivisie-2008304) - **Alloutsoccer.com**
+6. [Balogun’s failed Everton move, MLS teams return to US Open Cup & Champions League draw reaction](https://sports.yahoo.com/soccer/article/baloguns-failed-everton-move-mls-teams-return-to-us-open-cup--champions-league-draw-reaction-221153579.html) - **Yahoo Entertainment**
+7. [Man City buy costly new midfield - but have they overlooked Haaland cover?](https://www.bbc.co.uk/sport/football/articles/cpq02z298p7o) - **BBC News**
+8. [Arsenal’s Naive and Arrogant Transfer Window Could Cost Them the Title – Opinion](https://www.justarsenal.com/arsenals-naive-and-arrogant-transfer-window-could-cost-them-the-title-opinion/421337) - **Just Arsenal News**
+9. [Why Fulham failed to sign Fikayo Tomori on deadline day](https://www.getfootballnewsitaly.com/2026/why-fulham-failed-to-sign-fikayo-tomori-on-deadline-day/) - **Getfootballnewsitaly.com**
+10. [Chelsea make contact with Wijnaldum - Thursday's gossip](https://www.bbc.co.uk/sport/football/articles/cj647945e88o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-09-04 06:45:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-04 08:50:48 (KST) / (하루 100회 제한 준수 중)*
