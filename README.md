@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Will Jaissle Make Any Changes? | 4-2-3-1 Newcastle United Predicted Lineup Vs Bournemouth](https://the4thofficial.net/2026/09/will-jaissle-make-any-changes-4-2-3-1-newcastle-united-predicted-lineup-vs-bournemouth/) - **The4thofficial.net**
-2. [Who Are the Chicago Blackhawks Top Breakout Candidates?](https://theleadsm.com/who-are-the-chicago-blackhawks-top-breakout-candidates/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=who-are-the-chicago-blackhawks-top-breakout-candidates) - **Theleadsm.com**
-3. [Hearts defeats Hibernian 1-0 in Edinburgh Derby as teenager James Wilson proves decisive](https://cryptobriefing.com/hearts-defeats-hibernian-edinburgh-derby/) - **Crypto Briefing**
-4. [Gabriel Jesus and the 11 Arsenal players to join Barcelona this century](https://getfootballnewsspain.com/gabriel-jesus-and-the-11-arsenal-players-to-join-barcelona-this-century/) - **Getfootballnewsspain.com**
-5. [Gabriel Martinelli transfer grades: Arsenal attacker moves to Al-Hilal in $81 million deal](https://www.cbssports.com/soccer/news/gabriel-martinelli-transfer-grades-arsenal/) - **CBS Sports**
-6. [Gallery: New faces spotted in training!](https://www.mancity.com/news/mens/mens-training-3-september-63924056) - **Manchester City FC**
-7. [Fernandez To Start, O’Reilly On The Bench | 4-2-3-1 Manchester City Predicted Lineup Vs Coventry City](https://the4thofficial.net/2026/09/fernandez-to-start-oreilly-on-the-bench-4-2-3-1-manchester-city-predicted-lineup-vs-coventry-city/) - **The4thofficial.net**
-8. [Puka Nacua suspension watch: Will NFL discipline Rams star WR? How might a suspension impact L.A.?](https://www.cbssports.com/nfl/news/puka-nacua-suspension-watch-will-nfl-discipline-rams-star/) - **CBS Sports**
-9. [ The  biggest-spending leagues of the summer ](https://onefootball.com/en/news/the-biggest-spending-leagues-of-the-summer-43396781) - **Onefootball.com**
-10. [Arsenal vs Chelsea: Match Preview, Latest Team News and Score Prediction](https://eplindex.com/150120/arsenal-vs-chelsea-match-preview-latest-team-news-and-predicted-lineups.html) - **English Premier League Index - Opta Stats**
+1. [Papers: Everton eye shock Vardy move to solve striker problem](https://www.skysports.com/football/transfer-paper-talk/12709/13581025/everton-transfer-news-toffees-eye-shock-move-for-free-agent-jamie-vardy-after-folarin-balogun-deal-falls-through-paper-talk) - **Sky Sports**
+2. [Papers: Everton eye shock Vardy move to solve striker problem](https://www.skysports.com/football/transfer-paper-talk/12709/13581025/everton-transfer-news-toffees-eye-shock-move-for-free-agent-jamie-vardy-after-folarin-balogun-deal-falls-through-paper-talk) - **Sky Sports**
+3. [Why Hany Mukhtar is excited for Nashville SC's return to US Open Cup](https://www.tennessean.com/story/sports/nashvillesc/2026/09/03/us-open-cup-nashville-sc-hany-mukhtar-mls/91597254007/) - **Tennessean**
+4. [Official: Liverpool Leave Chiesa and Endo Out of Champions League Squad](https://liverpooloffside.sbnation.com/liverpool-fc-news-coverage/83345/official-liverpool-2026-champions-league-squad-no-chiesa-endo) - **SB Nation**
+5. [Xabi Alonso given timeline on return of $62 million signing ahead of trip to Arsenal](https://www.alloutsoccer.com/news/chelsea-alonso-palestra-timeline-arsenal-2009981) - **Alloutsoccer.com**
+6. [How much? Richard Hughes cost Liverpool €99m this summer](https://www.anfieldwatch.co.uk/liverpool-fc/news/how-much-richard-hughes-cost-liverpool-eur99m-this-summer/) - **Anfieldwatch.co.uk**
+7. [Magic Johnson hypes Stan Kroenke’s Angels takeover with wild 7-year yacht aside](https://nypost.com/2026/09/03/sports/magic-johnson-reacts-to-stan-kroenkes-angels-purchase/) - **New York Post**
+8. [Manchester City Complete The Capture Of This Chelsea Midfielder: Decent Signing For Maresca?](https://the4thofficial.net/2026/09/manchester-city-complete-the-capture-of-this-chelsea-midfielder/) - **The4thofficial.net**
+9. [Champions League squads: Premier League clubs confirm 25-man player lists for league phase](https://www.101greatgoals.com/news/champions-league-squads-premier-league-clubs-confirm-25-man-player-lists-for-league-phase/) - **101 Great Goals**
+10. [USA's Next Generation: 12 Youngsters In The Early Mix For The 2030 World Cup](https://www.foxsports.com/stories/soccer/usas-next-generation-12-youngsters-early-mix-2030-world-cup) - **Fox Sports**
 
 
 ---
-*최근 업데이트: 2026-09-05 04:20:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-05 06:47:53 (KST) / (하루 100회 제한 준수 중)*
