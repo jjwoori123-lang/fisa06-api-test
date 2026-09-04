@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Premier League news conferences: Liverpool's Iraola speaks before Ipswich game](https://www.bbc.com/sport/football/live/cqm2md2xxyynt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [One Moment in Time: When emotional Lampard said goodbye to City](https://www.mancity.com/news/mens/one-moment-in-time-frank-lampard-63923778) - **Manchester City FC**
-3. [Report: Arsenal considering January move to sign Premier League forward](https://eplindex.com/150096/report-arsenal-considering-january-move-to-sign-premier-league-forward.html) - **English Premier League Index - Opta Stats**
-4. [Jamie Carragher fears Andoni Iraola must have an awkward conversation with £350,000-a-week Dominik Szoboszlai - after 'massive transfer mistake' created a 'mess' at Liverpool](https://www.dailymail.com/sport/football/article-16101363/Jamie-Carragher-fears-Andoni-Iraola-awkward-conversation-350-000-week-Dominik-Szoboszlai-massive-transfer-mistake-created-mess-Liverpool.html) - **Dailymail.com**
-5. [Liverpool spent big but this squad is still imbalanced and it could be a problem](https://www.skysports.com/football/news/33694/13580278/liverpools-first-transfer-window-under-andoni-iraola-sees-bradley-barcola-sign-but-this-squad-is-still-not-balanced) - **Sky Sports**
-6. [Jack Grealish & Ainsley Maitland-Niles pick Everton shirt numbers](https://royalbluemersey.sbnation.com/everton-news/82901/jack-grealish-ainsley-maitland-niles-pick-everton-shirt-squad-numbers) - **SB Nation**
-7. [Chelsea consider free agent Wijnaldum to plug midfield gap](https://thefootballfaithful.com/chelsea-consider-free-agent-wijnaldum-to-plug-midfield-gap/) - **The Football Faithful**
-8. [Chelsea break record for money received in transfer window](https://thefootballfaithful.com/chelsea-break-record-for-money-received-in-transfer-window/) - **The Football Faithful**
-9. [Why age fraud is India's next big sports scandal](https://www.rediff.com/sports/report/why-age-fraud-is-indias-next-big-sports-scandal/20260903.htm) - **Rediff.com**
-10. [Real Madrid extremely delighted with 28-year-old summer signing; believe they have signed an elite player](https://madriduniversal.com/real-madrid-extremely-delighted-with-28-year-old-summer-signing-believe-they-have-signed-an-elite-player/) - **Madriduniversal.com**
+1. [Arsenal Champions League fixtures, games, results, squad, standings and schedule 2026/27](https://www.101greatgoals.com/football/champions-league/arsenal-champions-league-fixtures-results-squad-standings-games-schedule-2026-27/) - **101 Great Goals**
+2. [Athletic claim Chelsea priced Man City out of two players despite getting Enzo done](https://www.talkchelsea.net/news-now/athletic-chelsea-priced-man-city-transfers/) - **Talk Chelsea**
+3. [Iraola: 'It's just the first two games but I want to win'](https://www.rediff.com/sports/report/epl-liverpool-manager-andoni-iraola-on-transfer-window-closure-bradley-barcola-and-injury-updates-ipswich/20260903.htm) - **Rediff.com**
+4. [The 6️⃣ stand-offs that rocked the transfer window ](https://onefootball.com/en/news/the-6-stand-offs-that-rocked-the-transfer-window-43394470) - **Onefootball.com**
+5. [Vote now as Newcastle United stars nominated for August 2026 Premier League goal of the month](https://www.themag.co.uk/2026/09/vote-now-as-newcastle-united-stars-nominated-for-august-2026-premier-league-goal-of-the-month/) - **The Mag**
+6. [Episode 891 - Window closed](https://shows.acast.com/arseblog/episodes/episode-891-window-closed) - **Acast.com**
+7. [Premier League announce August award shortlists](https://www.playmakerstats.com/news/premier-league-announce-august-award-shortlists/1192976) - **Playmakerstats.com**
+8. [Ex-Super Eagles defender Emenalo’s son joins Celtic on loan](https://punchng.com/ex-super-eagles-defender-emenalos-son-joins-celtic-on-loan/) - **The Punch**
+9. [Cherki up for Premier League Goal of the Month award](https://www.mancity.com/news/mens/rayan-cherki-has-been-nominated-for-the-guinness-goal-of-the-month-for-august-63924027) - **Manchester City FC**
 
 
 ---
-*최근 업데이트: 2026-09-04 17:12:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-04 21:46:07 (KST) / (하루 100회 제한 준수 중)*
