@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Papers: Everton eye shock Vardy move to solve striker problem](https://www.skysports.com/football/transfer-paper-talk/12709/13581025/everton-transfer-news-toffees-eye-shock-move-for-free-agent-jamie-vardy-after-folarin-balogun-deal-falls-through-paper-talk) - **Sky Sports**
-2. [Papers: Everton eye shock Vardy move to solve striker problem](https://www.skysports.com/football/transfer-paper-talk/12709/13581025/everton-transfer-news-toffees-eye-shock-move-for-free-agent-jamie-vardy-after-folarin-balogun-deal-falls-through-paper-talk) - **Sky Sports**
-3. [Why Hany Mukhtar is excited for Nashville SC's return to US Open Cup](https://www.tennessean.com/story/sports/nashvillesc/2026/09/03/us-open-cup-nashville-sc-hany-mukhtar-mls/91597254007/) - **Tennessean**
-4. [Official: Liverpool Leave Chiesa and Endo Out of Champions League Squad](https://liverpooloffside.sbnation.com/liverpool-fc-news-coverage/83345/official-liverpool-2026-champions-league-squad-no-chiesa-endo) - **SB Nation**
-5. [Xabi Alonso given timeline on return of $62 million signing ahead of trip to Arsenal](https://www.alloutsoccer.com/news/chelsea-alonso-palestra-timeline-arsenal-2009981) - **Alloutsoccer.com**
-6. [How much? Richard Hughes cost Liverpool €99m this summer](https://www.anfieldwatch.co.uk/liverpool-fc/news/how-much-richard-hughes-cost-liverpool-eur99m-this-summer/) - **Anfieldwatch.co.uk**
-7. [Magic Johnson hypes Stan Kroenke’s Angels takeover with wild 7-year yacht aside](https://nypost.com/2026/09/03/sports/magic-johnson-reacts-to-stan-kroenkes-angels-purchase/) - **New York Post**
-8. [Manchester City Complete The Capture Of This Chelsea Midfielder: Decent Signing For Maresca?](https://the4thofficial.net/2026/09/manchester-city-complete-the-capture-of-this-chelsea-midfielder/) - **The4thofficial.net**
-9. [Champions League squads: Premier League clubs confirm 25-man player lists for league phase](https://www.101greatgoals.com/news/champions-league-squads-premier-league-clubs-confirm-25-man-player-lists-for-league-phase/) - **101 Great Goals**
-10. [USA's Next Generation: 12 Youngsters In The Early Mix For The 2030 World Cup](https://www.foxsports.com/stories/soccer/usas-next-generation-12-youngsters-early-mix-2030-world-cup) - **Fox Sports**
+1. [Zawyer Sports & Entertainment Acquire Controlling Interest of Huntsville Havoc](https://www.huntsvillehavoc.com/zawyer) - **Huntsvillehavoc.com**
+2. [Fans fume over Lagos derby postponement](https://punchng.com/fans-fume-over-lagos-derby-postponement/) - **The Punch**
+3. [NFL All-22 Roster: Building A Dream Team For 2026](https://www.foxsports.com/stories/nfl/nfl-all-22-roster-building-dream-team-2026) - **Fox Sports**
+4. [Football Daily](https://www.bbc.co.uk/sounds/play/p0p7x2v4?at_campaign=rss) - **BBC News**
+5. [Federico Chiesa is left OUT of Liverpool's 25-man Champions League squad in latest blow to Italian - as three injured stars and youngster with only three Premier League appearances make the cut instead](https://www.dailymail.com/sport/football/article-16103901/Federico-Chiesa-left-Liverpools-25-man-Champions-League-squad-latest-blow-Italian-three-injured-stars-youngster-three-Premier-League-appearances-make-cut-instead.html) - **Dailymail.com**
+6. [Official: Man United complete permanent departure of academy forward 48 hours after transfer deadline](https://thepeoplesperson.com/2026/09/03/official-man-united-complete-permanent-departure-of-academy-forward-48-hours-after-transfer-deadline-315008/) - **The Peoples Person**
+7. [Monaco drops Balogun from Conference League roster after Everton transfer collapse](https://www.usatoday.com/story/sports/soccer/usmnt/2026/09/03/monaco-balogun-uefa-conference-league-roster-everton-transfer/91600328007/) - **USA Today**
+8. [Liverpool Champions League snub leaves two stars facing uncertain futures](https://www.hitc.com/liverpool-champions-league-snub-leaves-two-stars-facing-uncertain-futures/) - **HITC - Football, Gaming, Movies, TV, Music**
+9. [Chiesa & Endo not in Liverpool's Champions League squad](https://www.bbc.com/sport/football/articles/cr4vnzpw57lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Chiesa & Endo not in Liverpool's Champions League squad](https://www.bbc.co.uk/sport/football/articles/cr4vnzpw57lo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-09-05 06:47:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-05 08:48:06 (KST) / (하루 100회 제한 준수 중)*
