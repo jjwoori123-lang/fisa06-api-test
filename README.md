@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [ Official: Martinelli leaves Arsenal and joins Al-Hilal](https://onefootball.com/en/news/official-martinelli-leaves-arsenal-and-joins-al-hilal-43396017) - **Onefootball.com**
-2. [Real Betis v Real Madrid: Preview, expected line-ups, and where to watch](https://www.101greatgoals.com/match-previews/la-liga-matches/real-betis-v-madrid-preview-team-news-line-ups-stats-where-to-watch-tv-channel-live-online-stream-prediction/) - **101 Great Goals**
-3. [Arsenal sell Gabriel Martinelli: Brazilian becomes club-record sale after completing £55m move to Saudi side Al-Hilal](https://www.dailymail.com/sport/football/article-16103153/Arsenal-sell-Gabriel-Martinelli-Brazilian-club-record-sale-completing-60m-Saudi-Al-Hilal.html) - **Dailymail.com**
-4. [ BREAKING: Al-Hilal complete move for Arsenal's Gabriel Martinelli](https://onefootball.com/en/news/breaking-al-hilal-complete-move-for-arsenals-gabriel-martinelli-43396006) - **Onefootball.com**
-5. [Brewers vs. Cubs prediction: Odds, recent stats, trends, and best bets for September 3](https://www.nbcsports.com/mlb/news/brewers-vs-cubs-prediction-odds-recent-stats-trends-and-best-bets-for-september-3) - **NBCSports.com**
-6. [PREVIEW | Hull City vs Aston Villa: team news, lineups, predictions (Premier League 05/09)](https://www.playmakerstats.com/news/preview-hull-city-vs-aston-villa-team-news-lineups-predictions-premier-league-05-09/1193252) - **Playmakerstats.com**
-7. [MLS NEXT kicks off 2026-27 season developing future stars](https://www.mlssoccer.com/news/mls-next-kicks-off-2026-27-season-developing-future-stars) - **MLSsoccer.com**
-8. [Martinelli joins Al Hilal in Arsenal club-record sale](https://www.skysports.com/football/news/11670/13579276/gabriel-martinelli-transfer-news-forward-joins-al-hilal-in-a-club-record-sale-for-arsenal-in-lb60m-deal) - **Sky Sports**
-9. [Breaking down Chelsea's staggering 39 summer exits](https://www.bbc.com/sport/football/articles/ce87vzgyzd9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. ['I've got too much left in me' - Weimann](https://www.bbc.com/sport/football/articles/cjdvxlv9zkko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Will Jaissle Make Any Changes? | 4-2-3-1 Newcastle United Predicted Lineup Vs Bournemouth](https://the4thofficial.net/2026/09/will-jaissle-make-any-changes-4-2-3-1-newcastle-united-predicted-lineup-vs-bournemouth/) - **The4thofficial.net**
+2. [Who Are the Chicago Blackhawks Top Breakout Candidates?](https://theleadsm.com/who-are-the-chicago-blackhawks-top-breakout-candidates/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=who-are-the-chicago-blackhawks-top-breakout-candidates) - **Theleadsm.com**
+3. [Hearts defeats Hibernian 1-0 in Edinburgh Derby as teenager James Wilson proves decisive](https://cryptobriefing.com/hearts-defeats-hibernian-edinburgh-derby/) - **Crypto Briefing**
+4. [Gabriel Jesus and the 11 Arsenal players to join Barcelona this century](https://getfootballnewsspain.com/gabriel-jesus-and-the-11-arsenal-players-to-join-barcelona-this-century/) - **Getfootballnewsspain.com**
+5. [Gabriel Martinelli transfer grades: Arsenal attacker moves to Al-Hilal in $81 million deal](https://www.cbssports.com/soccer/news/gabriel-martinelli-transfer-grades-arsenal/) - **CBS Sports**
+6. [Gallery: New faces spotted in training!](https://www.mancity.com/news/mens/mens-training-3-september-63924056) - **Manchester City FC**
+7. [Fernandez To Start, O’Reilly On The Bench | 4-2-3-1 Manchester City Predicted Lineup Vs Coventry City](https://the4thofficial.net/2026/09/fernandez-to-start-oreilly-on-the-bench-4-2-3-1-manchester-city-predicted-lineup-vs-coventry-city/) - **The4thofficial.net**
+8. [Puka Nacua suspension watch: Will NFL discipline Rams star WR? How might a suspension impact L.A.?](https://www.cbssports.com/nfl/news/puka-nacua-suspension-watch-will-nfl-discipline-rams-star/) - **CBS Sports**
+9. [ The  biggest-spending leagues of the summer ](https://onefootball.com/en/news/the-biggest-spending-leagues-of-the-summer-43396781) - **Onefootball.com**
+10. [Arsenal vs Chelsea: Match Preview, Latest Team News and Score Prediction](https://eplindex.com/150120/arsenal-vs-chelsea-match-preview-latest-team-news-and-predicted-lineups.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-09-05 01:46:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-05 04:20:14 (KST) / (하루 100회 제한 준수 중)*
