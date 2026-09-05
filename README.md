@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Everton v Man United: Preview, expected line-ups, stats, TV channel, live online stream and prediction](https://www.101greatgoals.com/match-previews/premier-league-matches/everton-v-man-united-preview-team-news-line-ups-stats-where-to-watch-tv-channel-live-online-stream-prediction/) - **101 Great Goals**
-2. [DeMeco Ryans Drops Blunt ‘Stop the Talking’ Warning Ahead of Week 1 vs. Bills](https://sports.yahoo.com/articles/demeco-ryans-drops-blunt-stop-170546204.html) - **Yahoo Entertainment**
-3. [Ten new signings but Celtic's transfer window ended with the same old lack of ambition ... and Martin O'Neill isn't even trying to hide it!](https://www.dailymail.com/sport/football/article-16105451/Ten-new-signings-Celtics-transfer-window-ended-old-lack-ambition-Martin-ONeill-isnt-trying-hide-it.html) - **Dailymail.com**
-4. [Premier League aim key to Whiteman's Wrexham move](https://www.bbc.com/sport/football/articles/c9qrw2y9lxeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [U21s Team News: Charlton Athletic vs Leeds United](https://www.leedsunited.com/en/news/u21s-team-news-charlton-athletic-vs-leeds-united) - **Leedsunited.com**
-6. [Andoni Iraola told to use Dominik Szoboszlai to mix major Liverpool issue](https://anfieldindex.com/99407/andoni-iraola-told-to-use-dominik-szoboszlai-to-mix-major-liverpool-issue.html) - **Anfieldindex.com**
-7. [Nottingham Forest vs Tottenham Hotspur: Match Preview, Latest Team News and Predicted Lineups](https://eplindex.com/150151/nottingham-forest-vs-tottenham-hotspur-match-preview-latest-team-news-and-predicted-lineups.html) - **English Premier League Index - Opta Stats**
-8. [Man United continue to chase Championship winger after holding talks in the summer](https://thepeoplesperson.com/2026/09/04/man-united-continue-to-chase-championship-winger-after-holding-talks-in-the-summer-315053/) - **The Peoples Person**
-9. [Xabi Alonso heaps praise on Morgan Rogers' impact at Chelsea ahead of Arsenal clash](https://www.alloutsoccer.com/news/alonso-rogers-chelsea-impact-arsenal-2011104) - **Alloutsoccer.com**
-10. [Dean says he always applied laws - but which matches did he play games in?](https://www.bbc.com/sport/football/articles/czjzn84wn9wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Adelaide returns to scene of finals flop to face biggest test of growth](https://www.abc.net.au/news/2026-09-05/afl-adelaide-midfield-test-western-bulldogs-analysis/107116116) - **ABC News (AU)**
+2. [Y! Sports Biz: Fine-ers Keepers](https://sports.yahoo.com/articles/y-sports-biz-fine-ers-keepers-190020182.html) - **Yahoo Entertainment**
+3. [Ian Wright predicts the outcome of the Arsenal Chelsea game](https://www.justarsenal.com/ian-wright-predicts-the-outcome-of-the-arsenal-chelsea-game/421462) - **Just Arsenal News**
+4. [Hull City vs Aston Villa: Match Preview, Latest Team News and Predicted Lineups](https://eplindex.com/150153/hull-city-vs-aston-villa-match-preview-latest-team-news-and-predicted-lineups.html) - **English Premier League Index - Opta Stats**
+5. [Wealth manager who stole footballer Edgar Davids' £188,000 art collection then failed to turn up to court 'after passing out from luggage landing on her head' is to be sentenced](https://www.dailymail.com/news/article-16106067/Wealth-manager-stole-Edgar-Davids-art-collection-failed-appear-court.html) - **Dailymail.com**
+6. [SiriusXM Gets a Big Wall Street Endorsement](https://www.thewrap.com/industry-news/business/sirius-xm-wall-street/) - **TheWrap**
+7. [Steelers secondary facing major change after DeShon Elliott injury](https://steelerswire.usatoday.com/story/sports/nfl/steelers/2026/09/04/steelers-secondary-facing-major-change-deshon-elliott-injury/91613021007/) - **USA Today**
+8. [Athletic claim Chelsea priced Man City out of two players despite getting Enzo done](https://www.talkchelsea.net/transfers/athletic-chelsea-priced-man-city-transfers/) - **Talk Chelsea**
+9. [Will Carrick Make Any Changes? | 4-2-3-1 Manchester United Predicted Lineup Vs Everton](https://the4thofficial.net/2026/09/will-carrick-make-any-changes-4-2-3-1-manchester-united-predicted-lineup-vs-everton/) - **The4thofficial.net**
+10. [Jakirovic signs new Hull deal](https://www.bbc.com/sport/football/articles/cvgypypplj1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-09-06 02:12:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-06 04:06:20 (KST) / (하루 100회 제한 준수 중)*
