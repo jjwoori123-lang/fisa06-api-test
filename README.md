@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Key number to delight Liverpool boss Iraola after Isak, Gakpo make short work of Ipswich](https://www.sportingnews.com/us/soccer/liverpool/news/key-number-liverpool-boss-iraola-isak-gakpo-ipswich/2154b642c9461eb387e494c5) - **Sporting News**
-2. [Papers: Chelsea offered chance to sign Bissouma as Fernandez replacement](https://www.skysports.com/football/transfer-paper-talk/12709/13581538/chelsea-transfer-news-blues-offered-chance-to-sign-former-tottenham-midfielder-yves-bissouma-paper-talk) - **Sky Sports**
-3. [National teams department steps up scouting before Super FIFA call-up](https://onefootball.com/en/news/national-teams-department-steps-up-scouting-before-super-fifa-call-up-43403443) - **Onefootball.com**
-4. [Isak fires Liverpool to first win under Iraola at Ipswich](https://www.vanguardngr.com/2026/09/isak-fires-liverpool-to-first-win-under-iraola-at-ipswich/) - **Vanguard**
-5. [Ipswich 0-2 Liverpool: Report, result and goals as Isak stars at Portman Road](https://www.101greatgoals.com/football/premier-league/ipswich-0-2-liverpool-report-result-and-goals/) - **101 Great Goals**
-6. [Premier League Player Ratings as Liverpool Win 2-0 at Ipswich](https://anfieldindex.com/99428/premier-league-player-ratings-as-liverpool-win-2-0-at-ipswich.html) - **Anfieldindex.com**
-7. [Isak’s quickfire double earns Iraola first PL win as Liverpool boss](https://www.skysports.com/premier-league-highlights/video/36504/13581559/ipswich-0-2-liverpool-premier-league-highlights) - **Sky Sports**
-8. [Isak nets double and Barcola debuts in Liverpool's first win of season under new coach](https://sports.yahoo.com/articles/isak-nets-double-barcola-debuts-210733821.html) - **Yahoo Entertainment**
-9. [Preview: West Ham and Derby meet in the league for the first time since 2011](https://wp.fromthespot.co.uk/31612/preview-west-ham-and-derby-meet-in-the-league-for-the-first-time-since-2011/) - **Fromthespot.co.uk**
-10. [Chavarria And James To Start | 3-4-3 Chelsea Predicted Lineup Vs Arsenal](https://the4thofficial.net/2026/09/chavarria-and-james-to-start-3-4-3-chelsea-predicted-lineup-vs-arsenal/) - **The4thofficial.net**
+1. [Man United insiders blown away by World Cup villain’s “excellent” form since returning to club duty](https://thepeoplesperson.com/2026/09/04/man-united-insiders-blown-away-by-world-cup-villains-excellent-form-since-returning-to-club-duty-314953/) - **The Peoples Person**
+2. [Ecuadorian striker Jeremy Arévalo set to join list of VfB Stuttgart departures](https://www.getfootballnewsgermany.com/2026/jeremy-arevalo/) - **Getfootballnewsgermany.com**
+3. [David Moyes hints at dramatic deal to resurrect the career of former Man United fan favourite](https://thepeoplesperson.com/2026/09/05/david-moyes-hints-at-dramatic-deal-to-resurrect-the-career-of-former-man-united-fan-favourite-315067/) - **The Peoples Person**
+4. [Digging Deeper Into Liverpool’s Comfortable 2-0 Victory Over Ipswich Town](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/83384/digging-deeper-liverpool-comfortable-2-0-victory-ipswich-town-epl-2026) - **SB Nation**
+5. [Sarcastic Jose Mourinho hits out after Real Madrid's controversial defeat: Kylian Mbappe has 94TH-MINUTE penalty saved - which should have been retaken - as ex-Spurs star scores the winner for Real Betis](https://www.dailymail.com/sport/football/article-16106705/Jose-Mourinho-Real-Madrid-defeat-Kylian-Mbappe-penalty-saved-ex-Spurs-star-scores-winner-Real-Betis.html) - **Dailymail.com**
+6. [Isak finally arrives as Gakpo proves value to Liverpool](https://www.bbc.com/sport/football/articles/c209xvxe558o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Isak Double Earns Liverpool First Premier League Victory](https://www.rediff.com/sports/report/lepl-iverpool-dominates-ipswich-with-isak-brace-for-iraolas-maiden-win-premier-league/20260905.htm) - **Rediff.com**
+8. [Isak finally arrives as Gakpo proves value to Liverpool](https://www.bbc.co.uk/sport/football/articles/c209xvxe558o) - **BBC News**
+9. [Alexander Isak fires Liverpool to first win under new manager Iraola at Ipswich](https://www.the42.ie/liverpool-ipswich-isak-7153225-Sep2026/) - **The42**
+10. [How Jose Mourinho seeded Real Madrid's defeat to Real Betis seven years ago](https://www.sportingnews.com/us/soccer/real-madrid/news/jose-mourinho-real-madrid-defeat-real-betis-seven-years-ago/b3dc6d36d55a900eff89892a) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-09-06 06:20:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-06 08:15:53 (KST) / (하루 100회 제한 준수 중)*
