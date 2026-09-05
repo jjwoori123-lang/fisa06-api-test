@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Xabi Alonso wants Chelsea to move forward following Fernandez’s exit](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260904-930-634797/) - **Dpa-international.com**
-2. [Twist over Nico, Inacio-Milan latest, Zaha to Serie A? ](https://onefootball.com/en/news/twist-over-nico-inacio-milan-latest-zaha-to-serie-a-43401200) - **Onefootball.com**
-3. [Official | Coventry City sign Yann Gboho from Toulouse](https://www.getfootballnewsfrance.com/2026/official-coventry-city-sign-yann-gboho-from-toulouse/) - **Get French Football News**
-4. [Alonso urges Chelsea to ‘move forward’ after Fernandez’s exit](https://punchng.com/alonso-urges-chelsea-to-move-forward-after-fernandezs-exit/) - **The Punch**
-5. [Man Utd in 'good place' despite imperfect squad, says Carrick](https://sports.yahoo.com/articles/man-utd-good-place-despite-143830753.html) - **Yahoo Entertainment**
-6. [Coventry sign winger Gboho - cousin of PSG's Doue](https://www.bbc.com/sport/football/articles/cvgypzg4y75o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Villa leave Harwood-Bellis out of Champions League squad](https://www.bbc.com/sport/football/articles/cvgypj5j47lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Villa leave Harwood-Bellis out of Champions League squad](https://www.bbc.co.uk/sport/football/articles/cvgypj5j47lo) - **BBC News**
-9. [Coventry sign winger Gboho - cousin of PSG's Doue](https://www.bbc.co.uk/sport/football/articles/cvgypzg4y75o) - **BBC News**
-10. [SFA to offer incentives for youth participation](https://www.bbc.com/sport/football/articles/cjdvx8ed3d4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Everton v Man United: Preview, expected line-ups, stats, TV channel, live online stream and prediction](https://www.101greatgoals.com/match-previews/premier-league-matches/everton-v-man-united-preview-team-news-line-ups-stats-where-to-watch-tv-channel-live-online-stream-prediction/) - **101 Great Goals**
+2. [DeMeco Ryans Drops Blunt ‘Stop the Talking’ Warning Ahead of Week 1 vs. Bills](https://sports.yahoo.com/articles/demeco-ryans-drops-blunt-stop-170546204.html) - **Yahoo Entertainment**
+3. [Ten new signings but Celtic's transfer window ended with the same old lack of ambition ... and Martin O'Neill isn't even trying to hide it!](https://www.dailymail.com/sport/football/article-16105451/Ten-new-signings-Celtics-transfer-window-ended-old-lack-ambition-Martin-ONeill-isnt-trying-hide-it.html) - **Dailymail.com**
+4. [Premier League aim key to Whiteman's Wrexham move](https://www.bbc.com/sport/football/articles/c9qrw2y9lxeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [U21s Team News: Charlton Athletic vs Leeds United](https://www.leedsunited.com/en/news/u21s-team-news-charlton-athletic-vs-leeds-united) - **Leedsunited.com**
+6. [Andoni Iraola told to use Dominik Szoboszlai to mix major Liverpool issue](https://anfieldindex.com/99407/andoni-iraola-told-to-use-dominik-szoboszlai-to-mix-major-liverpool-issue.html) - **Anfieldindex.com**
+7. [Nottingham Forest vs Tottenham Hotspur: Match Preview, Latest Team News and Predicted Lineups](https://eplindex.com/150151/nottingham-forest-vs-tottenham-hotspur-match-preview-latest-team-news-and-predicted-lineups.html) - **English Premier League Index - Opta Stats**
+8. [Man United continue to chase Championship winger after holding talks in the summer](https://thepeoplesperson.com/2026/09/04/man-united-continue-to-chase-championship-winger-after-holding-talks-in-the-summer-315053/) - **The Peoples Person**
+9. [Xabi Alonso heaps praise on Morgan Rogers' impact at Chelsea ahead of Arsenal clash](https://www.alloutsoccer.com/news/alonso-rogers-chelsea-impact-arsenal-2011104) - **Alloutsoccer.com**
+10. [Dean says he always applied laws - but which matches did he play games in?](https://www.bbc.com/sport/football/articles/czjzn84wn9wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-09-05 23:49:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-06 02:12:22 (KST) / (하루 100회 제한 준수 중)*
