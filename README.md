@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Zawyer Sports & Entertainment Acquire Controlling Interest of Huntsville Havoc](https://www.huntsvillehavoc.com/zawyer) - **Huntsvillehavoc.com**
-2. [Fans fume over Lagos derby postponement](https://punchng.com/fans-fume-over-lagos-derby-postponement/) - **The Punch**
-3. [NFL All-22 Roster: Building A Dream Team For 2026](https://www.foxsports.com/stories/nfl/nfl-all-22-roster-building-dream-team-2026) - **Fox Sports**
-4. [Football Daily](https://www.bbc.co.uk/sounds/play/p0p7x2v4?at_campaign=rss) - **BBC News**
-5. [Federico Chiesa is left OUT of Liverpool's 25-man Champions League squad in latest blow to Italian - as three injured stars and youngster with only three Premier League appearances make the cut instead](https://www.dailymail.com/sport/football/article-16103901/Federico-Chiesa-left-Liverpools-25-man-Champions-League-squad-latest-blow-Italian-three-injured-stars-youngster-three-Premier-League-appearances-make-cut-instead.html) - **Dailymail.com**
-6. [Official: Man United complete permanent departure of academy forward 48 hours after transfer deadline](https://thepeoplesperson.com/2026/09/03/official-man-united-complete-permanent-departure-of-academy-forward-48-hours-after-transfer-deadline-315008/) - **The Peoples Person**
-7. [Monaco drops Balogun from Conference League roster after Everton transfer collapse](https://www.usatoday.com/story/sports/soccer/usmnt/2026/09/03/monaco-balogun-uefa-conference-league-roster-everton-transfer/91600328007/) - **USA Today**
-8. [Liverpool Champions League snub leaves two stars facing uncertain futures](https://www.hitc.com/liverpool-champions-league-snub-leaves-two-stars-facing-uncertain-futures/) - **HITC - Football, Gaming, Movies, TV, Music**
-9. [Chiesa & Endo not in Liverpool's Champions League squad](https://www.bbc.com/sport/football/articles/cr4vnzpw57lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Chiesa & Endo not in Liverpool's Champions League squad](https://www.bbc.co.uk/sport/football/articles/cr4vnzpw57lo) - **BBC News**
+1. [Arsenal brace for Chelsea test as Spurs seek spark](https://sports.yahoo.com/articles/arsenal-brace-chelsea-test-spurs-033154122.html) - **Yahoo Entertainment**
+2. [6 reasons why the Chargers need to prioritize extending Tuli Tuipulotu](https://chargerswire.usatoday.com/story/sports/nfl/chargers/2026/09/03/chargers-tuli-tuipulotu-contract-extension-salary/91603249007/) - **USA Today**
+3. [Bundesliga brings the band back together in Premier League's shadow](https://sports.yahoo.com/articles/bundesliga-brings-band-back-together-025837192.html) - **Yahoo Entertainment**
+4. [Hull City Handed Blunt Update on Injured Players’ Status](https://heavy.com/sports/soccer/premier-league/hull-city-blunt-update-injured-players/) - **Heavy.com**
+5. [Premier League transfer windfall a lifeline for ailing French clubs](https://sports.yahoo.com/articles/premier-league-transfer-windfall-lifeline-010927002.html) - **Yahoo Entertainment**
+6. [Why Roberto De Zerbi still thinks he can get the best out of 'future Ballon d'Or winner' Mykhailo Mudryk at Tottenham, from their Shakhtar secrets to the 'hope' of Spurs' forward line](https://www.dailymail.com/sport/football/article-16102053/Tottenham-Mykhailo-Mudryk-Roberto-Zerbi.html) - **Dailymail.com**
+7. [5 reasons why the Chargers can win the AFC West](https://chargerswire.usatoday.com/story/sports/nfl/chargers/2026/09/03/chargers-afc-west-winners-justin-herbert-mike-mcdaniel-jim-harbaugh/91599417007/) - **USA Today**
+8. [Could the Angels build a new ballpark? 'There is a lot of potential'](https://www.usatoday.com/story/sports/mlb/angels/2026/09/03/los-angeles-angels-potential-new-stadium-anaheim/91584134007/) - **USA Today**
+9. [Azeez targets EPL stability after Brighton move](https://punchng.com/azeez-targets-epl-stability-after-brighton-move/) - **The Punch**
+10. [Zawyer Sports & Entertainment Acquire Controlling Interest of Huntsville Havoc](https://www.huntsvillehavoc.com/zawyer) - **Huntsvillehavoc.com**
 
 
 ---
-*최근 업데이트: 2026-09-05 08:48:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-05 12:35:37 (KST) / (하루 100회 제한 준수 중)*
