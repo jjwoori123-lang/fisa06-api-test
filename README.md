@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal brace for Chelsea test as Spurs seek spark](https://sports.yahoo.com/articles/arsenal-brace-chelsea-test-spurs-033154122.html) - **Yahoo Entertainment**
-2. [6 reasons why the Chargers need to prioritize extending Tuli Tuipulotu](https://chargerswire.usatoday.com/story/sports/nfl/chargers/2026/09/03/chargers-tuli-tuipulotu-contract-extension-salary/91603249007/) - **USA Today**
-3. [Bundesliga brings the band back together in Premier League's shadow](https://sports.yahoo.com/articles/bundesliga-brings-band-back-together-025837192.html) - **Yahoo Entertainment**
-4. [Hull City Handed Blunt Update on Injured Players’ Status](https://heavy.com/sports/soccer/premier-league/hull-city-blunt-update-injured-players/) - **Heavy.com**
-5. [Premier League transfer windfall a lifeline for ailing French clubs](https://sports.yahoo.com/articles/premier-league-transfer-windfall-lifeline-010927002.html) - **Yahoo Entertainment**
-6. [Why Roberto De Zerbi still thinks he can get the best out of 'future Ballon d'Or winner' Mykhailo Mudryk at Tottenham, from their Shakhtar secrets to the 'hope' of Spurs' forward line](https://www.dailymail.com/sport/football/article-16102053/Tottenham-Mykhailo-Mudryk-Roberto-Zerbi.html) - **Dailymail.com**
-7. [5 reasons why the Chargers can win the AFC West](https://chargerswire.usatoday.com/story/sports/nfl/chargers/2026/09/03/chargers-afc-west-winners-justin-herbert-mike-mcdaniel-jim-harbaugh/91599417007/) - **USA Today**
-8. [Could the Angels build a new ballpark? 'There is a lot of potential'](https://www.usatoday.com/story/sports/mlb/angels/2026/09/03/los-angeles-angels-potential-new-stadium-anaheim/91584134007/) - **USA Today**
-9. [Azeez targets EPL stability after Brighton move](https://punchng.com/azeez-targets-epl-stability-after-brighton-move/) - **The Punch**
-10. [Zawyer Sports & Entertainment Acquire Controlling Interest of Huntsville Havoc](https://www.huntsvillehavoc.com/zawyer) - **Huntsvillehavoc.com**
+1. [Report: Everton considering move to sign former Manchester United forward](https://eplindex.com/150126/report-everton-considering-move-to-sign-former-manchester-united-forward.html) - **English Premier League Index - Opta Stats**
+2. [Ex France Star Sagna: ‘Fabregas To Replace Flick At Barcelona’ – Maresca & Guardiola ‘Have Same DNA’](https://football-italia.net/sagna-fabregas-flick-barcelona-arsenal/) - **Football Italia**
+3. [What? Alexander Isak has an unlikely rival to his No9 position at Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/what-alexander-isak-has-an-unlikely-rival-to-his-no9-position-at-liverpool/) - **Anfieldwatch.co.uk**
+4. [Today’s Papers – Gasp hopes for Malen’s record, Milan focus on top renewals](https://football-italia.net/todays-papers-gasp-malen-milan-renewals/) - **Football Italia**
+5. [Roy Keane's £25m son-in-law Taylor Harwood-Bellis is left OUT of Aston Villa's Champions League squad - just two days after saying 'I can't wait to show what I can do' in the competition](https://www.dailymail.com/sport/football/article-16104649/Harwood-Bellis-left-Villas-Champions-League-squad-saying-wait-play-it.html) - **Dailymail.com**
+6. [fplkit 2.4.0](https://pypi.org/project/fplkit/2.4.0/) - **Pypi.org**
+7. [Complicated deal explained as Liverpool bolster their attack](https://www.anfieldwatch.co.uk/liverpool-fc/news/complicated-deal-explained-as-liverpool-bolster-their-attack/) - **Anfieldwatch.co.uk**
+8. [Arsenal v Chelsea: Sunday at 4.30pm](https://untold-arsenal.com/archives/122756) - **Untold-arsenal.com**
+9. [Jaissle Rubbishes Osula Injury Rumour | Press Conference | Vs Bournemouth](https://roundtable.io/sports/soccer/premier-league/newcastle-united/news/jaissle-rubbishes-osula-injury-rumour-press-conference-vs-bournemouth) - **Roundtable.io**
+10. [From playing with Rashford to non-league and new career](https://www.bbc.com/sport/football/articles/cjdvkn8y5gvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-09-05 12:35:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-05 16:51:22 (KST) / (하루 100회 제한 준수 중)*
