@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [(VIDEO) Where To Watch Manchester City Vs. Coventry City Live: Premier League Kickoff Time, TV Channel Today](https://www.ibtimes.com.au/manchester-city-vs-coventry-city-premier-league-clash-1875067) - **Ibtimes.com.au**
-2. [Brighton host Leeds in Premier League Matchweek 3 as both clubs chase top-half finish](https://cryptobriefing.com/brighton-vs-leeds-premier-league-matchweek-3/) - **Crypto Briefing**
-3. [Why is Nico O'Reilly not playing for Manchester City vs. Coventry?](https://www.usatoday.com/story/sports/soccer/epl/2026/09/05/nico-oreilly-not-starting-for-man-city-vs-coventry/91627709007/) - **USA Today**
-4. [Newcastle 2-2 Bournemouth: What Rose said](https://www.bbc.com/sport/football/articles/c5yweex151eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Athletic Club locks down Nico Williams with decade-long deal worth over €200M](https://cryptobriefing.com/nico-williams-athletic-club-decade-deal/) - **Crypto Briefing**
-6. [Ramsey scores late equaliser for Newcastle to deny Bournemouth](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260905-930-638132/) - **Dpa-international.com**
-7. [Bradley Barcola already leads this Premier League stat after Liverpool debut](https://anfieldindex.com/99473/bradley-barcola-already-leads-this-premier-league-stat-after-liverpool-debut.html) - **Anfieldindex.com**
-8. [Newcastle rallies to draw 2-2 with Bournemouth in the Premier League](https://sports.yahoo.com/articles/newcastle-rallies-draw-2-2-135055844.html) - **Yahoo Entertainment**
-9. [Premier League: Newcastle and Bournemouth share spoils](https://www.rte.ie/sport/soccer/2026/0905/1590431-premier-league-newcastle-and-bournemouth-share-spoils/) - **RTE**
-10. [Premier League: Build-up to five games after Newcastle draw 2-2 with Bournemouth](https://www.bbc.com/sport/football/live/cqr7dedzlmjgt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Black flag protest by govt staff sparks face-off with police](https://timesofindia.indiatimes.com/city/chandigarh/black-flag-protest-by-govt-staff-sparks-face-off-with-police/articleshow/133809505.cms) - **The Times of India**
+2. [Govt updates legal framework on CBI’s jurisdiction in Bihar](https://timesofindia.indiatimes.com/city/patna/govt-updates-legal-framework-on-cbis-jurisdiction-in-bihar/articleshow/133809501.cms) - **The Times of India**
+3. [No mercy for KPSC exam fraudsters, says Priyank Kharge](https://timesofindia.indiatimes.com/city/hubballi/no-mercy-for-kpsc-exam-fraudsters-says-priyank-kharge/articleshow/133809500.cms) - **The Times of India**
+4. [Delhi fraudster held for defrauding Ambala man](https://timesofindia.indiatimes.com/city/chandigarh/delhi-fraudster-held-for-defrauding-ambala-man/articleshow/133809482.cms) - **The Times of India**
+5. [Newborn's mutilated body parts found in Chamba](https://timesofindia.indiatimes.com/city/chandigarh/newborns-mutilated-body-parts-found-in-chamba/articleshow/133809470.cms) - **The Times of India**
+6. [NWKRTC rolls out 312 special buses for Ganesha festival rush](https://timesofindia.indiatimes.com/city/hubballi/nwkrtc-rolls-out-312-special-buses-for-ganesha-festival-rush/articleshow/133809436.cms) - **The Times of India**
+7. [Ballari Chalo padayatra crosses 100-km mark](https://timesofindia.indiatimes.com/city/hubballi/ballari-chalo-padayatra-crosses-100-km-mark/articleshow/133809426.cms) - **The Times of India**
+8. [De Zerbi, Tonali and Udogie misery continues after Tottenham held by Forest](https://football-italia.net/de-zerbi-tonali-and-udogie-misery-spurs-forest/) - **Football Italia**
+9. [AP faces hot, humid Sept as El Nino suppresses rainfall](https://timesofindia.indiatimes.com/city/vijayawada/ap-faces-hot-humid-sept-as-el-nino-suppresses-rainfall/articleshow/133809341.cms) - **The Times of India**
+10. [Bentancur And Tonali Get 7.5 | Tottenham Hotspur Players Rated In Hard-Fought Draw Vs Nottingham Forest](https://the4thofficial.net/2026/09/bentancur-and-tonali-get-7-5-tottenham-hotspur-players-rated-in-hard-fought-draw-vs-nottingham-forest/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-09-06 23:14:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-07 02:08:12 (KST) / (하루 100회 제한 준수 중)*
