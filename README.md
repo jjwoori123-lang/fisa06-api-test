@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal had more than 20 players on shortlist to capitalise on title win](https://www.bbc.com/sport/football/articles/cz7z09v9pp1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Manchester United Are Still Keen On Signing This League One Midfielder: One For The Future?](https://the4thofficial.net/2026/09/manchester-united-are-still-keen-on-signing-this-league-one-midfielder/) - **The4thofficial.net**
-3. [Suzuki Gets 7.5, Kamara With 7 | Aston Villa Players Rated In Lackluster Draw Vs Hull City](https://the4thofficial.net/2026/09/suzuki-gets-7-5-kamara-with-7-aston-villa-players-rated-in-lackluster-draw-vs-hull-city/) - **The4thofficial.net**
-4. [Arsenal had more than 20 players on shortlist to capitalise on title win](https://www.bbc.co.uk/sport/football/articles/cz7z09v9pp1o) - **BBC News**
-5. [EPL: Hull City hold Villa to dour draw as Tigers extend unbeaten start](https://punchng.com/epl-hull-city-hold-villa-to-dour-draw-as-tigers-extend-unbeaten-start/) - **The Punch**
-6. [Haaland celebrates 300th club goal after Coventry win](https://punchng.com/haaland-celebrates-300th-club-goal-after-coventry-win/) - **The Punch**
-7. [Philippe Coutinho is back at Liverpool and it isn't Florian Wirtz](https://www.anfieldwatch.co.uk/liverpool-fc/news/philippe-coutinho-is-back-at-liverpool-and-it-isnt-florian-wirtz/) - **Anfieldwatch.co.uk**
-8. [What happened to Aaron Ramsdale as ex-Gunner drops to 4th choice at Southampton?](https://dailycannon.com/2026/09/what-happened-aaron-ramsdale/) - **Dailycannon.com**
-9. [Fernandez Could Be Key To Serious Man City Challenge](https://worldfootballindex.com/2026/09/fernandez-could-be-key-to-serious-man-city-challenge/) - **World Football Index**
-10. [Haaland makes it three wins from three for City, first point for Spurs](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260905-930-639197/) - **Dpa-international.com**
+1. [Hansi Flick confirms Gabriel Jesus plans for Barcelona vs Valencia](https://getfootballnewsspain.com/hansi-flick-confirms-gabriel-jesus-plans-for-barcelona-vs-valencia/) - **Getfootballnewsspain.com**
+2. [Airport hackers publish personal data of judge, politicians and celebrities on the dark web](https://www.dailymail.com/news/article-16108145/Airport-hackers-publish-personal-data-judge.html) - **Dailymail.com**
+3. [Round 3: Juventus vs. AC Milan match preview](https://www.blackwhitereadallover.com/previews-reviews/41002/juventus-ac-milan-2026-serie-a-matchday-3-preview-team-news-schedule-how-to-watch) - **Black & White & Read All Over**
+4. [Seven points from three games - are Hull on track to avoid relegation?](https://www.bbc.com/sport/football/articles/cy8zd574yzyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Seven points from three games - are Hull on track to avoid relegation?](https://www.bbc.co.uk/sport/football/articles/cy8zd574yzyo) - **BBC News**
+6. [Some at Man United are still not convinced by “amazing” wonderkid who starred in pre-season](https://thepeoplesperson.com/2026/09/05/some-at-man-united-are-still-not-convinced-by-amazing-wonderkid-who-starred-in-pre-season-315113/) - **The Peoples Person**
+7. [De Zerbi claims Tottenham need time to gel after another winless outing](https://www.101greatgoals.com/football/premier-league/de-zerbi-claims-tottenham-need-time-to-gel/) - **101 Great Goals**
+8. [WATCH: Manchester United captain Bruno Fernandes sends heartfelt video message to little boy injured in tragic M9 crash after the club learn that he's a huge Red Devils fan](https://www.dailymail.com/news/article-16108223/WATCH-Manchester-United-captain-Bruno-Fernandes-sends-heartfelt-video-message-little-boy-injured-tragic-M9-crash-club-learn-hes-huge-Red-Devils-fan.html) - **Dailymail.com**
+9. [Everton vs Manchester United: Match Preview| Toffees seek response after tumultuous week](https://royalbluemersey.sbnation.com/everton-2026-27-season-premier-league/82975/everton-vs-manchester-united-match-preview-toffees-seek-response-after-tumultuous-week) - **SB Nation**
+10. [How the Panthers and Warriors can win the NRL minor premiership](https://www.abc.net.au/news/2026-09-06/how-panthers-and-warriors-can-win-nrl-minor-premiership/107120396) - **ABC News (AU)**
 
 
 ---
-*최근 업데이트: 2026-09-07 04:16:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-07 06:27:13 (KST) / (하루 100회 제한 준수 중)*
