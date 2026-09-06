@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Enzo Maresca explains where a World Cup winner will fit in at Manchester City](https://esteemedkompany.com/2026/09/05/enzo-maresca-explains-where-a-world-cup-winner-will-fit-in-at-manchester-city/) - **Esteemedkompany.com**
-2. [Man Utd made midfield recruitment summer priority - what happens now?](https://www.bbc.com/sport/football/articles/c4gq2v5m5gpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [The new Manchester City midfield mix will be crucial to City’s chances this season](https://esteemedkompany.com/2026/09/05/the-new-manchester-city-midfield-mix-will-be-crucial-to-citys-chances-this-season/) - **Esteemedkompany.com**
-4. [Haway The Podcast | MATCH PREVIEW | Will Sunderland BEAT Brentford?](https://rokerreport.sbnation.com/haway-the-podcast/151772/haway-the-podcast-match-preview-will-sunderland-beat-brentford) - **SB Nation**
-5. [United complete two academy signings, including teenage midfielder from Leicester City](https://thepeoplesperson.com/2026/09/05/united-complete-two-academy-signings-including-teenage-midfielder-from-leicester-city-315072/) - **The Peoples Person**
-6. [The Football Interview S02E03 1080p WEB-DL H264-7VFr33104D](https://post.rlsbb.cc/the-football-interview-s02e03-1080p-web-dl-h264-7vfr33104d/) - **Rlsbb.cc**
-7. [Ex-world champ Bruno delivers footballs to parks](https://www.bbc.com/news/articles/c33kznkejdyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Manchester City vs Coventry City: Latest City team news and predicted City starting eleven for today’s match](https://esteemedkompany.com/2026/09/05/manchester-city-vs-coventry-city-latest-city-team-news-and-predicted-city-starting-eleven-for-todays-match/) - **Esteemedkompany.com**
-9. [Hull City vs Aston Villa – Predicted lineup and team news](https://thefootballfaithful.com/hull-city-vs-aston-villa-predicted-lineup-and-team-news/) - **The Football Faithful**
-10. [Aston Villa XI vs Hull City – Predicted lineup and team news](https://thefootballfaithful.com/aston-villa-xi-vs-hull-city-predicted-lineup-and-team-news/) - **The Football Faithful**
+1. [How to watch Man City vs Coventry: Live streams, TV channels for Premier League 2026/27](https://www.techradar.com/how-to-watch/football/man-city-vs-coventry-live-streams-premier-league-2026-27) - **TechRadar**
+2. [Nottingham Forest vs Tottenham team news LIVE!](https://www.skysports.com/football/live-blog/12309/13572127/nottingham-forest-vs-tottenham-live-premier-league-score-updates-news-prediction-and-lineups) - **Sky Sports**
+3. [How to watch Western Michigan vs No. 16 Michigan: TV, live stream, preview for tonight's game](https://www.nbcsports.com/college-football/news/how-to-watch-western-michigan-vs-no-16-michigan-tv-live-stream-preview-for-tonights-game) - **NBCSports.com**
+4. [How to watch Nottm Forest vs Tottenham: Live streams and TV channels for the Premier League 2026/27 game](https://www.techradar.com/how-to-watch/football/how-to-watch-nottm-forest-vs-tottenham-live-streams-and-tv-channels-for-the-premier-league-2026-27-game) - **TechRadar**
+5. [Coach Jakirović signs new Hull deal after perfect EPL start](https://punchng.com/coach-jakirovic-signs-new-hull-deal-after-perfect-epl-start/) - **The Punch**
+6. [Bournemouth, Newcastle United reveal starting lineups for EPL clash](https://cryptobriefing.com/bournemouth-newcastle-epl-starting-lineups/) - **Crypto Briefing**
+7. [Newcastle United hosts Bournemouth in busy Premier League Saturday](https://cryptobriefing.com/newcastle-bournemouth-premier-league-saturday/) - **Crypto Briefing**
+8. [Newcastle v Bournemouth: Line-ups confirmed for early kick-off](https://www.101greatgoals.com/football/newcastle-v-bournemouth-line-ups-confirmed-for-early-kick-off/) - **101 Great Goals**
+9. [Andy Gray is handed return to UK broadcasting - covering Liverpool in his first game back - over a decade after leaving the country with Richard Keys in wake of Sky Sports sexism row](https://www.dailymail.com/sport/football/article-16107391/Andy-Gray-handed-return-UK-broadcasting-covering-Liverpool-game-decade-leaving-country-Richard-Keys-wake-Sky-Sports-sexism-row.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-09-06 15:02:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-06 20:05:22 (KST) / (하루 100회 제한 준수 중)*
