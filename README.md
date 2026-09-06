@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Black flag protest by govt staff sparks face-off with police](https://timesofindia.indiatimes.com/city/chandigarh/black-flag-protest-by-govt-staff-sparks-face-off-with-police/articleshow/133809505.cms) - **The Times of India**
-2. [Govt updates legal framework on CBI’s jurisdiction in Bihar](https://timesofindia.indiatimes.com/city/patna/govt-updates-legal-framework-on-cbis-jurisdiction-in-bihar/articleshow/133809501.cms) - **The Times of India**
-3. [No mercy for KPSC exam fraudsters, says Priyank Kharge](https://timesofindia.indiatimes.com/city/hubballi/no-mercy-for-kpsc-exam-fraudsters-says-priyank-kharge/articleshow/133809500.cms) - **The Times of India**
-4. [Delhi fraudster held for defrauding Ambala man](https://timesofindia.indiatimes.com/city/chandigarh/delhi-fraudster-held-for-defrauding-ambala-man/articleshow/133809482.cms) - **The Times of India**
-5. [Newborn's mutilated body parts found in Chamba](https://timesofindia.indiatimes.com/city/chandigarh/newborns-mutilated-body-parts-found-in-chamba/articleshow/133809470.cms) - **The Times of India**
-6. [NWKRTC rolls out 312 special buses for Ganesha festival rush](https://timesofindia.indiatimes.com/city/hubballi/nwkrtc-rolls-out-312-special-buses-for-ganesha-festival-rush/articleshow/133809436.cms) - **The Times of India**
-7. [Ballari Chalo padayatra crosses 100-km mark](https://timesofindia.indiatimes.com/city/hubballi/ballari-chalo-padayatra-crosses-100-km-mark/articleshow/133809426.cms) - **The Times of India**
-8. [De Zerbi, Tonali and Udogie misery continues after Tottenham held by Forest](https://football-italia.net/de-zerbi-tonali-and-udogie-misery-spurs-forest/) - **Football Italia**
-9. [AP faces hot, humid Sept as El Nino suppresses rainfall](https://timesofindia.indiatimes.com/city/vijayawada/ap-faces-hot-humid-sept-as-el-nino-suppresses-rainfall/articleshow/133809341.cms) - **The Times of India**
-10. [Bentancur And Tonali Get 7.5 | Tottenham Hotspur Players Rated In Hard-Fought Draw Vs Nottingham Forest](https://the4thofficial.net/2026/09/bentancur-and-tonali-get-7-5-tottenham-hotspur-players-rated-in-hard-fought-draw-vs-nottingham-forest/) - **The4thofficial.net**
+1. [Arsenal had more than 20 players on shortlist to capitalise on title win](https://www.bbc.com/sport/football/articles/cz7z09v9pp1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Manchester United Are Still Keen On Signing This League One Midfielder: One For The Future?](https://the4thofficial.net/2026/09/manchester-united-are-still-keen-on-signing-this-league-one-midfielder/) - **The4thofficial.net**
+3. [Suzuki Gets 7.5, Kamara With 7 | Aston Villa Players Rated In Lackluster Draw Vs Hull City](https://the4thofficial.net/2026/09/suzuki-gets-7-5-kamara-with-7-aston-villa-players-rated-in-lackluster-draw-vs-hull-city/) - **The4thofficial.net**
+4. [Arsenal had more than 20 players on shortlist to capitalise on title win](https://www.bbc.co.uk/sport/football/articles/cz7z09v9pp1o) - **BBC News**
+5. [EPL: Hull City hold Villa to dour draw as Tigers extend unbeaten start](https://punchng.com/epl-hull-city-hold-villa-to-dour-draw-as-tigers-extend-unbeaten-start/) - **The Punch**
+6. [Haaland celebrates 300th club goal after Coventry win](https://punchng.com/haaland-celebrates-300th-club-goal-after-coventry-win/) - **The Punch**
+7. [Philippe Coutinho is back at Liverpool and it isn't Florian Wirtz](https://www.anfieldwatch.co.uk/liverpool-fc/news/philippe-coutinho-is-back-at-liverpool-and-it-isnt-florian-wirtz/) - **Anfieldwatch.co.uk**
+8. [What happened to Aaron Ramsdale as ex-Gunner drops to 4th choice at Southampton?](https://dailycannon.com/2026/09/what-happened-aaron-ramsdale/) - **Dailycannon.com**
+9. [Fernandez Could Be Key To Serious Man City Challenge](https://worldfootballindex.com/2026/09/fernandez-could-be-key-to-serious-man-city-challenge/) - **World Football Index**
+10. [Haaland makes it three wins from three for City, first point for Spurs](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260905-930-639197/) - **Dpa-international.com**
 
 
 ---
-*최근 업데이트: 2026-09-07 02:08:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-07 04:16:51 (KST) / (하루 100회 제한 준수 중)*
