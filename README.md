@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea were told to 'respect' the ball by Liam Rosenior and now they are winning by rejecting it - but history tells us Xabi Alonso's side cannot win the Premier League averaging 32% possession, writes KIERAN GILL](https://www.dailymail.com/sport/football/article-16106741/Chelsea-told-respect-ball-Liam-Rosenior-winning-rejecting-history-tells-Xabi-Alonsos-win-Premier-League-averaging-32-possession-writes-KIERAN-GILL.html) - **Dailymail.com**
-2. [Why Nottingham Forest are yet to hit their stride under Oliver Glasner: Morgan Gibbs-White has another gear to find - and £50m signing Liam Delap must discover his speciality](https://www.dailymail.com/sport/football/article-16108535/Why-Nottingham-Forest-hit-stride-Oliver-Glasner.html) - **Dailymail.com**
-3. [World Cup to MLS: 12 summer signings you need to know](https://www.mlssoccer.com/news/world-cup-to-mls-12-summer-signings-you-need-to-know) - **MLSsoccer.com**
-4. [Christian Pulisic set to learn his Milan fate soon as date for crucial contract talks emerges](https://worldsoccertalk.com/news/christian-pulisic-set-to-learn-his-milan-fate-soon-as-date-for-crucial-contract-talks-emerges/) - **Worldsoccertalk.com**
-5. [retro-roster-patcher added to PyPI](https://pypi.org/project/retro-roster-patcher/) - **Pypi.org**
-6. [Valencia vs Barcelona, La Liga: Preview](https://www.barcablaugranes.com/barcelona-la-liga/131608/valencia-barcelona-la-liga-team-news-match-preview-lineups-prediction) - **Barca Blaugranes**
-7. [Man United were interested in a move for Chelsea speed demon in the summer to add firepower up front](https://thepeoplesperson.com/2026/09/05/man-united-were-interested-in-a-move-for-chelsea-speed-demon-in-the-summer-to-add-firepower-up-front-315010/) - **The Peoples Person**
-8. [The Arsenal star who is 'seemingly perfect', Man City's 'calculated risk'... and the man Spurs massively overpaid for: Our verdict on the Premier League's 10 most expensive signings of the summer](https://www.dailymail.com/sport/football/article-16069417/Premier-League-10-expensive-summer-signings.html) - **Dailymail.com**
-9. [Every word of Michael Carrick’s embargoed Everton pre-match press conference](https://thepeoplesperson.com/2026/09/05/every-word-michael-carrick-embargoed-everton-pre-match-press-conference-315114/) - **The Peoples Person**
-10. [Liverpool can capitalise on Euro giants huge mistake, they’re in the money](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-can-capitalise-on-euro-giants-huge-mistake-theyre-in-the-money/) - **Anfieldwatch.co.uk**
+1. [Arsenal v Chelsea: what’s happened so far?](https://untold-arsenal.com/archives/122786) - **Untold-arsenal.com**
+2. [Mega deal isn't world-class! Will this scandal-hit star be a flop?](https://onefootball.com/en/news/mega-deal-isnt-world-class-will-this-scandal-hit-star-be-a-flop-43410638) - **Onefootball.com**
+3. [Arsenal see former Real Madrid academy graduate as a ‘realistic’ target](https://madriduniversal.com/arsenal-see-former-real-madrid-academy-graduate-as-a-realistic-target/) - **Madriduniversal.com**
+4. [How to watch Arsenal vs Chelsea](https://www.skysports.com/football/news/11670/13580927/arsenal-vs-chelsea-how-to-watch-premier-league-contest-tv-channel-live-stream-now-tv-and-score-prediction) - **Sky Sports**
+5. [How to watch Everton vs Man Utd](https://www.skysports.com/football/news/11671/13580450/everton-vs-man-utd-how-to-watch-premier-league-contest-tv-channel-live-stream-now-tv-and-score-prediction) - **Sky Sports**
+6. [Alex Iwobi’s remarkable milestone: Becomes fifth player with 100+ EPL appearances for three clubs](https://www.footballmuse.com/news/alex-iwobis-remarkable-milestone-becomes-fifth-player-with-100-epl-appearances-for-three-clubs) - **Footballmuse.com**
+7. [The Manchester City keeper was crucial to his team’s win over Coventry although he did provide a scare](https://esteemedkompany.com/2026/09/06/the-manchester-city-keeper-was-crucial-to-his-teams-win-over-coventry-although-he-did-provide-a-scare/) - **Esteemedkompany.com**
+8. [3 passes, 0 shots, 1 yellow: United were right to not sign reckless 22-yo star](https://thepeoplesperson.com/2026/09/06/3-passes-0-shots-1-yellow-united-were-right-to-not-sign-reckless-22-yo-star-315120/) - **The Peoples Person**
+9. [A masterful midfield display from a midfield monster helped Manchester City see off Coventry City](https://esteemedkompany.com/2026/09/06/a-masterful-midfield-display-from-a-midfield-monster-helped-manchester-city-see-off-coventry-city/) - **Esteemedkompany.com**
+10. [Arsenal vs Chelsea – Match preview and team news](https://thefootballfaithful.com/arsenal-vs-chelsea-match-preview-and-team-news-3/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-09-07 10:06:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-07 15:10:48 (KST) / (하루 100회 제한 준수 중)*
