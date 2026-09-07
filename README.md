@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Haaland will need to rest sometimes, says Maresca](https://www.mancity.com/news/mens/enzo-maresca-coventry-reaction-embargo-63924214) - **Manchester City FC**
-2. [£10m Leeds United Star Ruled Out Of Chelsea Cup Clash: Will It Affect Daniel Farke?](https://the4thofficial.net/2026/09/10m-leeds-united-star-ruled-out-of-chelsea-cup-clash-will-it-affect-daniel-farke/) - **The4thofficial.net**
-3. [German midfielder Mika Baur believes Celtic are building momentum ahead of back-to-back derbies](https://www.dailymail.com/sport/football/article-16109501/German-midfielder-Mika-Baur-believes-Celtic-building-momentum-ahead-derbies.html) - **Dailymail.com**
-4. [When Man City call you don't say no - Ndiaye](https://www.bbc.com/sport/football/articles/cdx5vxpl37zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [When Man City call you don't say no - Ndiaye](https://www.bbc.co.uk/sport/football/articles/cdx5vxpl37zo) - **BBC News**
-6. [Maresca on Man City rotation dilemma ahead of Champions League clash](https://hayters.com/maresca-on-man-city-rotation-dilemma-ahead-of-champions-league-clash/) - **Hayters.com**
-7. [Ligue 1 Side Reveal Why They Took Underperforming West Ham Player: Right Choice For The Hammers?](https://the4thofficial.net/2026/09/ligue-1-side-reveal-why-they-took-underperforming-west-ham-player-right-choice-for-the-hammers/) - **The4thofficial.net**
-8. [Mikel Arteta hails Arsenal’s display in win against Chelsea](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260906-930-643838/) - **Dpa-international.com**
-9. [Philadelphia Union Star Cavan Sullivan’s 1-of-1 MLS Rookie Card Makes History at Auction](https://heavy.com/sports/cards/philadelphia-union-cavan-sullivan-rookie-history/) - **Heavy.com**
-10. [Football Daily](https://www.bbc.co.uk/sounds/play/m00319lp?at_campaign=rss) - **BBC News**
+1. [Premier League women’s team follows WNBA and NWSL lead in major fertility treatment support](https://www.hitc.com/premier-league-womens-team-follows-wnba-and-nwsl-lead-in-major-fertility-treatment-support/) - **HITC - Football, Gaming, Movies, TV, Music**
+2. [Gabriel was 'extremely lucky' to avoid red - Rooney](https://www.bbc.co.uk/sport/football/videos/cgk531g8gr2o) - **BBC News**
+3. [Rams coach Sean McVay breaks silence on Puka Nacua’s week 1 status](https://www.sportingnews.com/us/nfl/los-angeles-rams/news/rams-coach-sean-mcvay-breaks-silence-puka-nacuas-week-1/f8c46e629cd019873bbccee8) - **Sporting News**
+4. [Odegaard 'desire' in Chelsea win impresses Rooney](https://www.bbc.co.uk/sport/football/videos/c8e34k1r3j9o) - **BBC News**
+5. [Juventus 1 – AC Milan 1: Initial reaction and random observations](https://www.blackwhitereadallover.com/previews-reviews/41284/juventus-ac-milan-2026-serie-a-matchday-3-final-score-result-initial-reaction-and-random-observations) - **Black & White & Read All Over**
+6. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/cd947djg1zpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Who has made Troy's Premier League team of the week?](https://www.bbc.co.uk/sport/football/articles/cd947djg1zpo) - **BBC News**
+8. [Arteta 'enjoyed every minute' of 'beautiful' comeback](https://www.rte.ie/sport/soccer/2026/0906/1590519-arteta-enjoyed-every-minute-of-beautiful-comeback/) - **RTE**
+9. [Papers: Ex Man-Utd winger Sancho set for stunning Borussia Dortmund return](https://www.skysports.com/football/transfer-paper-talk/12709/13582586/transfer-news-former-manchester-united-and-england-winger-jadon-sancho-lined-up-for-stunning-borussia-dortmund-return-paper-talk) - **Sky Sports**
+10. [Juventus message sent by Gatti and Conceicao: ‘Never give in, fight against everyone’](https://football-italia.net/juventus-message-gatti-conceicao-never-give-in/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-09-08 06:35:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-08 08:44:58 (KST) / (하루 100회 제한 준수 중)*
