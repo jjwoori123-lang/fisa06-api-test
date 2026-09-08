@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [BBL privatisation and what it means: Will we see IPL teams invest in the Big Bash League?](https://www.cricketnews.com/en/cricket/news/bbl-privatisation-means-will-ipl-teams-invest-big-bash-league/a87661b8b044a672a711d1c9) - **Cricketnews.com**
-2. [Arsenal's Gabriel 'extremely lucky' to avoid red card in Chelsea derby](https://www.alloutsoccer.com/news/arsenal-gabriel-martinez-chelsea-foul-2014258) - **Alloutsoccer.com**
-3. [Inside Kevin Pietersen's shock England SOS: The figure who pushed for his appointment revealed, the ways he's expected to shake up the dressing room - and his added motivation to get close to key players](https://www.dailymail.com/sport/cricket/article-16112133/kevin-pietersen-england-coaching-move.html) - **Dailymail.com**
-4. [Bohs 'onto something' as season comes to a boil - Cawley](https://www.rte.ie/sport/soccer/2026/0907/1590647-bohs-onto-something-as-season-comes-to-a-boil-cawley/) - **RTE**
-5. [Liverpool transfer target confirms he's ready for move](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-target-confirms-hes-ready-for-move/) - **Anfieldwatch.co.uk**
-6. [Mauricio Pochettino plots USMNT's 'fresh start' as focus shifts to 2030 World Cup](https://sports.yahoo.com/soccer/article/mauricio-pochettino-plots-usmnts-fresh-start-as-focus-shifts-to-2030-world-cup-170644767.html) - **Yahoo Entertainment**
-7. [Wolves confirm signing of former Chelsea winger](https://hayters.com/wolves-confirm-signing-of-former-chelsea-winger/) - **Hayters.com**
-8. [‘We expect more’ – Burnley boss delivers Reo Hatate verdict after debut assist](https://celticshorts.com/2026/09/we-expect-more-burnley-boss-delivers-reo-hatate-verdict-after-debut-assist/) - **Celticshorts.com**
-9. [Kenny Cunningham: ‘It would be a good thing to see the Israeli team come on to the pitch in Dublin’](https://www.irishtimes.com/sport/soccer/2026/09/07/kenny-cunningham-it-would-be-a-good-thing-to-see-the-israeli-team-come-on-to-the-pitch-in-dublin/) - **The Irish Times**
-10. [Arsenal having fun as title confidence breeds creativity: 'We know we can beat anybody'](https://www.nbcsports.com/soccer/news/arsenal-enjoying-themselves-as-confidence-breeds-creativity-we-know-we-can-beat-anybody) - **NBCSports.com**
+1. [Manchester United Are Eyeing A Move For This Bundesliga Talent: Good Option For Carrick?](https://the4thofficial.net/2026/09/manchester-united-are-eyeing-a-move-for-this-bundesliga-talent/) - **The4thofficial.net**
+2. [Graeme Souness rips into Declan Rice again - insisting he 'plays too deep' and 'might be a centre-half' - as legend claims Arsenal midfielder wouldn't get into any of Real Madrid, Barcelona or Man City's teams](https://www.dailymail.com/sport/football/article-16112329/Graeme-Souness-rips-Declan-Rice-plays-deep.html) - **Dailymail.com**
+3. [USMNT's Mauricio Pochettino says rising talents are in mix for first post-World Cup games: 'It's a new start'](https://www.cbssports.com/soccer/news/usmnts-mauricio-pochettino-says-rising-talents-are-in-mix-for-first-post-world-cup-games-its-a-new-start/) - **CBS Sports**
+4. [Chelsea Were Showing Interest In This Gifted Youngster: Should Alonso Go Back For Him In January?](https://the4thofficial.net/2026/09/chelsea-were-showing-interest-in-this-gifted-youngster-should-alonso-go-back-for-him-in-january/) - **The4thofficial.net**
+5. [Maresca: Now Haaland's the complete person - on and off the pitch](https://www.mancity.com/news/mens/enzo-maresca-fc-porto-v-manchester-city-preview-63924396) - **Manchester City FC**
+6. [Wonderkid confirms he will replace club legend at Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/wonderkid-confirms-he-will-replace-club-legend-at-liverpool/) - **Anfieldwatch.co.uk**
+7. [Zubimendi And Hincapie To Start | 4-2-3-1 Arsenal Predicted Lineup Vs Napoli](https://the4thofficial.net/2026/09/zubimendi-and-hincapie-to-start-4-2-3-1-arsenal-predicted-lineup-vs-napoli/) - **The4thofficial.net**
+8. [Official 2026 FIFA World Cup 30′′X60′′ Emblem Black Velvet Towel For $6.60 From Amazon](https://www.dansdeals.com/shopping-deals/amazon/official-2026-fifa-world-cup-30′′x60′′-emblem-black-velvet-towel-for-6-60-from-amazon/) - **Dansdeals.com**
+9. [Paolo Vanoli is Fiorentina’s new coach again](https://www.violanation.com/fiorentina-latest-news-updates/22863/paolo-vanoli-is-fiorentinas-new-coach-again) - **Violanation.com**
+10. [PREVIEW | Napoli vs Arsenal: team news, lineups, predictions (Champions League 09/09)](https://www.playmakerstats.com/news/preview-napoli-vs-arsenal-team-news-lineups-predictions-champions-league-09-09/1196382) - **Playmakerstats.com**
 
 
 ---
-*최근 업데이트: 2026-09-09 02:28:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-09 05:15:26 (KST) / (하루 100회 제한 준수 중)*
