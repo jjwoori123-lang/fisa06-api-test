@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Neville says Alonso must fix ‘all over the place’ Chelsea defence](https://thefootballfaithful.com/neville-says-alonso-must-fix-all-over-the-place-chelsea-defence/) - **The Football Faithful**
-2. [A game which could kick-start Coventry's season](https://www.bbc.com/sport/football/articles/cp8d5d5n5gno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [United could fix their fragile defence by signing veteran World Cup-winning defender on free transfer](https://thepeoplesperson.com/2026/09/07/united-could-fix-their-fragile-defence-by-signing-veteran-world-cup-winning-defender-on-free-transfer-315175/) - **The Peoples Person**
-4. [Can R Ashwin's Dublin Guardians still qualify for ETPL 2026 playoffs? Qualification scenario and chances detailed](https://www.cricketnews.com/en/cricket/news/can-r-ashwin-dublin-guardians-qualify-etpl-2026-playoffs/824c0f6622c37c2d46fa2c4e) - **Cricketnews.com**
-5. [Jersey Bulls defend well to force FA Cup replay](https://www.bbc.com/sport/football/articles/ce3r7vp61yno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Allen reaches 400-game milestone for Guernsey FC](https://www.bbc.com/sport/football/articles/c207wn9vd5ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [The Premier League Weekend as a Movie: The Good, the Bad and the Ugly](https://www.footballmuse.com/features/the-premier-league-weekend-as-a-movie-maitland-niles-arsenal-chelsea-odegaard) - **Footballmuse.com**
-8. [PSG go for three in a row as Champions League returns](https://www.vanguardngr.com/2026/09/psg-go-for-three-in-a-row-as-champions-league-returns/) - **Vanguard**
-9. [Obi Mikel backs PL wizard for surprise Man United move in 2027](https://thepeoplesperson.com/2026/09/07/obi-mikel-backs-pl-wizard-for-surprise-man-united-move-in-2027-315180/) - **The Peoples Person**
-10. [Euro Debrief: Parrott knocks Madrid off their perch as Barca show brilliance](https://www.skysports.com/football/news/11095/13580730/troy-parrott-stuns-old-boss-jose-mourinho-as-kylian-mbappe-costs-real-madrid-plus-lots-more-in-the-euro-debrief) - **Sky Sports**
+1. [Inter Prodigy Esposito Signs a Unique Contract](https://cultofcalcio.com/inter-prodigy-esposito-signs-a-unique-contract/) - **Cultofcalcio.com**
+2. [Monday Morning NFL Top 10 Rankings: Who Are The Best Teams Heading Into The Season?](https://www.foxsports.com/stories/nfl/nfl-power-rankings-top-10-seahawks-patriots-week-1) - **Fox Sports**
+3. [Wrexham announce new Sporting Director after Newcastle United exit](https://www.themag.co.uk/2026/09/wrexham-announce-new-sporting-director-after-newcastle-united-exit-steve-nickson/) - **The Mag**
+4. [Former Golden State Warriors champion addresses his NBA future](https://warriorswire.usatoday.com/story/sports/nba/warriors/2026/09/07/former-warriors-champion-addresses-his-future-as-he-nears-38/91648082007/) - **USA Today**
+5. [Top ten players coached by Jose Mourinho: Cristiano Ronaldo, Diego Milito, Samuel Eto'o, more](https://www.cbssports.com/soccer/news/real-madrid-inter-jose-mourinho-champions-league-cristiano-ronaldo-diego-milito-samuel-etoo/) - **CBS Sports**
+6. [Americans Abroad Player of the Week: Aidan Morris](https://sbisoccer.com/2026/09/americans-abroad-player-of-the-week-aidan-morris-2) - **Sbisoccer.com**
+7. [Pundits defend apparent disrespect to Liverpool Legend](https://anfieldindex.com/99602/pundits-defend-apparent-disrespect-to-liverpool-legend.html) - **Anfieldindex.com**
+8. [Ranking the NFL's 15 best tight ends for the 2026 season, from Brock Bowers to A.J. Barner](https://www.sportingnews.com/us/nfl/news/nfl-tight-end-rankings-2026/3569d4ea10334138fbaae0b1) - **Sporting News**
 
 
 ---
-*최근 업데이트: 2026-09-08 17:42:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-08 22:23:31 (KST) / (하루 100회 제한 준수 중)*
