@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Inter Prodigy Esposito Signs a Unique Contract](https://cultofcalcio.com/inter-prodigy-esposito-signs-a-unique-contract/) - **Cultofcalcio.com**
-2. [Monday Morning NFL Top 10 Rankings: Who Are The Best Teams Heading Into The Season?](https://www.foxsports.com/stories/nfl/nfl-power-rankings-top-10-seahawks-patriots-week-1) - **Fox Sports**
-3. [Wrexham announce new Sporting Director after Newcastle United exit](https://www.themag.co.uk/2026/09/wrexham-announce-new-sporting-director-after-newcastle-united-exit-steve-nickson/) - **The Mag**
-4. [Former Golden State Warriors champion addresses his NBA future](https://warriorswire.usatoday.com/story/sports/nba/warriors/2026/09/07/former-warriors-champion-addresses-his-future-as-he-nears-38/91648082007/) - **USA Today**
-5. [Top ten players coached by Jose Mourinho: Cristiano Ronaldo, Diego Milito, Samuel Eto'o, more](https://www.cbssports.com/soccer/news/real-madrid-inter-jose-mourinho-champions-league-cristiano-ronaldo-diego-milito-samuel-etoo/) - **CBS Sports**
-6. [Americans Abroad Player of the Week: Aidan Morris](https://sbisoccer.com/2026/09/americans-abroad-player-of-the-week-aidan-morris-2) - **Sbisoccer.com**
-7. [Pundits defend apparent disrespect to Liverpool Legend](https://anfieldindex.com/99602/pundits-defend-apparent-disrespect-to-liverpool-legend.html) - **Anfieldindex.com**
-8. [Ranking the NFL's 15 best tight ends for the 2026 season, from Brock Bowers to A.J. Barner](https://www.sportingnews.com/us/nfl/news/nfl-tight-end-rankings-2026/3569d4ea10334138fbaae0b1) - **Sporting News**
+1. [BBL privatisation and what it means: Will we see IPL teams invest in the Big Bash League?](https://www.cricketnews.com/en/cricket/news/bbl-privatisation-means-will-ipl-teams-invest-big-bash-league/a87661b8b044a672a711d1c9) - **Cricketnews.com**
+2. [Arsenal's Gabriel 'extremely lucky' to avoid red card in Chelsea derby](https://www.alloutsoccer.com/news/arsenal-gabriel-martinez-chelsea-foul-2014258) - **Alloutsoccer.com**
+3. [Inside Kevin Pietersen's shock England SOS: The figure who pushed for his appointment revealed, the ways he's expected to shake up the dressing room - and his added motivation to get close to key players](https://www.dailymail.com/sport/cricket/article-16112133/kevin-pietersen-england-coaching-move.html) - **Dailymail.com**
+4. [Bohs 'onto something' as season comes to a boil - Cawley](https://www.rte.ie/sport/soccer/2026/0907/1590647-bohs-onto-something-as-season-comes-to-a-boil-cawley/) - **RTE**
+5. [Liverpool transfer target confirms he's ready for move](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-target-confirms-hes-ready-for-move/) - **Anfieldwatch.co.uk**
+6. [Mauricio Pochettino plots USMNT's 'fresh start' as focus shifts to 2030 World Cup](https://sports.yahoo.com/soccer/article/mauricio-pochettino-plots-usmnts-fresh-start-as-focus-shifts-to-2030-world-cup-170644767.html) - **Yahoo Entertainment**
+7. [Wolves confirm signing of former Chelsea winger](https://hayters.com/wolves-confirm-signing-of-former-chelsea-winger/) - **Hayters.com**
+8. [‘We expect more’ – Burnley boss delivers Reo Hatate verdict after debut assist](https://celticshorts.com/2026/09/we-expect-more-burnley-boss-delivers-reo-hatate-verdict-after-debut-assist/) - **Celticshorts.com**
+9. [Kenny Cunningham: ‘It would be a good thing to see the Israeli team come on to the pitch in Dublin’](https://www.irishtimes.com/sport/soccer/2026/09/07/kenny-cunningham-it-would-be-a-good-thing-to-see-the-israeli-team-come-on-to-the-pitch-in-dublin/) - **The Irish Times**
+10. [Arsenal having fun as title confidence breeds creativity: 'We know we can beat anybody'](https://www.nbcsports.com/soccer/news/arsenal-enjoying-themselves-as-confidence-breeds-creativity-we-know-we-can-beat-anybody) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-09-08 22:23:31 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-09 02:28:51 (KST) / (하루 100회 제한 준수 중)*
