@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sheff Utd sign experienced forward Ayew](https://www.bbc.com/sport/football/articles/cy0z8lnj1dno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Sheff Utd sign experienced forward Ayew](https://www.bbc.co.uk/sport/football/articles/cy0z8lnj1dno) - **BBC News**
-3. [40-goal Crystal Palace youth striker completes Arsenal transfer](https://dailycannon.com/2026/09/mylo-bernard-arsenal-transfer-confirmed/) - **Dailycannon.com**
-4. [Ex-Tottenham Hotspur defender and Champions League finalist nearing move to seventh-tier side](https://www.alloutsoccer.com/news/tottenham-hotspur-serge-aurier-transfer-2015713) - **Alloutsoccer.com**
-5. [Kane, Rice, Bellingham among Ballon d'Or nominees but no Ronaldo](https://www.skysports.com/football/news/11661/13582892/ballon-dor-2026-harry-kane-declan-rice-jude-bellingham-among-nominees-but-no-cristiano-ronaldo) - **Sky Sports**
-6. [Nominees for the Ballon d'Or announced](https://www.playmakerstats.com/news/nominees-for-the-ballon-d-or-announced/1196708) - **Playmakerstats.com**
-7. [Journalist: Liverpool legend set to be named in Ballon d’Or nominations](https://anfieldindex.com/99724/journalist-liverpool-legend-set-to-be-named-in-ballon-dor-nominations.html) - **Anfieldindex.com**
-8. [Mac Allister reveals he could have left Liverpool over contract situation](https://thefootballfaithful.com/mac-allister-liverpool-contract-situation/) - **The Football Faithful**
-9. ['Arsenal look top' - Coady](https://www.bbc.com/sport/football/articles/c3057gp0g5go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Champions League games today: Schedule, how to watch league phase openers](https://www.usatoday.com/story/sports/soccer/ucl/2026/09/08/ucl-schedule-games-today-how-to-watch/91656540007/) - **USA Today**
+1. [Brentford's rise 'not finished yet' - Andrews](https://www.bbc.com/sport/football/articles/cn742rpyxedo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Porto vs. Man City live score, stats, highlights from Champions League clash](https://www.sportingnews.com/us/soccer/news/porto-man-city-live-score-stats-champions-league/1597116c6ad1f73d3e5a903d) - **Sporting News**
+3. [Everton Eye €3.5m-A-Year Striker: Why Does He Make Sense For The Toffees?](https://the4thofficial.net/2026/09/everton-eye-e3-5m-a-year-striker-why-does-he-make-sense-for-the-toffees/) - **The4thofficial.net**
+4. [Women’s Ballon d’Or: Top 30 nominees](https://www.bavarianfootballworks.com/bayern-munich-frauen/253751/womens-ballon-dor-top-30-nominees-bayern-munich-fc-barcelona-arsenal-ornalndo-pride-gotham-fc-kansas-city-current-manchester-city-lyon-inter-milan-germany) - **Bavarian Football Works**
+5. [Liverpool vs. Atletico Madrid: Champions League 2026-27 Preview & Team News](https://liverpooloffside.sbnation.com/liverpool-match-previews/83495/liverpool-vs-atletico-madrid-champions-league-2026-27-preview-team-news) - **SB Nation**
+6. [Liverpool FC inks £300 million shirt sponsorship deal with Turkish Airlines](https://www.business-standard.com/world-news/liverpool-fc-inks-300-million-shirt-sponsorship-deal-with-turkish-airlines-126090801687_1.html) - **Business Standard**
+7. [Amad and Marcus Rashford: Crucial injury updates issued on Man United duo](https://thepeoplesperson.com/2026/09/08/amad-and-marcus-rashford-crucial-injury-updates-issued-on-man-united-duo-315329/) - **The Peoples Person**
+8. [Barcelona icon backs team to win the Champions League: ‘This will be their year’](https://barcauniversal.com/barcelona-icon-backs-team-to-win-the-champions-league-this-will-be-their-year/) - **Barcauniversal.com**
+9. [Manchester City and FC Porto have confirmed their starting lineups ahead of tonight’s match](https://esteemedkompany.com/2026/09/08/manchester-city-and-fc-porto-have-confirmed-their-starting-lineups-ahead-of-tonights-match/) - **Esteemedkompany.com**
+10. [Porto vs Manchester City: Line-ups confirmed for Champions League clash](https://www.101greatgoals.com/football/champions-league/porto-vs-manchester-city-line-ups-confirmed/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-09-10 00:15:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-10 03:41:54 (KST) / (하루 100회 제한 준수 중)*
