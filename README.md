@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Papers: Man Utd monitoring Dortmund star Nmecha](https://www.skysports.com/football/transfer-paper-talk/12709/13582860/transfer-news-borussia-dortmund-midfielder-felix-nmecha-on-man-utds-radar-paper-talk) - **Sky Sports**
-2. [Manchester United agree deal to sign 16-year-old Liverpool prodigy](https://www.alloutsoccer.com/news/manchester-united-liverpool-isaac-konde-2014614) - **Alloutsoccer.com**
-3. [Chiesa might leave Liverpool - Tuesday's gossip](https://www.bbc.com/sport/football/articles/cvgy87d2lj9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Chiesa might leave Liverpool - Tuesday's gossip](https://www.bbc.co.uk/sport/football/articles/cvgy87d2lj9o) - **BBC News**
-5. [Champions League expert picks, predictions, best bets: Real Madrid vs. Inter battle on Matchday 1](https://www.cbssports.com/soccer/news/champions-league-expert-picks-predictions-best-bets-real-madrid-inter-matchday-1/) - **CBS Sports**
-6. [Chelsea's Morgan Rogers mocked by Arsenal fans in response to controversial comment](https://www.alloutsoccer.com/news/morgan-rogers-chelsea-arsenal-chant-2014597) - **Alloutsoccer.com**
-7. [‘I love Barcelona’ – Summer signing is already infatuated with Hansi Flick’s Blaugrana](https://getfootballnewsspain.com/i-love-barcelona-summer-signing-is-already-infatuated-with-hansi-flicks-blaugrana/) - **Getfootballnewsspain.com**
-8. [28-Year-Old West Ham Player Makes Surprise Decision After Deadline Day: What Should The Hammers Do?](https://the4thofficial.net/2026/09/28-year-old-west-ham-player-makes-surprise-decision-after-deadline-day-what-should-the-hammers-do/) - **The4thofficial.net**
-9. [Eight Games, Eight Challenges: Assessing Arsenal’s Champions League Opponents](https://www.justarsenal.com/eight-games-eight-challenges-assessing-arsenals-champions-league-opponents/421655) - **Just Arsenal News**
-10. [Champions League returns - who are favourites and players to watch?](https://www.bbc.com/sport/football/articles/c17j5lr8kkqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Hood FC crowned 2026 5Stars Premier League Champions](https://punchng.com/hood-fc-crowned-2026-5stars-premier-league-champions/) - **The Punch**
+2. [Arsenal fans dream back-to-back EPL titles](https://punchng.com/arsenal-fans-dream-back-to-back-epl-titles/) - **The Punch**
+3. [Brazilian club opens talks to try to sign Richarlison](https://onefootball.com/en/news/brazilian-club-opens-talks-to-try-to-sign-richarlison-43420557) - **Onefootball.com**
+4. [Moto Wrap | Herlings and Bou crowned as Drane makes AFT history](https://www.mcnews.com.au/moto-wrap-september-2026/) - **Mcnews.com.au**
+5. [Pochettino hoping Folarin Balogun can find “best place to perform”](https://sbisoccer.com/2026/09/pochettino-hoping-folarin-balogun-can-find-best-place-to-perform) - **Sbisoccer.com**
+6. [SDSU men unveil 2026-27 basketball schedule with Kansas State opener](https://www.mitchellrepublic.com/sports/college/sdsu-men-unveil-2026-27-basketball-schedule-with-kansas-state-opener) - **Mitchellrepublic.com**
+7. [Lord Sugar makes incendiary claim 'Man City have got away with bloody murder' with Premier League 115 charges case remaining unresolved](https://www.dailymail.com/sport/football/article-16112331/Lord-Sugar-incendiary-claim-Man-City-Premier-League-115-charges-case.html) - **Dailymail.com**
+8. [Lord Sugar makes incendiary claim 'Man City have got away with bloody murder' with Premier League 115 charges case remaining unresolved](https://www.dailymail.com/sport/football/article-16112331/Lord-Sugar-incendiary-claim-Man-City-Premier-League-115-charges-case.html) - **Dailymail.com**
+9. [Premier League referees announced: Matchweek 4](https://www.playmakerstats.com/news/premier-league-referees-announced-matchweek-4/1196472) - **Playmakerstats.com**
+10. [Papers: Man Utd monitoring Dortmund star Nmecha](https://www.skysports.com/football/transfer-paper-talk/12709/13582860/transfer-news-borussia-dortmund-midfielder-felix-nmecha-on-man-utds-radar-paper-talk) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-09-09 07:44:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-09 10:05:17 (KST) / (하루 100회 제한 준수 중)*
