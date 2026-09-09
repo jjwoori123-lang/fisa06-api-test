@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Hood FC crowned 2026 5Stars Premier League Champions](https://punchng.com/hood-fc-crowned-2026-5stars-premier-league-champions/) - **The Punch**
-2. [Arsenal fans dream back-to-back EPL titles](https://punchng.com/arsenal-fans-dream-back-to-back-epl-titles/) - **The Punch**
-3. [Brazilian club opens talks to try to sign Richarlison](https://onefootball.com/en/news/brazilian-club-opens-talks-to-try-to-sign-richarlison-43420557) - **Onefootball.com**
-4. [Moto Wrap | Herlings and Bou crowned as Drane makes AFT history](https://www.mcnews.com.au/moto-wrap-september-2026/) - **Mcnews.com.au**
-5. [Pochettino hoping Folarin Balogun can find “best place to perform”](https://sbisoccer.com/2026/09/pochettino-hoping-folarin-balogun-can-find-best-place-to-perform) - **Sbisoccer.com**
-6. [SDSU men unveil 2026-27 basketball schedule with Kansas State opener](https://www.mitchellrepublic.com/sports/college/sdsu-men-unveil-2026-27-basketball-schedule-with-kansas-state-opener) - **Mitchellrepublic.com**
-7. [Lord Sugar makes incendiary claim 'Man City have got away with bloody murder' with Premier League 115 charges case remaining unresolved](https://www.dailymail.com/sport/football/article-16112331/Lord-Sugar-incendiary-claim-Man-City-Premier-League-115-charges-case.html) - **Dailymail.com**
-8. [Lord Sugar makes incendiary claim 'Man City have got away with bloody murder' with Premier League 115 charges case remaining unresolved](https://www.dailymail.com/sport/football/article-16112331/Lord-Sugar-incendiary-claim-Man-City-Premier-League-115-charges-case.html) - **Dailymail.com**
-9. [Premier League referees announced: Matchweek 4](https://www.playmakerstats.com/news/premier-league-referees-announced-matchweek-4/1196472) - **Playmakerstats.com**
-10. [Papers: Man Utd monitoring Dortmund star Nmecha](https://www.skysports.com/football/transfer-paper-talk/12709/13582860/transfer-news-borussia-dortmund-midfielder-felix-nmecha-on-man-utds-radar-paper-talk) - **Sky Sports**
+1. [INSIDE NEWCASTLE 2.0: Ross Wilson and the men running the show reveal the truth about summer of upheaval - from secret Eddie Howe succession plan to Bruno Guimaraes shock and the deal that had to happen to sign Matias Fernandez-Pardo](https://www.dailymail.com/sport/football/article-16113087/INSIDE-NEWCASTLE-2-0-Ross-Wilson-men-running-reveal-truth-summer-upheaval-secret-Eddie-Howe-succession-plan-Bruno-Guimaraes-shock-deal-happen-sign-Matias-Fernandez-Pardo.html) - **Dailymail.com**
+2. [Video: Barcelona superstar caught on camera making blunt comments about Valencia’s performance](https://barcauniversal.com/video-barcelona-superstar-caught-on-camera-making-blunt-comments-about-valencias-performance/) - **Barcauniversal.com**
+3. [Calm heads and Europe's back: Club Brugge at the Jan Breydel Stadium](https://www.thevillablog.co.uk/calm-heads-and-europes-back-club-brugge-at-the-jan-breydel-stadium/) - **Thevillablog.co.uk**
+4. [Club Brugge vs Aston Villa – Match preview and team news](https://thefootballfaithful.com/club-brugge-vs-aston-villa-match-preview-and-team-news-2/) - **The Football Faithful**
+5. [Newcastle United XI vs Millwall – Predicted lineup and team news](https://thefootballfaithful.com/newcastle-united-xi-vs-millwall-predicted-lineup-and-team-news/) - **The Football Faithful**
+6. [Manchester City XI vs Porto – Predicted lineup and team news](https://thefootballfaithful.com/manchester-city-xi-vs-porto-predicted-lineup-and-team-news/) - **The Football Faithful**
+7. [Aston Villa XI vs Club Brugge – Predicted lineup and team news](https://thefootballfaithful.com/aston-villa-xi-vs-club-brugge-predicted-lineup-and-team-news-3/) - **The Football Faithful**
+8. [Hull City XI vs Sunderland – Predicted lineup and team news](https://thefootballfaithful.com/hull-city-xi-vs-sunderland-predicted-lineup-and-team-news/) - **The Football Faithful**
+9. [Millwall vs Newcastle United – Match preview and team news](https://thefootballfaithful.com/millwall-vs-newcastle-united-match-preview-and-team-news/) - **The Football Faithful**
+10. [Porto vs Manchester City – Match preview and team news](https://thefootballfaithful.com/porto-vs-manchester-city-match-preview-and-team-news/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-09-09 10:05:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-09 15:04:19 (KST) / (하루 100회 제한 준수 중)*
