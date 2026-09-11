@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool will reward Mac Allister if he lets his football do talking](https://www.bbc.com/sport/football/articles/crl6zyr1gw5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Liverpool will reward Mac Allister if he lets his football do talking](https://www.bbc.co.uk/sport/football/articles/crl6zyr1gw5o) - **BBC News**
-3. [Martin O'Neill admits Celtic's stuttering stand-ins have made rested striker Camilo Duran undroppable](https://www.dailymail.com/sport/football/article-16119065/Martin-ONeill-admits-Celtics-stuttering-stand-ins-rested-striker-Camilo-Duran-undroppable.html) - **Dailymail.com**
-4. [Fernandes nominated for Ballon d’Or](https://thebusbybabe.sbnation.com/latest-news/35779/fernandes-nominated-for-ballon-dor) - **SB Nation**
-5. [World Suicide Prevention Day: Prince William launches sport mental health toolkit On Your Side](https://www.bbc.com/sport/football/articles/cp84m835vm2o) - **BBC News**
-6. [Prince William launches sport mental health toolkit](https://www.bbc.co.uk/sport/football/articles/cp84m835vm2o) - **BBC News**
-7. [Prince William, Kane and Shearer in campaign to use sport to prevent suicide](https://www.bbc.co.uk/news/articles/cm2r1x35rgro) - **BBC News**
-8. [RANGERS 1 ST MIRREN 0: Forgotten man Bojan Miovski rides to the rescue to get Derek McInnes' Ibrox strugglers out of jail](https://www.dailymail.com/sport/football/article-16118849/RANGERS-1-ST-MIRREN-0-Forgotten-man-Bojan-Miovski-rides-rescue-Derek-McInnes-Ibrox-strugglers-jail.html) - **Dailymail.com**
-9. [Arsenal are passing every test - and Odegaard is in form of his life](https://www.bbc.com/sport/football/articles/ce8737p0977o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Mykhailo Mudryk dealt injury blow as Tottenham Hotspur star faces sideline stint](https://www.alloutsoccer.com/news/mykhailo-mudryk-tottenham-hotspur-injury-2018032) - **Alloutsoccer.com**
+1. [Navy All-American Bowl to Honor Cherry Creek High School Running Back Elijah Cromwell](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/navy-all-american-bowl-to-honor-cherry-creek-high-school-running-back-elijah-cromwell) - **NBCSports.com**
+2. [Navy All-American Bowl to Honor Cherry Creek High School Offensive Lineman Jackson Roper](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/navy-all-american-bowl-to-honor-cherry-creek-high-school-offensive-lineman-jackson-roper) - **NBCSports.com**
+3. [The NFL sold out its Australia game in 30 minutes – but will the sport make its mark Down Under?](https://theconversation.com/the-nfl-sold-out-its-australia-game-in-30-minutes-but-will-the-sport-make-its-mark-down-under-289222) - **The Conversation Africa**
+4. [Why Liverpool were RIGHT not to put a new deal on the table for Alexis Mac Allister... and sprint king Barcola won't be wasteful for long, writes LEWIS STEELE](https://www.dailymail.com/sport/football/article-16116909/Why-Liverpool-RIGHT-not-new-deal-table-Alexis-Mac-Allister-sprint-king-Barcola-wont-wasteful-long-writes-LEWIS-STEELE.html) - **Dailymail.com**
+5. [Inside 'control freak' Benjamin Sesko's fight to start for Manchester United: Bulked-up striker's virtual reality glasses, mind coach, meditation and why Michael Carrick is persisting with struggling front four](https://www.dailymail.com/sport/football/article-16111337/Benjamin-Sesko-Manchester-United-Michael-Carrick.html) - **Dailymail.com**
+6. [Stan EPL deal: Nine strikes $800m broadcast rights deal in valuable extension](https://www.smh.com.au/business/companies/english-premier-league-remains-on-stan-in-800m-deal-20260910-p60w2w.html) - **The Sydney Morning Herald**
+7. [Morrison tips Awoniyi to shine at Coventry](https://punchng.com/morrison-tips-awoniyi-to-shine-at-coventry/) - **The Punch**
+8. [Aina optimistic despite slow Forest start](https://punchng.com/aina-optimistic-despite-slow-forest-start/) - **The Punch**
+9. [Today in sports history, October 29](https://www.usatoday.com/story/sports/history/2026/09/09/today-in-sports-history-october-29/91683693007/) - **USA Today**
+10. [Today in sports history, October 28](https://www.usatoday.com/story/sports/history/2026/09/09/today-in-sports-history-october-28/91683540007/) - **USA Today**
 
 
 ---
-*최근 업데이트: 2026-09-11 08:49:53 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-11 12:42:26 (KST) / (하루 100회 제한 준수 중)*
