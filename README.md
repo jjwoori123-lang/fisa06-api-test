@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Navy All-American Bowl to Honor Cherry Creek High School Running Back Elijah Cromwell](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/navy-all-american-bowl-to-honor-cherry-creek-high-school-running-back-elijah-cromwell) - **NBCSports.com**
-2. [Navy All-American Bowl to Honor Cherry Creek High School Offensive Lineman Jackson Roper](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/navy-all-american-bowl-to-honor-cherry-creek-high-school-offensive-lineman-jackson-roper) - **NBCSports.com**
-3. [The NFL sold out its Australia game in 30 minutes – but will the sport make its mark Down Under?](https://theconversation.com/the-nfl-sold-out-its-australia-game-in-30-minutes-but-will-the-sport-make-its-mark-down-under-289222) - **The Conversation Africa**
-4. [Why Liverpool were RIGHT not to put a new deal on the table for Alexis Mac Allister... and sprint king Barcola won't be wasteful for long, writes LEWIS STEELE](https://www.dailymail.com/sport/football/article-16116909/Why-Liverpool-RIGHT-not-new-deal-table-Alexis-Mac-Allister-sprint-king-Barcola-wont-wasteful-long-writes-LEWIS-STEELE.html) - **Dailymail.com**
-5. [Inside 'control freak' Benjamin Sesko's fight to start for Manchester United: Bulked-up striker's virtual reality glasses, mind coach, meditation and why Michael Carrick is persisting with struggling front four](https://www.dailymail.com/sport/football/article-16111337/Benjamin-Sesko-Manchester-United-Michael-Carrick.html) - **Dailymail.com**
-6. [Stan EPL deal: Nine strikes $800m broadcast rights deal in valuable extension](https://www.smh.com.au/business/companies/english-premier-league-remains-on-stan-in-800m-deal-20260910-p60w2w.html) - **The Sydney Morning Herald**
-7. [Morrison tips Awoniyi to shine at Coventry](https://punchng.com/morrison-tips-awoniyi-to-shine-at-coventry/) - **The Punch**
-8. [Aina optimistic despite slow Forest start](https://punchng.com/aina-optimistic-despite-slow-forest-start/) - **The Punch**
-9. [Today in sports history, October 29](https://www.usatoday.com/story/sports/history/2026/09/09/today-in-sports-history-october-29/91683693007/) - **USA Today**
-10. [Today in sports history, October 28](https://www.usatoday.com/story/sports/history/2026/09/09/today-in-sports-history-october-28/91683540007/) - **USA Today**
+1. [CONFIRMED TEAM NEWS: Coventry City vs Brighton](https://roundtable.io/sports/soccer/premier-league/brighton-and-hove-albion/news/confirmed-team-news-coventry-city-vs-brighton) - **Roundtable.io**
+2. [A new era for the Manchester derby after Pep Guardiola's departure](https://sports.yahoo.com/articles/era-manchester-derby-pep-guardiolas-083504158.html) - **Yahoo Entertainment**
+3. [Liverpool offered lifeline to help Andoni Iraola solve major problem](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-offered-lifeline-to-help-andoni-iraola-solve-major-problem/) - **Anfieldwatch.co.uk**
+4. [Yash Thakur replaces Harshit Rana in India's squads for Afghanistan T20Is, Asian Games](https://economictimes.indiatimes.com/news/sports/cricket/yash-thakur-replaces-harshit-rana-in-indias-squads-for-afghanistan-t20is-asian-games/articleshow/134000241.cms) - **The Times of India**
+5. [Meet Netflix's star-studded NFL crew for 2026, from Luke Kuechly to Michael Irvin](https://www.sportingnews.com/us/nfl/news/netflix-nfl-crew-2026-luke-kuechly-michael-irvin/b54b4df5f2e33519be4112e5) - **Sporting News**
+6. [Como president Suwarso: ‘Premier League has money but we have history, art and passion’](https://football-italia.net/como-suwarso-premier-league-comparison/) - **Football Italia**
+7. [Rodri apologises after leaked video showed Barcelona star brutally ridiculing Spanish rivals Valencia](https://www.dailymail.com/sport/football/article-16119895/Rodri-apologises-leaked-video-showed-Barcelona-star-brutally-ridiculing-Spanish-rivals-Valencia.html) - **Dailymail.com**
+8. [Spurs should be awarded 2016-17 title - Pochettino](https://www.bbc.com/sport/football/articles/c783ndd7ge2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Harvey Higgins - who is breakthrough Rovers striker?](https://www.bbc.com/sport/football/articles/cp80zpky6dzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-09-11 12:42:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-11 17:44:01 (KST) / (하루 100회 제한 준수 중)*
