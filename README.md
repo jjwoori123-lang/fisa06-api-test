@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [European T20 Premier League makes Malahide landing](https://www.rte.ie/sport/cricket/2026/0910/1591090-european-t20-premier-league-makes-malahide-landing/) - **RTE**
-2. [Liverpool miss out on perfect Mohamed Salah successor](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-miss-out-on-perfect-mohamed-salah-successor/) - **Anfieldwatch.co.uk**
-3. [PL Predictions: Hull's run can't continue at Chelsea, can it? Oh, it can](https://www.skysports.com/football/news/11661/13583782/premier-league-predictions-and-jones-knows-best-bets-hulls-run-cant-continue-at-chelsea-can-it-oh-it-can) - **Sky Sports**
-4. [PL Predictions: Hull's run can't continue at Chelsea, can it? Oh, it can](https://www.skysports.com/football/news/11661/13583782/premier-league-predictions-and-jones-knows-best-bets-hulls-run-cant-continue-at-chelsea-can-it-oh-it-can) - **Sky Sports**
-5. [Konsa is proving to be Arsenal’s best signing of the season](https://www.justarsenal.com/konsa-is-proving-to-be-arsenals-best-signing-of-the-season/421805) - **Just Arsenal News**
-6. [PL Predictions: Hull's run can't continue at Chelsea, can it? Oh, it can](https://www.skysports.com/football/news/11661/13583782/premier-league-predictions-and-jones-knows-best-bets-hulls-run-cant-continue-at-chelsea-can-it-oh-it-can) - **Sky Sports**
-7. [PL Predictions: Hull's run can't continue at Chelsea, can it? Oh, it can](https://www.skysports.com/football/news/11661/13583782/premier-league-predictions-and-jones-knows-best-bets-hulls-run-cant-continue-at-chelsea-can-it-oh-it-can) - **Sky Sports**
-8. [The issue that makes us think, what is going on with the referees?](https://untold-arsenal.com/archives/122866) - **Untold-arsenal.com**
-9. [When you''re at the top, and you fall down, it''s very bad: Avinash Sable](https://economictimes.indiatimes.com/news/sports/other-sports/when-youre-at-the-top-and-you-fall-down-its-very-bad-avinash-sable/articleshow/134020630.cms) - **The Times of India**
-10. [Report: Tottenham Hotspur star pushing to terminate his contract](https://eplindex.com/150334/report-tottenham-hotspur-star-pushing-to-terminate-his-contract.html) - **English Premier League Index - Opta Stats**
+1. [Guwahati goes the distance, launches international marathon with Rs 1.25 crore purse](https://economictimes.indiatimes.com/news/india/guwahati-goes-the-distance-launches-international-marathon-with-rs-1-25-crore-purse/articleshow/134028072.cms) - **The Times of India**
+2. [Video: Baturina scores Como’s first ever goal in the Champions League](https://football-italia.net/video-baturina-scores-como-first-ever-ucl-goal/) - **Football Italia**
+3. [Lions Enter 2026 With Elite Offense, Flawed Defense](https://detroitsportsnation.com/detroit-lions-2026-season-preview/jhart/detroit-lions/09/10/2026/493010/) - **Detroit Sports Nation**
+4. [Barkley And Mings To Start | 4-2-3-1 Aston Villa Predicted Lineup Vs Nottingham Forest](https://the4thofficial.net/2026/09/barkley-and-mings-to-start-4-2-3-1-aston-villa-predicted-lineup-vs-nottingham-forest/) - **The4thofficial.net**
+5. [Como scores first Champions League goal, Baturina nets historic strike](https://cryptobriefing.com/como-baturina-first-champions-league-goal/) - **Crypto Briefing**
+6. [Robertson, Fernandes And Solanke To Start | 4-2-3-1 Tottenham Hotspur Predicted Lineup Vs Everton](https://the4thofficial.net/2026/09/robertson-fernandes-and-solanke-to-start-4-2-3-1-tottenham-hotspur-predicted-lineup-vs-everton/) - **The4thofficial.net**
+7. [It's official, there's another Alexander Isak and he is destined to join Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/its-official-theres-another-alexander-isak-and-he-is-destined-to-join-liverpool/) - **Anfieldwatch.co.uk**
+8. [Premier League releases bumper Boxing Day fixtures](https://www.vanguardngr.com/2026/09/premier-league-releases-bumper-boxing-day-fixtures/) - **Vanguard**
+9. [Arsenal star is prepared to ask for a transfer in January](https://www.justarsenal.com/arsenal-star-is-prepared-to-ask-for-a-transfer-in-january/421807) - **Just Arsenal News**
+10. [Coventry City trio nearing return to training](https://hayters.com/coventry-city-trio-nearing-return-to-training/) - **Hayters.com**
 
 
 ---
-*최근 업데이트: 2026-09-12 02:12:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-12 04:49:16 (KST) / (하루 100회 제한 준수 중)*
