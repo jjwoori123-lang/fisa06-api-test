@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Zubimendi may seek January exit from Arsenal after losing starting spot](https://cryptobriefing.com/zubimendi-arsenal-january-exit/) - **Crypto Briefing**
-2. [Robert Lewandowski & Chicago Fire meet New England Revolution](https://www.mlssoccer.com/news/robert-lewandowski-chicago-fire-meet-new-england-revolution) - **MLSsoccer.com**
-3. [Todd Boehly is on the brink of leaving Chelsea and selling his minority stake - with Behdad Eghbali's Clearlake Capital set to take control of club](https://www.dailymail.com/sport/football/article-16122101/Todd-Boehly-brink-leaving-Chelsea-selling-minority-stake-Behdad-Eghbalis-Clearlake-Capital-set-control-club.html) - **Dailymail.com**
-4. [Bayern extend start record, Man Utd win in Champions League return](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260910-930-667363/) - **Dpa-international.com**
-5. [Arsenal in the 2010s: Trophies, Heartbreak and a Decade of Change](https://www.justarsenal.com/arsenal-in-the-2010s-trophies-heartbreak-and-a-decade-of-change/421828) - **Just Arsenal News**
-6. [Papers: Zubimendi may push to leave Arsenal](https://www.skysports.com/football/transfer-paper-talk/12709/13584130/arsenal-transfer-news-martin-zubimendi-may-push-to-leave-premier-league-champions-paper-talk) - **Sky Sports**
-7. [Manchester United awarded £1.8M prize for Champions League win](https://cryptobriefing.com/manchester-united-champions-league-prize-sabah/) - **Crypto Briefing**
-8. [City's Ayyoub Bouaddi addresses upcoming Manchester derby after impressive Champions League showing](https://www.alloutsoccer.com/news/city-ayyoub-bouaddi-manchester-derby-2019615) - **Alloutsoccer.com**
-9. [UCL: Man Utd beat Sabah 4-0 on Champions League return](https://punchng.com/ucl-man-utd-beat-sabah-4-0-on-champions-league-return/) - **The Punch**
-10. [GRAEME SOUNESS: Old Firm derby is the biggest of them all... but having no away fans is damaging the spectacle](https://www.dailymail.com/sport/football/article-16121529/graeme-souness-rangers-celtic-old-firm-scott-brown.html) - **Dailymail.com**
+1. [ Return officialised: Millonarios announce Cuadrado's return](https://onefootball.com/en/news/return-officialised-millonarios-announce-cuadrados-return-43438320) - **Onefootball.com**
+2. [Man Utd want to keep pushing – Carrick knows tougher tests lie ahead](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260910-930-667452/) - **Dpa-international.com**
+3. [‘We needed more intensity’ – Deco explains why Barcelona went for Anthony Gordon over Marcus Rashford](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/132069/more-intensity-deco-why-gordon-rashford) - **Barca Blaugranes**
+4. [Carrick knows tougher tests coming after Sabah cakewalk](https://www.rte.ie/sport/soccer/2026/0910/1591107-carrick-knows-tougher-tests-coming-after-sabah-cakewalk/) - **RTE**
+5. [Two goals in two games - Sesko gives Man Utd a different threat](https://www.bbc.com/sport/football/articles/c770d63d850o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Two goals in two games - Sesko gives Man Utd a different threat](https://www.bbc.co.uk/sport/football/articles/c770d63d850o) - **BBC News**
+7. [Iowa vs Iowa State Prediction: Odds, expert picks, team and player news, betting trends, and stats](https://www.nbcsports.com/betting/college-football/news/iowa-vs-iowa-state-prediction-odds-expert-picks-team-and-player-news-betting-trends-and-stats) - **NBCSports.com**
+8. [Man Utd cruise to victory on Champions League return](https://www.bbc.com/sport/football/live/c67830ezxn4xt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [If you like Ted Lasso, this gag-filled newspaper comedy is worth a try: CHRISTOPHER STEVENS reviews Sky One's The Paper](https://www.dailymail.com/tvshowbiz/article-16121995/CHRISTOPHER-STEVENS-reviews-Sky-Ones-Paper.html) - **Dailymail.com**
+10. [Zubimendi may seek January exit from Arsenal after losing starting spot](https://cryptobriefing.com/zubimendi-arsenal-january-exit/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-09-12 07:19:39 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-12 09:23:51 (KST) / (하루 100회 제한 준수 중)*
