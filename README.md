@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Richarlison's move to Vasco da Gama falls through](https://www.bbc.co.uk/sport/football/articles/cr50q58vqggo) - **BBC News**
-2. [Nottingham Forest at Villa Park, Glasner and match facts from the BBC](https://www.thevillablog.co.uk/nottingham-forest-at-villa-park-glasner-and-match-facts-from-the-bbc/) - **Thevillablog.co.uk**
-3. [Adrien Truffert’s stance on Man United transfer emerges as Red Devils line up move for £60m star](https://thepeoplesperson.com/2026/09/11/adrien-trufferts-stance-on-man-united-transfer-emerges-as-red-devils-line-up-move-for-60m-star-315681/) - **The Peoples Person**
-4. [Rangers Defender Under Fire From Derek Ferguson: Should The Club Drop Him?](https://the4thofficial.net/2026/09/rangers-defender-under-fire-from-derek-ferguson-should-the-club-drop-him/) - **The4thofficial.net**
-5. [Sixers star Jaylen Brown ranked No. 3 small forward in the league](https://sixerswire.usatoday.com/story/sports/nba/sixers/2026/09/11/sixers-star-jaylen-brown-ranked-no-3-small-forward-in-the-league/91707490007/) - **USA Today**
-6. [PREVIEW: Can Fulham punish Liverpool’s slow starts at Anfield?](https://wp.fromthespot.co.uk/31738/preview-can-fulham-punish-liverpools-slow-starts-at-anfield/) - **Fromthespot.co.uk**
-7. [Aston Villa Ready To Reward Defender After Man Utd Links: Why Are The Club Right?](https://the4thofficial.net/2026/09/aston-villa-ready-to-reward-defender-after-man-utd-links-why-are-the-club-right/) - **The4thofficial.net**
-8. [Liverpool Are Keen On Recruiting This Bournemouth Winger: Should Iraola Go For Him?](https://the4thofficial.net/2026/09/liverpool-are-keen-on-recruiting-this-bournemouth-winger/) - **The4thofficial.net**
-9. [Juventus keen to sign released Tottenham star to replace Locatelli](https://talkjuve.com/2026/09/11/juventus-keen-to-sign-released-tottenham-star-to-replace-locatelli/) - **Talkjuve.com**
-10. [LPL in limbo, CAL turns focus to Women’s Premier League](https://timesofindia.indiatimes.com/city/lucknow/lpl-in-limbo-cal-turns-focus-to-womens-premier-league/articleshow/134088774.cms) - **The Times of India**
+1. [Arsenal bring in 'consulting group' for cost review shortly after winning Premier League](https://www.alloutsoccer.com/news/arsenal-cost-review-premier-league-2021195) - **Alloutsoccer.com**
+2. [Papers: Amorim takes swipe at Man Utd players-turned-pundits](https://www.skysports.com/football/transfer-paper-talk/12709/13584647/manchester-united-news-ruben-amorim-takes-a-swipe-at-the-clubs-former-players-now-working-in-the-media-paper-talk) - **Sky Sports**
+3. [Papers: Richarlison takes aim at Spurs after failed Vasco da Gama move](https://www.skysports.com/football/transfer-paper-talk/12709/13585182/tottenham-transfer-news-spurs-forward-richarlison-takes-aim-at-spurs-following-collapse-of-proposed-vasco-da-gama-transfer-paper-talk) - **Sky Sports**
+4. [West Ham 6-0 Wrexham: Incredible Irons hammer Wrexham at the London Stadium](https://wp.fromthespot.co.uk/31741/west-ham-6-0-wrexham-incredible-irons-hammer-wrexham-at-the-london-stadium/) - **Fromthespot.co.uk**
+5. [Arsenal History: Celebrating When the Gunners Beat Spurs 5-2 Twice in the Same Year](https://www.justarsenal.com/arsenal-history-celebrating-when-the-gunners-beat-spurs-5-2-twice-in-the-same-year/421883) - **Just Arsenal News**
+6. [Tottenham vs Everton: Match Preview | Toffees seek to improve awful record in north London](https://royalbluemersey.sbnation.com/everton-match-preview/83216/tottenham-vs-everton-match-preview-toffees-seek-to-improve-awful-record-in-north-london) - **SB Nation**
+7. [Liverpool plans to let Alisson leave next summer as Anfield enters new era](https://cryptobriefing.com/liverpool-alisson-leave-next-summer/) - **Crypto Briefing**
+8. [Evergreen Celtic boss Martin O'Neill can't wait to sample another intoxicating Old Firm derby day](https://www.dailymail.com/sport/football/article-16124259/Evergreen-Celtic-boss-Martin-ONeill-wait-sample-intoxicating-Old-Firm-derby-day.html) - **Dailymail.com**
+9. [West Ham rip apart Wrexham as momentum builds](https://www.rte.ie/sport/soccer/2026/0911/1591252-west-ham-rip-apart-wrexham-as-momentum-builds/) - **RTE**
+10. [Richarlison's move to Brazil COLLAPSES: Spurs star fails to agree terms with Vasco da Gama as Roberto De Zerbi issues cryptic response to threat of legal action amid contract row](https://www.dailymail.com/sport/football/article-16124283/Roberto-Zerbi-Richarlison-threat-legal-action.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-09-13 05:56:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-13 07:54:41 (KST) / (하루 100회 제한 준수 중)*
