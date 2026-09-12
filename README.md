@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Hull City star Sorba Thomas escapes car crash unhurt](https://www.vanguardngr.com/2026/09/hull-city-star-sorba-thomas-escapes-car-crash-unhurt/) - **Vanguard**
-2. [Report: Leeds United interested in move for 18-year-old wonderkid](https://eplindex.com/150355/report-leeds-united-interested-in-move-for-18-year-old-wonderkid.html) - **English Premier League Index - Opta Stats**
-3. [Neto names one thing that Alonso has changed immediately – it’s bringing results](https://www.talkchelsea.net/news-now/neto-names-one-thing-alonso-changed-immediately/) - **Talk Chelsea**
-4. [Hotter dressing rooms, late arrivals and less massage beds: Arteta on the methods he has used to prepare his Arsenal players for disruption](https://hayters.com/arteta-on-the-methods-he-has-used-to-prepare-his-arsenal-players-for-disruption/) - **Hayters.com**
-5. [Real Madrid superstar’s impending renewal will take him on same salary as Vinicius – report](https://madriduniversal.com/real-madrid-superstars-impending-renewal-will-take-him-on-same-salary-as-vinicius-report/) - **Madriduniversal.com**
-6. [Arsenal boss Arteta ‘very surprised’ at Jesus blast over Barcelona move](https://punchng.com/arsenal-boss-arteta-very-surprised-at-jesus-blast-over-barcelona-move/) - **The Punch**
-7. [Top 4 NBA duos in the Eastern Conference entering 2026-2027 season](https://www.thebiglead.com/top-4-nba-duos-eastern-conference-2026/) - **The Big Lead**
-8. [Davidson's US Shrewsbury takeover involves Friedel](https://www.bbc.com/sport/football/articles/ckg76x3lzlvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [I disrupted pre-season travel plans to prepare players - Arteta](https://www.bbc.com/sport/football/articles/c5y48zdxv0ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [I disrupted pre-season travel plans to prepare players - Arteta](https://www.bbc.co.uk/sport/football/articles/c5y48zdxv0ko) - **BBC News**
+1. ['People saying we'll be lucky to stay up this year annoyed me': Kiernan Dewsbury-Hall insists Everton can shock critics after 'crisis' summer and reveals David Moyes' message to squad](https://www.dailymail.com/sport/football/article-16123171/kiernan-dewsbury-hall-everton-crisis-summer.html) - **Dailymail.com**
+2. [Rice ready to play up to 60 games per season for Arsenal](https://www.justarsenal.com/rice-ready-to-play-up-to-60-games-per-season-for-arsenal/421859) - **Just Arsenal News**
+3. [Ohio State vs Texas Prediction: Odds, expert picks, team and player news, betting trends, and stats](https://www.nbcsports.com/betting/college-football/news/ohio-state-vs-texas-prediction-odds-expert-picks-team-and-player-news-betting-trends-and-stats) - **NBCSports.com**
+4. [Kings of Manchester: Who will reign when United and City clash?](https://www.skysports.com/football/news/11661/13584470/man-utd-vs-man-city-kings-of-manchester-hotly-debated-ahead-of-old-trafford-derby-showdown) - **Sky Sports**
+5. [Kings of Manchester: Who will reign when United and City clash?](https://www.skysports.com/football/news/11661/13584470/man-utd-vs-man-city-kings-of-manchester-hotly-debated-ahead-of-old-trafford-derby-showdown) - **Sky Sports**
+6. [How to watch Zverev vs Khachanov: US Open 2026 Men's Semi-Final FREE Live Streams, TV Channels](https://www.techradar.com/how-to-watch/tennis/zverev-vs-khachanov-us-open-2026-mens-semi-final) - **TechRadar**
+7. [Mikel Arteta 'very surprised' in response to Gabriel Jesus' claims against Arsenal boss](https://www.alloutsoccer.com/news/arsenal-mikel-arteta-gabriel-jesus-2020737) - **Alloutsoccer.com**
+8. [ Juve injury alarm, Inter-Solet and Alisson-Napoli : today’s news ](https://onefootball.com/en/news/juve-injury-alarm-inter-solet-and-alisson-napoli-todays-news-43442111) - **Onefootball.com**
+9. [Arsenal confirm deal to sign young forward](https://hayters.com/arsenal-confirm-deal-to-sign-young-forward/) - **Hayters.com**
+10. [De Zerbi: ‘I’m sure’ about Tonali’s quality, ‘can’t change my idea now’](https://football-italia.net/de-zerbi-sure-tonali-can-t-change-mind-now/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-09-12 21:55:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-13 01:04:51 (KST) / (하루 100회 제한 준수 중)*
