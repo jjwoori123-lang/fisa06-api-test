@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Spurs' Mudryk sidelined by injury after comeback from doping ban](https://www.channelnewsasia.com/sport/spurs-mudryk-sidelined-injury-after-comeback-doping-ban-6380061) - **CNA**
-2. [“Total shock” – Romano reveals Man Utd already laying first-team plans for sensational teenager](https://utdreport.co.uk/2026/09/12/romano-shocked-man-utd-jj-gabriel/) - **Utdreport.co.uk**
-3. [Fan Focus: How can Sunderland stop Arsenal from extending their 100% winning record?](https://rokerreport.sbnation.com/fan-focus/152723/fan-focus-how-can-sunderland-stop-arsenal-from-extending-their-100-winning-record) - **SB Nation**
-4. [Starting XI: Is This The Sunderland Team To Take On Arsenal Tonight?](https://rokerreport.sbnation.com/match-previews/152831/starting-xi-is-this-the-sunderland-team-to-take-on-arsenal-tonight) - **SB Nation**
-5. [Match Preview: Sunderland v Arsenal — The Champions Head To The Stadium Of Light](https://rokerreport.sbnation.com/match-previews/152683/match-preview-sunderland-v-arsenal-the-champions-head-to-the-stadium-of-light) - **SB Nation**
-6. [Bay Area sports calendar, Sept. 12-13](https://www.sfchronicle.com/sports/article/sportscal-22426593.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - **San Francisco Chronicle**
-7. [Score Predictions: Can We Get One Over The Gunners Tonight?](https://rokerreport.sbnation.com/match-previews/152722/score-predictions-can-sunderland-give-the-gunners-a-kick-up-the-arsenal) - **SB Nation**
-8. [Hull City XI vs Chelsea – Predicted lineup and team news](https://thefootballfaithful.com/hull-city-xi-vs-chelsea-predicted-lineup-and-team-news/) - **The Football Faithful**
-9. [Everton XI vs Tottenham Hotspur – Predicted lineup and team news](https://thefootballfaithful.com/everton-xi-vs-tottenham-hotspur-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-10. [Arsenal XI vs Sunderland – Predicted lineup and team news](https://thefootballfaithful.com/arsenal-xi-vs-sunderland-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+1. [Sunderland v Arsenal. The ref is John Brooks, and stats suggest that’s going to be a problem.](https://untold-arsenal.com/archives/122949) - **Untold-arsenal.com**
+2. [Sunderland v Arsenal Match Preview: Gunners Face Tough Stadium of Light Test](https://www.justarsenal.com/sunderland-v-arsenal-match-preview-gunners-face-tough-stadium-of-light-test/421911) - **Just Arsenal News**
+3. [David Moyes confirms Jack Grealish news ahead of Tottenham Hotspur clash](https://eplindex.com/150380/david-moyes-confirms-jack-grealish-news-ahead-of-tottenham-hotspur-clash.html) - **English Premier League Index - Opta Stats**
+4. [Virgil van Dijk calls for ‘consistency’ ahead of Liverpool’s clash with Fulham](https://anfieldindex.com/99957/virgil-van-dijk-calls-for-consistency-ahead-of-liverpools-clash-with-fulham.html) - **Anfieldindex.com**
+5. [Matos wary of veteran Vardy as Swans host Clarets](https://www.bbc.com/sport/football/articles/c804g28zlv0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [How to Watch Aston Villa vs. Nottingham Forest Live Today: Start Time, TV Channels, Streaming](https://heavy.com/sports/soccer/premier-league/aston-villa-nottingham-forest-live-today-start-time-tv-channels-streaming/) - **Heavy.com**
+7. [The Premier League Conquered the World. At What Cost?](https://biztoc.com/x/b5e0348b0d53f7d1) - **Biztoc.com**
+8. [Where to watch Tottenham vs. Everton live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-tottenham-everton-stream-channel-time-premier-league/7e8af0f9262cf31ee7d3eedf) - **Sporting News**
+9. [How to watch Liverpool vs Fulham live from anywhere – TV and streaming details](https://anfieldindex.com/99968/how-to-watch-liverpool-vs-fulham-live-from-anywhere-tv-and-streaming-details.html) - **Anfieldindex.com**
+10. [“Yes” – Xabi Alonso has no doubts over elite striker comparison](https://www.talkchelsea.net/news-now/xabi-alonso-elite-striker-comparison/) - **Talk Chelsea**
 
 
 ---
-*최근 업데이트: 2026-09-13 14:23:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-13 19:36:15 (KST) / (하루 100회 제한 준수 중)*
