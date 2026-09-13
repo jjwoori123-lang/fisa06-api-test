@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sunderland v Arsenal. The ref is John Brooks, and stats suggest that’s going to be a problem.](https://untold-arsenal.com/archives/122949) - **Untold-arsenal.com**
-2. [Sunderland v Arsenal Match Preview: Gunners Face Tough Stadium of Light Test](https://www.justarsenal.com/sunderland-v-arsenal-match-preview-gunners-face-tough-stadium-of-light-test/421911) - **Just Arsenal News**
-3. [David Moyes confirms Jack Grealish news ahead of Tottenham Hotspur clash](https://eplindex.com/150380/david-moyes-confirms-jack-grealish-news-ahead-of-tottenham-hotspur-clash.html) - **English Premier League Index - Opta Stats**
-4. [Virgil van Dijk calls for ‘consistency’ ahead of Liverpool’s clash with Fulham](https://anfieldindex.com/99957/virgil-van-dijk-calls-for-consistency-ahead-of-liverpools-clash-with-fulham.html) - **Anfieldindex.com**
-5. [Matos wary of veteran Vardy as Swans host Clarets](https://www.bbc.com/sport/football/articles/c804g28zlv0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [How to Watch Aston Villa vs. Nottingham Forest Live Today: Start Time, TV Channels, Streaming](https://heavy.com/sports/soccer/premier-league/aston-villa-nottingham-forest-live-today-start-time-tv-channels-streaming/) - **Heavy.com**
-7. [The Premier League Conquered the World. At What Cost?](https://biztoc.com/x/b5e0348b0d53f7d1) - **Biztoc.com**
-8. [Where to watch Tottenham vs. Everton live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-tottenham-everton-stream-channel-time-premier-league/7e8af0f9262cf31ee7d3eedf) - **Sporting News**
-9. [How to watch Liverpool vs Fulham live from anywhere – TV and streaming details](https://anfieldindex.com/99968/how-to-watch-liverpool-vs-fulham-live-from-anywhere-tv-and-streaming-details.html) - **Anfieldindex.com**
-10. [“Yes” – Xabi Alonso has no doubts over elite striker comparison](https://www.talkchelsea.net/news-now/xabi-alonso-elite-striker-comparison/) - **Talk Chelsea**
+1. [Chelsea concedes 11 goals in first 6 games of the season](https://cryptobriefing.com/chelsea-11-goals-conceded-six-games/) - **Crypto Briefing**
+2. [Arsenal Starting XI vs Sunderland: Confirmed Team News and Predicted Lineup](https://eplindex.com/150386/arsenal-starting-xi-vs-sunderland-confirmed-team-news-and-predicted-lineup-3.html) - **English Premier League Index - Opta Stats**
+3. [ Morgan Rogers joins iconic Chelsea pride with early opener against Hull](https://onefootball.com/en/news/morgan-rogers-joins-iconic-chelsea-pride-with-early-opener-against-hull-43446838) - **Onefootball.com**
+4. [Chelsea scores in 1st, 2nd, 4th, and 7th minutes of Premier League matches](https://cryptobriefing.com/chelsea-early-goals-premier-league-record/) - **Crypto Briefing**
+5. [Chelsea’s Morgan Rogers scores early goal against Hull in Premier League](https://cryptobriefing.com/chelsea-morgan-rogers-goal-hull-premier-league/) - **Crypto Briefing**
+6. [Premier League today: how to watch Sunderland v Arsenal, TV channels & live stream Saturday 12 September](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0f536d99-0a1a-47f5-96e6-fa3b46d51e67) - **Yahoo Entertainment**
+7. [Premier League schedule: What EPL games are on today, September 12?](https://www.thebiglead.com/premier-league-schedule-what-epl-games-are-on-today-september-12/) - **The Big Lead**
+8. [Romano: Carrick ‘super appreciated’ at Man Utd after preventing INEOS from committing major transfer blunder](https://utdreport.co.uk/2026/09/12/romano-man-united-michael-carrick-kobbie-mainoo/) - **Utdreport.co.uk**
+9. [Liverpool hosts Fulham at Anfield in Premier League clash](https://cryptobriefing.com/liverpool-fulham-anfield-premier-league/) - **Crypto Briefing**
+10. [Arsenal lineup vs Sunderland today: Predicted starting XI for Premier League](https://www.usatoday.com/story/sports/soccer/epl/2026/09/12/arsenal-lineup-today-vs-sunderland-starting-lineup/91708214007/) - **USA Today**
 
 
 ---
-*최근 업데이트: 2026-09-13 19:36:15 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-13 23:40:17 (KST) / (하루 100회 제한 준수 중)*
