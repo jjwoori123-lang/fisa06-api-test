@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea concedes 11 goals in first 6 games of the season](https://cryptobriefing.com/chelsea-11-goals-conceded-six-games/) - **Crypto Briefing**
-2. [Arsenal Starting XI vs Sunderland: Confirmed Team News and Predicted Lineup](https://eplindex.com/150386/arsenal-starting-xi-vs-sunderland-confirmed-team-news-and-predicted-lineup-3.html) - **English Premier League Index - Opta Stats**
-3. [ Morgan Rogers joins iconic Chelsea pride with early opener against Hull](https://onefootball.com/en/news/morgan-rogers-joins-iconic-chelsea-pride-with-early-opener-against-hull-43446838) - **Onefootball.com**
-4. [Chelsea scores in 1st, 2nd, 4th, and 7th minutes of Premier League matches](https://cryptobriefing.com/chelsea-early-goals-premier-league-record/) - **Crypto Briefing**
-5. [Chelsea’s Morgan Rogers scores early goal against Hull in Premier League](https://cryptobriefing.com/chelsea-morgan-rogers-goal-hull-premier-league/) - **Crypto Briefing**
-6. [Premier League today: how to watch Sunderland v Arsenal, TV channels & live stream Saturday 12 September](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_0f536d99-0a1a-47f5-96e6-fa3b46d51e67) - **Yahoo Entertainment**
-7. [Premier League schedule: What EPL games are on today, September 12?](https://www.thebiglead.com/premier-league-schedule-what-epl-games-are-on-today-september-12/) - **The Big Lead**
-8. [Romano: Carrick ‘super appreciated’ at Man Utd after preventing INEOS from committing major transfer blunder](https://utdreport.co.uk/2026/09/12/romano-man-united-michael-carrick-kobbie-mainoo/) - **Utdreport.co.uk**
-9. [Liverpool hosts Fulham at Anfield in Premier League clash](https://cryptobriefing.com/liverpool-fulham-anfield-premier-league/) - **Crypto Briefing**
-10. [Arsenal lineup vs Sunderland today: Predicted starting XI for Premier League](https://www.usatoday.com/story/sports/soccer/epl/2026/09/12/arsenal-lineup-today-vs-sunderland-starting-lineup/91708214007/) - **USA Today**
+1. [Sunderland vs Arsenal live: Confirmed teams and full line ups](https://www.101greatgoals.com/football/premier-league/sunderland-vs-arsenal-live-teams-line-ups-where-to-watch-tv-channel-online-stream/) - **101 Great Goals**
+2. [Maresca the 'perfect person for the job'](https://www.bbc.com/sport/football/articles/cn9w54gvxneo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Iraola cites 'lack of freshness' after Liverpool draw](https://www.rte.ie/sport/soccer/2026/0912/1591317-iraola-cites-lack-of-freshness-after-liverpool-draw/) - **RTE**
+4. [Premier League Soccer: Watch Sunderland vs. Arsenal Live From Anywhere - CNET](https://www.cnet.com/culture/sports/premier-league-soccer-watch-sunderland-vs-arsenal-live-from-anywhere/) - **CNET**
+5. [ BREAKING: Sunderland and Arsenal name XIs for PL meeting](https://onefootball.com/en/news/breaking-sunderland-and-arsenal-name-xis-for-pl-meeting-43447990) - **Onefootball.com**
+6. [Iraola bemoans Liverpool's lack of cutting edge and explains Barcola plan](https://www.skysports.com/football/news/11669/13585141/liverpool-boss-andoni-iraola-bemoans-lack-of-creativity-and-cutting-edge-against-fulham-and-explains-bradley-barcola-plan) - **Sky Sports**
+7. [Confirmed Arsenal Team v Sunderland: Gunners Target Six Wins From Six](https://www.justarsenal.com/confirmed-arsenal-team-v-sunderland-gunners-target-six-wins-from-six/421914) - **Just Arsenal News**
+8. [Arsenal and Sunderland teams released](https://dailycannon.com/2026/09/sunderland-arsenal-teams/) - **Dailycannon.com**
+9. [Aston Villa 1-2 Nottingham Forest: What Glasner and Jesus said](https://www.bbc.com/sport/football/articles/c3v4n3yke35o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [A new era for the Manchester derby after Pep Guardiola''s departure](https://economictimes.indiatimes.com/news/sports/football/a-new-era-for-the-manchester-derby-after-pep-guardiolas-departure/articleshow/134147980.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-09-13 23:40:17 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-14 02:58:50 (KST) / (하루 100회 제한 준수 중)*
