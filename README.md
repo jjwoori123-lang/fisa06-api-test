@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Today’s NYT Connections: Sports Edition Hints and Answers for Sept. 13, #720 - CNET](https://www.cnet.com/tech/gaming/todays-nyt-connections-sports-edition-hints-and-answers-for-sept-13-720/) - **CNET**
-2. [Fulham Frustrate Liverpool as Iraola’s Reds Produce Flat Anfield Display](https://anfieldindex.com/100013/fulham-frustrate-liverpool-as-iraolas-reds-produce-flat-anfield-display.html) - **Anfieldindex.com**
-3. [2026 College Football Rankings Top 25 - Week 3: Expert picks, analysis, projections including Texas, Michigan](https://www.nbcsports.com/college-football/news/2026-college-football-rankings-top-25-week-3-expert-picks-analysis-projections-including-texas-michigan) - **NBCSports.com**
-4. [Report: Liverpool and Chelsea told to pay €70m for Ligue 1 star](https://eplindex.com/150421/report-liverpool-and-chelsea-told-to-pay-e70m-for-ligue-1-star.html) - **English Premier League Index - Opta Stats**
-5. [Coventry host Brighton in early Premier League clash](https://onefootball.com/en/news/coventry-host-brighton-in-early-premier-league-clash-43452105) - **Onefootball.com**
-6. [How to watch Man Utd vs Man City: Live streams, TV channels for Premier League 2026/27](https://www.techradar.com/how-to-watch/football/man-utd-vs-man-city-premier-league-2026-27) - **TechRadar**
-7. [Leeds v Newcastle: Key stats and talking points](https://www.bbc.com/sport/football/articles/c20v6le4g03o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Leeds United vs Newcastle United: Team news, key stats and everything you need to know](https://www.leedsunited.com/en/news/leeds-united-vs-newcastle-united-team-news-key-stats-and-everything-you-need-to-know) - **Leedsunited.com**
-9. [Why Arteta Was Furious After Arsenal's Perfect Start](https://www.rediff.com/sports/report/epl-controversial-penalty-decision-riles-arsenal-boss-despite-perfect-start-to-season/20260913.htm) - **Rediff.com**
-10. [“Must focus on…”: Michael Carrick explains how United need to approach the Manchester derby](https://thepeoplesperson.com/2026/09/13/must-focus-on-michael-carrick-explains-how-united-need-to-approach-the-manchester-derby-315809/) - **The Peoples Person**
+1. [Haaland goal sees 10-men City beat United in controversial Manchester derby](https://www.aljazeera.com/sports/2026/9/13/haaland-goal-sees-10-men-city-beat-united-in-controversial-manchester-derby) - **Al Jazeera English**
+2. [From the moment stupid Phil Foden was sent off, there was only one team playing smart, cute football... and it wasn't Man United, who fell straight into City's trap, writes IAN LADYMAN](https://www.dailymail.com/sport/football/article-16124731/From-moment-stupid-Phil-Foden-sent-one-team-playing-smart-cute-football-wasnt-Man-United-fell-straight-Citys-trap-writes-IAN-LADYMAN.html) - **Dailymail.com**
+3. [Man City become first away team to win 10 Premier League games at Old Trafford](https://thefootballfaithful.com/man-city-become-first-away-team-to-win-10-premier-league-games-at-old-trafford/) - **The Football Faithful**
+4. [Carrick confused that controversial Man City winner allowed to stand](https://thefootballfaithful.com/carrick-confused-that-controversial-man-city-winner-allowed-to-stand/) - **The Football Faithful**
+5. [Man Utd 0-1 Man City: What Maresca said](https://www.bbc.com/sport/football/articles/czjz0797mrzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Four Wins From Four: Arsenal and Man City Already Setting the Premier League Pace](https://www.justarsenal.com/four-wins-from-four-arsenal-and-man-city-already-setting-the-premier-league-pace/421969) - **Just Arsenal News**
+7. [We all shone at Old Trafford, says Anderson](https://www.mancity.com/news/mens/anderson-post-man-utd-reaction-pl-13-sep-63924898) - **Manchester City FC**
+8. [Kilwinning Rangers may boast American investment and enjoyed a crushing win over Celtic... but unlike their Glasgow namesakes, their journey is only just beginning](https://www.dailymail.com/sport/football/article-16127721/Kilwinning-Rangers-boast-American-investment-enjoyed-crushing-win-Celtic-unlike-Glasgow-namesakes-journey-just-beginning.html) - **Dailymail.com**
+9. [Man Utd 0-1 Man City: What Carrick said](https://www.bbc.com/sport/football/articles/cy8zj74k00no?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-09-14 22:00:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-15 03:41:49 (KST) / (하루 100회 제한 준수 중)*
