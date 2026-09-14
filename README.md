@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['Today the game was unprotected' - Arteta fumes but Arsenal survive](https://www.bbc.co.uk/sport/football/articles/c5ym4384rezo) - **BBC News**
-2. [Arteta seethes at Sunderland penalty decision despite Arsenal win](https://www.aljazeera.com/sports/2026/9/12/arteta-seethes-at-sunderland-penalty-decision-despite-arsenal-win) - **Al Jazeera English**
-3. [Arteta fumes at ‘unacceptable’ penalty decision as Arsenal beat Sunderland](https://thefootballfaithful.com/arteta-arsenal-penalty-decision-sunderland/) - **The Football Faithful**
-4. [“Gold”: Man United magician cannot help but lavish praise on Carrick’s impact on his game](https://thepeoplesperson.com/2026/09/12/gold-man-united-magician-cannot-help-but-lavish-praise-on-carricks-impact-on-his-game-315776/) - **The Peoples Person**
-5. [Digging Deeper Into Liverpool’s 0-0 Draw with Fulham](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/83603/digging-deeper-into-liverpool-0-0-draw-with-fulham-premier-league-barcola-iraola-analysis) - **SB Nation**
-6. [VIDEO: Guimaraes hails first Arsenal goal in 2-0 win over Sunderland](https://punchng.com/video-guimaraes-hails-first-arsenal-goal-in-2-0-win-over-sunderland/) - **The Punch**
-7. [PIX: Arsenal maintain perfect start; Liverpool, Chelsea held](https://www.rediff.com/sports/report/premier-league-pix-arsenal-maintain-perfect-start-liverpool-chelsea-held/20260913.htm) - **Rediff.com**
-8. [Arteta blasts 'unacceptable' Sunderland penalty despite Arsenal win](https://sports.yahoo.com/articles/arteta-blasts-unacceptable-sunderland-penalty-220202896.html) - **Yahoo Entertainment**
-9. [Furious Arteta on Sunderland penalty call: 'This cannot happen'](https://www.skysports.com/football/news/11095/13585214/mikel-arteta-rages-at-sunderland-penalty-decision-after-arsenal-win-at-stadium-of-light-this-cannot-happen) - **Sky Sports**
+1. [I’m really proud of Aina –Glasner](https://punchng.com/im-really-proud-of-aina-glasner/) - **The Punch**
+2. [Shearer poor one-on-one — Yakubu](https://punchng.com/shearer-poor-one-on-one-yakubu/) - **The Punch**
+3. [Struggling Pride of Abia host free-scoring Bees](https://punchng.com/struggling-pride-of-abia-host-free-scoring-bees/) - **The Punch**
+4. [Rangers gift players $10,000 after Sobemap win](https://punchng.com/rangers-gift-players-10000-after-sobemap-win/) - **The Punch**
+5. [Rivals clash in first Lagos derby in 10 years](https://punchng.com/rivals-clash-in-first-lagos-derby-in-10-years/) - **The Punch**
+6. [Savannah Tigers maintain perfect start](https://punchng.com/savannah-tigers-maintain-perfect-start/) - **The Punch**
+7. [Ward hails Ajayi defending in Chelsea draw](https://punchng.com/ward-hails-ajayi-defending-in-chelsea-draw/) - **The Punch**
+8. [Chelsea's defence looks 'weak & disjointed' - analysis](https://www.bbc.co.uk/sport/football/videos/ckgw13ng43xo) - **BBC News**
+9. [Clippers have insecurity problem being in Lakers’ shadow, says insider](https://nypost.com/2026/09/12/sports/clippers-have-insecurity-problem-being-in-lakers-shadow-says-insider/) - **New York Post**
+10. [Clippers have insecurity problem being in Lakers’ shadow, says insider](https://nypost.com/2026/09/12/sports/clippers-have-insecurity-problem-being-in-lakers-shadow-says-insider/?utm_source=yahoo&amp;utm_campaign=nypost&amp;utm_medium=referral) - **New York Post**
 
 
 ---
-*최근 업데이트: 2026-09-14 07:59:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-14 09:56:55 (KST) / (하루 100회 제한 준수 중)*
