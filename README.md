@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Premier League refereeing body admits 'an error of judgement' in Man City's game-winning goal over Manchester United](https://sports.yahoo.com/soccer/article/premier-league-refereeing-body-admits-an-error-of-judgement-in-man-citys-game-winning-goal-over-manchester-united-003804471.html) - **Yahoo Entertainment**
-2. [PREVIEW | Liverpool vs Tottenham: team news, lineups, predictions (League Cup 15/09)](https://www.playmakerstats.com/news/preview-liverpool-vs-tottenham-team-news-lineups-predictions-league-cup-15-09/1201703) - **Playmakerstats.com**
-3. [PREVIEW | Ipswich Town vs Arsenal: team news, lineups, predictions (League Cup 15/09)](https://www.playmakerstats.com/news/preview-ipswich-town-vs-arsenal-team-news-lineups-predictions-league-cup-15-09/1201677) - **Playmakerstats.com**
-4. [Port Harcourt to host NPBL Final 4](https://punchng.com/port-harcourt-to-host-npbl-final-4/) - **The Punch**
-5. [NPFL: Sporting thrash Inter 3-0 in Lagos derby](https://punchng.com/npfl-sporting-thrash-inter-3-0-in-lagos-derby/) - **The Punch**
-6. [Iheanacho scores ninth league goal in seventh straight game](https://punchng.com/iheanacho-scores-ninth-league-goal-in-seventh-straight-game/) - **The Punch**
-7. [Erling Haaland’s winning goal in Man City vs Man United derby wrongly allowed after an ‘error of judgement,’ confirms Pro Ref](https://worldsoccertalk.com/news/erling-haalands-winning-goal-in-man-city-vs-man-united-derby-wrongly-allowed-after-an-error-of-judgement-confirms-pro-ref/) - **Worldsoccertalk.com**
-8. [Shearer defends Awoniyi after Brighton red](https://punchng.com/shearer-defends-awoniyi-after-brighton-red/) - **The Punch**
-9. [Rivers United crash out of CAF Champions League](https://punchng.com/rivers-united-crash-out-of-caf-champions-league/) - **The Punch**
-10. ['Why not have go?!' - Dunk's wonder goal against Coventry](https://www.bbc.co.uk/sport/football/videos/cvgyree8zpro) - **BBC News**
+1. [Bayern Munich News: Max Eberl discusses nine-figure transfer sums](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/254408/max-eberl-transfer-fees-chelsea-manchester-city-liverpool-psg) - **Bavarian Football Works**
+2. [Two Manchester City midfielders were absolutely pivotal to City’s famous win over Manchester United](https://esteemedkompany.com/2026/09/14/two-manchester-city-midfielders-were-absolutely-pivotal-to-citys-famous-win-over-manchester-united/) - **Esteemedkompany.com**
+3. [Most passes, take-ons and chances created: United poor, but one Red can hold his head high after derby defeat](https://utdreport.co.uk/2026/09/14/kobbie-mainoo-stats-manchester-united-manchester-city-2026-2027/) - **Utdreport.co.uk**
+4. [‘World’s largest’ betting website closed to Irish customers after regulator intervention](https://www.irishtimes.com/ireland/2026/09/15/worlds-largest-betting-website-closed-to-irish-customers-after-regulator-intervention/) - **The Irish Times**
+5. [AS Roma XI vs Torino – Predicted lineup and team news](https://thefootballfaithful.com/as-roma-xi-vs-torino-predicted-lineup/) - **The Football Faithful**
+6. [German giants ready to ruin Man United’s transfer plans for “the next Jude Bellingham”](https://thepeoplesperson.com/2026/09/14/german-giants-ready-to-ruin-man-uniteds-transfer-plans-for-the-next-jude-bellingham-315932/) - **The Peoples Person**
+7. [Charlton boss Nathan Jones in the doghouse after linesman rant](https://www.irishtimes.com/sport/2026/09/14/all-in-the-game-charlton-boss-nathan-jones-in-the-doghouse-after-linesman-rant/) - **The Irish Times**
+8. [Ken Early: Clinical Haaland and dubious decisions, but 10-man City emerge with bragging rights](https://www.irishtimes.com/sport/soccer/2026/09/14/ken-early-clinical-haaland-and-dubious-decisions-but-10-man-city-emerge-with-bragging-rights/) - **The Irish Times**
+9. [From The Darkness, Sunderland Have Emerged Into The European Light](https://rokerreport.sbnation.com/opinion/152786/from-the-darkness-sunderland-have-emerged-into-the-european-light) - **SB Nation**
+10. [Even In Defeat, Sunderland Showed They’re No Pushovers](https://rokerreport.sbnation.com/opinion/153038/even-in-defeat-sunderland-showed-theyre-no-pushovers) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-09-15 09:53:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-15 14:56:34 (KST) / (하루 100회 제한 준수 중)*
