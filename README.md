@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bayern Munich News: Max Eberl discusses nine-figure transfer sums](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/254408/max-eberl-transfer-fees-chelsea-manchester-city-liverpool-psg) - **Bavarian Football Works**
-2. [Two Manchester City midfielders were absolutely pivotal to City’s famous win over Manchester United](https://esteemedkompany.com/2026/09/14/two-manchester-city-midfielders-were-absolutely-pivotal-to-citys-famous-win-over-manchester-united/) - **Esteemedkompany.com**
-3. [Most passes, take-ons and chances created: United poor, but one Red can hold his head high after derby defeat](https://utdreport.co.uk/2026/09/14/kobbie-mainoo-stats-manchester-united-manchester-city-2026-2027/) - **Utdreport.co.uk**
-4. [‘World’s largest’ betting website closed to Irish customers after regulator intervention](https://www.irishtimes.com/ireland/2026/09/15/worlds-largest-betting-website-closed-to-irish-customers-after-regulator-intervention/) - **The Irish Times**
-5. [AS Roma XI vs Torino – Predicted lineup and team news](https://thefootballfaithful.com/as-roma-xi-vs-torino-predicted-lineup/) - **The Football Faithful**
-6. [German giants ready to ruin Man United’s transfer plans for “the next Jude Bellingham”](https://thepeoplesperson.com/2026/09/14/german-giants-ready-to-ruin-man-uniteds-transfer-plans-for-the-next-jude-bellingham-315932/) - **The Peoples Person**
-7. [Charlton boss Nathan Jones in the doghouse after linesman rant](https://www.irishtimes.com/sport/2026/09/14/all-in-the-game-charlton-boss-nathan-jones-in-the-doghouse-after-linesman-rant/) - **The Irish Times**
-8. [Ken Early: Clinical Haaland and dubious decisions, but 10-man City emerge with bragging rights](https://www.irishtimes.com/sport/soccer/2026/09/14/ken-early-clinical-haaland-and-dubious-decisions-but-10-man-city-emerge-with-bragging-rights/) - **The Irish Times**
-9. [From The Darkness, Sunderland Have Emerged Into The European Light](https://rokerreport.sbnation.com/opinion/152786/from-the-darkness-sunderland-have-emerged-into-the-european-light) - **SB Nation**
-10. [Even In Defeat, Sunderland Showed They’re No Pushovers](https://rokerreport.sbnation.com/opinion/153038/even-in-defeat-sunderland-showed-theyre-no-pushovers) - **SB Nation**
+1. [Arsenal to contact Pro Ref over Konsa penalty](https://www.bbc.com/sport/football/articles/cmg49n3g7exlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Arsenal to contact Pro Ref over Konsa penalty](https://www.bbc.co.uk/sport/football/articles/cmg49n3g7exlo) - **BBC News**
+3. [Predictions for Chiefs vs Broncos on 'Monday Night Football' in Week 1](https://chiefswire.usatoday.com/story/sports/nfl/chiefs/2026/09/14/kansas-city-chiefs-denver-broncos-prediction-nfl-week-1/91598828007/) - **USA Today**
+4. [Andoni Iraola confirms major Liverpool injury boost ahead of Tottenham Hotspur clash](https://anfieldindex.com/100108/andoni-iraola-confirms-major-liverpool-injury-boost-ahead-of-tottenham-hotspur-clash.html) - **Anfieldindex.com**
+5. [Familiar questions for Man Utd, now Carrick must find answers](https://www.bbc.com/sport/football/articles/cddv5mqjgvlo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Familiar questions for Man Utd, now Carrick must find answers](https://www.bbc.co.uk/sport/football/articles/cddv5mqjgvlo) - **BBC News**
+7. [Arbeloa provides injury update on Fulham star](https://hayters.com/arbeloa-provides-injury-update-on-fulham-star/) - **Hayters.com**
+8. [Liverpool in the mix for new £100m-plus splurge that makes no sense](https://www.empireofthekop.com/2026/09/14/liverpool-in-the-mix-for-new-100m-plus-splurge-that-makes-no-sense/) - **Empire of The Kop**
+9. [Arteta 'very sad' with penalty decision but Gunners' duality on show](https://www.bbc.com/sport/football/articles/c6eq810rl9ewo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-09-15 14:56:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-15 20:31:31 (KST) / (하루 100회 제한 준수 중)*
