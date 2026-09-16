@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Dowman has to 'earn' minutes - Arteta](https://www.bbc.com/sport/football/articles/c3ew9jwr8445o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [EFL Cup match at Ipswich could provide crucial test for Arsenal forward Viktor Gyokeres](https://www.cbssports.com/soccer/news/efl-cup-match-at-ipswich-could-provide-crucial-test-for-arsenal-forward-viktor-gyokeres/) - **CBS Sports**
-3. [ Champions League: 2028 and 2029 final venues confirmed](https://onefootball.com/en/news/champions-league-2028-and-2029-final-venues-confirmed-43462500) - **Onefootball.com**
-4. [Should Emery be using Villa's new signings more?](https://www.bbc.com/sport/football/articles/cq1j4el0yd4wo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [The 'Brampton bagsman' taking Championship by storm](https://www.bbc.com/sport/football/articles/c5zjz00zrwwzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [The 'Brampton bagsman' taking Championship by storm](https://www.bbc.co.uk/sport/football/articles/c5zjz00zrwwzo) - **BBC News**
-7. [Crystal Palace looking to tie Dean Henderson down to new deal](https://www.playmakerstats.com/news/crystal-palace-looking-to-tie-dean-henderson-down-to-new-deal/1203769) - **Playmakerstats.com**
-8. ['Heroic' Liverpool star given last chance to save his career by Andoni Iraola](https://www.anfieldwatch.co.uk/liverpool-fc/news/heroic-liverpool-star-given-last-chance-to-save-his-career-by-andoni-iraola/) - **Anfieldwatch.co.uk**
-9. [Celtic Supporters Ltd takes fresh swipe at board after Ibrox debacle](https://celticshorts.com/2026/09/celtic-supporters-ltd-takes-fresh-swipe-at-board-after-ibrox-debacle/) - **Celticshorts.com**
-10. [De Zerbi urges goal-shy Spurs to use Carabao Cup clash at Liverpool as springboard for season revival](https://www.footballmuse.com/news/de-zerbi-urges-goal-shy-spurs-to-use-carabao-cup-clash-at-liverpool-as-springboard-for-season-revival) - **Footballmuse.com**
+1. [How to watch Liverpool vs Tottenham in USA: 2026/27 EFL Cup, Live Stream, TV and Preview](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-liverpool-vs-tottenham-in-the-usa-live-stream-and-tv-for-2026-27-efl-cup/) - **Worldsoccertalk.com**
+2. [Sterling pleads guilty to dangerous driving after Lamborghini crash](https://www.vanguardngr.com/2026/09/sterling-pleads-guilty-to-dangerous-driving-after-lamborghini-crash/) - **Vanguard**
+3. [United close to agreeing record-breaking deal with 32-yo, announcement expected in coming weeks](https://thepeoplesperson.com/2026/09/15/united-close-to-agreeing-record-breaking-deal-with-32-yo-announcement-expected-in-coming-weeks-316131/) - **The Peoples Person**
+4. [Xhaka says Premier League is priority ahead of first European clash in 53 years](https://hayters.com/xhaka-says-premier-league-is-priority-ahead-of-first-european-clash-in-53-years/) - **Hayters.com**
+5. [Tottenham Hotspur Starting XI vs Liverpool: Confirmed Team News and Predicted Lineup](https://eplindex.com/150488/tottenham-hotspur-starting-xi-vs-liverpool-confirmed-team-news-and-predicted-lineup-3.html) - **English Premier League Index - Opta Stats**
+6. [EXCLUSIVE | Bacary Sagna: ‘When you have Neymar, Mbappé, Ramos and Messi and you push them to leave, you’re shooting yourself in the foot.’](https://getfootball.eu/exclusive-bacary-sagna-when-you-have-neymar-mbappe-ramos-and-messi-and-you-push-them-to-leave-youre-shooting-yourself-in-the-foot/) - **Getfootball.eu**
+7. [Man Utd teenage prodigy JJ Gabriel asks to leave club – Reports](https://www.vanguardngr.com/2026/09/man-utd-teenage-prodigy-jj-gabriel-asks-to-leave-club-reports/) - **Vanguard**
+8. [Why did JJ Gabriel ask to leave Manchester United?](https://ftw.usatoday.com/story/sports/soccer/2026/09/15/jj-gabriel-ask-to-leave-manchester-united-why/91773824007/) - **USA Today**
+9. [EXCLUSIVE | Bacary Sagna: ‘Loving football is one thing, but understanding it is something else. It is about business.’](https://getfootball.eu/exclusive-bacary-sagna-loving-football-is-one-thing-but-understanding-it-is-something-else-it-is-about-business/) - **Getfootball.eu**
+10. [‘Trying to write Martin O’Neill off’ – Martin Keown hits back at Celtic boss criticism](https://celticshorts.com/2026/09/trying-to-write-martin-oneill-off-martin-keown-hits-back-at-celtic-boss-criticism/) - **Celticshorts.com**
 
 
 ---
-*최근 업데이트: 2026-09-16 19:02:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-17 00:01:36 (KST) / (하루 100회 제한 준수 중)*
