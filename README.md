@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How to watch Liverpool vs Tottenham in USA: 2026/27 EFL Cup, Live Stream, TV and Preview](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-liverpool-vs-tottenham-in-the-usa-live-stream-and-tv-for-2026-27-efl-cup/) - **Worldsoccertalk.com**
-2. [Sterling pleads guilty to dangerous driving after Lamborghini crash](https://www.vanguardngr.com/2026/09/sterling-pleads-guilty-to-dangerous-driving-after-lamborghini-crash/) - **Vanguard**
-3. [United close to agreeing record-breaking deal with 32-yo, announcement expected in coming weeks](https://thepeoplesperson.com/2026/09/15/united-close-to-agreeing-record-breaking-deal-with-32-yo-announcement-expected-in-coming-weeks-316131/) - **The Peoples Person**
-4. [Xhaka says Premier League is priority ahead of first European clash in 53 years](https://hayters.com/xhaka-says-premier-league-is-priority-ahead-of-first-european-clash-in-53-years/) - **Hayters.com**
-5. [Tottenham Hotspur Starting XI vs Liverpool: Confirmed Team News and Predicted Lineup](https://eplindex.com/150488/tottenham-hotspur-starting-xi-vs-liverpool-confirmed-team-news-and-predicted-lineup-3.html) - **English Premier League Index - Opta Stats**
-6. [EXCLUSIVE | Bacary Sagna: ‘When you have Neymar, Mbappé, Ramos and Messi and you push them to leave, you’re shooting yourself in the foot.’](https://getfootball.eu/exclusive-bacary-sagna-when-you-have-neymar-mbappe-ramos-and-messi-and-you-push-them-to-leave-youre-shooting-yourself-in-the-foot/) - **Getfootball.eu**
-7. [Man Utd teenage prodigy JJ Gabriel asks to leave club – Reports](https://www.vanguardngr.com/2026/09/man-utd-teenage-prodigy-jj-gabriel-asks-to-leave-club-reports/) - **Vanguard**
-8. [Why did JJ Gabriel ask to leave Manchester United?](https://ftw.usatoday.com/story/sports/soccer/2026/09/15/jj-gabriel-ask-to-leave-manchester-united-why/91773824007/) - **USA Today**
-9. [EXCLUSIVE | Bacary Sagna: ‘Loving football is one thing, but understanding it is something else. It is about business.’](https://getfootball.eu/exclusive-bacary-sagna-loving-football-is-one-thing-but-understanding-it-is-something-else-it-is-about-business/) - **Getfootball.eu**
-10. [‘Trying to write Martin O’Neill off’ – Martin Keown hits back at Celtic boss criticism](https://celticshorts.com/2026/09/trying-to-write-martin-oneill-off-martin-keown-hits-back-at-celtic-boss-criticism/) - **Celticshorts.com**
+1. [Allan, Ndiaye And Ait-Nouri To Start | 4-2-3-1 Manchester City Predicted Lineup Vs Norwich City](https://the4thofficial.net/2026/09/allan-ndiaye-and-ait-nouri-to-start-4-2-3-1-manchester-city-predicted-lineup-vs-norwich-city/) - **The4thofficial.net**
+2. [Mario Vušković celebrates emotional return from four-year doping ban with 7,000 HSV fans](https://bulinews.com/mario-vuskovic-celebrates-emotional-return-four-year-doping-ban-7-000-hsv-fans) - **Bulinews.com**
+3. [Graham: Sligo Rovers best one-year improvement I've seen](https://www.rte.ie/sport/soccer/2026/0915/1591637-graham-sligo-rovers-best-one-year-improvement-ive-seen/) - **RTE**
+4. [Canadiens Lineup Analysis: Five Line Options Including Kreider](https://sportsnaut.com/nhl/montreal-canadiens/kreider-canadiens-forward-combinations-projections-lineup) - **Sportsnaut**
+5. [‘Really good call’ – Howard Webb stands over big VAR decision from recent Liverpool fixture](https://www.empireofthekop.com/2026/09/15/howard-webb-stands-over-var-decision-from-recent-liverpool-fixture/) - **Empire of The Kop**
+6. [PREVIEW | Manchester City vs Norwich City: team news, lineups, predictions (League Cup 17/09)](https://www.playmakerstats.com/news/preview-manchester-city-vs-norwich-city-team-news-lineups-predictions-league-cup-17-09/1204115) - **Playmakerstats.com**
+7. [Pro Ref chief explains why Bruno Fernandes escaped a booking for derby incident](https://thepeoplesperson.com/2026/09/15/pro-ref-chief-explains-why-bruno-fernandes-escaped-a-booking-for-derby-incident-316153/) - **The Peoples Person**
+8. [Ipswich v Arsenal LIVE: Can Gunners maintain 100% record against Tractor Boys?](https://www.101greatgoals.com/live/ipswich-town-vs-arsenal-live-score-text-updates-goals-efl-cup-stats-latest-result-carabao/) - **101 Great Goals**
+9. [Liverpool v Tottenham LIVE: Can Reds bounce back at Anfield after weekend bore draw?](https://www.101greatgoals.com/live/liverpool-vs-tottenham-live-score-text-updates-goals-efl-cupstats-latest-result-spurs-carabao/) - **101 Great Goals**
+10. [Elche vs Real Madrid: Confirmed teams, full line ups in La Liga](https://www.101greatgoals.com/football/la-liga/elche-vs-real-madrid-live-team-news-line-ups-online-stream-tv-channel-where-to-watch/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-09-17 00:01:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-17 03:55:46 (KST) / (하루 100회 제한 준수 중)*
