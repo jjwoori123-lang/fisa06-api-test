@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['Unplayable' & 'almost perfect' - Calvert-Lewin set for England recall?](https://www.bbc.com/sport/football/articles/cv1j49220j93o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Moto Wrap | Deegan dominates | Darwin decider | Kurtz three points back](https://www.mcnews.com.au/?p=587582) - **Mcnews.com.au**
-3. [NFF suspends referee over Doma United goal](https://punchng.com/nff-suspends-referee-over-doma-united-goal/) - **The Punch**
-4. [Rivers, 3SC get $100k consolation from CAF](https://punchng.com/rivers-3sc-get-100k-consolation-from-caf/) - **The Punch**
-5. [Awoniyi’s red not to blame for Brighton defeat – Lampard](https://punchng.com/awoniyis-red-not-to-blame-for-brighton-defeat-lampard/) - **The Punch**
-6. [If Harry Kane returns to England where would he go? One pundit has an idea](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/256335/if-harry-kane-returns-to-england-prem-erleague-tottenham-arsenal-chelsea-manchester-united-liverpool) - **Bavarian Football Works**
-7. [Cristiano Ronaldo’s Al-Nassr 2026-27 AFC Champions League Elite schedule: Dates, fixtures, and opponents](https://worldsoccertalk.com/news/cristiano-ronaldos-al-nassr-2026-27-afc-champions-league-elite-schedule-dates-fixtures-and-opponents/) - **Worldsoccertalk.com**
-8. [USA Roster Prediction: Will Christian Pulisic Make The First Post-World Cup Roster?](https://www.foxsports.com/stories/soccer/usmnt-roster-prediction-2026-christian-pulisic-cavan-sullivan) - **Fox Sports**
-9. [Leeds thrash Newcastle 4-1 to climb to third in Premier League](https://www.channelnewsasia.com/sport/leeds-thrash-newcastle-4-1-climb-third-in-premier-league-6384556) - **CNA**
-10. ['Unplayable' & 'almost perfect'- Calvert-Lewin set for England recall?](https://www.bbc.co.uk/sport/football/articles/cv1j49220j93o) - **BBC News**
+1. [Hospitality a lifeline for flood-hit non-league club](https://www.bbc.com/news/articles/c62j6v1xjn6o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [When Carlos Baleba will finally make his Man United debut revealed](https://thepeoplesperson.com/2026/09/15/when-carlos-baleba-will-finally-make-his-man-united-debut-revealed-316066/) - **The Peoples Person**
+3. [Which Player Might Make Sunderland Scoring History Against AZ Alkmaar?](https://rokerreport.sbnation.com/opinion/153088/which-player-might-make-sunderland-scoring-history-against-az-alkmaar) - **SB Nation**
+4. [Talking Tactics: How Le Bris Took the Gunners to the Wire](https://rokerreport.sbnation.com/features/153174/talking-tactics-how-le-bris-took-the-gunners-to-the-wire) - **SB Nation**
+5. [OTD (15/9/2012): Sunderland & Liverpool Share the Spoils in 2012](https://rokerreport.sbnation.com/features/153054/otd-15-9-12-honours-even-between-sunderland-and-liverpool) - **SB Nation**
+6. [Fan Letters: The Hunt For Barnesy Goes On, & Controversial Decisions](https://rokerreport.sbnation.com/fan-letters/153181/fan-letters-the-hunt-for-barnesy-goes-on-controversial-decisions) - **SB Nation**
+7. [Liverpool vs Tottenham Hotspur – Predicted lineup and team news](https://thefootballfaithful.com/liverpool-vs-tottenham-hotspur-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+8. [Brentford XI vs Reading – Predicted lineup and team news](https://thefootballfaithful.com/brentford-xi-vs-reading-predicted-lineup-and-team-news/) - **The Football Faithful**
+9. [Liverpool vs Tottenham Hotspur – Match preview and team news](https://thefootballfaithful.com/liverpool-vs-tottenham-hotspur-match-preview-and-team-news-2/) - **The Football Faithful**
+10. [Real Madrid XI vs Elche – Predicted lineup and team news](https://thefootballfaithful.com/real-madrid-xi-vs-elche-predicted-lineup/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-09-16 09:31:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-16 14:14:19 (KST) / (하루 100회 제한 준수 중)*
