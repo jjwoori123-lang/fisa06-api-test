@@ -1,15 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Maresca provides injury update and team news ahead of Canaries clash](https://www.mancity.com/news/mens/city-v-norwich-enzo-maresca-provides-injury-update-and-team-news-63925149) - **Manchester City FC**
-2. [Rodri explains why he called Jose Mourinho after choosing Barcelona over Real Madrid](https://siempremadrid.com/rodri-explains-why-he-called-jose-mourinho-after-choosing-barcelona-over-real-madrid/) - **Siempremadrid.com**
-3. [I Don’t Want to Live In a World Where Ted Lasso Is on Dating Apps](https://www.esquire.com/entertainment/tv/a73740585/ted-lasso-season-4-episode-7-recap/) - **esquire.com**
-4. [Manchester City coach criticizes focus on controversial Haaland goal](https://cryptobriefing.com/maresca-criticizes-haaland-goal-controversy/) - **Crypto Briefing**
-5. [Barcelona vs Racing Santander – Predicted lineup and team news](https://thefootballfaithful.com/barcelona-vs-racing-santander-lineup/) - **The Football Faithful**
-6. [Barcelona vs Racing Santander – Match preview and team news](https://thefootballfaithful.com/barcelona-vs-racingsantander-match-preview/) - **The Football Faithful**
-7. [Jurgen Klopp plans to call up new players for Germany national team from Bundesliga 3](https://cryptobriefing.com/klopp-germany-bundesliga-3-call-ups/) - **Crypto Briefing**
-8. [Liverpool youngster shares farewell ahead of Arsenal move](https://dailycannon.com/2026/09/arsenal-liverpool-vincent-joseph-farewell/) - **Dailycannon.com**
-9. [KMI panel reach verdict on Gabriel-Chelsea red-card incident](https://dailycannon.com/2026/09/kmi-panel-gabriel-chelsea-red-card/) - **Dailycannon.com**
+1. [How to Watch the 2026 Campeones Cup Game Live (Even for Free)](https://uk.pcmag.com/video-streaming-services/167330/how-to-watch-inter-miami-vs-cruz-azul-2026-campeones-cup-live-for-free) - **PCMag.com**
+2. [Report: Liverpool are in the race to sign Serie A midfielder](https://anfieldindex.com/100284/report-liverpool-are-in-the-race-to-sign-serie-a-midfielder.html) - **Anfieldindex.com**
+3. [FULL LIST: Top 10 players with most goals, assists in Europe so far](https://punchng.com/full-list-top-10-players-with-most-goals-assists-in-europe-so-far/) - **The Punch**
+4. ['I didn't realise probably how good he was'](https://www.bbc.com/sport/football/articles/cmd94ep3n34zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [‘Expect an exciting and open contest’: Brentford v Chelsea insight with Bobby Vincent, Mirror Sport](https://www.brentfordfc.com/en/news/article/analysis-brentford-v-chelsea-premier-league-bobby-vincent-mirror-sport) - **Brentfordfc.com**
+6. [Real Madrid in pole position to sign Manchester United wonderkid JJ Gabriel](https://siempremadrid.com/real-madrid-in-pole-position-to-sign-manchester-united-wonderkid-jj-gabriel/) - **Siempremadrid.com**
+7. [What next for Gabriel and Man Utd?](https://www.bbc.com/sport/football/articles/crgjqw0l01njo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [GOKABET Enters Nigeria’s Sports Betting Market With a Sportsbook Built for Serious Fans](https://www.vanguardngr.com/2026/09/gokabet-enters-nigerias-sports-betting-market-with-a-sportsbook-built-for-serious-fans/) - **Vanguard**
+9. [Manchester United scrambles to retain JJ Gabriel amid exit desire](https://cryptobriefing.com/manchester-united-jj-gabriel-exit/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-09-17 19:05:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-18 00:04:47 (KST) / (하루 100회 제한 준수 중)*
