@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Is this why referees misjudge Arsenal?](https://dailycannon.com/2026/09/referees-dont-like-arsenal/) - **Dailycannon.com**
-2. [How much does the Campeones Cup winner get? Inter Miami vs Cruz Azul prize money breakdown](https://worldsoccertalk.com/news/how-much-does-the-campeones-cup-winner-get-inter-miami-vs-cruz-azul-prize-money-breakdown/) - **Worldsoccertalk.com**
-3. [England legends Earps and Parris heap praise on London City’s ‘non-traditional’ approach to WSL](https://www.alloutsoccer.com/news/england-earps-parris-lionesses-wsl-2027589) - **Alloutsoccer.com**
-4. [Joao Pedro withdraws from Brazil squad through injury](https://sports.yahoo.com/articles/joao-pedro-withdraws-brazil-squad-183328412.html) - **Yahoo Entertainment**
-5. [Tottenham Hotspur Are Keen On Signing This Nottingham Forest Talent: Should De Zerbi Snap Him Up?](https://the4thofficial.net/2026/09/tottenham-hotspur-are-keen-on-signing-this-nottingham-forest-talent/) - **The4thofficial.net**
-6. [Man United v Brighton LIVE: Can Red Devils respond after derby disappointment against in-form Seagulls](https://www.101greatgoals.com/live/man-united-v-brighton-live-score-text-updates-goals-efl-cup-stats-latest-result-carabao/) - **101 Great Goals**
-7. [Cherries 'looking forward to competing in this great competition' - Cook](https://www.bbc.com/sport/football/articles/cqwyzgmndg0po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Training: Tuning up to face the Canaries!](https://www.mancity.com/news/mens/training-gallery-16-september-2026-63925165) - **Manchester City FC**
-9. [Liverpool Are Well Positioned To Land This Ligue 1 Midfielder In January: Good Choice For Iraola?](https://the4thofficial.net/2026/09/liverpool-are-well-positioned-to-land-this-ligue-1-midfielder-in-january-good-choice-for-iraola/) - **The4thofficial.net**
-10. [Chelsea suffer huge blow as Joao Pedro is forced to withdraw from Brazil squad through injury just two days before Brentford clash](https://www.dailymail.com/sport/football/article-16136897/Joao-Pedro-forced-withdraw-Carlo-Ancelottis-Brazil-squad-injury-huge-blow-Chelsea-ahead-Brentford-clash.html) - **Dailymail.com**
+1. [Anfield return for Alonso's Chelsea in Carabao Cup draw](https://www.rte.ie/sport/soccer/2026/0916/1591835-anfield-return-for-alonsos-chelsea-in-carabao-cup-draw/) - **RTE**
+2. [Today’s NYT Connections: Sports Edition Hints and Answers for Sept. 17, #724](https://www.cnet.com/tech/gaming/todays-nyt-connections-sports-edition-hints-and-answers-for-sept-17-724/) - **CNET**
+3. [EFL: Man Utd misery mounts after 3-2 League Cup collapse against Brighton](https://punchng.com/efl-man-utd-misery-mounts-after-3-2-league-cup-collapse-against-brighton/) - **The Punch**
+4. [[FULL LIST] Carabao Cup: Liverpool face Chelsea, Arsenal draw Fleetwood in fourth round fixtures](https://punchng.com/full-list-carabao-cup-liverpool-face-chelsea-arsenal-draw-fleetwood-in-fourth-round-fixtures/) - **The Punch**
+5. [Carrick takes the blame as troubled Man Utd suffer League Cup misery](https://sports.yahoo.com/articles/carrick-takes-blame-troubled-man-220714018.html) - **Yahoo Entertainment**
+6. [Man United Crashes Out Of English League Cup After Blowing 2-0 Lead To Brighton](https://www.foxsports.com/stories/soccer/man-united-crashes-out-english-league-cup-after-blowing-2-0-lead-brighton) - **Fox Sports**
+7. [Liverpool handed blockbusting League Cup last-16 clash with Chelsea](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260916-930-696914/) - **Dpa-international.com**
+8. [League Two Fleetwood host Arsenal in Carabao Cup](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ec99deb9-f7dd-4046-8b5d-d5c7e63c05b8) - **Yahoo Entertainment**
+9. [fplkit 2.7.2](https://pypi.org/project/fplkit/2.7.2/) - **Pypi.org**
+10. [Alexander Volkanovski forces Jordan Mailata to tap out in seconds](https://theeagleswire.usatoday.com/story/sports/nfl/eagles/2026/09/16/jordan-mailata-alexander-volkanovski-ufc-submission-eagles/91799378007/) - **USA Today**
 
 
 ---
-*최근 업데이트: 2026-09-18 04:05:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-18 07:16:07 (KST) / (하루 100회 제한 준수 중)*
