@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Official: Manchester United confirm three players have signed new deals](https://thepeoplesperson.com/2026/09/17/official-manchester-united-confirm-three-players-have-signed-new-deals-316453/) - **The Peoples Person**
-2. [Manchester City 5 Norwich City 0: Thoughts and observations from City’s routine victory](https://esteemedkompany.com/2026/09/17/manchester-city-5-norwich-city-0-thoughts-and-observations-from-citys-routine-victory/) - **Esteemedkompany.com**
-3. [SMU vs Louisville Prediction: Odds, expert picks, team and player news, betting trends, and stats](https://www.nbcsports.com/betting/college-football/news/smu-vs-louisville-prediction-odds-expert-picks-team-and-player-news-betting-trends-and-stats) - **NBCSports.com**
-4. [Manchester City x Norwich City - Highlights, Summary and Match Report](https://www.playmakerstats.com/news/manchester-city-x-norwich-city-highlights-summary-and-match-report/1206630) - **Playmakerstats.com**
-5. [Debut delight for Samba and Allan as City power past Norwich](https://www.mancity.com/news/mens/manchester-city-v-norwich-carabao-cup-match-report-63925263) - **Manchester City FC**
-6. [Chris Samba's son Floyd shines on debut with double as Man City ease past Norwich](https://www.skysports.com/football/news/11938/13588945/man-city-5-0-norwich-floyd-samba-enjoys-dream-debut-with-double-to-book-place-in-carabao-cup-fourth-round-for-enzo-marescas-side) - **Sky Sports**
-7. [Manchester City 5-0 Norwich: 17-year-old Samba shines in EFL Cup](https://www.101greatgoals.com/news/manchester-city-5-0-norwich-17-year-old-samba-shines-in-efl-cup/) - **101 Great Goals**
-8. [Suzuki, Cash And Lindelof To Start | 4-2-3-1 Aston Villa Predicted Lineup Vs Tottenham Hotspur](https://the4thofficial.net/2026/09/suzuki-cash-and-lindelof-to-start-4-2-3-1-aston-villa-predicted-lineup-vs-tottenham-hotspur/) - **The4thofficial.net**
-9. [Topps Is Putting 24-Karat Gold Cards Inside Its New Premier League Packs (With A Catch)](https://brobible.com/sports/article/topps-premier-league-24k-gold-cards-details/) - **BroBible**
-10. [Youri Tielemans slams Manchester United's 'frustrating' collapse against Brighton](https://www.alloutsoccer.com/news/youri-tielemans-manchester-united-brighton-2029054) - **Alloutsoccer.com**
+1. [CHRISTOPHER STEVENS: Ronan's top of the class as a tortured teacher (and so are her pesky pupils)](https://www.dailymail.com/tvshowbiz/article-16140721/CHRISTOPHER-STEVENS-Ronans-class-tortured-teacher-pesky-pupils.html) - **Dailymail.com**
+2. [Kylian Mbappe puts Lamine Yamal’s Spain above France as ‘best team in the world’ after 2026 World Cup win](https://worldsoccertalk.com/news/kylian-mbappe-puts-lamine-yamals-spain-above-france-as-best-team-in-the-world-after-2026-world-cup-win/) - **Worldsoccertalk.com**
+3. [Martin O'Neill admits his Celtic side were taught a harsh European lesson in timid defeat to Ferencvaros](https://www.dailymail.com/sport/football/article-16140627/Martin-ONeill-Celtic-European-lesson-defeat-Ferencvaros.html) - **Dailymail.com**
+4. [O'Neill: Celtic taught a "European lesson" by Ferencvaros](https://www.rte.ie/sport/soccer/2026/0917/1592006-oneill-celtic-taught-a-european-lesson-by-ferencvaros/) - **RTE**
+5. [RICHARD LITTLEJOHN: Left-wing luvvies mixing pop and politics just bore me to tears](https://www.dailymail.com/debate/article-16140275/RICHARD-LITTLEJOHN-Left-wing-luvvies-mixing-pop-politics-just-bore-tears.html) - **Dailymail.com**
+6. [CELTIC 1 FERENCVAROS 3: It's another European horror show for Celtic as alarm bells begin to sound at Parkhead](https://www.dailymail.com/sport/football/article-16140539/CELTIC-1-FERENCVAROS-3-European-horror-Celtic-alarm-bells-begin-sound-Parkhead.html) - **Dailymail.com**
+7. [Junior Kroupi on Arsenal radar - Friday's gossip](https://www.bbc.com/sport/football/articles/crn8ez44ywqdo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Xabi Alonso praises 'special' Cole Palmer as Chelsea star awaits England decision](https://www.alloutsoccer.com/news/alonso-special-palmer-chelsea-england-2029239) - **Alloutsoccer.com**
+9. [Chelsea’s power dynamics shift as Todd Boehly exits ownership](https://cryptobriefing.com/chelsea-boehly-exits-clearlake-full-ownership/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-09-19 05:36:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-19 07:48:38 (KST) / (하루 100회 제한 준수 중)*
