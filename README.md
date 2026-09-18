@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Dodgers owner Mark Walter sells off shares of Chelsea weeks after surprise Lakers sale amid investigation](https://sports.yahoo.com/soccer/article/dodgers-owner-mark-walter-sells-off-shares-of-chelsea-weeks-after-surprise-lakers-sale-amid-investigation-001732960.html) - **Yahoo Entertainment**
-2. [EQT Group plans to invest $50 billion in India by 2030: Jean Eric Salata, Chairman](https://economictimes.indiatimes.com/news/company/corporate-trends/eqt-group-plans-to-invest-50-billion-in-india-by-2030-jean-eric-salata-chairman/articleshow/134295902.cms) - **The Times of India**
-3. [Former Chelsea owners Boehly and Walter sell holdings to Clearlake](https://www.channelnewsasia.com/sport/former-chelsea-owners-boehly-and-walter-sell-holdings-clearlake-6390526) - **CNA**
-4. [Todd Boehly and Mark Walter sell Chelsea shares to Clearlake Capital](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260916-930-697022/) - **Dpa-international.com**
-5. [PIX: Two goals up, Man Utd dumped by Brighton in League Cup](https://www.rediff.com/sports/report/carabao-cup-pix-two-goals-up-manchester-united-dumped-by-brighton-in-league-cup-photos/20260917.htm) - **Rediff.com**
-6. [Doma United aim to make NPFL mark – Ayeni](https://punchng.com/doma-united-aim-to-make-npfl-mark-ayeni/) - **The Punch**
-7. [Todd Boehly LEAVES Chelsea: Behdad Eghbali's Clearlake Capital complete £1bn deal to buy minority owner's stake in the club as they take 'full control'](https://www.dailymail.com/sport/football/article-16137647/Todd-Boehly-LEAVES-Chelsea-Behdad-Eghbalis-Clearlake-Capital-complete-1bn-deal-buy-minority-owners-stake-club.html) - **Dailymail.com**
-8. [Analysts Call Mike LaFleur’s Cardinals Debut the NFL’s Most Surprising](https://heavy.com/sports/nfl/arizona-cardinals/mike-lafleurs-cardinals-debut-nfl-surprising/) - **Heavy.com**
-9. [Dodgers Co-Owners Todd Boehly And Mark Walter Officially Sell Chelsea Shares](https://www.foxsports.com/stories/soccer/dodgers-co-owners-todd-boehly-mark-walter-officially-sell-chelsea-shares) - **Fox Sports**
-10. [How Inter Miami’s win, draw, or loss vs Cruz Azul could impact the 2026 Campeones Cup?](https://worldsoccertalk.com/news/how-inter-miamis-win-draw-or-loss-vs-cruz-azul-could-impact-the-2026-campeones-cup/) - **Worldsoccertalk.com**
+1. [Public fallout after McAleese resignation should push associations towards integration, says Trevor Giles](https://www.irishtimes.com/sport/gaelic-games/2026/09/17/public-fallout-from-mcaleese-resignation-should-push-gaelic-games-towards-integration-says-trevor-giles/) - **The Irish Times**
+2. [2 Up, 2 Down: Le Fée On The Spot As Sunderland Edge Past AZ Alkmaar](https://rokerreport.sbnation.com/opinion/153268/2-up-2-down-le-fee-on-the-spot-as-sunderland-edge-past-az-alkmaar) - **SB Nation**
+3. [Talking Points: European Paradise on Wearside](https://rokerreport.sbnation.com/features/153522/talking-points-european-paradise-on-wearside) - **SB Nation**
+4. [Manchester City vs Norwich City – Match preview and team news](https://thefootballfaithful.com/manchester-city-vs-norwich-match-preview/) - **The Football Faithful**
+5. [Manchester City vs Norwich City – Predicted lineup and team news](https://thefootballfaithful.com/manchester-city-vs-norwich-city-predicted-lineup-and-team-news/) - **The Football Faithful**
+6. [Read Todd Boehly’s statement after selling Chelsea stake to Clearlake Capital](https://www.hitc.com/read-todd-boehlys-statement-after-selling-chelsea-stake-to-clearlake-capital/) - **HITC - Football, Gaming, Movies, TV, Music**
+7. [WPL 2027 to begin January 14; final scheduled for February 7, confirms BCCI](https://www.business-standard.com/cricket/news/wpl-2027-to-begin-january-14-final-scheduled-for-february-7-confirms-bcci-126091600865_1.html) - **Business Standard**
+8. [Clearlake Capital takes full control of Chelsea FC; Boehly exits chairman role](https://www.rediff.com/sports/report/epl-clearlake-capital-acquires-full-control-of-chelsea-fc-todd-boehly-steps-down-as-chairman/20260917.htm) - **Rediff.com**
+9. [Dodgers Notes: Snell, Sasaki, Walter](https://www.mlbtraderumors.com/2026/09/dodgers-notes-snell-sasaki-walter.html) - **MLB Trade Rumors**
+10. [Cavan Sullivan represents potential generational shift for USMNT as next World Cup cycle nears](https://nypost.com/2026/09/16/sports/cavan-sullivan-represents-a-potential-generational-shift-for-usmnt/) - **New York Post**
 
 
 ---
-*최근 업데이트: 2026-09-18 09:27:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-18 14:10:25 (KST) / (하루 100회 제한 준수 중)*
