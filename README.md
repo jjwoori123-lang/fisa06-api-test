@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Thomas Hitzlsperger opens up on the struggle to stay at soccer’s elite level: ‘Suddenly you are just a number 20 on the roster’](https://worldsoccertalk.com/news/thomas-hitzlsperger-opens-up-on-the-struggle-to-stay-at-soccers-elite-level-suddenly-you-are-just-a-number-20-on-the-roster/) - **Worldsoccertalk.com**
-2. [Dodgers To Activate Veteran Closer Edwin Diaz Tomorrow](https://sports.yahoo.com/articles/dodgers-activate-veteran-closer-edwin-173627729.html) - **Yahoo Entertainment**
-3. [Adam Silver says league found ‘no red flags’ with Mark Walter in purchase of Lakers](https://www.silverscreenandroll.com/lakers-news/126171/lakers-news-adam-silver-mark-walter-investigation) - **Silver Screen and Roll **
-4. [Celtic v Ferencvaros – Colby Donovan insists Celtic will put derby disappointment behind them](https://celticshorts.com/2026/09/celtic-v-ferencvaros-colby-donovan-insists-celtic-will-put-derby-disappointment-behind-them/) - **Celticshorts.com**
-5. [Sports Illustrated Tickets partners with Premier League clubs as it expands onchain ticketing](https://cryptobriefing.com/si-tickets-onchain-premier-league-2027/) - **Crypto Briefing**
-6. [Chelsea ambition ‘very clear’ after end of Boehly era – Xabi Alonso](https://www.vanguardngr.com/2026/09/chelsea-ambition-very-clear-after-end-of-boehly-era-xabi-alonso/) - **Vanguard**
-7. [Youth Movement Afoot: 3 Takeaways From USA's First Roster Of 2030 World Cup Cycle](https://www.foxsports.com/stories/soccer/usmnt-roster-cavan-sullivan-christian-pulisic-2030-world-cup) - **Fox Sports**
-8. [Rulli, Allan and Samba handed debuts for Norwich Carabao Cup clash](https://www.mancity.com/news/mens/manchester-city-v-norwich-team-news-and-tactics-1-63925262) - **Manchester City FC**
-9. [Report: Liverpool have opened talks to sign world-class star in 2027](https://anfieldindex.com/100340/report-liverpool-have-opened-talks-to-wrap-up-mega-2027-signing.html) - **Anfieldindex.com**
-10. [Who is City’s Floyd Samba?](https://www.mancity.com/news/mens/who-is-city-s-floyd-samba-63925262) - **Manchester City FC**
+1. [Official: Manchester United confirm three players have signed new deals](https://thepeoplesperson.com/2026/09/17/official-manchester-united-confirm-three-players-have-signed-new-deals-316453/) - **The Peoples Person**
+2. [Manchester City 5 Norwich City 0: Thoughts and observations from City’s routine victory](https://esteemedkompany.com/2026/09/17/manchester-city-5-norwich-city-0-thoughts-and-observations-from-citys-routine-victory/) - **Esteemedkompany.com**
+3. [SMU vs Louisville Prediction: Odds, expert picks, team and player news, betting trends, and stats](https://www.nbcsports.com/betting/college-football/news/smu-vs-louisville-prediction-odds-expert-picks-team-and-player-news-betting-trends-and-stats) - **NBCSports.com**
+4. [Manchester City x Norwich City - Highlights, Summary and Match Report](https://www.playmakerstats.com/news/manchester-city-x-norwich-city-highlights-summary-and-match-report/1206630) - **Playmakerstats.com**
+5. [Debut delight for Samba and Allan as City power past Norwich](https://www.mancity.com/news/mens/manchester-city-v-norwich-carabao-cup-match-report-63925263) - **Manchester City FC**
+6. [Chris Samba's son Floyd shines on debut with double as Man City ease past Norwich](https://www.skysports.com/football/news/11938/13588945/man-city-5-0-norwich-floyd-samba-enjoys-dream-debut-with-double-to-book-place-in-carabao-cup-fourth-round-for-enzo-marescas-side) - **Sky Sports**
+7. [Manchester City 5-0 Norwich: 17-year-old Samba shines in EFL Cup](https://www.101greatgoals.com/news/manchester-city-5-0-norwich-17-year-old-samba-shines-in-efl-cup/) - **101 Great Goals**
+8. [Suzuki, Cash And Lindelof To Start | 4-2-3-1 Aston Villa Predicted Lineup Vs Tottenham Hotspur](https://the4thofficial.net/2026/09/suzuki-cash-and-lindelof-to-start-4-2-3-1-aston-villa-predicted-lineup-vs-tottenham-hotspur/) - **The4thofficial.net**
+9. [Topps Is Putting 24-Karat Gold Cards Inside Its New Premier League Packs (With A Catch)](https://brobible.com/sports/article/topps-premier-league-24k-gold-cards-details/) - **BroBible**
+10. [Youri Tielemans slams Manchester United's 'frustrating' collapse against Brighton](https://www.alloutsoccer.com/news/youri-tielemans-manchester-united-brighton-2029054) - **Alloutsoccer.com**
 
 
 ---
-*최근 업데이트: 2026-09-19 02:43:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-19 05:36:24 (KST) / (하루 100회 제한 준수 중)*
