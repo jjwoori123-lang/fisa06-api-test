@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Brighton v Arsenal: the referee. A detailed analysis](https://untold-arsenal.com/archives/123105) - **Untold-arsenal.com**
-2. [Snubbed Premier League star's WAG hits out at Thomas Tuchel after her in-form partner's omission from England squad with Instagram post](https://www.dailymail.com/sport/football/article-16141721/gibbs-white-england-squad-snub.html) - **Dailymail.com**
-3. [Crystal Palace: Matchday Supporter Information](https://www.leedsunited.com/en/news/crystal-palace-matchday-supporter-information) - **Leedsunited.com**
-4. [Bohemians to remain at Dalymount Park until May 2027 after delay in redevelopment plans](https://www.irishtimes.com/sport/soccer/2026/09/18/bohemians-to-remain-at-dalymount-park-until-may-2027-after-delay-in-redevelopment-plans/) - **The Irish Times**
-5. [Aston Villa don't need to be pretty at Tottenham – they just need to win](https://roundtable.io/sports/soccer/premier-league/aston-villa/news/aston-villa-dont-need-to-be-pretty-at-tottenham-they-just-need-to-win) - **Roundtable.io**
-6. [No confidence crisis as Scales seeks derby win to 'change narrative'](https://www.bbc.com/sport/articles/cjp3024e75edo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [North's record winning streak over after shock loss to Hawks](https://www.abc.net.au/news/2026-09-18/north-melbourne-winning-streak-over-after-shock-loss-to-hawks/107171070) - **ABC News (AU)**
-8. [Trent and Palmer return as Tuchel names latest England squad](https://thefootballfaithful.com/trent-palmer-england-squad/) - **The Football Faithful**
-9. [Pat's aiming to keep foot firmly on the pedal in Sligo](https://www.rte.ie/sport/soccer/2026/0918/1592057-pats-aiming-to-keep-foot-firmly-on-the-pedal-in-sligo/) - **RTE**
-10. [ASK IRA: Is/should Vlad Goldin be guaranteed a Heat roster spot?](https://www.sun-sentinel.com/2026/09/18/ask-ira-is-should-vlad-goldin-be-guaranteed-a-heat-roster-spot/) - **Sun Sentinel**
+1. [Carrick: Stuttering start 'not end of world' for United](https://www.rte.ie/sport/soccer/2026/0918/1592104-carrick-stuttering-start-not-end-of-world-for-united/) - **RTE**
+2. [Sage on injuries, improving confidence and Sarr's reception](https://www.bbc.com/sport/football/articles/ckrer04gzzwyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [4 Arsenal u21s held back for first-team & miss Birmingham draw](https://dailycannon.com/2026/09/birmingham-city-arsenal-u21-report/) - **Dailycannon.com**
+4. [Moyes on team news, Branthwaite's England call-up and Dibling's 'fight'](https://www.bbc.com/sport/football/articles/cw4grj10lyd5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Carrick confident Man Utd can 'work through' tough time](https://sports.yahoo.com/articles/carrick-confident-man-utd-tough-140651954.html) - **Yahoo Entertainment**
+6. [City v Sunderland: FPL Gameweek 5 Scout Report](https://www.mancity.com/news/mens/fpl-scout-report-gw5-63925321) - **Manchester City FC**
+7. [bet365 bonus code: Bet $10, get $365 in bonus bets for Brentford vs. Chelsea](https://nypost.com/2026/09/18/betting/bet365-bonus-code-bet-10-get-365-in-bonus-bets-for-brentford-vs-chelsea/) - **New York Post**
+8. [Iraola ‘pushing’ Liverpool player over issue: ‘I suppose it will take some time’](https://www.101greatgoals.com/football/premier-league/iraola-liverpool-player/) - **101 Great Goals**
+9. [De Zerbi: Pedro Porro, Tonali, Maddison available for Villa match](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/73859/de-zerbi-pedro-porro-tonali-maddison-available-for-villa-match) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-09-19 19:48:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-19 23:12:35 (KST) / (하루 100회 제한 준수 중)*
