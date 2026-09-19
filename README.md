@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Carrick: Stuttering start 'not end of world' for United](https://www.rte.ie/sport/soccer/2026/0918/1592104-carrick-stuttering-start-not-end-of-world-for-united/) - **RTE**
-2. [Sage on injuries, improving confidence and Sarr's reception](https://www.bbc.com/sport/football/articles/ckrer04gzzwyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [4 Arsenal u21s held back for first-team & miss Birmingham draw](https://dailycannon.com/2026/09/birmingham-city-arsenal-u21-report/) - **Dailycannon.com**
-4. [Moyes on team news, Branthwaite's England call-up and Dibling's 'fight'](https://www.bbc.com/sport/football/articles/cw4grj10lyd5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Carrick confident Man Utd can 'work through' tough time](https://sports.yahoo.com/articles/carrick-confident-man-utd-tough-140651954.html) - **Yahoo Entertainment**
-6. [City v Sunderland: FPL Gameweek 5 Scout Report](https://www.mancity.com/news/mens/fpl-scout-report-gw5-63925321) - **Manchester City FC**
-7. [bet365 bonus code: Bet $10, get $365 in bonus bets for Brentford vs. Chelsea](https://nypost.com/2026/09/18/betting/bet365-bonus-code-bet-10-get-365-in-bonus-bets-for-brentford-vs-chelsea/) - **New York Post**
-8. [Iraola ‘pushing’ Liverpool player over issue: ‘I suppose it will take some time’](https://www.101greatgoals.com/football/premier-league/iraola-liverpool-player/) - **101 Great Goals**
-9. [De Zerbi: Pedro Porro, Tonali, Maddison available for Villa match](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/73859/de-zerbi-pedro-porro-tonali-maddison-available-for-villa-match) - **SB Nation**
+1. [Iraola adapting to the club as much as the other way](https://www.bbc.com/sport/football/articles/c61kxg97pxw1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Chelsea’s big weakness primed to be exploited by Brentford speedster](https://www.talkchelsea.net/news-now/chelsea-big-weakness-primed-to-be-exploited/) - **Talk Chelsea**
+3. [Victor Davis Hanson: The Left’s Race Narrative is Driving Americans Apart](https://www.dailysignal.com/2026/09/18/hanson-left-race-narrative-dying/) - **Daily Signal**
+4. [FC Cincinnati sign Dutch defender Tyrell Malacia](https://www.mlssoccer.com/news/fc-cincinnati-sign-dutch-defender-tyrell-malacia) - **MLSsoccer.com**
+5. [Why Jamie Carragher is wrong about Liverpool's 'failed galacticos era'](https://www.anfieldwatch.co.uk/liverpool-fc/news/why-jamie-carragher-is-wrong-about-liverpools-failed-galacticos-era/) - **Anfieldwatch.co.uk**
+6. [Volley or half-volley? | Daniels looks back at some PL wonder-goals to decide!](https://www.skysports.com/football/video/30998/13589408/should-dominik-szoboszlais-goal-against-spurs-be-called-a-volley-or-half-volley-charlie-daniels-has-his-say) - **Sky Sports**
+7. [What are the key questions in Saturday's Scottish Premiership?](https://www.bbc.com/sport/football/articles/cwe9e4xg31j0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [‘He did NOT call me honey’ – TNT Sports reporter clarifies awkward O’Neill interview](https://celticshorts.com/2026/09/he-did-not-call-me-honey-tnt-sports-reporter-clarifies-awkward-oneill-interview/) - **Celticshorts.com**
+9. [Training gallery: That Friday feeling!](https://www.mancity.com/news/mens/mens-training-18-september-63925344) - **Manchester City FC**
+10. [Gabriel edging closer to Man Utd exit after Barca talks](https://www.skysports.com/football/news/11667/13589387/jj-gabriel-edging-closer-to-manchester-united-exit-amid-barcelona-talks-about-a-potential-move-for-the-forward) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-09-19 23:12:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-20 02:18:51 (KST) / (하루 100회 제한 준수 중)*
