@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Martin taking it all in his stride as he looks to get back to winning ways](https://celticshorts.com/2026/09/martin-taking-it-all-in-his-stride-as-he-looks-to-get-back-to-winning-ways/) - **Celticshorts.com**
-2. [Dorgu & Lacey Start: Man Utd Predicted XI vs Fulham (Premier League)](https://roundtable.io/sports/soccer/premier-league/manchester-united/news/dorgu-lacey-start-man-utd-predicted-xi-vs-fulham-premier-league) - **Roundtable.io**
-3. [Arsenal Starting XI vs Brighton: Confirmed Team News and Predicted Lineup](https://eplindex.com/150612/arsenal-starting-xi-vs-brighton-confirmed-team-news-and-predicted-lineup-4.html) - **English Premier League Index - Opta Stats**
-4. [The five members of the Newcastle United leadership group have now been made public](https://www.themag.co.uk/2026/09/the-five-members-of-the-newcastle-united-leadership-group-have-now-been-made-public/) - **The Mag**
-5. [Hits and misses: Spurs hit self-destruct again as Arsenal prove imperfect](https://www.skysports.com/football/news/11095/13589567/tottenham-continue-downward-spiral-as-arsenal-prove-they-are-not-perfect-premier-league-hits-and-misses) - **Sky Sports**
-6. [This revolution is indeed being televised at Newcastle United as shown here](https://www.themag.co.uk/2026/09/this-revolution-is-indeed-being-televised-at-newcastle-united-as-shown-here/) - **The Mag**
-7. [Jordan Henderson embroiled in tense on-field spat with Emiliano Martinez: Chelsea star exchanges words with new team-mate after first Brentford goal in shock 3-0 defeat](https://www.dailymail.com/sport/football/article-16144055/Jordan-Henderson-embroiled-tense-field-spat-Emiliano-Martinez-Chelsea-star-exchanges-words-new-team-mate-Brentford-goal-shock-3-0-defeat.html) - **Dailymail.com**
-8. [Newcastle vs. Hull City — Team News & Match Preview](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/26042/newcastle-vs-hull-city-team-news-match-preview) - **SB Nation**
-9. [Chris Sutton points the finger at Celtic Board for current crisis](https://celticshorts.com/2026/09/chris-sutton-points-the-finger-at-celtic-board-for-current-crisis/) - **Celticshorts.com**
-10. [Chelsea star slams performance in Brentford defeat](https://eplindex.com/150611/chelsea-star-slams-performance-in-brentford-defeat.html) - **English Premier League Index - Opta Stats**
+1. [Late flurry not enough for Spurs as Villa bag first win](https://www.rte.ie/sport/soccer/2026/0919/1592160-late-flurry-not-enough-for-spurs-as-villa-bag-first-win/) - **RTE**
+2. [Premier League 2026-27 scoring leaders: Haaland takes early leads in Golden Boot race](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_1260b2e5-f184-4e1f-a218-34d0143026ae) - **Yahoo Entertainment**
+3. [Manzambi catches eye as Villa beat Spurs - player ratings](https://www.bbc.com/sport/football/articles/cqj3d7rvpr7ko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Brentford U18s 3 Ipswich Town U18s 0: Ogungbemi, Madden and Bansoodeb on target in U18 Premier League win](https://www.brentfordfc.com/en/news/article/academy-match-report-brentford-u18s-3-ipswich-town-u18s-0-nathaniel-ogungbemi-coran-madden-jai-bansoodeb) - **Brentfordfc.com**
+5. [Man United target Harry Kane breaks silence on his future after admitting to taking a “big step”](https://thepeoplesperson.com/2026/09/19/man-united-target-harry-kane-breaks-silence-on-his-future-after-admitting-to-taking-a-big-step-316617/) - **The Peoples Person**
+6. [Tottenham Hotspur 2-3 Aston Villa: Spurs break their scoring duck, still lose](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-match-reports/73879/tottenham-hotspur-2-3-aston-villa-spurs-break-their-scoring-duck-still-lose) - **SB Nation**
+7. [ Tottenham sink at home, Jackson and Manzambi steal the show](https://onefootball.com/en/news/tottenham-slump-at-home-jackson-and-manzambi-steal-the-show-43488116) - **Onefootball.com**
+8. [Manzambi catches eye as Villa beat Spurs - player ratings](https://www.bbc.co.uk/sport/football/articles/cqj3d7rvpr7ko) - **BBC News**
+9. [U21s secure well-earned 2-0 win over Newcastle](https://www.leedsunited.com/en/news/u21s-secure-well-earned-2-0-win-over-newcastle) - **Leedsunited.com**
+10. [Aston Villa cruise past Tottenham 3-0 as Buendia caps dominant second-half display](https://cryptobriefing.com/aston-villa-tottenham-premier-league-buendia/) - **Crypto Briefing**
 
 
 ---
-*최근 업데이트: 2026-09-20 18:38:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-20 22:41:39 (KST) / (하루 100회 제한 준수 중)*
