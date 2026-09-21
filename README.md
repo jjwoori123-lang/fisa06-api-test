@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Auston Trusty and Alex Oxlade Chamberlain both need to start for Celtic](https://celticshorts.com/2026/09/auston-trusty-and-alex-oxlade-chamberlain-both-need-to-start-for-celtic/) - **Celticshorts.com**
-2. [Xabi Alonso disappointed with Chelsea’s ‘competitive mentality’ in Brentford defeat](https://weaintgotnohistory.sbnation.com/premier-league/172399/xabi-alonso-disappointed-with-chelseas-competitive-mentality-in-brentford-defeat) - **SB Nation**
-3. [How Villa's Jackson left Spurs 'battered' - Shearer](https://www.bbc.co.uk/sport/football/videos/cq1j47731pk3o) - **BBC News**
-4. [Brighton 3-0 Arsenal: 3 Things We Learned From Arsenal's First League Defeat Of The Season](https://www.stadiumrant.com/brighton-3-0-arsenal-3-things-we-learned-from-arsenals-first-league-defeat-of-the-season/) - **Stadiumrant.com**
-5. [Everything’s the Best: Keep Climbing](https://liverpooloffside.sbnation.com/english-premier-league/83773/liverpool-fc-premier-league-analysis-everythings-the-best-keep-climbing) - **SB Nation**
-6. [Bizarre moment former Premier League star is RUN OVER by a pitch rolling machine at half-time during match in Thailand](https://www.dailymail.com/sport/football/article-16145105/BPremier-League-star-RUN-pitch.html) - **Dailymail.com**
-7. [Every word of Michael Carrick’s Fulham pre-match press conference – embargoed section](https://thepeoplesperson.com/2026/09/19/every-word-of-michael-carricks-fulham-pre-match-press-conference-embargoed-section-316653/) - **The Peoples Person**
-8. [‘You always have a choice’: Tessel Middag speaks out against Saudi Arabia’s influence on football](https://herfootballhub.com/tessel-middag-speaks-out-against-saudi-arabias-influence-on-football/) - **Herfootballhub.com**
-9. ['Brave' Brighton put in 'complete' performance to beat Arsenal - Murphy](https://www.bbc.co.uk/sport/football/videos/cqe8xjjw8ed8o) - **BBC News**
-10. [Littler seals dramatic final-leg win over Aspinall](https://www.bbc.com/sport/darts/articles/cqy7z1vr8ey5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [How to Watch Liverpool vs. AFC Bournemouth: Channel, Live Stream & Start Time for Premier League Match](https://nesn.com/soccer/news/watch-liverpool-vs-afc-bournemouth-channel-stream-start-time/bcc80d88dcf6367f106aab5a) - **NESN**
+2. [Bayern Munich News: FC Bayern not actively pursuing Liverpool star Florian Wirtz; Man City eyeing BVB’s Felix Nmecha; Tottenham Hotspur is melting down; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/257828/bayern-munich-liverpool-florian-wirtz-manchester-city-bvb-borussia-dortmund-felix-nmecha-tottenham-hotspur-arsenal-maduelke-fc-barcelona-flick-adeyemi) - **Bavarian Football Works**
+3. [BEST bus catches fire after head-on collision with private, driver injured](https://timesofindia.indiatimes.com/city/mumbai/best-bus-catches-fire-after-head-on-collision-with-private-driver-injured/articleshow/134363525.cms) - **The Times of India**
+4. [Leeds United vs Crystal Palace – Match preview and team news](https://thefootballfaithful.com/leeds-united-vs-crystal-palace-match-preview-and-team-news-2/) - **The Football Faithful**
+5. [Fulham vs Manchester United – Match preview and team news](https://thefootballfaithful.com/fulham-vs-manchester-united-match-preview-and-team-news-3/) - **The Football Faithful**
+6. [Fulham vs Manchester United – Predicted lineup and team news](https://thefootballfaithful.com/fulham-vs-manchester-united-predicted-lineup-and-team-news-3/) - **The Football Faithful**
+7. [Manchester City vs Sunderland – Predicted lineup and team news](https://thefootballfaithful.com/manchester-city-vs-sunderland-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+8. [Manchester City vs Sunderland – Match preview and team news](https://thefootballfaithful.com/manchester-city-vs-sunderland-match-preview-and-team-news-2/) - **The Football Faithful**
+9. [Leeds United vs Crystal Palace – Predicted lineup and team news](https://thefootballfaithful.com/leeds-united-vs-crystal-palace-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+10. [Bournemouth vs Liverpool – Predicted lineup and team news](https://thefootballfaithful.com/bournemouth-vs-liverpool-predicted-lineup/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-09-21 08:56:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-21 13:33:41 (KST) / (하루 100회 제한 준수 중)*
