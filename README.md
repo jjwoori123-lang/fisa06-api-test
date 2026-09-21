@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How to Watch Liverpool vs. AFC Bournemouth: Channel, Live Stream & Start Time for Premier League Match](https://nesn.com/soccer/news/watch-liverpool-vs-afc-bournemouth-channel-stream-start-time/bcc80d88dcf6367f106aab5a) - **NESN**
-2. [Bayern Munich News: FC Bayern not actively pursuing Liverpool star Florian Wirtz; Man City eyeing BVB’s Felix Nmecha; Tottenham Hotspur is melting down; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/257828/bayern-munich-liverpool-florian-wirtz-manchester-city-bvb-borussia-dortmund-felix-nmecha-tottenham-hotspur-arsenal-maduelke-fc-barcelona-flick-adeyemi) - **Bavarian Football Works**
-3. [BEST bus catches fire after head-on collision with private, driver injured](https://timesofindia.indiatimes.com/city/mumbai/best-bus-catches-fire-after-head-on-collision-with-private-driver-injured/articleshow/134363525.cms) - **The Times of India**
-4. [Leeds United vs Crystal Palace – Match preview and team news](https://thefootballfaithful.com/leeds-united-vs-crystal-palace-match-preview-and-team-news-2/) - **The Football Faithful**
-5. [Fulham vs Manchester United – Match preview and team news](https://thefootballfaithful.com/fulham-vs-manchester-united-match-preview-and-team-news-3/) - **The Football Faithful**
-6. [Fulham vs Manchester United – Predicted lineup and team news](https://thefootballfaithful.com/fulham-vs-manchester-united-predicted-lineup-and-team-news-3/) - **The Football Faithful**
-7. [Manchester City vs Sunderland – Predicted lineup and team news](https://thefootballfaithful.com/manchester-city-vs-sunderland-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-8. [Manchester City vs Sunderland – Match preview and team news](https://thefootballfaithful.com/manchester-city-vs-sunderland-match-preview-and-team-news-2/) - **The Football Faithful**
-9. [Leeds United vs Crystal Palace – Predicted lineup and team news](https://thefootballfaithful.com/leeds-united-vs-crystal-palace-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-10. [Bournemouth vs Liverpool – Predicted lineup and team news](https://thefootballfaithful.com/bournemouth-vs-liverpool-predicted-lineup/) - **The Football Faithful**
+1. [Alexis Mac Allister Has Rediscovered His Best Form Under Andoni Iraola](https://worldfootballindex.com/2026/09/alexis-mac-allister-has-rediscovered-his-best-form-under-andoni-iraola/) - **World Football Index**
+2. [How to watch Man City vs Sunderland: Live streams, TV channels for Premier League 2026/27](https://www.techradar.com/how-to-watch/football/man-city-vs-sunderland-premier-league-2026-27) - **TechRadar**
+3. [Sunday football open thread](https://cartilagefreecaptain.sbnation.com/general/73893/sunday-football-open-thread) - **SB Nation**
+4. [Team’s Up – Celtic go three at the back as McCowan starts](https://celticshorts.com/2026/09/teams-up-celtic-go-three-at-the-back-as-mccowan-starts/) - **Celticshorts.com**
+5. [Bournemouth vs. Liverpool: Premier League 2026-27 Live Coverage & How to Watch](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/83783/bournemouth-liverpool-premier-league-2026-27-live-coverage-how-to-watch-streaming-tv) - **SB Nation**
+6. [Arteta blasts Arsenal after Brighton defeat: “This can’t happen again”](https://www.justarsenal.com/arteta-blasts-arsenal-after-brighton-defeat-this-cant-happen-again/422357) - **Just Arsenal News**
+7. [Under pressure, Tottenham boss lays into his team](https://onefootball.com/en/news/under-pressure-tottenham-boss-lays-into-his-team-43492505) - **Onefootball.com**
+8. [The Weekly Bobbins: Jack In The Box](https://thetilehurstend.sbnation.com/the-weekly-bobbins-reading-fc-royals/58790/the-weekly-bobbins-jack-in-the-box) - **SB Nation**
+9. [Juventus plan €50m Carnesecchi move as Inter and Premier League clubs circle](https://football-italia.net/juventus-plan-50m-carnesecchi-move/) - **Football Italia**
+10. [La Liga today: How to watch Atlético Madrid v Real Madrid, TV channels & live stream Sunday 20 September](https://sports.yahoo.com/articles/la-liga-today-watch-atl-091511174.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-09-21 13:33:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-21 19:11:51 (KST) / (하루 100회 제한 준수 중)*
