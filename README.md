@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Iraola criticises Isak after Bournemouth clash despite him scoring the winner](https://hayters.com/iraola-criticises-isak-after-borunemouth-clash-despite-him-scoring-the-winner/) - **Hayters.com**
-2. [Enzo Maresca's Man City prove they are the great entertainers in rout of Sunderland... but curious midfield make-up gives boss plenty to ponder, writes JACK GAUGHAN](https://www.dailymail.com/sport/football/article-16142319/Enzo-Marescas-Man-City-prove-great-entertainers-rout-Sunderland-curious-midfield-make-gives-boss-plenty-ponder-writes-JACK-GAUGHAN.html) - **Dailymail.com**
-3. [Brentford 3-0 Chelsea, Player Ratings: A midfield, of sorts](https://weaintgotnohistory.sbnation.com/premier-league/172403/brentford-3-0-chelsea-player-ratings) - **SB Nation**
-4. ['I’ll obviously speak to the board': Martin O’Neill considering Celtic future after Rangers defeat](https://www.the42.ie/martin-oneill-celtic-7-7167860-Sep2026/) - **The42**
-5. [Manchester City Beat Sunderland 5-3 to Maintain Perfect Premier League Start](https://eplindex.com/150674/manchester-city-beat-sunderland-5-3-to-maintain-perfect-premier-league-start.html) - **English Premier League Index - Opta Stats**
-6. [Below the Line](https://www.thehindubusinessline.com/opinion/below-the-line/article71488824.ece) - **BusinessLine**
-7. [EPL: Man City beat Sunderland 5-3 to seize top spot](https://punchng.com/epl-man-city-beat-sunderland-5-3-to-seize-top-spot/) - **The Punch**
-8. [Another great save from Leno as King looks to give Fulham the lead](https://www.skysports.com/football/video/12606/13590173/save-s-lammens-32-fulham-0-0-manchester-utd) - **Sky Sports**
-9. [Semenyo helps chaotic Manchester City to win over Sunderland despite Brobbey hat-trick](https://www.irishtimes.com/sport/soccer/2026/09/20/semenyo-helps-chaotic-manchester-city-to-win-over-sunderland-despite-brobbey-hat-trick/) - **The Irish Times**
-10. [Michael Carrick details why one Red is unavailable for Fulham v Man Utd but stays tight-lipped on one absentee](https://utdreport.co.uk/2026/09/20/michael-carrick-ayden-heaven-benjamin-sesko-fulham-manchester-united-premier-league/) - **Utdreport.co.uk**
+1. [Football Daily](https://www.bbc.co.uk/sounds/play/m00321lw?at_campaign=rss) - **BBC News**
+2. [Arsenal Are Among The Clubs Hoping To Land This Real Madrid Talent: One For The Future?](https://the4thofficial.net/2026/09/arsenal-are-among-the-clubs-hoping-to-land-this-real-madrid-talent/) - **The4thofficial.net**
+3. [Ipswich Town investigates racist abuse of Fatawu](https://www.bbc.com/news/articles/cq0kl25xe60jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Ipswich Town investigates racist abuse of Fatawu](https://www.bbc.co.uk/news/articles/cq0kl25xe60jo) - **BBC News**
+5. [Spurs eye £125m move for Gibbs-White - Monday's gossip](https://www.bbc.com/sport/football/articles/c6y8z29nxn4mo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Spurs eye £125m move for Gibbs-White - Monday's gossip](https://www.bbc.co.uk/sport/football/articles/c6y8z29nxn4mo) - **BBC News**
+7. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/ckzdz2l0m52mo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Carrick refutes 'pathetic' claim but Man Utd must improve](https://www.bbc.com/sport/football/articles/cmly4pe6yrqzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Fulham vs Manchester United: Live stream, Time & How to watch](https://thebusbybabe.sbnation.com/latest-news/35916/fulham-vs-manchester-united-live-stream-time-how-to-watch) - **SB Nation**
+10. [Carrick refutes Neville's 'pathetic' claim - but Man Utd must improve](https://www.bbc.co.uk/sport/football/articles/cmly4pe6yrqzo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-09-22 01:30:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-22 05:34:13 (KST) / (하루 100회 제한 준수 중)*
