@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester City's Antoine Semenyo thriving under Enzo Maresca, open to Erling Haaland role](https://www.alloutsoccer.com/news/manchester-city-semenyo-maresca-haaland-2033946) - **Alloutsoccer.com**
-2. [Kelly: Left-sided options a boost for Irish defence](https://www.rte.ie/sport/soccer/2026/0921/1592429-kelly-left-sided-options-a-boost-for-irish-defence/) - **RTE**
-3. [Aden Owolabi honored as a 2027 Navy All-American as part of Navy All-American Bowl](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/aden-owolabi-honored-as-a-2027-navy-all-american-as-part-of-navy-all-american-bowl) - **NBCSports.com**
-4. [Ryan Naderi urges Rangers to use new-founded togetherness to make sure Old Firm derby double delight is no flash in the pan](https://www.dailymail.com/sport/football/article-16148991/Ryan-Naderi-urges-Rangers-use-new-founded-togetherness-make-sure-Old-Firm-derby-double-delight-no-flash-pan.html) - **Dailymail.com**
-5. [Thomas Tuchel rocked by five key withdrawals from England squad](https://www.irishtimes.com/sport/soccer/2026/09/21/thomas-tuchel-rocked-by-five-key-withdrawals-from-england-squad/) - **The Irish Times**
-6. [How low Man Utd's running stats are compared in the PL](https://www.skysports.com/football/video/13590505/premier-league-show-how-low-are-manchester-uniteds-runnnig-stats-compared-to-the-rest-of-the-premier-league) - **Sky Sports**
-7. [Break risks putting brakes on LOI contenders' momentum](https://www.rte.ie/sport/soccer/2026/0921/1592420-break-risks-putting-brakes-on-loi-contenders-momentum/) - **RTE**
-8. [Lisandro Martinez: Man United star sets unwanted club record in Fulham draw](https://thepeoplesperson.com/2026/09/21/lisandro-martinez-man-united-star-sets-unwanted-club-record-in-fulham-draw-316866/) - **The Peoples Person**
-9. [Zero to Agent in 30 Minutes: Build a Sports Concierge Agent with Chester Ismay](https://www.oreilly.com/radar/zero-to-agent-in-30-minutes-build-a-sports-concierge-agent-with-chester-ismay/#BlogPosting) - **Oreilly.com**
-10. [Brighton's demolition of Arsenal dissected: The Seagulls' power press, Bart Verbruggen's clever tactic, exploiting Mikel Arteta's new idea and preying on David Raya's weakness](https://www.dailymail.com/sport/football/article-16148879/brighton-arsenal-demolition-press-verbruggen.html) - **Dailymail.com**
+1. [Manchester United Are Eyeing A January Move For This Everton Defender: Should Carrick Go For Him?](https://the4thofficial.net/2026/09/manchester-united-are-eyeing-a-january-move-for-this-everton-defender/) - **The4thofficial.net**
+2. [Despite an unsettled defensive display, Manchester City overcame Sunderland](https://esteemedkompany.com/2026/09/21/despite-an-unsettled-defensive-display-manchester-city-overcame-sunderland/) - **Esteemedkompany.com**
+3. [The sack race: Which Premier League managers are already at risk after five games?](https://www.101greatgoals.com/football/premier-league/the-sack-race-which-premier-league-managers-are-already-at-risk-after-five-games/) - **101 Great Goals**
+4. ['I thought my ankle was going to snap': Andros Townsend speaks for first time on 'terrifying' moment he was RUN OVER by a pitch rolling machine at half-time in Thailand](https://www.dailymail.com/sport/football/article-16149239/I-thought-ankle-going-snap-Andros-Townsend-speaks-time-terrifying-moment-RUN-pitch-rolling-machine-half-time-Thailand.html) - **Dailymail.com**
+5. [BetMGM bonus code POSTBET: Get up to $1,500 back in bonus bets for 2026-27 NHL season futures](https://nypost.com/2026/09/21/betting/betmgm-bonus-code-postbet-get-up-to-1500-back-in-bonus-bets-for-2026-27-nhl-season-futures/) - **New York Post**
+6. [Rangers Star Reveals Secret Behind Celtic Double: Can The Defensive Structure Sustain This Resurgence?](https://the4thofficial.net/2026/09/rangers-star-reveals-secret-behind-celtic-double-can-the-defensive-structure-sustain-this-resurgence/) - **The4thofficial.net**
+7. [Amorim’s tactical approach in Lecce win and post-game words signify growth](https://www.getfootballnewsitaly.com/2026/amorims-tactical-approach-in-lecce-win-and-post-game-words-signify-growth/) - **Getfootballnewsitaly.com**
+8. [Calafiori best left-back in Premier League, but it’s a new role for Italy](https://football-italia.net/calafiori-best-left-back-premier-league-italy/) - **Football Italia**
+9. [Tottenham Hotspur Are Still Keen On Recruiting This Nottingham Forest Talent: Good Choice For De Zerbi?](https://the4thofficial.net/2026/09/tottenham-hotspur-are-still-keen-on-recruiting-this-nottingham-forest-talent/) - **The4thofficial.net**
+10. [Paul Scholes accuses Man United of 'a lack of ambition' and 'buying players for the sake of it' - rather than trying to win the Premier League - and claims Michael Carrick will feel 'let down' by his bosses](https://www.dailymail.com/sport/football/article-16149141/paul-scholes-man-united-recruitment-criticism.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-09-23 02:33:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-23 05:27:39 (KST) / (하루 100회 제한 준수 중)*
