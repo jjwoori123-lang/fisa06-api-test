@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Russian defender anticipates tough Eagles clash](https://punchng.com/russian-defender-anticipates-tough-eagles-clash/) - **The Punch**
-2. [Bassey among EPL best defenders – Arbeloa](https://punchng.com/bassey-among-epl-best-defenders-arbeloa/) - **The Punch**
-3. [Players, officials stunned as police disrupt Enyimba training](https://punchng.com/players-officials-stunned-as-police-disrupt-enyimba-training/) - **The Punch**
-4. [UConn men's basketball alum Samson Johnson signs with Portland Trail Blazers](https://www.ctinsider.com/sports/uconn-mens-basketball/article/samson-johnson-portland-trail-blazers-dan-hurley-22442715.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - **Ctinsider.com**
-5. [There is a weapon in the Manchester City arsenal that their rivals do not have](https://esteemedkompany.com/2026/09/21/there-is-a-weapon-in-the-manchester-city-arsenal-that-their-rivals-do-not-have/) - **Esteemedkompany.com**
-6. [Arsenal star withdraws from England duty, following in Declan Rice's footsteps](https://www.alloutsoccer.com/news/arsenal-rice-salmon-withdraw-england-2034282) - **Alloutsoccer.com**
-7. [Today in sports history, November 18](https://www.usatoday.com/story/sports/history/2026/09/21/today-in-sports-history-november-18/91566887007/) - **USA Today**
-8. [England face the world champions as Klopp, Xavi and Zidane make bows: Five Nations League games to look out for](https://www.101greatgoals.com/football/internationals/five-nations-league-games-to-look-out-for/) - **101 Great Goals**
-9. [Chelsea Are Keeping Tabs On This Gifted Youngster: One For The Future?](https://the4thofficial.net/2026/09/chelsea-are-keeping-tabs-on-this-gifted-youngster/) - **The4thofficial.net**
-10. [Jan Paul van Hecke delivers blunt verdict on Tottenham Hotspur's nightmare start](https://www.alloutsoccer.com/news/van-hecke-tottenham-hotspur-verdict-2034248) - **Alloutsoccer.com**
+1. [Indonesia replanted mangroves on Flores in 2013; 10 years later, restored forests supported 10 fauna species and stored up to 70 Mg CO2 per hectare](https://timesofindia.indiatimes.com/world/rest-of-world/indonesia-replanted-mangroves-on-flores-in-2013-10-years-later-restored-forests-supported-10-fauna-species-and-stored-up-to-70-mg-co2-per-hectare/articleshow/134404599.cms) - **The Times of India**
+2. [How can we let out feelings about international shut downs be known?](https://untold-arsenal.com/archives/123166) - **Untold-arsenal.com**
+3. [Narrow alleys host Ganesh mandals with a large heart](https://timesofindia.indiatimes.com/city/mumbai/narrow-alleys-host-ganesh-mandals-with-a-large-heart/articleshow/134404644.cms) - **The Times of India**
+4. [In 1910, Oregon planted European beachgrass to stabilize shifting dunes; it spread along the coast, reshaped the landscape and squeezed open sandy habitat used by native wildlife](https://timesofindia.indiatimes.com/science/nature/in-1910-oregon-planted-european-beachgrass-to-stabilize-shifting-dunes-it-spread-along-the-coast-reshaped-the-landscape-and-squeezed-open-sandy-habitat-used-by-native-wildlife/articleshow/134403672.cms) - **The Times of India**
+5. [A California hunting club established more than 100 years ago is selling its 400-acre private-island property for $1.5 million; the marsh retreat includes a 5,000-sq-ft clubhouse with 19 bedrooms](https://timesofindia.indiatimes.com/real-estate/news/a-california-hunting-club-established-more-than-100-years-ago-is-selling-its-400-acre-private-island-property-for-1-5-million-the-marsh-retreat-includes-a-5000-sq-ft-clubhouse-with-19-bedrooms/articleshow/134404518.cms) - **The Times of India**
+6. [Bigg Boss 20: Aasif Khan’s wife Zeba hits back at trolls over ‘close videos’ with Love Gill, says ‘They cannot rewrite the truth’](https://timesofindia.indiatimes.com/tv/news/hindi/bigg-boss-20-aasif-khans-wife-zeba-hits-back-at-trolls-over-close-videos-with-love-gill-says-they-cannot-rewrite-the-truth/articleshow/134404596.cms) - **The Times of India**
+7. [Has Arsenal's Strong Start Masked Issues Arteta Must Address?](https://roundtable.io/sports/soccer/premier-league/arsenal/opinion/has-arsenals-strong-start-masked-issues-arteta-must-address) - **Roundtable.io**
+8. [Vansh Bedi reported fixing approach during Delhi Premier League 3; DDCA seeks BCCI intervention](https://timesofindia.indiatimes.com/sports/cricket/news/vansh-bedi-reported-fixing-approach-during-delhi-premier-league-3-ddca-seeks-bcci-intervention/articleshow/134404311.cms) - **The Times of India**
+9. [Is not singing Vande Mataram punishable offence? Supreme Court to examine](https://timesofindia.indiatimes.com/legal/news/is-not-singing-vande-mataram-punishable-offence-supreme-court-to-examine/articleshow/134404494.cms) - **The Times of India**
+10. [Is Garnacho already at a crossroads at Villa?](https://www.bbc.com/sport/football/articles/c51kxgj43n89o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-09-23 10:32:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-23 15:38:19 (KST) / (하루 100회 제한 준수 중)*
