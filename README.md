@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mikel Arteta agrees contract extension expected to keep him at Arsenal until 2030](https://www.irishtimes.com/sport/soccer/2026/09/22/mikel-arteta-agrees-contract-extension-expected-to-keep-him-at-arsenal-until-2030/) - **The Irish Times**
-2. [Manchester City Are Keeping Tabs On This Gifted Midfielder: A Star In The Making?](https://the4thofficial.net/2026/09/manchester-city-are-keeping-tabs-on-this-gifted-midfielder/) - **The4thofficial.net**
-3. [After seven games, Manchester City have built themselves a platform to launch from](https://esteemedkompany.com/2026/09/22/after-seven-games-manchester-city-have-built-themselves-a-platform-to-launch-from/) - **Esteemedkompany.com**
-4. [Andy Robertson on Tottenham's Premier League struggles and the road to improvement](https://www.alloutsoccer.com/news/robertson-tottenham-hotspur-premier-league-2035622) - **Alloutsoccer.com**
-5. [Alan Shearer accuses Tottenham of overspending on £330m summer makeover and claims splurging an 'absolute fortune' has only piled on pressure - as he questions the 'ability' of Sandro Tonali, Savio and Co](https://www.dailymail.com/sport/football/article-16152265/alan-shearer-tottenham-roberto-zerbi.html) - **Dailymail.com**
-6. [Andy Robertson claims Tottenham stars are 'guilty of carrying the weight of last season' as relegation alarm bells are sounded again after disastrous start to new Premier League campaign](https://www.dailymail.com/sport/football/article-16151593/Andy-Robertson-claims-Tottenham-stars-guilty-carrying-weight-season-relegation-alarm-bells-sounded-disastrous-start-new-Premier-League-campaign.html) - **Dailymail.com**
-7. [“No surprise at all”: Rooney reveals what he’s “heard” about JJ Gabriel at Man United](https://thepeoplesperson.com/2026/09/22/no-surprise-at-all-rooney-reveals-what-hes-heard-about-jj-gabriel-at-man-united-316959/) - **The Peoples Person**
-8. [Sunderland Winger Is Gathering Interest From Turkey: Should Le Bris Cash In On Him This January?](https://the4thofficial.net/2026/09/sunderland-winger-is-gathering-interest-from-turkey/) - **The4thofficial.net**
-9. [Tottenham Hotspur Seemingly Spoils Reveal Of New Boston Bruins Captain In Deleted Post](https://brobible.com/sports/article/tottenham-hotspur-spoils-david-pastrnak-boston-bruins-captain-announcement/) - **BroBible**
-10. [Ukraine anger as EU removes Russian oligarchs from sanctions list](https://www.bbc.co.uk/news/articles/c6dj4k98107do) - **BBC News**
+1. [NHL expects decision on Houston or Austin for potential expansion by end of year](https://www.houstonchronicle.com/sports/article/nhl-expansion-houston-austin-22443272.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - **Houston Chronicle**
+2. [Tones And I reveals why she turned down NRL grand final](https://www.abc.net.au/news/2026-09-23/nrl-grand-final-tones-and-i-pre-match-entertainment/107184040) - **ABC News (AU)**
+3. [Fantasy football Week 3 panic meter and breakout meter](https://www.usatoday.com/story/sports/fantasy/football/2026/09/22/fantasy-football-week-3-panic-meter-breakout-meter/91885955007/) - **USA Today**
+4. [Rams news: Davante Adams heralds Trent McDuffie as 'best corner in the league'](https://clutchpoints.com/nfl/los-angeles-rams/rams-news-davante-adams-heralds-trent-mcduffie-best-corner-league-blowing-out-giants) - **ClutchPoints**
+5. [Crystal Palace full Europa League fixtures, results, confirmed squad and schedule 2026/27](https://www.101greatgoals.com/football/europa-league/crystal-palace-europa-league-fixtures-results-squad-schedule/) - **101 Great Goals**
+6. [Liverpool's new Virgil van Dijk, three Chelsea stars and a Spurs summer signing make the cut as stats boffins reveals their Premier League team of the season so far - but there's NO room for Arsenal's David Raya in goal](https://www.dailymail.com/sport/football/article-16148381/Liverpools-new-Virgil-van-Dijk-three-Chelsea-stars-Tottenham-summer-signing-make-cut-stats-boffins-reveals-Premier-League-team-season-far-theres-NO-room-Arsenals-David-Raya-goal.html) - **Dailymail.com**
+7. [Everton Rejected 22-Year-Old After ‘Mad’ Leicester Fee: Was That The Right Call?](https://the4thofficial.net/2026/09/everton-rejected-22-year-old-after-mad-leicester-fee-was-that-the-right-call/) - **The4thofficial.net**
+8. [Super Stenhousemuir emerge as one of the feelgood stories of the Scottish football season](https://www.dailymail.com/sport/football/article-16152333/Super-Stenhousemuir-emerge-one-feelgood-stories-Scottish-football-season.html) - **Dailymail.com**
+9. [Aston Villa Loanee Could Return In January: Would They Benefit From This?](https://the4thofficial.net/2026/09/aston-villa-loanee-could-return-in-january-would-they-benefit-from-this/) - **The4thofficial.net**
+10. [Full list of Premier League fixtures in November including TV changes](https://www.101greatgoals.com/football/premier-league/football-on-tv-november-fixture-changes-matches-channels-live-online-streams-where-watch-kick-off-times-schedule/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-09-24 05:29:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-24 08:07:35 (KST) / (하루 100회 제한 준수 중)*
