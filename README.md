@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Indonesia replanted mangroves on Flores in 2013; 10 years later, restored forests supported 10 fauna species and stored up to 70 Mg CO2 per hectare](https://timesofindia.indiatimes.com/world/rest-of-world/indonesia-replanted-mangroves-on-flores-in-2013-10-years-later-restored-forests-supported-10-fauna-species-and-stored-up-to-70-mg-co2-per-hectare/articleshow/134404599.cms) - **The Times of India**
-2. [How can we let out feelings about international shut downs be known?](https://untold-arsenal.com/archives/123166) - **Untold-arsenal.com**
-3. [Narrow alleys host Ganesh mandals with a large heart](https://timesofindia.indiatimes.com/city/mumbai/narrow-alleys-host-ganesh-mandals-with-a-large-heart/articleshow/134404644.cms) - **The Times of India**
-4. [In 1910, Oregon planted European beachgrass to stabilize shifting dunes; it spread along the coast, reshaped the landscape and squeezed open sandy habitat used by native wildlife](https://timesofindia.indiatimes.com/science/nature/in-1910-oregon-planted-european-beachgrass-to-stabilize-shifting-dunes-it-spread-along-the-coast-reshaped-the-landscape-and-squeezed-open-sandy-habitat-used-by-native-wildlife/articleshow/134403672.cms) - **The Times of India**
-5. [A California hunting club established more than 100 years ago is selling its 400-acre private-island property for $1.5 million; the marsh retreat includes a 5,000-sq-ft clubhouse with 19 bedrooms](https://timesofindia.indiatimes.com/real-estate/news/a-california-hunting-club-established-more-than-100-years-ago-is-selling-its-400-acre-private-island-property-for-1-5-million-the-marsh-retreat-includes-a-5000-sq-ft-clubhouse-with-19-bedrooms/articleshow/134404518.cms) - **The Times of India**
-6. [Bigg Boss 20: Aasif Khan’s wife Zeba hits back at trolls over ‘close videos’ with Love Gill, says ‘They cannot rewrite the truth’](https://timesofindia.indiatimes.com/tv/news/hindi/bigg-boss-20-aasif-khans-wife-zeba-hits-back-at-trolls-over-close-videos-with-love-gill-says-they-cannot-rewrite-the-truth/articleshow/134404596.cms) - **The Times of India**
-7. [Has Arsenal's Strong Start Masked Issues Arteta Must Address?](https://roundtable.io/sports/soccer/premier-league/arsenal/opinion/has-arsenals-strong-start-masked-issues-arteta-must-address) - **Roundtable.io**
-8. [Vansh Bedi reported fixing approach during Delhi Premier League 3; DDCA seeks BCCI intervention](https://timesofindia.indiatimes.com/sports/cricket/news/vansh-bedi-reported-fixing-approach-during-delhi-premier-league-3-ddca-seeks-bcci-intervention/articleshow/134404311.cms) - **The Times of India**
-9. [Is not singing Vande Mataram punishable offence? Supreme Court to examine](https://timesofindia.indiatimes.com/legal/news/is-not-singing-vande-mataram-punishable-offence-supreme-court-to-examine/articleshow/134404494.cms) - **The Times of India**
-10. [Is Garnacho already at a crossroads at Villa?](https://www.bbc.com/sport/football/articles/c51kxgj43n89o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Arteta agrees long-term Arsenal contract extension](https://dailycannon.com/2026/09/arteta-agrees-arsenal-contract-extension/) - **Dailycannon.com**
+2. [Inter Not Getting Much Contribution from EPL Signings](https://cultofcalcio.com/inter-not-getting-much-contribution-from-epl-signings/) - **Cultofcalcio.com**
+3. [Kevin Durant was elite in Year 1 for the Rockets. Fred VanVleet could make him even better.](https://www.houstonchronicle.com/sports/rockets/article/kevin-durant-houston-rockets-preview-22442424.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - **Houston Chronicle**
+4. [Arteta agrees new deal with champions Arsenal](https://www.bbc.com/sport/football/articles/ckd68e40ze3jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Mbappe talks Mourinho, Ronaldo, Ballon d’Or, World Cup dream, failed Liverpool move](https://madriduniversal.com/mbappe-talks-mourinho-ronaldo-ballon-dor-world-cup-dream-failed-liverpool-move/) - **Madriduniversal.com**
+6. [Jarrad Branthwaite earns England call-up after injury recovery](https://cryptobriefing.com/branthwaite-england-call-up-injury-recovery/) - **Crypto Briefing**
+7. [Arteta agrees new deal with champions Arsenal](https://www.bbc.co.uk/sport/football/articles/ckd68e40ze3jo) - **BBC News**
+8. [Do statistics back up Neville's effort claim?](https://www.bbc.com/sport/football/articles/cmz9zlp8yvxpo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Argentina gifts Lionel Messi special jersey for final retirement match](https://clutchpoints.com/soccer/argentina-gifts-lionel-messi-special-jersey-final-retirement-match) - **ClutchPoints**
+10. [Paul Gascoigne reveals why he knew Tottenham 'were going to struggle'... as his old club slump to bottom of the Premier League before the international break](https://www.dailymail.com/sport/football/article-16150875/Paul-Gascoigne-Tottenham-struggle-Premier-League-bottom.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-09-23 15:38:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-23 21:12:13 (KST) / (하루 100회 제한 준수 중)*
