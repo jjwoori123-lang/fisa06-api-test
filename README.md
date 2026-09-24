@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Two pieces of the Manchester City midfield haven’t yet come together out of possession](https://esteemedkompany.com/2026/09/23/two-pieces-of-the-manchester-city-midfield-havent-yet-come-together-out-of-possession/) - **Esteemedkompany.com**
-2. [Essex cricketer Das charged with two counts of rape](https://www.bbc.com/sport/cricket/articles/ckvgydgv1e31o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Update On The Future Of This Tottenham Hotspur Forward: Should De Zerbi Cut Him Loose?](https://the4thofficial.net/2026/09/update-on-the-future-of-this-tottenham-hotspur-forward/) - **The4thofficial.net**
-4. [Essex cricketer Das charged with two counts of rape](https://www.bbc.co.uk/sport/cricket/articles/ckvgydgv1e31o) - **BBC News**
-5. [49ers Almost Drafted Cam Skattebo? Robert Saleh Says Kyle Shanahan 'Loved Him’](https://www.foxsports.com/stories/nfl/robert-saleh-cam-skattebo-draft-story-giants-titans-49ers) - **Fox Sports**
-6. [Manchester City Are In The Running To Land This Eredvisie Full-Back: Should Maresca Snap Him Up?](https://the4thofficial.net/2026/09/manchester-city-are-in-the-running-to-land-this-eredvisie-full-back/) - **The4thofficial.net**
-7. [Liverpool now have their very own version of Kevin De Bruyne](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-now-have-their-very-own-version-of-kevin-de-bruyne/) - **Anfieldwatch.co.uk**
-8. [INEOS approach PL-winning manager to replace Michael Carrick as Man United head coach](https://thepeoplesperson.com/2026/09/23/ineos-approach-pl-winning-manager-to-replace-michael-carrick-as-man-united-head-coach-317075/) - **The Peoples Person**
-9. [Chelsea Identify This Sunderland Forward As A Target: What Will He Bring To Stamford Bridge?](https://the4thofficial.net/2026/09/chelsea-identify-this-sunderland-forward-as-a-target-what-will-he-bring-to-stamford-bridge/) - **The4thofficial.net**
-10. [One Stat Proves the SEC Has Overtaken Big Ten as College Football's Best Conference](https://www.si.com/fannation/college/cfb-hq/rankings/sec-reclaims-crown-college-football-best-conference) - **Sports Illustrated**
+1. [England star Harry Kane could trade World Cup glory for NFL dream](https://www.thebiglead.com/england-star-harry-kane-trade-world-cup-glory-nfl-dream/) - **The Big Lead**
+2. [Rams news: Sean McVay provides Puka Nacua update after missing practice](https://clutchpoints.com/nfl/los-angeles-rams/rams-news-sean-mcvay-provides-puka-nacua-update-after-missing-practice) - **ClutchPoints**
+3. ['I'm not doing it for the money': Wayne Rooney reveals why he is pursuing punditry career after impressive World Cup BBC stint - and admits he may never return to the dugout again](https://www.dailymail.com/sport/football/article-16154517/Wayne-Rooney-reveals-pursuing-punditry-career-impressive-World-Cup-BBC-stint-admits-never-return-dugout.html) - **Dailymail.com**
+4. [MS NOW host Peter Alexander makes Golf Channel debut during Presidents Cup](https://awfulannouncing.com/versant/ms-now-host-peter-alexander-golf-channel-debut.html) - **Awful Announcing**
+5. [PFF ranks Bucs offensive line among NFL's best despite 0-2 start](https://bucswire.usatoday.com/story/sports/nfl/buccaneers/2026/09/23/pff-ranks-bucs-offensive-line-no-2-in-nfl-after-week-2/91902146007/) - **USA Today**
+6. [Papers: Man Utd line up Conte for sensational PL return](https://www.skysports.com/transfer/news/13591219/man-utd-antonio-conte-lined-up-for-sensational-premier-league-return-as-replacement-for-michael-carrick-paper-talk) - **Sky Sports**
+7. [Papers: Barcelona not interested in signing Man Utd wonderkid Gabriel](https://www.skysports.com/football/transfer-paper-talk/13591497/man-utd-transfer-news-barcelona-not-interested-in-wonderkid-jj-gabriel-says-sporting-director-deco-paper-talk) - **Sky Sports**
+8. [“Important for me to be close to my family”: Ex-Man United ace explains decision to rip up contract](https://thepeoplesperson.com/2026/09/23/important-for-me-to-be-close-to-my-family-ex-man-united-ace-explains-decision-to-rip-up-contract-317095/) - **The Peoples Person**
+9. [Kris Boyd backs 'mature' Hull star Oli McBurnie to lead the line for Pocognoli's new-look Scotland](https://www.dailymail.com/sport/football/article-16155369/Boyd-backs-mature-Hull-star-McBurnie-lead-line-Pocognolis-new-look-Scotland.html) - **Dailymail.com**
+10. [PREMIER LEAGUE REPORT CARD - PART ONE: Arsenal begin the defence of their crown, Brighton and Brentford are the surprise standouts and faltering Fulham remain winless - so what grades will they get?](https://www.dailymail.com/sport/football/article-16153535/PREMIER-LEAGUE-REPORT-CARD-ONE-Arsenal-begin-defence-crown-Brighton-Brentford-surprise-standouts-faltering-Fulham-remain-winless-grades-get.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-09-25 05:46:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-25 08:47:19 (KST) / (하루 100회 제한 준수 중)*
