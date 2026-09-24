@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Former Fulham manager Marco Silva hints that he could quit new job just THREE MONTHS into his role as he lashes out at refereeing performance in Benfica's defeat by Porto](https://www.dailymail.com/sport/football/article-16152481/Fulham-Marco-Silva-quit.html) - **Dailymail.com**
-2. [FULL LIST: EPL clubs confirm jersey numbers for 2026/27 season](https://punchng.com/full-list-epl-clubs-confirm-jersey-numbers-for-2026-27-season/) - **The Punch**
-3. [Five big stars with a point to prove during the international break](https://footballtoday.com/2026/09/23/five-big-stars-with-a-point-to-prove-during-the-international-break/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=five-big-stars-with-a-point-to-prove-during-the-international-break) - **Footballtoday.com**
-4. [Today in Germany: A roundup of the latest news on Wednesday](https://www.thelocal.de/20260923/today-in-germany-a-roundup-of-the-latest-news-on-wednesday-139) - **The Local Germany**
-5. [How Premier League teams have really started - according to xG](https://www.bbc.com/sport/football/articles/ck7v4y7jv182o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [How Premier League teams have really started - according to xG](https://www.bbc.co.uk/sport/football/articles/ck7v4y7jv182o) - **BBC News**
-7. [‘Ridiculous Efficiency,’ ‘In Her 8th Season BTW’ — WNBA World Has Mixed Feelings Over Sophie Cunningham’s Career Scoring Milestone](https://www.profootballnetwork.com/wnba/wnba-world-mixed-feelings-sophie-cunninghams-career-scoring-milestone/) - **Pro Football Network**
-8. [Bayern Munich are ‘leading contenders’ to sign Nottingham Forest captain Morgan Gibbs-White](https://footballtoday.com/2026/09/23/bayern-munich-are-leading-contenders-to-sign-nottingham-forest-captain-morgan-gibbs-white/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=bayern-munich-are-leading-contenders-to-sign-nottingham-forest-captain-morgan-gibbs-white) - **Footballtoday.com**
-9. [Man Utd star who’s been told he ‘shouldn’t be’ at Old Trafford now ranks above every PL player for attacking feat](https://utdreport.co.uk/2026/09/23/marcus-rashford-sam-allardyce-manchester-united-statistic/) - **Utdreport.co.uk**
-10. [Bayern’s transfer plan for JJ Gabriel clear after Christoph Freund admission](https://cfbayerninsider.com/2026/09/bayerns-transfer-plan-for-jj-gabriel-clear-after-christoph-freund-admission/) - **Cfbayerninsider.com**
+1. [Rob Manfred happy with MLB’s stop-gap national TV deals after Year 1](https://awfulannouncing.com/mlb/rob-manfred-happy-stop-gap-national-tv-deals-year-1.html) - **Awful Announcing**
+2. [It's ANOTHER official blunder: Premier League panel says Sunderland were wrongly awarded penalty against Arsenal which enraged Mikel Arteta ... after refs chiefs apologised to Manchester United for costly offside derby call](https://www.dailymail.com/sport/football/article-16154109/Its-official-blunder-Premier-League-panel-says-Sunderland-wrongly-awarded-penalty-against-Arsenal-enraged-Mikel-Arteta-refs-chiefs-apologised-Manchester-United-costly-offside-derby-call.html) - **Dailymail.com**
+3. [How Successful Would Kylian Mbappe Have Been For Liverpool?](https://www.forbes.com/sites/grahamruthven/2026/09/23/how-successful-would-kylian-mbappe-have-been-for-liverpool/) - **Forbes**
+4. ['Just the beginning' - have your say on Le Fee's new deal](https://www.bbc.com/sport/football/articles/cwkgv772vnnko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Ranking the 50 best players in the Premier League after 50 games - The New York Times](https://slashdot.org/firehose.pl?op=view&amp;id=185747104) - **Slashdot.org**
+6. [Milan close in on Pulisic and Pavlovic renewals until 2031](https://football-italia.net/milan-close-in-on-pulisic-and-pavlovic/) - **Football Italia**
+7. [‘I can say…’: Trusted insider says a decision has been made involving Man Utd and Bayern, movement could be imminent](https://utdreport.co.uk/2026/09/23/manchester-united-jj-gabriel-bayern-munich-european-interest/) - **Utdreport.co.uk**
+8. [James had options - but Wrexham not among them](https://www.bbc.com/sport/football/articles/c6p3kxxv1kl5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [James had options - but Wrexham not among them](https://www.bbc.co.uk/sport/football/articles/c6p3kxxv1kl5o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-09-24 15:43:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-24 21:36:12 (KST) / (하루 100회 제한 준수 중)*
