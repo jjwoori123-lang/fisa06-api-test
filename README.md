@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ballon d'Or Power Rankings: Harry Kane does enough to make case but Vitinha and Michael Olise aren't far off](https://www.cbssports.com/soccer/news/ballon-dor-power-rankings-harry-kanes-vitinha-michael-olise-2026/) - **CBS Sports**
-2. ['New one' Klopp promises fresh approach as Germany reign begins](https://sports.yahoo.com/articles/one-klopp-promises-fresh-approach-012444654.html) - **Yahoo Entertainment**
-3. [10 things we learned at Rockets media day, from Amen Thompson's goals to Steven Adams' GTA VI take](https://www.houstonchronicle.com/sports/rockets/article/rockets-media-day-takeaways-22385120.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - **Houston Chronicle**
-4. [Cristiano Ronaldo still holds incredible record Harry Kane could not break after reaching 100 Bayern goals](https://worldsoccertalk.com/news/cristiano-ronaldo-still-holds-incredible-record-harry-kane-could-not-break-after-reaching-100-bayern-goals/) - **Worldsoccertalk.com**
-5. [NHL expects decision on Houston or Austin for potential expansion by end of year](https://www.houstonchronicle.com/sports/article/nhl-expansion-houston-austin-22443272.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - **Houston Chronicle**
-6. [Tones And I reveals why she turned down NRL grand final](https://www.abc.net.au/news/2026-09-23/nrl-grand-final-tones-and-i-pre-match-entertainment/107184040) - **ABC News (AU)**
-7. [Fantasy football Week 3 panic meter and breakout meter](https://www.usatoday.com/story/sports/fantasy/football/2026/09/22/fantasy-football-week-3-panic-meter-breakout-meter/91885955007/) - **USA Today**
-8. [Rams news: Davante Adams heralds Trent McDuffie as 'best corner in the league'](https://clutchpoints.com/nfl/los-angeles-rams/rams-news-davante-adams-heralds-trent-mcduffie-best-corner-league-blowing-out-giants) - **ClutchPoints**
-9. [Crystal Palace full Europa League fixtures, results, confirmed squad and schedule 2026/27](https://www.101greatgoals.com/football/europa-league/crystal-palace-europa-league-fixtures-results-squad-schedule/) - **101 Great Goals**
-10. [Liverpool's new Virgil van Dijk, three Chelsea stars and a Spurs summer signing make the cut as stats boffins reveals their Premier League team of the season so far - but there's NO room for Arsenal's David Raya in goal](https://www.dailymail.com/sport/football/article-16148381/Liverpools-new-Virgil-van-Dijk-three-Chelsea-stars-Tottenham-summer-signing-make-cut-stats-boffins-reveals-Premier-League-team-season-far-theres-NO-room-Arsenals-David-Raya-goal.html) - **Dailymail.com**
+1. [Former Fulham manager Marco Silva hints that he could quit new job just THREE MONTHS into his role as he lashes out at refereeing performance in Benfica's defeat by Porto](https://www.dailymail.com/sport/football/article-16152481/Fulham-Marco-Silva-quit.html) - **Dailymail.com**
+2. [FULL LIST: EPL clubs confirm jersey numbers for 2026/27 season](https://punchng.com/full-list-epl-clubs-confirm-jersey-numbers-for-2026-27-season/) - **The Punch**
+3. [Five big stars with a point to prove during the international break](https://footballtoday.com/2026/09/23/five-big-stars-with-a-point-to-prove-during-the-international-break/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=five-big-stars-with-a-point-to-prove-during-the-international-break) - **Footballtoday.com**
+4. [Today in Germany: A roundup of the latest news on Wednesday](https://www.thelocal.de/20260923/today-in-germany-a-roundup-of-the-latest-news-on-wednesday-139) - **The Local Germany**
+5. [How Premier League teams have really started - according to xG](https://www.bbc.com/sport/football/articles/ck7v4y7jv182o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [How Premier League teams have really started - according to xG](https://www.bbc.co.uk/sport/football/articles/ck7v4y7jv182o) - **BBC News**
+7. [‘Ridiculous Efficiency,’ ‘In Her 8th Season BTW’ — WNBA World Has Mixed Feelings Over Sophie Cunningham’s Career Scoring Milestone](https://www.profootballnetwork.com/wnba/wnba-world-mixed-feelings-sophie-cunninghams-career-scoring-milestone/) - **Pro Football Network**
+8. [Bayern Munich are ‘leading contenders’ to sign Nottingham Forest captain Morgan Gibbs-White](https://footballtoday.com/2026/09/23/bayern-munich-are-leading-contenders-to-sign-nottingham-forest-captain-morgan-gibbs-white/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=bayern-munich-are-leading-contenders-to-sign-nottingham-forest-captain-morgan-gibbs-white) - **Footballtoday.com**
+9. [Man Utd star who’s been told he ‘shouldn’t be’ at Old Trafford now ranks above every PL player for attacking feat](https://utdreport.co.uk/2026/09/23/marcus-rashford-sam-allardyce-manchester-united-statistic/) - **Utdreport.co.uk**
+10. [Bayern’s transfer plan for JJ Gabriel clear after Christoph Freund admission](https://cfbayerninsider.com/2026/09/bayerns-transfer-plan-for-jj-gabriel-clear-after-christoph-freund-admission/) - **Cfbayerninsider.com**
 
 
 ---
-*최근 업데이트: 2026-09-24 10:28:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-24 15:43:37 (KST) / (하루 100회 제한 준수 중)*
