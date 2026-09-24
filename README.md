@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Rob Manfred happy with MLB’s stop-gap national TV deals after Year 1](https://awfulannouncing.com/mlb/rob-manfred-happy-stop-gap-national-tv-deals-year-1.html) - **Awful Announcing**
-2. [It's ANOTHER official blunder: Premier League panel says Sunderland were wrongly awarded penalty against Arsenal which enraged Mikel Arteta ... after refs chiefs apologised to Manchester United for costly offside derby call](https://www.dailymail.com/sport/football/article-16154109/Its-official-blunder-Premier-League-panel-says-Sunderland-wrongly-awarded-penalty-against-Arsenal-enraged-Mikel-Arteta-refs-chiefs-apologised-Manchester-United-costly-offside-derby-call.html) - **Dailymail.com**
-3. [How Successful Would Kylian Mbappe Have Been For Liverpool?](https://www.forbes.com/sites/grahamruthven/2026/09/23/how-successful-would-kylian-mbappe-have-been-for-liverpool/) - **Forbes**
-4. ['Just the beginning' - have your say on Le Fee's new deal](https://www.bbc.com/sport/football/articles/cwkgv772vnnko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Ranking the 50 best players in the Premier League after 50 games - The New York Times](https://slashdot.org/firehose.pl?op=view&amp;id=185747104) - **Slashdot.org**
-6. [Milan close in on Pulisic and Pavlovic renewals until 2031](https://football-italia.net/milan-close-in-on-pulisic-and-pavlovic/) - **Football Italia**
-7. [‘I can say…’: Trusted insider says a decision has been made involving Man Utd and Bayern, movement could be imminent](https://utdreport.co.uk/2026/09/23/manchester-united-jj-gabriel-bayern-munich-european-interest/) - **Utdreport.co.uk**
-8. [James had options - but Wrexham not among them](https://www.bbc.com/sport/football/articles/c6p3kxxv1kl5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [James had options - but Wrexham not among them](https://www.bbc.co.uk/sport/football/articles/c6p3kxxv1kl5o) - **BBC News**
+1. [Ronaldo eyes scoring 1,000th goal for Portugal after considering international retirement](https://www.skysports.com/football/news/13591141/cristiano-ronaldo-portugal-legend-considered-international-retirement-after-2026-world-cup-but-is-still-targeting-1-000-goals) - **Sky Sports**
+2. [Tottenham Hotspur's Xavi Simons heads to NHL and NFL facilities as he continues ACL rehab](https://www.alloutsoccer.com/news/tottenham-hotspur-xavi-simons-rehab-2037066) - **Alloutsoccer.com**
+3. [Andoni Iraola makes final decision on 'heroic' Liverpool star](https://www.anfieldwatch.co.uk/liverpool-fc/news/andoni-iraola-makes-final-decision-on-heroic-liverpool-star/) - **Anfieldwatch.co.uk**
+4. [What are the next steps for USMNT and Mauricio Pochettino?](https://www.nbcsports.com/soccer/news/what-are-the-next-steps-for-usmnt-and-mauricio-pochettino) - **NBCSports.com**
+5. [Three Weeks Without Newcastle. Picking the Team Should Kill Ten Minutes…](https://cominghomenewcastle.sbnation.com/newcastle-united-opinion/26181/three-weeks-without-newcastle-picking-the-team-should-kill-ten-minutes) - **SB Nation**
+6. [Chelsea loanee Alejandro Garnacho challenged to 'shut the mouths' of critics](https://www.alloutsoccer.com/news/chelsea-alejandro-garnacho-villa-critics-2037026) - **Alloutsoccer.com**
+7. [USMNT's 17-year-old newcomer eager to learn from 'role model' Tyler Adams](https://www.usatoday.com/story/sports/soccer/usmnt/2026/09/23/adri-mehmeti-tyler-adams-usmnt-red-bulls/91903902007/) - **USA Today**
+8. [Navy All-American Bowl to honor wide receiver Braylon Clark](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/navy-all-american-bowl-to-honor-wide-receiver-braylon-clark) - **NBCSports.com**
+9. [Navy All-American Bowl to honor tight end Jaxon Dollar](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/navy-all-american-bowl-to-honor-tight-end-jaxon-dollar) - **NBCSports.com**
+10. [Navy All-American Bowl to honor quarterback Brady Quinn](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/navy-all-american-bowl-to-honor-quarterback-brady-quinn) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-09-24 21:36:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-25 02:32:11 (KST) / (하루 100회 제한 준수 중)*
