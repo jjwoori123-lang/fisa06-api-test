@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [New headache for Man United in pursuit of David Raum who could leave on free transfer](https://thepeoplesperson.com/2026/09/24/new-headache-for-man-united-in-pursuit-of-david-raum-who-could-leave-on-free-transfer-317139/) - **The Peoples Person**
-2. [Barcelona, Arsenal, Chelsea, Manchester United to battle for Castello Lukeba as asking price revealed](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/133371/barcelona-arsenal-chelsea-manchester-united-to-battle-for-castello-lukeba) - **Barca Blaugranes**
-3. [Petrov voices concerns about nature of Celtic’s transfer business](https://celticshorts.com/2026/09/petrov-voices-concerns-about-nature-of-celtics-transfer-business/) - **Celticshorts.com**
-4. [Georgia's Kirby Smart Is Not Sleeping on the Sooners](https://roundtable.io/sports/ncaa/oklahoma/news/georgias-kirby-smart-is-not-sleeping-on-the-sooners) - **Roundtable.io**
-5. [How do you feel about Forest's start to the season?](https://www.bbc.com/sport/football/articles/cr780y6g1162o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [How do you feel about Newcastle's start to the season?](https://www.bbc.com/sport/football/articles/c6wyz22dnlrwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [How do you feel about Man City's start and life under Maresca?](https://www.bbc.com/sport/football/articles/c68xkwwln9e8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [How do you feel about Leeds' start to the season?](https://www.bbc.com/sport/football/articles/ckjrxpplvlz2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Drinking at football matches - would fans welcome it?](https://www.bbc.com/sport/football/articles/cq1kx140gwlzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Report: €65m-rated Bundesliga defender would be willing to give green light to Barcelona move](https://barcauniversal.com/report-e65m-rated-bundesliga-defender-would-be-willing-to-give-green-light-to-barcelona-move/) - **Barcauniversal.com**
+1. [Club legend's son lined up to replace Jeremie Frimpong](https://www.anfieldwatch.co.uk/liverpool-fc/news/club-legends-son-lined-up-to-replace-jeremie-frimpong/) - **Anfieldwatch.co.uk**
+2. [Notre Dame vs Purdue Prediction: Odds, expert picks, team and player news, betting trends, and stats](https://www.nbcsports.com/betting/college-football/news/notre-dame-vs-purdue-prediction-odds-expert-picks-team-and-player-news-betting-trends-and-stats) - **NBCSports.com**
+3. [Premier League pushes for £1.8bn EFL funding deal](https://punchng.com/premier-league-pushes-for-1-8bn-efl-funding-deal/) - **The Punch**
+4. [Wayne Rooney names which two clubs he would like to manage next](https://eplindex.com/150791/wayne-rooney-names-which-two-clubs-he-would-like-to-manage-next.html) - **English Premier League Index - Opta Stats**
+5. [Even John Swinney's own MSP questions why Scots cash is going to booming Rwanda](https://www.dailymail.com/news/article-16158367/Swinneys-MSP-admits-Stop-giving-Scots-cash-booming-Rwanda.html) - **Dailymail.com**
+6. [Donnarumma: ‘I’m happy Mancini back for Italy, not easy in Manchester’](https://football-italia.net/donnarumma-im-happy-mancini-italy-manchester/) - **Football Italia**
+7. [Specsavers pair blew £35,000 of company cash on sport jollies... including £9,722 for 25 double rooms](https://www.dailymail.com/news/article-16158311/Specsavers-pair-blew-35-000-company-cash-sport-jollies-including-9-722-25-double-rooms.html) - **Dailymail.com**
+8. [Ex-England star Dele Alli handed career lifeline as fourth-tier side leaves 'doors open'](https://www.alloutsoccer.com/news/dele-alli-career-lifeline-barnet-2038679) - **Alloutsoccer.com**
+9. [Liverpool given major boost for keeping 'sensation' at Anfield](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-given-major-boost-for-keeping-sensation-at-anfield/) - **Anfieldwatch.co.uk**
+10. [Arsenal set priority signing for 2027 transfer windows](https://dailycannon.com/2026/09/arsenal-striker-signing-kroupi/) - **Dailycannon.com**
 
 
 ---
-*최근 업데이트: 2026-09-25 23:44:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-26 04:09:50 (KST) / (하루 100회 제한 준수 중)*
