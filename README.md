@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Peter Millar Has Come a Long Way in 25 Years](http://wwd.com/menswear-news/mens-designer-luxury/peter-millar-25-years-richemont-scott-mahoney-1239203133/) - **WWD**
-2. [Manchester United posts record £677.6m revenue, but £43m loss persists](https://www.business-standard.com/sports/business/manchester-united-posts-record-677-6m-revenue-but-43m-loss-persists-126092400181_1.html) - **Business Standard**
-3. [Ajibade hints at Odemwingie 10-year NFF exposé](https://punchng.com/ajibade-hints-at-odemwingie-10-year-nff-expose/) - **The Punch**
-4. [Sporting Lagos inflict fourth straight defeat on Enyimba](https://punchng.com/sporting-lagos-inflict-fourth-straight-defeat-on-enyimba/) - **The Punch**
-5. [Odaudu, Offia anticipate Rivers Hoopers BAL return](https://punchng.com/odaudu-offia-anticipate-rivers-hoopers-bal-return/) - **The Punch**
-6. [Aina ready for Eagles return](https://punchng.com/aina-ready-for-eagles-return/) - **The Punch**
-7. [England star Harry Kane could trade World Cup glory for NFL dream](https://www.thebiglead.com/england-star-harry-kane-trade-world-cup-glory-nfl-dream/) - **The Big Lead**
-8. [Rams news: Sean McVay provides Puka Nacua update after missing practice](https://clutchpoints.com/nfl/los-angeles-rams/rams-news-sean-mcvay-provides-puka-nacua-update-after-missing-practice) - **ClutchPoints**
-9. ['I'm not doing it for the money': Wayne Rooney reveals why he is pursuing punditry career after impressive World Cup BBC stint - and admits he may never return to the dugout again](https://www.dailymail.com/sport/football/article-16154517/Wayne-Rooney-reveals-pursuing-punditry-career-impressive-World-Cup-BBC-stint-admits-never-return-dugout.html) - **Dailymail.com**
-10. [MS NOW host Peter Alexander makes Golf Channel debut during Presidents Cup](https://awfulannouncing.com/versant/ms-now-host-peter-alexander-golf-channel-debut.html) - **Awful Announcing**
+1. [Old clip of Harry Kane attempting an NFL field goal goes viral after MLS-NFL dual role admission](https://www.hitc.com/old-clip-of-harry-kane-attempting-an-nfl-field-goal-goes-viral-after-mls-nfl-dual-role-admission/) - **HITC - Football, Gaming, Movies, TV, Music**
+2. [How Man City overhauled their squad from a 650,000-strong database](https://www.bbc.co.uk/sport/football/articles/cm1wx51gyly5o) - **BBC News**
+3. [Lewis Hall finally has his England chance – now he can make the left-back spot his own](https://hayters.com/lewis-hall-finally-has-his-england-chance-now-he-can-make-the-left-back-spot-his-own/) - **Hayters.com**
+4. [Celtic has goalkeeping concerns to add to midfield worries](https://celticshorts.com/2026/09/celtic-has-goalkeeping-concerns-to-add-to-midfield-worries/) - **Celticshorts.com**
+5. [From PE teacher to Premier League player - Thomas' journey](https://www.bbc.com/sport/football/articles/c65y5e9gk052o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [SEC's most annoying argument is looking more true by the week | Opinion](https://www.usatoday.com/story/sports/ncaaf/sec/2026/09/24/sec-college-football-depth-cfp-committee/91873904007/) - **USA Today**
+7. [Liverpool outcast Harvey Elliott accused of being OVERWEIGHT after arriving on loan at Valencia 'out of shape' with his career hanging in the balance after Aston Villa's £35m clause rejection](https://www.dailymail.com/sport/football/article-16156715/Liverpool-outcast-Harvey-Elliott-Valencia.html) - **Dailymail.com**
+8. [New report confirms length of Arteta’s new Arsenal contract](https://dailycannon.com/2026/09/arteta-arsenal-new-contract-length/) - **Dailycannon.com**
+9. [Team India hold indoor nets session ahead of Asian Games 2026 men's cricket campaign](https://economictimes.indiatimes.com/news/sports/cricket/team-india-hold-indoor-nets-session-ahead-of-asian-games-2026-mens-cricket-campaign/articleshow/134456835.cms) - **The Times of India**
+10. [How Barry Hearn is helping shape the future of his local non-league club](https://www.skysports.com/football/news/13582843/brentwood-town-how-former-leyton-orient-owner-barry-hearn-is-helping-shape-the-future-of-his-local-non-league-club) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-09-25 13:04:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-25 18:40:01 (KST) / (하루 100회 제한 준수 중)*
