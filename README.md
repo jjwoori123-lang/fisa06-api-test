@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mauricio Pochettino admits ‘regret’ regarding Folarin Balogun’s World Cup suspension controversy](https://www.alloutsoccer.com/news/pochettino-regret-balogun-world-cup-2040258) - **Alloutsoccer.com**
-2. [Manchester City's possible future? How Juventus recovered from Calciopoli scandal and relegation punishment](https://www.cbssports.com/soccer/news/manchester-city-juventus-calciopoli-scandal-and-relegation-punishment/) - **CBS Sports**
-3. [Manchester City Defender Is On The Radar Of Chelsea: Should Maresca Cash In On Him?](https://the4thofficial.net/2026/09/manchester-city-defender-is-on-the-radar-of-chelsea/) - **The4thofficial.net**
-4. [Bryan Mbeumo: Man United star in running for prestigious PL award](https://thepeoplesperson.com/2026/09/25/bryan-mbeumo-man-united-star-in-running-for-prestigious-pl-award-317243/) - **The Peoples Person**
-5. [What’s New on Prime Video Canada: October 2026](https://www.iphoneincanada.ca/2026/09/25/whats-new-on-prime-video-canada-october-2026/) - **iPhone in Canada**
-6. [Morgan Rogers reveals desire to have a 'bigger stamp' on England games after £117m Chelsea move - as star jokes he is glad to have a break from Cole Palmer](https://www.dailymail.com/sport/football/article-16160961/Morgan-Rogers-reveals-desire-bigger-stamp-England-games-117m-Chelsea-star-jokes-glad-break-Cole-Palmer.html) - **Dailymail.com**
-7. [BeTeam – Run a private sports prediction league with friends, no money involved](https://betalist.com/startups/beteam) - **Betalist.com**
-8. [Thomas Tuchel sends direct warning to Chelsea star](https://eplindex.com/150816/thomas-tuchel-sends-direct-warning-to-chelsea-star.html) - **English Premier League Index - Opta Stats**
-9. [Report: Liverpool are in the race to sign world-class Serie A star](https://anfieldindex.com/100855/report-liverpool-are-in-the-race-to-sign-world-class-serie-a-star.html) - **Anfieldindex.com**
-10. [The Outlook - Week 3 (CIN–PIT, SEA–WAS, ARI–SF, MIN–TB)](https://www.thehuddle.com/story/sports/fantasy/football/inseason-advice/2026/09/25/the-outlook-week-3-matchups-page-3/91867346007/) - **Thehuddle.com**
+1. [UK Prime Minister says football fans 'singled out' by alcohol ban not imposed on rugby matches](https://www.foxnews.com/outkick-sports/uk-prime-minister-says-football-fans-singled-out-alcohol-ban-not-imposed-rugby-matches) - **Fox News**
+2. [Wisconsin vs Penn State Prediction: Odds, expert picks, team and player news, betting trends, and stats](https://www.nbcsports.com/betting/college-football/news/wisconsin-vs-penn-state-prediction-odds-expert-picks-team-and-player-news-betting-trends-and-stats) - **NBCSports.com**
+3. [‘They cannot take it out of us’ – Rodri defends Man City success](https://hayters.com/they-cannot-take-it-out-of-us-rodri-defends-man-city-success/) - **Hayters.com**
+4. [Man City verdict could see four Premier League clubs land compensation worth more than £200m](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_738699b6-1f86-4193-9b06-e0386b942067) - **Yahoo Entertainment**
+5. [No relegation clause in Haaland's City deal - Saturday's gossip](https://www.bbc.com/sport/football/articles/c84gkkepxxl4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [No relegation clause in Haaland's City deal - Saturday's gossip](https://www.bbc.co.uk/sport/football/articles/c84gkkepxxl4o) - **BBC News**
+7. [Liverpool could sign Everton's best player next summer](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-could-sign-evertons-best-player-next-summer-jarrad-branthwaite/) - **Anfieldwatch.co.uk**
+8. [Shelbourne and Galway United cannot be separated for fourth time in a row](https://www.irishtimes.com/sport/soccer/2026/09/25/shelbourne-and-galway-united-cannot-be-separated-for-fourth-time-in-a-row/) - **The Irish Times**
+9. [Rodri backs Man City to win legal battle over 114 charges](https://punchng.com/rodri-backs-man-city-to-win-legal-battle-over-114-charges/) - **The Punch**
+10. [Man City charges - what happens now?](https://www.skysports.com/football/news/13591930/man-city-premier-league-charges-what-does-the-appeals-process-look-like-and-what-happens-now) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-09-27 03:30:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-27 06:32:48 (KST) / (하루 100회 제한 준수 중)*
