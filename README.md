@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Michigan vs Iowa Prediction: Odds, expert picks, team and player news, betting trends, and stats](https://www.nbcsports.com/betting/college-football/news/michigan-vs-iowa-prediction-odds-expert-picks-team-and-player-news-betting-trends-and-stats) - **NBCSports.com**
-2. [Why USMNT teen Zavier Gozo is glad to be ‘worst player on the team’ for new club Crystal Palace](https://nypost.com/2026/09/24/sports/usmnts-zavier-gozo-embracing-challenge-with-crystal-palace/) - **New York Post**
-3. [Week 3 Yahoo Fantasy x Arena Club Slab Packs: Josh Allen, Patrick Mahomes among chase cards](https://sports.yahoo.com/fantasy/article/week-3-yahoo-fantasy-x-arena-club-slab-packs-josh-allen-patrick-mahomes-among-chase-cards-000055005.html) - **Yahoo Entertainment**
-4. [My day at Auschwitz with Wayne Rooney and why his reaction to the horrors there confounded every assumption I had about him: STEPHEN POLLARD](https://www.dailymail.com/debate/article-16158461/Auschwitz-Wayne-Rooney-horrors-assumption-STEPHEN-POLLARD.html) - **Dailymail.com**
-5. [Kai Havertz Injury Rocks Klopp’s Germany Debut as Netherlands Clash Takes Ugly Turn](https://heavy.com/sports/soccer/kai-havertz-injury-rocks-klopps-germany-debut-as-netherlands-clash-takes-ugly-turn/) - **Heavy.com**
-6. [The FA Cup final assistant ref whose life was turned upside down by tumour discovery](https://www.bbc.co.uk/news/articles/c62kd2r65l1o) - **BBC News**
-7. [Bassey leads by example – Iwobi](https://punchng.com/bassey-leads-by-example-iwobi/) - **The Punch**
-8. [Apple Sports adds real-time Grand Slam draws, expands soccer coverage](https://9to5mac.com/2026/09/24/apple-sports-adds-real-time-grand-slam-draws-expands-soccer-coverage/) - **9to5Mac**
-9. [‘We can play better’ says Klopp after Germany and Netherlands draw](https://www.101greatgoals.com/news/we-can-play-better-says-klopp-after-germany-and-netherlands-draw/) - **101 Great Goals**
-10. [Reliance on high transfer fees risks clubs' survival, UEFA finance chief says](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260924-930-740602/) - **Dpa-international.com**
+1. [Gerrard unveils plans for new sports facilities](https://www.bbc.com/news/articles/c9rk35zglgmmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Our son's death could have been prevented by FA - Billy Vigar's parents](https://www.bbc.com/sport/football/articles/ckwyzjny99vjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Our son's death could have been prevented by FA - Billy Vigar's parents](https://www.bbc.co.uk/sport/football/articles/ckwyzjny99vjo) - **BBC News**
+4. [Dele Alli’s Road Back: From Tottenham Star To A Training Offer At Barnet](https://roundtable.io/sports/soccer/premier-league/tottenham/news/dele-alli-s-road-back-from-tottenham-star-to-a-training-offer-at-barnet) - **Roundtable.io**
+5. [2026 College Football Week 4 Best Bets: Three picks for Sept 25 including Indiana, Clemson vs Cal](https://www.nbcsports.com/betting/college-football/news/2026-college-football-week-4-best-bets-three-picks-for-sept-25-including-indiana-clemson-vs-cal) - **NBCSports.com**
+6. [OTD (25/09/2005): When Mick McCarthy Finally Had Something to Smile About](https://rokerreport.sbnation.com/features/154568/otd-25-09-2005-when-mick-mccarthy-finally-had-something-to-smile-about) - **SB Nation**
+7. [The Brian Brobbey Paradox: Irresistible Force, When Fit](https://rokerreport.sbnation.com/opinion/154552/the-brian-brobbey-paradox-sunderlands-irresistible-force) - **SB Nation**
+8. [Aiden McGeady Reflects on Sunderland, Wembley and Five Special Years](https://rokerreport.sbnation.com/sunderland-safc-interviews/154529/aiden-mcgeady-reflects-on-sunderland-wembley-and-five-special-years) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-09-26 09:52:11 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-26 14:56:58 (KST) / (하루 100회 제한 준수 중)*
