@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool and Arsenal eager to raid London club for ‘tireless’ 24y/o who’s a ‘constant threat’](https://www.empireofthekop.com/2026/09/26/liverpool-eager-to-raid-london-club-for-tireless-24yo/) - **Empire of The Kop**
-2. [Brian Brobbey: How much Man United must pay to seal sensational January deal](https://thepeoplesperson.com/2026/09/26/brian-brobbey-how-much-man-united-must-pay-to-seal-sensational-january-deal-317328/) - **The Peoples Person**
-3. [Man City chairman rallies fans after reports club found guilty of 114 charges](https://www.channelnewsasia.com/sport/man-city-chairman-rallies-fans-after-reports-club-found-guilty-114-charges-6412856) - **CNA**
-4. [Eva Olid Makes "Perfect" Claim As Man Utd Women Prepare For West Ham](https://roundtable.io/sports/soccer/premier-league/manchester-united/news/eva-olid-makes-perfect-claim-as-man-utd-women-prepare-for-west-ham) - **Roundtable.io**
-5. [BetMGM bonus code POSTBET: Get up to $1,500 back in bonus bets for Oklahoma vs. Georgia](https://nypost.com/2026/09/26/betting/betmgm-bonus-code-postbet-get-up-to-1500-back-in-bonus-bets-for-oklahoma-vs-georgia/) - **New York Post**
-6. [Ray Parlour says Arsenal players never cared or planned to go unbeaten in 2003/2004](https://www.justarsenal.com/ray-parlour-says-arsenal-players-never-cared-or-planned-to-go-unbeaten-in-2003-2004/422725) - **Just Arsenal News**
-7. [Report: Liverpool and Man United in the race to sign Premier League defender](https://eplindex.com/150835/report-liverpool-and-man-united-in-the-race-to-sign-premier-league-defender.html) - **English Premier League Index - Opta Stats**
-8. [Man City chairman Al Mubarak releases statement about club’s situation](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260926-930-748867/) - **Dpa-international.com**
-9. [How to watch England vs Spain in USA: 2026/27 UEFA Nations League, Live Stream, TV and Preview](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-england-vs-spain-in-the-usa-live-stream-and-tv-for-nations-league/) - **Worldsoccertalk.com**
+1. [Roy Keane tells 'cheating' Man City to 'take their medicine' after guilty verdict - and REJECTS Rodri's claims titles were deserved despite 'vast majority' of 115 charges being proven](https://www.dailymail.com/sport/football/article-16162801/Roy-Keane-tells-cheating-Man-City-medicine-guilty-verdict-REJECTS-Rodris-claims-titles-deserved-despite-vast-majority-115-charges-proven.html) - **Dailymail.com**
+2. [Arsenal considers stunning move for ex-Liverpool star](https://www.justarsenal.com/arsenal-considers-stunning-move-for-ex-liverpool-star/422733) - **Just Arsenal News**
+3. [Sunderland Are Among The Clubs Keeping Tabs On This Ligue 1 Midfielder: Should Le Bris Go For Him?](https://the4thofficial.net/2026/09/sunderland-are-among-the-clubs-keeping-tabs-on-this-ligue-1-midfielder/) - **The4thofficial.net**
+4. [Andoni Iraola has the perfect solution to major Liverpool issue](https://www.anfieldwatch.co.uk/liverpool-fc/news/andoni-iraola-has-the-perfect-solution-to-major-liverpool-issue/) - **Anfieldwatch.co.uk**
+5. [Bruno Fernandes: Jorge Jesus explains major reason for United star’s recent struggles](https://thepeoplesperson.com/2026/09/26/bruno-fernandes-jorge-jesus-explains-major-reason-for-united-stars-recent-struggles-317355/) - **The Peoples Person**
+6. [Man City Sends Message to Fans](https://www.newser.com/story/397129/man-city-sends-message-to-fans.html) - **Newser**
+7. [Liverpool must raid Premier League rivals and sign 'exciting' star soon](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-must-raid-premier-league-rivals-and-sign-exciting-star-soon/) - **Anfieldwatch.co.uk**
+8. [Liverpool Are Big Admirers Of This Real Madrid Midfielder: What Will He Bring To Anfield?](https://the4thofficial.net/2026/09/liverpool-are-big-admirers-of-this-real-madrid-midfielder/) - **The4thofficial.net**
+9. [Man City's meteoric rise clouded by dark shadow](https://sports.yahoo.com/articles/man-citys-meteoric-rise-clouded-175651169.html) - **Yahoo Entertainment**
+10. [Sixers star Tyrese Maxey ranked No. 11 best player in the league](https://sixerswire.usatoday.com/story/sports/nba/sixers/2026/09/26/sixers-star-tyrese-maxey-ranked-no-11-best-player-in-the-league/91937162007/) - **USA Today**
 
 
 ---
-*최근 업데이트: 2026-09-28 00:11:40 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-28 04:02:03 (KST) / (하루 100회 제한 준수 중)*
