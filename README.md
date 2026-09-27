@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bayern Munich News: FC Bayern to rekindle interest in FC Barcelona’s Dani Olmo for January move?; Michael Olise eyeing future in Spain?; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/260158/bayern-munich-fc-barcelona-olmo-olise-spain-manchester-united-borussia-dortmund-diaz-bvb) - **Bavarian Football Works**
-2. [Today in sports history, November 28](https://www.usatoday.com/story/sports/history/2026/09/25/today-in-sports-history-november-28/91566894007/) - **USA Today**
-3. [Injury update on multiple Blues’ starters leaves just one major doubt for Bournemouth](https://www.talkchelsea.net/news/blues-starters-leaves-one-major-doubt-injury/) - **Talk Chelsea**
-4. [New York Mayor Zohran Mamdani appears to troll Manchester City after ruling](https://www.usatoday.com/story/sports/soccer/2026/09/25/new-york-mayor-zohran-mamdani-manchester-city/91945382007/) - **USA Today**
-5. [Tyler Adams knows USMNT’s teenage stars face a different kind of pressure than his generation did](https://nypost.com/2026/09/25/sports/tyler-adams-knows-usmnts-teenage-stars-face-a-different-kind-of-pressure-than-his-generation-did/) - **New York Post**
-6. [Inside Alejandro Garnacho's Aston Villa struggles: The doubt over who really signed him from Chelsea, ominous signs behind the scenes that won't please Unai Emery - and how Argentine can still win him over](https://www.dailymail.com/sport/football/article-16160055/alejandro-garnacho-aston-villa-struggles.html) - **Dailymail.com**
-7. [RIATH AL-SAMARRAI: 'Not bothered' Cole Palmer may be too cool for school but here's why he should follow Harry Kane's example - and how he may have blown it with detail-obsessed Thomas Tuchel](https://www.dailymail.com/sport/football/article-16160529/cole-palmer-harry-kane-thomas-tuchel.html) - **Dailymail.com**
-8. [Justin Verlander’s Retirement Speech](https://detroitsportsnation.com/justin-verlanders-retirement-speech/ddrysdale/detroit-tigers/09/25/2026/495899/) - **Detroit Sports Nation**
-9. [What Pep Guardiola said about Man City case after club found guilty in Premier League 115 charges case](https://www.sportingnews.com/us/soccer/manchester-city/news/what-pep-guardiola-said-man-city-case-club-guilty-115-charges/a9f42d6a59d5664118ac065d) - **Sporting News**
-10. [Canada build on World Cup progress as road to 2030 begins](https://www.mlssoccer.com/news/canada-build-on-world-cup-progress-as-road-to-2030-begins) - **MLSsoccer.com**
+1. [Cowboys Headlines: Rio turf still being evaluated; team skipping sights, scenery in Brazil](https://cowboyswire.usatoday.com/story/sports/nfl/cowboys/2026/09/26/news-headlines-september-25-2026-rio-turf-evaluated-all-business-brazil/91946362007/) - **USA Today**
+2. [Manchester City cheating case must be sorted out 'as quickly as possible' says Sports Secretary Lisa Nandy with massive compensations claims expected from rival clubs](https://www.dailymail.com/news/article-16162199/Manchester-City-cheating-case-sorted-quickly-possible-says-Sports-Secretary-Lisa-Nandy.html) - **Dailymail.com**
+3. [Rodri says no one can take away the ‘deserved’ success of Man City](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260926-930-747623/) - **Dpa-international.com**
+4. [The five players to score 100 goals in two of Europe's top five leagues](https://www.footballmuse.com/features/players-to-score-100-goals-in-two-of-europes-top-five-leagues) - **Footballmuse.com**
+5. [Manchester City verdict: what happens next, will club appeal and could they be relegated?](https://biztoc.com/x/051896fb28e7682f) - **Biztoc.com**
+6. [Morgan Rogers shares his thoughts on his move to Chelsea and Declan Rice incident](https://eplindex.com/150826/morgan-rogers-shares-his-thoughts-on-his-move-to-chelsea-and-declan-rice-incident.html) - **English Premier League Index - Opta Stats**
+7. [Bellamy support crucial after serious injury - Wales' Burns](https://www.bbc.com/sport/football/articles/cklyjv02ygeeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Bellamy support crucial after serious injury - Wales' Burns](https://www.bbc.co.uk/sport/football/articles/cklyjv02ygeeo) - **BBC News**
+9. [Arsenal fan Zohran Mamdami takes brilliant dig at Manchester City’s reported guilty verdict](https://www.hitc.com/arsenal-fan-zohran-mamdami-takes-brilliant-dig-at-manchester-citys-reported-guilty-verdict/) - **HITC - Football, Gaming, Movies, TV, Music**
 
 
 ---
-*최근 업데이트: 2026-09-27 13:23:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-27 19:11:28 (KST) / (하루 100회 제한 준수 중)*
