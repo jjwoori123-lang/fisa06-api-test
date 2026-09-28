@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The Papers: 'Noel's crying his heart out' and 'global IVF disaster'](https://www.bbc.co.uk/news/articles/cky9zzre1259o) - **BBC News**
-2. [Leaders extend unbeaten run after Lagos draw](https://punchng.com/leaders-extend-unbeaten-run-after-lagos-draw/) - **The Punch**
-3. [Aina backs Fernandez for Premier League move](https://punchng.com/aina-backs-fernandez-for-premier-league-move/) - **The Punch**
-4. [Stripped titles? Compensating rivals? How the Manchester City cheating scandal could play out](https://theconversation.com/stripped-titles-compensating-rivals-how-the-manchester-city-cheating-scandal-could-play-out-292970) - **The Conversation Africa**
-5. [Darwin teen set to represent Australia in FIFA under-15 World Cup](https://www.abc.net.au/news/2026-09-27/darwin-teen-fifa-under-15-world-cup-represent-australia/107196716) - **ABC News (AU)**
-6. [Pickford or Trafford? The battle to be England's number one is now on](https://www.bbc.com/sport/football/articles/ckm2qqpjv7nro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Pickford or Trafford? The battle to be England's number one is now on](https://www.bbc.co.uk/sport/football/articles/ckm2qqpjv7nro) - **BBC News**
-8. [The hammer seemingly falls on Manchester City as the ‘115’ charges case reaches a verdict](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_a28203c4-3e00-47a4-873e-6378dd6c2660) - **Yahoo Entertainment**
-9. [Tuchel rues 'big mistakes' - did Man City charges have impact?](https://www.bbc.com/sport/football/articles/c6j4jjg5qxero?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Tuchel rues 'big mistakes' - did Man City charges have impact?](https://www.bbc.co.uk/sport/football/articles/c6j4jjg5qxero) - **BBC News**
+1. [Manchester United eye La Liga wide man as January transfer opportunity emerges](https://utdreport.co.uk/2026/09/27/manchester-united-eye-la-liga-wide-man-as-january-transfer-opportunity-emerges/) - **Utdreport.co.uk**
+2. [Everything’s the Best: The Meaning of Justice or 114 Charges Later](https://liverpooloffside.sbnation.com/odds-and-ends/83931/liverpool-premier-league-manchester-city-cheating-everythings-the-best-the-meaning-of-justice-or-114-charges-later) - **SB Nation**
+3. [Man City break silence after 114 financial charges verdict as chairman Khaldoon Al Mubarak vows to prove club’s innocence](https://footballtoday.com/2026/09/27/man-city-break-silence-after-114-financial-charges-verdict-as-chairman-khaldoon-al-mubarak-vows-to-prove-clubs-innocence/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=man-city-break-silence-after-114-financial-charges-verdict-as-chairman-khaldoon-al-mubarak-vows-to-prove-clubs-innocence) - **Footballtoday.com**
+4. [Manchester United join Liverpool in monitoring 25-year-old Premier League speedster](https://utdreport.co.uk/2026/09/27/manchester-united-join-liverpool-in-monitoring-25-year-old-premier-league-speedster/) - **Utdreport.co.uk**
+5. [Forest Vindication Does not Make Man City Verdict a Victory](https://roundtable.io/sports/soccer/premier-league/nottingham-forest/news/forest-vindication-does-not-make-man-city-verdict-a-victory) - **Roundtable.io**
+6. [Manchester United join Arsenal and Liverpool in race for 24-year-old German](https://utdreport.co.uk/2026/09/27/manchester-united-join-arsenal-and-liverpool-in-race-for-24-year-old-german/) - **Utdreport.co.uk**
+7. [Manchester City remain defiant and until the ‘115’ saga is over, nothing changes](https://esteemedkompany.com/2026/09/27/manchester-city-remain-defiant-and-until-the-115-saga-is-over-nothing-changes/) - **Esteemedkompany.com**
+8. [Unravelling Sunderland’s Europa League Eligibility Puzzle](https://rokerreport.sbnation.com/features/152697/unravelling-sunderlands-europa-league-eligibility-puzzles) - **SB Nation**
+9. [Senior Aliana Vakaloloma returns to Ridgeline girls soccer after Zephyr FC, Fiji national team experience](http://www.spokesman.com/stories/2026/sep/26/senior-aliana-vakaloloma-returns-to-ridgeline-girl/) - **The Spokesman-Review**
+10. [Sheikh Mansour and his people must be told they have NO RIGHT to run a football club here. After the humiliating Man City verdict and years of shamefully playing the victim, it is time they sold up, writes IAN HERBERT](https://www.dailymail.com/sport/football/article-16162875/Sheikh-Mansour-people-told-NO-RIGHT-run-football-club-humiliating-Man-City-verdict-years-shamefully-playing-victim-time-sold-writes-IAN-HERBERT.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-09-28 09:57:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-28 15:37:07 (KST) / (하루 100회 제한 준수 중)*
