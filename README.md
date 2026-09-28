@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United eye La Liga wide man as January transfer opportunity emerges](https://utdreport.co.uk/2026/09/27/manchester-united-eye-la-liga-wide-man-as-january-transfer-opportunity-emerges/) - **Utdreport.co.uk**
-2. [Everything’s the Best: The Meaning of Justice or 114 Charges Later](https://liverpooloffside.sbnation.com/odds-and-ends/83931/liverpool-premier-league-manchester-city-cheating-everythings-the-best-the-meaning-of-justice-or-114-charges-later) - **SB Nation**
-3. [Man City break silence after 114 financial charges verdict as chairman Khaldoon Al Mubarak vows to prove club’s innocence](https://footballtoday.com/2026/09/27/man-city-break-silence-after-114-financial-charges-verdict-as-chairman-khaldoon-al-mubarak-vows-to-prove-clubs-innocence/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=man-city-break-silence-after-114-financial-charges-verdict-as-chairman-khaldoon-al-mubarak-vows-to-prove-clubs-innocence) - **Footballtoday.com**
-4. [Manchester United join Liverpool in monitoring 25-year-old Premier League speedster](https://utdreport.co.uk/2026/09/27/manchester-united-join-liverpool-in-monitoring-25-year-old-premier-league-speedster/) - **Utdreport.co.uk**
-5. [Forest Vindication Does not Make Man City Verdict a Victory](https://roundtable.io/sports/soccer/premier-league/nottingham-forest/news/forest-vindication-does-not-make-man-city-verdict-a-victory) - **Roundtable.io**
-6. [Manchester United join Arsenal and Liverpool in race for 24-year-old German](https://utdreport.co.uk/2026/09/27/manchester-united-join-arsenal-and-liverpool-in-race-for-24-year-old-german/) - **Utdreport.co.uk**
-7. [Manchester City remain defiant and until the ‘115’ saga is over, nothing changes](https://esteemedkompany.com/2026/09/27/manchester-city-remain-defiant-and-until-the-115-saga-is-over-nothing-changes/) - **Esteemedkompany.com**
-8. [Unravelling Sunderland’s Europa League Eligibility Puzzle](https://rokerreport.sbnation.com/features/152697/unravelling-sunderlands-europa-league-eligibility-puzzles) - **SB Nation**
-9. [Senior Aliana Vakaloloma returns to Ridgeline girls soccer after Zephyr FC, Fiji national team experience](http://www.spokesman.com/stories/2026/sep/26/senior-aliana-vakaloloma-returns-to-ridgeline-girl/) - **The Spokesman-Review**
-10. [Sheikh Mansour and his people must be told they have NO RIGHT to run a football club here. After the humiliating Man City verdict and years of shamefully playing the victim, it is time they sold up, writes IAN HERBERT](https://www.dailymail.com/sport/football/article-16162875/Sheikh-Mansour-people-told-NO-RIGHT-run-football-club-humiliating-Man-City-verdict-years-shamefully-playing-victim-time-sold-writes-IAN-HERBERT.html) - **Dailymail.com**
+1. [Why Premier League faces uncertainty and chaos after Man City ruling](https://www.bbc.co.uk/sport/football/articles/cw3d77ne44k5o) - **BBC News**
+2. [Fiorentina captain De Gea reacts to Man City charges: ‘How many league titles have I won then?’](https://football-italia.net/fiorentina-captain-de-gea-reacts-to-man-city/) - **Football Italia**
+3. [Man United injury scare as captain Bruno Fernandes is ruled out of Portugal clash with 'complicated problem'... as manager claims he has been playing though pain this season](https://www.dailymail.com/sport/football/article-16164327/Man-United-injury-scare-captain-Bruno-Fernandes-ruled-Portugal-clash-complicated-problem-manager-claims-playing-pain-season.html) - **Dailymail.com**
+4. [When Liverpool could see Yankuba Minteh next as Brighton star opens up on failed Anfield transfer](https://www.empireofthekop.com/2026/09/27/when-liverpool-could-see-yankuba-minteh-next-as-brighton-star-opens-up-on-failed-anfield-transfer/) - **Empire of The Kop**
+5. [Alexander Isak returns to Liverpool after injury with Sweden](https://www.usatoday.com/story/sports/soccer/epl/2026/09/27/alexander-isak-injury-liverpool-return-sweden/91971272007/) - **USA Today**
+6. [Report: Manchester United set to join the race for Premier League forward](https://eplindex.com/150855/report-manchester-united-set-to-join-the-race-for-premier-league-forward.html) - **English Premier League Index - Opta Stats**
+7. [Arsenal summer signing “optimistic” Greece can trouble Germany after Serbia win](https://www.justarsenal.com/arsenal-summer-signing-optimistic-greece-can-trouble-germany-after-serbia-win/422787) - **Just Arsenal News**
+8. [“I’d read of those heroes…” Fifties’ Player of the Day No.3 – Bobby Collins](https://celticshorts.com/2026/09/fifties-player-of-the-day-no-3-bobby-collins/) - **Celticshorts.com**
+9. [Why is Bruno Fernandes not playing for Portugal vs. Norway?](https://www.usatoday.com/story/sports/soccer/2026/09/27/bruno-fernandes-injury-portugal-vs-norway-today/91971150007/) - **USA Today**
 
 
 ---
-*최근 업데이트: 2026-09-28 15:37:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-28 23:28:27 (KST) / (하루 100회 제한 준수 중)*
