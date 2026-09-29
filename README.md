@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [“Directly affects me”: Ex-United ace Juan Mata revels in Man City’s misery with hilarious quip](https://thepeoplesperson.com/2026/09/28/directly-affects-me-ex-united-ace-juan-mata-revels-in-man-citys-misery-with-hilarious-quip-317481/) - **The Peoples Person**
-2. [Broadcasters unlikely to seek refunds from Premier League despite paying billions to screen Man City's glory years - as club chief warns it will take 'a lot more time' before 115 charges saga is settled](https://www.dailymail.com/sport/football/article-16167401/Broadcasters-NOT-seek-refunds-Premier-League.html) - **Dailymail.com**
-3. [Tottenham Hotspur Are In The Mix To Land This Bundesliga Midfielder: Decent Choice For Spurs?](https://the4thofficial.net/2026/09/tottenham-hotspur-are-in-the-mix-to-land-this-bundesliga-midfielder/) - **The4thofficial.net**
-4. [How Sebastian Berhalter has evolved for the USMNT](https://sports.yahoo.com/soccer/article/how-sebastian-berhalter-has-evolved-for-the-usmnt-182409745.html) - **Yahoo Entertainment**
-5. [Man City faces severe penalties over financial breaches](https://www.rediff.com/sports/report/manchester-citys-114-financial-breaches-potential-relegation-points-deduction-and-appeals/20260928.htm) - **Rediff.com**
-6. [Journalist pours cold water on former Liverpool star’s return](https://anfieldindex.com/101024/journalist-pours-cold-water-on-former-liverpool-stars-return.html) - **Anfieldindex.com**
-7. [Man City chief Ferran Soriano warns European club executives they will aggressively fight against Premier League charges](https://footballtoday.com/2026/09/28/man-city-chief-ferran-soriano-warns-european-club-executives-they-will-aggressively-fight-against-premier-league-charges/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=man-city-chief-ferran-soriano-warns-european-club-executives-they-will-aggressively-fight-against-premier-league-charges) - **Footballtoday.com**
-8. [3 bold predictions for Red Sox-Yankees AL Wild Card Series](https://clutchpoints.com/mlb/boston-red-sox/3-bold-predictions-red-sox-yankees-al-wild-card-series) - **ClutchPoints**
-9. [Real Madrid star received summer offers from Chelsea & Liverpool](https://getfootballnewsspain.com/real-madrid-star-received-summer-offers-from-chelsea-liverpool/) - **Getfootballnewsspain.com**
-10. [Arsenal Are Set To Rival Real Madrid For This Bundesliga Youngster: One For The Future?](https://the4thofficial.net/2026/09/arsenal-are-set-to-rival-real-madrid-for-this-bundesliga-youngster/) - **The4thofficial.net**
+1. [Pochettino: Manchester City verdicts show fans ‘lived through an era of deception’](https://sports.yahoo.com/articles/pochettino-manchester-city-verdicts-show-222909616.html) - **Yahoo Entertainment**
+2. [Piers Morgan insists Man City '100 per cent have to be relegated' after guilty verdict - as Simon Jordan claims the Abu Dhabi project is DOOMED](https://www.dailymail.com/sport/football/article-16167809/Piers-Morgan-insists-Man-City-100-cent-relegated-guilty-verdict.html) - **Dailymail.com**
+3. [Gianni Infantino faces another major challenge as Europe’s biggest leagues unite](https://gamedaychatter.com/gianni-infantino-faces-another-major-challenge-as-europes-biggest-leagues-unite/) - **Gamedaychatter.com**
+4. [Could Arsene Wenger finally get the one English medal he is missing? – Opinion](https://www.justarsenal.com/could-arsene-wenger-finally-get-the-one-english-medal-he-is-missing-opinion/422889) - **Just Arsenal News**
+5. [Bucks still await result of NBA investigation into Gary Trent Jr. contract](https://www.jsonline.com/story/sports/nba/bucks/2026/09/28/milwaukee-bucks-await-result-nba-investigation-into-gary-trent-jr-contract/91984832007/) - **Milwaukee Journal Sentinel**
+6. [Frattesi: ‘Hadn’t scored for Italy in too long, confused by Kayode towel’](https://football-italia.net/frattesi-hadnt-scored-italy-in-too-long-kayode/) - **Football Italia**
+7. [Scotland boss Sebastien Pocognoli believes advanced role will bring out the best in Billy Gilmour](https://www.dailymail.com/sport/football/article-16167267/Scotland-boss-Sebastien-Pocognoli-believes-advanced-role-bring-best-Billy-Gilmour.html) - **Dailymail.com**
+8. [Dejan Kulusevski shares insight into injury recovery following recent setback](https://www.alloutsoccer.com/news/dejan-kulusevski-tottenham-hotspur-injury-2044116) - **Alloutsoccer.com**
+9. [Kayode ‘didn’t expect’ to score on Italy debut: ‘We wanted to prove ourselves’](https://football-italia.net/kayode-didnt-expect-to-score-on-italy-debut/) - **Football Italia**
+10. [James Trafford's big chance: Leeds keeper set to start for England in Prague knowing that whatever happens, Jordan Pickford will return for the next two games. So can he now make his case to be No1 for good?](https://www.dailymail.com/sport/football/article-16166557/James-Trafford-Leeds-England-Jordan-Pickford.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-09-30 03:51:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-30 07:51:49 (KST) / (하루 100회 제한 준수 중)*
