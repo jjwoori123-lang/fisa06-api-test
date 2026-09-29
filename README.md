@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ex-boss Mancini says City charges 'not my concern'](https://sports.yahoo.com/articles/ex-boss-mancini-says-city-130928936.html) - **Yahoo Entertainment**
-2. [Report: Tottenham Hotspur could make move for Spanish star](https://eplindex.com/150879/report-tottenham-hotspur-could-make-move-for-spanish-star.html) - **English Premier League Index - Opta Stats**
-3. [OLIVER HOLT: How do we stop the Man City scandal from ever happening again? It's simple, the Premier League MUST ban nation states from owning our clubs](https://www.dailymail.com/sport/football/article-16165849/Manchester-City-115-nation-states.html) - **Dailymail.com**
-4. [Faes leaves Leicester for UAE club Shabab Al Ahli](https://www.bbc.com/sport/football/articles/cj93vzez4rkgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Como Starter Jacobo Ramón Chooses Minutes Over Real Madrid Return](https://www.football-espana.net/2026/09/28/jacobo-ramon-como-future) - **Football Espana**
-6. [Man City charges: The big questions answered](https://www.skysports.com/football/news/13592852/manchester-city-charges-everything-we-know-so-far-about-premier-league-allegations-and-what-happens-from-here) - **Sky Sports**
-7. [Video: Mancini responds to allegations of double Man City contract](https://football-italia.net/mancini-responds-double-man-city-contract/) - **Football Italia**
-8. [WPL 2027 released players list ahead of Women's Premier League mini-auction](https://www.cricketnews.com/en/cricket/news/wpl-2027-released-players-list-womens-premier-league-mini-auction/e481cd2c83dc8767b85fd7e3) - **Cricketnews.com**
-9. [Will Ipswich stay in the Premier League?](https://www.bbc.com/sport/football/articles/cvrl6yeljlp4o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [RCB retain 13 players, release four ahead of WPL 2027 season](https://economictimes.indiatimes.com/news/sports/cricket/rcb-retain-13-players-release-four-ahead-of-wpl-2027-season/articleshow/134542184.cms) - **The Times of India**
+1. [“Directly affects me”: Ex-United ace Juan Mata revels in Man City’s misery with hilarious quip](https://thepeoplesperson.com/2026/09/28/directly-affects-me-ex-united-ace-juan-mata-revels-in-man-citys-misery-with-hilarious-quip-317481/) - **The Peoples Person**
+2. [Broadcasters unlikely to seek refunds from Premier League despite paying billions to screen Man City's glory years - as club chief warns it will take 'a lot more time' before 115 charges saga is settled](https://www.dailymail.com/sport/football/article-16167401/Broadcasters-NOT-seek-refunds-Premier-League.html) - **Dailymail.com**
+3. [Tottenham Hotspur Are In The Mix To Land This Bundesliga Midfielder: Decent Choice For Spurs?](https://the4thofficial.net/2026/09/tottenham-hotspur-are-in-the-mix-to-land-this-bundesliga-midfielder/) - **The4thofficial.net**
+4. [How Sebastian Berhalter has evolved for the USMNT](https://sports.yahoo.com/soccer/article/how-sebastian-berhalter-has-evolved-for-the-usmnt-182409745.html) - **Yahoo Entertainment**
+5. [Man City faces severe penalties over financial breaches](https://www.rediff.com/sports/report/manchester-citys-114-financial-breaches-potential-relegation-points-deduction-and-appeals/20260928.htm) - **Rediff.com**
+6. [Journalist pours cold water on former Liverpool star’s return](https://anfieldindex.com/101024/journalist-pours-cold-water-on-former-liverpool-stars-return.html) - **Anfieldindex.com**
+7. [Man City chief Ferran Soriano warns European club executives they will aggressively fight against Premier League charges](https://footballtoday.com/2026/09/28/man-city-chief-ferran-soriano-warns-european-club-executives-they-will-aggressively-fight-against-premier-league-charges/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=man-city-chief-ferran-soriano-warns-european-club-executives-they-will-aggressively-fight-against-premier-league-charges) - **Footballtoday.com**
+8. [3 bold predictions for Red Sox-Yankees AL Wild Card Series](https://clutchpoints.com/mlb/boston-red-sox/3-bold-predictions-red-sox-yankees-al-wild-card-series) - **ClutchPoints**
+9. [Real Madrid star received summer offers from Chelsea & Liverpool](https://getfootballnewsspain.com/real-madrid-star-received-summer-offers-from-chelsea-liverpool/) - **Getfootballnewsspain.com**
+10. [Arsenal Are Set To Rival Real Madrid For This Bundesliga Youngster: One For The Future?](https://the4thofficial.net/2026/09/arsenal-are-set-to-rival-real-madrid-for-this-bundesliga-youngster/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-09-29 22:20:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-30 03:51:13 (KST) / (하루 100회 제한 준수 중)*
