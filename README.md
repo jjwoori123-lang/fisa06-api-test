@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [FIFA accuses UEFA of 'spreading misinformation' ahead of Gianni Infantino's re-election run](https://www.alloutsoccer.com/news/fifa-uefa-misinformation-gianni-infantino-2045188) - **Alloutsoccer.com**
-2. ['One of the highlights of my career so far' - Walton extends stay](https://www.bbc.com/sport/football/articles/cmn45kq24dg5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Everton receive huge transfer boost as European giants make decision](https://eplindex.com/150923/everton-receive-huge-transfer-boost-as-european-giants-make-decision.html) - **English Premier League Index - Opta Stats**
-4. [Rooney says Utd do not deserve an extra title if City's are stripped](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260929-930-762945/) - **Dpa-international.com**
-5. [Man Utd do not deserve medals if Man City stripped of titles: Rooney](https://sports.yahoo.com/articles/man-utd-not-deserve-medals-141502215.html) - **Yahoo Entertainment**
-6. [Find out everything you need to know ahead of City's Premier League trip to Liverpool.](https://www.mancity.com/news/mens/liverpool-v-city-premier-league-match-preview-october-2026-63926279) - **Manchester City FC**
-7. ['Fergie asked me to inject it': Wayne Rooney reveals extreme lengths he went to for Man United after playing Champions League match despite arriving at Old Trafford on CRUTCHES](https://www.dailymail.com/sport/football/article-16169565/Wayne-Rooney-Sir-Alex-Ferguson-injection.html) - **Dailymail.com**
-8. [Dominik Szoboszlai names Manchester United legend as his ‘idol’](https://anfieldindex.com/101068/dominik-szoboszlai-names-manchester-united-legend-as-his-idol.html) - **Anfieldindex.com**
-9. [Why Salisbury are 'bigger than many Premier League teams' in Kuwait](https://www.bbc.com/sport/articles/cmx2z78p654yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Why Salisbury are 'bigger than many Premier League teams' in Kuwait](https://www.bbc.co.uk/sport/articles/cmx2z78p654yo) - **BBC News**
+1. [Man City guilty of all charges of Premier League financial breaches - ESPN](https://slashdot.org/firehose.pl?op=view&amp;id=185900372) - **Slashdot.org**
+2. [Manchester City Midfielder Is On The Radar Of Inter Milan: What Should Maresca Do?](https://the4thofficial.net/2026/09/manchester-city-midfielder-is-on-the-radar-of-inter-milan/) - **The4thofficial.net**
+3. [“If I’m being honest…”: Wayne Rooney weighs in on more PL winners’ medals after Man City verdict](https://thepeoplesperson.com/2026/09/29/if-im-being-honest-wayne-rooney-weighs-in-on-more-pl-winners-medals-after-man-city-verdict-317565/) - **The Peoples Person**
+4. [Report: Real Madrid at the front of the queue to sign Manchester City star](https://eplindex.com/150940/report-real-madrid-at-the-front-of-the-queue-to-sign-manchester-city-star.html) - **English Premier League Index - Opta Stats**
+5. [Tottenham Hotspur Are Locked In A Three-Way Battle For This Bayern Munich Ace: Good Choice For Spurs?](https://the4thofficial.net/2026/09/tottenham-hotspur-are-locked-in-a-three-way-battle-for-this-bayern-munich-ace/) - **The4thofficial.net**
+6. [Premier League says Man City guilty of almost all its more than 100 charges of financial wrongdoing - AP News](https://slashdot.org/firehose.pl?op=view&amp;id=185900124) - **Slashdot.org**
+7. [Braves Reveal Ha-Seong Kim Status Before MLB Playoffs](https://heavy.com/sports/mlb/atlanta-braves/atlanta-braves-ha-seong-kim-lineup-status-phillies-game/) - **Heavy.com**
+8. ['Sham' deals and 'dishonest' witnesses - key revelations from Man City verdict](https://www.skysports.com/football/news/13593407/man-city-charges-verdict-key-findings-the-fordham-arrangement-effectively-a-front-for-abu-dhabi-united-group) - **Sky Sports**
+9. [Premier League confirm Man City guilty of all charges - 5 Live reaction](https://www.bbc.co.uk/sounds/play/p0pd2w9y?at_campaign=rss) - **BBC News**
+10. [Arsenal Are In The Mix To Sign This Serie A Defender: What Will He Add To Arteta’s Side?](https://the4thofficial.net/2026/09/arsenal-are-in-the-mix-to-sign-this-serie-a-defender/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-09-30 23:58:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-01 04:55:33 (KST) / (하루 100회 제한 준수 중)*
