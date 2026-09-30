@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool defender Jacquet shines on France debut but vows to raise his game: “I can do much better”](https://www.footballmuse.com/news/liverpool-defender-jacquet-shines-on-france-debut-but-vows-to-raise-his-game-i-can-do-much-better) - **Footballmuse.com**
-2. [Wayne Rooney rubbishes claims Manchester United should be handed 2012 winners’ medals and says ‘I wouldn’t want one’](https://www.101greatgoals.com/football/premier-league/wayne-rooney-rubbishes-claims-manchester-united-2012-winners-medals-i-wouldnt-want-it/) - **101 Great Goals**
-3. [Liverpool scouts regularly attend games to watch 'fast' wonderkid](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-scouts-regularly-attend-games-to-watch-fast-wonderkid/) - **Anfieldwatch.co.uk**
-4. [Mauricio Pochettino says Manchester City verdict reveals 'period of deceit' as he questions Premier League controls](https://www.footballmuse.com/news/mauricio-pochettino-says-manchester-city-verdict-reveals-period-of-deceit-as-he-questions-premier-league-controls) - **Footballmuse.com**
-5. [Haaland’s City future draws scrutiny amid legal case](https://www.football-espana.net/2026/09/29/haaland-transfer-madrid-barcelona) - **Football Espana**
-6. [Manchester United is preparing to battle Arsenal for London star](https://www.justarsenal.com/manchester-united-is-preparing-to-battle-arsenal-for-london-star/422834) - **Just Arsenal News**
-7. [FIFA accuses European football chiefs of 'harassment' against Infantino](https://www.skysports.com/football/news/13593114/gianni-infantino-fifa-accuses-european-football-chiefs-of-harassment-against-world-governing-bodys-president) - **Sky Sports**
-8. [Liverpool humbled Real Madrid with £60m deal and Monday evening proved it](https://www.empireofthekop.com/2026/09/29/liverpool-humbled-real-madrid-with-60m-deal-and-monday-evening-proved-it/) - **Empire of The Kop**
-9. [EPL stadiums: The history, facts behind all 20 grounds](https://punchng.com/epl-stadiums-the-history-facts-behind-all-20-grounds/) - **The Punch**
-10. [The Kieran McKenna to Celtic rumour that refuses to go away](https://celticshorts.com/2026/09/the-kieran-mckenna-to-celtic-rumour-that-refuses-to-go-away/) - **Celticshorts.com**
+1. [FIFA accuses UEFA of 'spreading misinformation' ahead of Gianni Infantino's re-election run](https://www.alloutsoccer.com/news/fifa-uefa-misinformation-gianni-infantino-2045188) - **Alloutsoccer.com**
+2. ['One of the highlights of my career so far' - Walton extends stay](https://www.bbc.com/sport/football/articles/cmn45kq24dg5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Everton receive huge transfer boost as European giants make decision](https://eplindex.com/150923/everton-receive-huge-transfer-boost-as-european-giants-make-decision.html) - **English Premier League Index - Opta Stats**
+4. [Rooney says Utd do not deserve an extra title if City's are stripped](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260929-930-762945/) - **Dpa-international.com**
+5. [Man Utd do not deserve medals if Man City stripped of titles: Rooney](https://sports.yahoo.com/articles/man-utd-not-deserve-medals-141502215.html) - **Yahoo Entertainment**
+6. [Find out everything you need to know ahead of City's Premier League trip to Liverpool.](https://www.mancity.com/news/mens/liverpool-v-city-premier-league-match-preview-october-2026-63926279) - **Manchester City FC**
+7. ['Fergie asked me to inject it': Wayne Rooney reveals extreme lengths he went to for Man United after playing Champions League match despite arriving at Old Trafford on CRUTCHES](https://www.dailymail.com/sport/football/article-16169565/Wayne-Rooney-Sir-Alex-Ferguson-injection.html) - **Dailymail.com**
+8. [Dominik Szoboszlai names Manchester United legend as his ‘idol’](https://anfieldindex.com/101068/dominik-szoboszlai-names-manchester-united-legend-as-his-idol.html) - **Anfieldindex.com**
+9. [Why Salisbury are 'bigger than many Premier League teams' in Kuwait](https://www.bbc.com/sport/articles/cmx2z78p654yo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Why Salisbury are 'bigger than many Premier League teams' in Kuwait](https://www.bbc.co.uk/sport/articles/cmx2z78p654yo) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-09-30 17:10:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-09-30 23:58:41 (KST) / (하루 100회 제한 준수 중)*
