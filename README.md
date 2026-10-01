@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Football club 'has just lost a very big part of its identity'](https://www.bbc.com/news/articles/cmde01dzzn41o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Anthony Gordon Takes Aim at English Football After Barcelona Start](https://heavy.com/sports/soccer/anthony-gordon-takes-aim-english-football-barcelona-start/) - **Heavy.com**
-3. [PSG president Nasser Al-Khelaifi on Manchester City’s guilty verdict: ‘We are not in a position to judge.’](https://www.getfootballnewsfrance.com/2026/psg-president-nasser-al-khelaifi-on-manchester-citys-guilty-verdict-we-are-not-in-a-position-to-judge/) - **Get French Football News**
-4. [Kayode’s former coach: ‘He’s a class apart,’ but I see why Fiorentina sold him to Brentford](https://football-italia.net/kayode-former-coach-class-apart-why-brentford/) - **Football Italia**
-5. [Man City CEO accuses Premier League of ‘conspiracy’ in message to staff](https://hayters.com/man-city-ceo-accuses-premier-league-of-conspiracy-in-message-to-staff/) - **Hayters.com**
-6. [From Awoniyi to Azpilicueta: Footballers studying to become sporting directors](https://punchng.com/from-awoniyi-to-azpilicueta-footballers-studying-to-become-sporting-directors/) - **The Punch**
-7. [Juventus Eye Manchester City Misfit and More Left-Backs](https://cultofcalcio.com/juventus-list-manchester-city-ait-nouri-misfit-and-more-left-backs/) - **Cultofcalcio.com**
-8. [Preview: Ireland to face pressing questions from Austria](https://www.rte.ie/sport/soccer/2026/0930/1593470-preview-ireland-to-face-pressing-questions-from-austria/) - **RTE**
-9. [German club waiting for Arsenal offer for their player](https://www.justarsenal.com/german-club-waiting-for-arsenal-offer-for-their-player/422939) - **Just Arsenal News**
-10. [Drury: From Bernabeu glory to plotting Huddersfield's way out of League One](https://www.skysports.com/football/news/13582836/martin-drury-exclusive) - **Sky Sports**
+1. [Man Utd set €10m asking price for ‘unpopular’ star; Club-to-club talks will take place ‘as soon as possible’](https://utdreport.co.uk/2026/09/30/man-utd-andre-onana-trabzonspor-talks/) - **Utdreport.co.uk**
+2. [Manchester City: Main points of damning judgement and possible sanctions](https://sports.yahoo.com/articles/manchester-city-main-points-damning-163728116.html) - **Yahoo Entertainment**
+3. [Muzzi confession he rejected Arsenal and Wenger, infuriating Cagliari](https://football-italia.net/muzzi-rejected-arsenal-wenger-cagliari-fury/) - **Football Italia**
+4. [Premier League boss charged with misconduct following Manchester United match](https://www.alloutsoccer.com/news/arbeloa-fulham-charged-fa-misconduct-2047291) - **Alloutsoccer.com**
+5. [Wrong to 'leap to judgment' over Manchester City verdict – Burnham](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260930-930-770311/) - **Dpa-international.com**
+6. [Manchester City soccer club found guilty of breaking major spending rules](https://biztoc.com/x/6505d48338b130a5) - **Biztoc.com**
+7. [Liverpool receive firm Bournemouth answer on Alex Scott and Rayan interest](https://anfieldindex.com/101143/liverpool-receive-firm-bournemouth-answer-on-alex-scott-and-rayan-interest.html) - **Anfieldindex.com**
+8. [Man Utd crisis talks that led to Erik ten Hag's sacking revealed](https://britbrief.co.uk/entertainment/awards/man-utd-crisis-talks-that-led-to-erik-ten-hag-sacking-revealed.html) - **Britbrief.co.uk**
+9. [Pep Guardiola First Message Since Man City Verdict](https://eplindex.com/150962/pep-guardiola-first-message-since-man-city-verdict.html) - **English Premier League Index - Opta Stats**
+10. [What if Man City's Premier League titles and trophies are stripped?](https://www.skysports.com/football/news/13593589/man-city-charges-what-if-clubs-premier-league-titles-and-trophies-are-stripped-who-benefits-and-what-changes) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-10-01 18:24:49 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-02 01:41:06 (KST) / (하루 100회 제한 준수 중)*
