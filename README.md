@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man Utd set €10m asking price for ‘unpopular’ star; Club-to-club talks will take place ‘as soon as possible’](https://utdreport.co.uk/2026/09/30/man-utd-andre-onana-trabzonspor-talks/) - **Utdreport.co.uk**
-2. [Manchester City: Main points of damning judgement and possible sanctions](https://sports.yahoo.com/articles/manchester-city-main-points-damning-163728116.html) - **Yahoo Entertainment**
-3. [Muzzi confession he rejected Arsenal and Wenger, infuriating Cagliari](https://football-italia.net/muzzi-rejected-arsenal-wenger-cagliari-fury/) - **Football Italia**
-4. [Premier League boss charged with misconduct following Manchester United match](https://www.alloutsoccer.com/news/arbeloa-fulham-charged-fa-misconduct-2047291) - **Alloutsoccer.com**
-5. [Wrong to 'leap to judgment' over Manchester City verdict – Burnham](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:260930-930-770311/) - **Dpa-international.com**
-6. [Manchester City soccer club found guilty of breaking major spending rules](https://biztoc.com/x/6505d48338b130a5) - **Biztoc.com**
-7. [Liverpool receive firm Bournemouth answer on Alex Scott and Rayan interest](https://anfieldindex.com/101143/liverpool-receive-firm-bournemouth-answer-on-alex-scott-and-rayan-interest.html) - **Anfieldindex.com**
-8. [Man Utd crisis talks that led to Erik ten Hag's sacking revealed](https://britbrief.co.uk/entertainment/awards/man-utd-crisis-talks-that-led-to-erik-ten-hag-sacking-revealed.html) - **Britbrief.co.uk**
-9. [Pep Guardiola First Message Since Man City Verdict](https://eplindex.com/150962/pep-guardiola-first-message-since-man-city-verdict.html) - **English Premier League Index - Opta Stats**
-10. [What if Man City's Premier League titles and trophies are stripped?](https://www.skysports.com/football/news/13593589/man-city-charges-what-if-clubs-premier-league-titles-and-trophies-are-stripped-who-benefits-and-what-changes) - **Sky Sports**
+1. [Profile: Who are the Emiratis behind crisis-hit Manchester City?](https://punchng.com/profile-who-are-the-emiratis-behind-crisis-hit-manchester-city/) - **The Punch**
+2. [Which former Arsenal star had the best England career? Here’s my ranking](https://www.justarsenal.com/which-former-arsenal-star-had-the-best-england-career-heres-my-ranking/422992) - **Just Arsenal News**
+3. [Ohio State vs Iowa Prediction: Odds, expert picks, team and player news, betting trends, and stats](https://www.nbcsports.com/betting/college-football/news/ohio-state-vs-iowa-prediction-odds-expert-picks-team-and-player-news-betting-trends-and-stats) - **NBCSports.com**
+4. [Jurgen Klopp maintains Pep Guardiola respect after Man City guilty verdict](https://footballtoday.com/2026/09/30/jurgen-klopp-maintains-pep-guardiola-respect-after-man-city-guilty-verdict/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=jurgen-klopp-maintains-pep-guardiola-respect-after-man-city-guilty-verdict) - **Footballtoday.com**
+5. [Martin Ødegaard races to be fit for Wales match as Norway boss provides update](https://www.alloutsoccer.com/news/martin-odegaard-injury-norway-wales-2047728) - **Alloutsoccer.com**
+6. [Fitzmaurice confirmed as Galway football manager](https://www.bbc.com/sport/articles/c6r7d7587vpeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [10 takeaways as FAI officials face Oireachtas committee](https://www.rte.ie/news/2026/0930/1593568-fai-committee-takeaways/) - **RTE**
+8. [Chelsea Are Set To Rival Liverpool For This Premier League Midfielder: Should Alonso Snap Him Up?](https://the4thofficial.net/2026/09/chelsea-are-set-to-rival-liverpool-for-this-bournemouth-midfielder/) - **The4thofficial.net**
+9. [Etihad to seek legal advice after Premier League’s Man City findings](https://www.channelnewsasia.com/sport/etihad-seek-legal-advice-after-premier-leagues-man-city-findings-6422706) - **CNA**
+10. [Manchester City sponsor to seek legal advice after Premier League charges](https://www.alloutsoccer.com/news/manchester-city-etihad-premier-league-2047701) - **Alloutsoccer.com**
 
 
 ---
-*최근 업데이트: 2026-10-02 01:41:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-02 06:38:31 (KST) / (하루 100회 제한 준수 중)*
