@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Inside Ferran Soriano's role in Man City scandal: Premier League sources reveal how 'aloof' Spaniard 'patronises' other clubs, how his fingerprints are on key documents and why he left some Etihad staff feeling like outsiders](https://www.dailymail.com/sport/football/article-16173115/Ferran-Soriano-Man-City-scandal-Premier-League.html) - **Dailymail.com**
-2. [dribble added to PyPI](https://pypi.org/project/dribble/) - **Pypi.org**
-3. [Should Arsenal benefit if Manchester City are punished? – Opinion](https://www.justarsenal.com/should-arsenal-benefit-if-manchester-city-are-punished-opinion/422997) - **Just Arsenal News**
-4. [Dock points for NINE years, force Abu Dhabi owners to sell up and a walk of shame down to League TWO: Our experts have their say on Man City's fate after club found guilty of £900m 'sham'](https://www.dailymail.com/sport/football/article-16172179/Dock-points-NINE-years-force-Abu-Dhabi-owners-sell-walk-shame-League-TWO-experts-say-Man-Citys-fate-club-guilty-900m-sham.html) - **Dailymail.com**
-5. [Dock points for NINE years, force Abu Dhabi owners to sell up and a walk of shame down to League TWO: Our experts have their say on Man City's fate after club found guilty of £900m 'sham'](https://www.dailymail.com/sport/football/article-16172179/Dock-points-NINE-years-force-Abu-Dhabi-owners-sell-walk-shame-League-TWO-experts-say-Man-Citys-fate-club-guilty-900m-sham.html) - **Dailymail.com**
-6. [Arsenal worried: Liverpool have deadline to trigger €65m clause](https://www.anfieldwatch.co.uk/liverpool-fc/news/arsenal-worried-liverpool-have-deadline-to-trigger-eur65m-clause/) - **Anfieldwatch.co.uk**
-7. [Papers: Rivals demanding sanctions imposed on Man City this season](https://www.skysports.com/football/transfer-paper-talk/13593813/man-city-guilty-premier-league-rivals-demanding-sanctions-imposed-before-end-of-season-paper-talk) - **Sky Sports**
-8. [Lucas Da Cunha: Man United have “made contact” with Como as they set up blockbuster transfer battle with rivals](https://thepeoplesperson.com/2026/09/30/man-united-and-chelsea-contact-como-for-lucas-da-cunha-transfer-317669/) - **The Peoples Person**
-9. [Man City whistleblower: Infantino helped club avoid sanctions and should have ‘no place in football’](https://www.101greatgoals.com/football/premier-league/man-city-whistleblower-infantino-helped-club-avoid-sanctions-and-should-have-no-place-in-football/) - **101 Great Goals**
-10. [Profile: Who are the Emiratis behind crisis-hit Manchester City?](https://punchng.com/profile-who-are-the-emiratis-behind-crisis-hit-manchester-city/) - **The Punch**
+1. ['A risk not worth taking' - PL execs not expecting clubs to vote for City expulsion](https://www.skysports.com/football/news/13593861/man-city-charges-premier-league-executives-would-be-staggered-if-clubs-vote-for-expulsion-as-punishment) - **Sky Sports**
+2. ['A risk not worth taking' - PL execs not expecting clubs to vote for City expulsion](https://www.skysports.com/football/news/13593861/man-city-charges-premier-league-executives-would-be-staggered-if-clubs-vote-for-expulsion-as-punishment) - **Sky Sports**
+3. [Liverpool join race for Brentford forward Kevin Schade](https://thefootballfaithful.com/liverpool-join-race-for-brentford-forward-kevin-schade/) - **The Football Faithful**
+4. [Report: Liverpool Interested In Premier League Winger](https://anfieldindex.com/101166/report-liverpool-interested-in-premier-league-winger.html) - **Anfieldindex.com**
+5. ['I made a promise to my dad to keep studying' - Awoniyi graduates](https://www.bbc.com/sport/football/articles/c32l85lne7eeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Klopp reluctant to weigh in on City fallout](https://www.rte.ie/sport/soccer/2026/1001/1593589-klopp-reluctant-to-weigh-in-on-city-fallout/) - **RTE**
+7. [Guardiola difende il Manchester City, il Times lo attacca: "O sapeva o è stato miope"](https://www.tuttomercatoweb.com/calcio-estero/guardiola-difende-manchester-city-times-attacca-o-sapeva-miope-2278950) - **Tuttomercatoweb.com**
+8. [Barcelona made approach for 24-year-old defender before Manchester City handed him new deal](https://barcauniversal.com/barcelona-made-approach-for-24-year-old-defender-before-manchester-city-handed-him-new-deal/) - **Barcauniversal.com**
+9. [Sensational: Michael Olise to Liverpool set to trigger blockbuster sale](https://www.anfieldwatch.co.uk/liverpool-fc/news/sensational-michael-olise-to-liverpool-set-to-trigger-blockbuster-sale/) - **Anfieldwatch.co.uk**
+10. [The Hoddle of Coffee: Tottenham Hotspur News and Links for Thursday, October 1](https://cartilagefreecaptain.sbnation.com/hoddle-of-coffee/74013/the-hoddle-of-coffee-tottenham-hotspur-news-and-links-for-thursday-october-1) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-10-02 10:04:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-02 16:04:31 (KST) / (하루 100회 제한 준수 중)*
