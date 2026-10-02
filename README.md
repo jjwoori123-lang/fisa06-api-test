@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['A risk not worth taking' - PL execs not expecting clubs to vote for City expulsion](https://www.skysports.com/football/news/13593861/man-city-charges-premier-league-executives-would-be-staggered-if-clubs-vote-for-expulsion-as-punishment) - **Sky Sports**
-2. ['A risk not worth taking' - PL execs not expecting clubs to vote for City expulsion](https://www.skysports.com/football/news/13593861/man-city-charges-premier-league-executives-would-be-staggered-if-clubs-vote-for-expulsion-as-punishment) - **Sky Sports**
-3. [Liverpool join race for Brentford forward Kevin Schade](https://thefootballfaithful.com/liverpool-join-race-for-brentford-forward-kevin-schade/) - **The Football Faithful**
-4. [Report: Liverpool Interested In Premier League Winger](https://anfieldindex.com/101166/report-liverpool-interested-in-premier-league-winger.html) - **Anfieldindex.com**
-5. ['I made a promise to my dad to keep studying' - Awoniyi graduates](https://www.bbc.com/sport/football/articles/c32l85lne7eeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Klopp reluctant to weigh in on City fallout](https://www.rte.ie/sport/soccer/2026/1001/1593589-klopp-reluctant-to-weigh-in-on-city-fallout/) - **RTE**
-7. [Guardiola difende il Manchester City, il Times lo attacca: "O sapeva o è stato miope"](https://www.tuttomercatoweb.com/calcio-estero/guardiola-difende-manchester-city-times-attacca-o-sapeva-miope-2278950) - **Tuttomercatoweb.com**
-8. [Barcelona made approach for 24-year-old defender before Manchester City handed him new deal](https://barcauniversal.com/barcelona-made-approach-for-24-year-old-defender-before-manchester-city-handed-him-new-deal/) - **Barcauniversal.com**
-9. [Sensational: Michael Olise to Liverpool set to trigger blockbuster sale](https://www.anfieldwatch.co.uk/liverpool-fc/news/sensational-michael-olise-to-liverpool-set-to-trigger-blockbuster-sale/) - **Anfieldwatch.co.uk**
-10. [The Hoddle of Coffee: Tottenham Hotspur News and Links for Thursday, October 1](https://cartilagefreecaptain.sbnation.com/hoddle-of-coffee/74013/the-hoddle-of-coffee-tottenham-hotspur-news-and-links-for-thursday-october-1) - **SB Nation**
+1. [Surprise Jules Kounde situation presents Man United with a golden chance to sign Barcelona ace](https://thepeoplesperson.com/2026/10/01/jules-kounde-offered-to-man-united-as-barcelona-plan-january-sale-317740/) - **The Peoples Person**
+2. [Klopp Responds to Man City Verdict After Years of Liverpool Rivalry](https://anfieldindex.com/101193/klopp-responds-to-man-city-verdict-after-years-of-liverpool-rivalry.html) - **Anfieldindex.com**
+3. [Laura Anderson gets back together with her footballer ex Clark Robertson six months after being left 'devastated' by their split](https://www.dailymail.com/tvshowbiz/article-16175507/Laura-Anderson-gets-footballer-ex-Clark-Robertson.html) - **Dailymail.com**
+4. [What’s up with… BT, KPN, SoftBank](https://www.telecomtv.com/content/access-evolution/what-s-up-with-bt-kpn-softbank-56371/) - **TelecomTV**
+5. [Space for Gannon-Doak? Does McGinn keep place? Welsh to return? - key questions for Pocognoli](https://www.bbc.com/sport/football/articles/c6x2ze5zm93go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [What punishment should Manchester City face? The options after the Premier League verdict](https://www.footballmuse.com/features/what-punishment-should-manchester-city-face-the-options-after-the-premier-league-verdict) - **Footballmuse.com**
+7. [Second Hull player involved in car accident on same road 20 days later](https://www.channelnewsasia.com/sport/second-hull-player-involved-in-car-accident-same-road-20-days-later-6424656) - **CNA**
+8. [Ramon focus on playing time warning for Real Madrid, Chelsea, Man Utd and Arsenal](https://football-italia.net/ramon-warn-real-madrid-chelsea-man-utd-arsenal/) - **Football Italia**
+9. [LOI preview: Bohs head to Dundalk for massive showdown](https://www.rte.ie/sport/soccer/2026/1001/1593678-loi-preview-bohs-head-to-dundalk-for-massive-showdown/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-10-02 16:04:31 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-02 22:56:34 (KST) / (하루 100회 제한 준수 중)*
