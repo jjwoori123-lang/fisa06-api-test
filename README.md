@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Surprise Jules Kounde situation presents Man United with a golden chance to sign Barcelona ace](https://thepeoplesperson.com/2026/10/01/jules-kounde-offered-to-man-united-as-barcelona-plan-january-sale-317740/) - **The Peoples Person**
-2. [Klopp Responds to Man City Verdict After Years of Liverpool Rivalry](https://anfieldindex.com/101193/klopp-responds-to-man-city-verdict-after-years-of-liverpool-rivalry.html) - **Anfieldindex.com**
-3. [Laura Anderson gets back together with her footballer ex Clark Robertson six months after being left 'devastated' by their split](https://www.dailymail.com/tvshowbiz/article-16175507/Laura-Anderson-gets-footballer-ex-Clark-Robertson.html) - **Dailymail.com**
-4. [What’s up with… BT, KPN, SoftBank](https://www.telecomtv.com/content/access-evolution/what-s-up-with-bt-kpn-softbank-56371/) - **TelecomTV**
-5. [Space for Gannon-Doak? Does McGinn keep place? Welsh to return? - key questions for Pocognoli](https://www.bbc.com/sport/football/articles/c6x2ze5zm93go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [What punishment should Manchester City face? The options after the Premier League verdict](https://www.footballmuse.com/features/what-punishment-should-manchester-city-face-the-options-after-the-premier-league-verdict) - **Footballmuse.com**
-7. [Second Hull player involved in car accident on same road 20 days later](https://www.channelnewsasia.com/sport/second-hull-player-involved-in-car-accident-same-road-20-days-later-6424656) - **CNA**
-8. [Ramon focus on playing time warning for Real Madrid, Chelsea, Man Utd and Arsenal](https://football-italia.net/ramon-warn-real-madrid-chelsea-man-utd-arsenal/) - **Football Italia**
-9. [LOI preview: Bohs head to Dundalk for massive showdown](https://www.rte.ie/sport/soccer/2026/1001/1593678-loi-preview-bohs-head-to-dundalk-for-massive-showdown/) - **RTE**
+1. [Chelsea Are Eyeing A Move For This Serie A Midfielder: Should Alonso Get Him On Board?](https://the4thofficial.net/2026/10/chelsea-are-eyeing-a-move-for-this-serie-a-midfielder/) - **The4thofficial.net**
+2. [Liverpool's 'major target' now revealed as meeting held](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpools-major-target-now-revealed-as-meeting-held/) - **Anfieldwatch.co.uk**
+3. [Report: Virgil van Dijk wanted by another European giant amid Liverpool contract uncertainty](https://anfieldindex.com/101198/report-virgil-van-dijk-wanted-by-another-european-giant-amid-liverpool-contract-uncertainty.html) - **Anfieldindex.com**
+4. [Wonderkid striker granted chance to join Andoni Iraola's Liverpool squad](https://www.anfieldwatch.co.uk/liverpool-fc/news/wonderkid-striker-granted-chance-to-join-andoni-iraolas-liverpool-squad/) - **Anfieldwatch.co.uk**
+5. [Odegaard boost as Arsenal monitor eight players ahead of Leeds clash](https://www.justarsenal.com/odegaard-boost-as-arsenal-monitor-eight-players-ahead-of-leeds-clash/422994) - **Just Arsenal News**
+6. [West Ham United Make A £21m Call On Star Defender: Did They Get This Right?](https://the4thofficial.net/2026/10/west-ham-united-make-a-21m-call-on-star-defender-did-they-get-this-right/) - **The4thofficial.net**
+7. [EPL: Man City prepare appeal over £830m Premier League funding judgment](https://punchng.com/epl-man-city-prepare-appeal-over-830m-premier-league-funding-judgment/) - **The Punch**
+8. [Downing Street says Manchester City not 'above the rules'](https://sports.yahoo.com/articles/downing-street-says-manchester-city-181001729.html) - **Yahoo Entertainment**
+9. [HMRC asked to explore tax implications of Man City case](https://www.skysports.com/football/news/13594084/man-city-charges-treasury-committee-writes-to-hmrc-to-ask-about-tax-implications-of-premier-league-investigation) - **Sky Sports**
+10. [Update On Sunderland And Their Pursuit Of This Talented Winger: What Should Le Bris Do?](https://the4thofficial.net/2026/10/update-on-sunderland-and-their-pursuit-of-this-talented-winger/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-10-02 22:56:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-03 04:05:54 (KST) / (하루 100회 제한 준수 중)*
