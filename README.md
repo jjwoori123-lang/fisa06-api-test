@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool Are Among The Clubs Keeping Tabs On This Gifted Youngster: One For The Future?](https://the4thofficial.net/2026/10/liverpool-are-among-the-clubs-keeping-tabs-on-this-gifted-youngster/) - **The4thofficial.net**
-2. [Man City to appeal but defence may be undermined by Etihad statement](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261002-930-782300/) - **Dpa-international.com**
-3. [Revealed: Man City's claim that 'sham' sponsorship deals were funded by Abu Dhabi government was DENIED by Etihad to a US investigation in 2015](https://www.dailymail.com/sport/football/article-16179459/Man-Citys-sponsorship-funded-Abu-Dhabi.html) - **Dailymail.com**
-4. [Revealed: Man City's claim that 'sham' sponsorship deals were funded by Abu Dhabi government was DENIED by Etihad to a US investigation in 2015](https://www.dailymail.com/sport/football/article-16179459/Man-Citys-sponsorship-funded-Abu-Dhabi.html) - **Dailymail.com**
-5. [Arsenal is thinking about signing Premier League newcomer](https://www.justarsenal.com/arsenal-is-thinking-about-signing-premier-league-newcomer/423091) - **Just Arsenal News**
-6. [Pebble Report Spotlight: Arizona Fall League preview](https://www.purplerow.com/colorado-rockies-prospects/107053/colorado-rockies-pebble-report-spotlight-arizona-fall-league-preview) - **Purple Row**
-7. [Tottenham Hotspur Are Locked In A Three-Way Battle For This Bournemouth Forward: Is He Worth The Fight?](https://the4thofficial.net/2026/10/tottenham-hotspur-are-locked-in-a-three-way-battle-for-this-bournemouth-forward/) - **The4thofficial.net**
-8. [Man City whistleblower to lose witness protection](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_42db58c5-7967-43f7-b5a6-b3cd07ecf9ae) - **Yahoo Entertainment**
-9. [Man City whistleblower set to lose protection amid fears for life](https://www.bbc.co.uk/sport/football/articles/cxyvrp78ddvqo) - **BBC News**
+1. [Tyler Adams named USMNT captain with new World Cup cycle underway](https://www.usatoday.com/story/sports/soccer/usmnt/2026/10/02/new-usmnt-captain-tyler-adams-mauricio-pochettino-christian-pulisic/92064235007/) - **USA Today**
+2. [“Only his Dutch players played”: former Man United star Fred rips apart Erik ten Hag](https://thepeoplesperson.com/2026/10/02/fred-erik-ten-hag-clashed-with-ronaldo-casemiro-rashford-317828/) - **The Peoples Person**
+3. [Which clubs did Man City's 'inflated' money flow to in transfer market?](https://www.bbc.com/sport/football/articles/cmew9w451vx8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Which clubs did Man City's 'inflated' money flow to in transfer market?](https://www.bbc.co.uk/sport/football/articles/cmew9w451vx8o) - **BBC News**
+5. [Pretorius breaks Gayle's T20 record score](https://www.bbc.com/sport/cricket/articles/cmq8n2ynqex0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Pretorius breaks Gayle's T20 record score](https://www.bbc.co.uk/sport/cricket/articles/cmq8n2ynqex0o) - **BBC News**
+7. [Can the Panthers Defy the Odds on Sunday Night Football?](https://theleadsm.com/can-the-panthers-defy-the-odds-on-sunday-night-football/) - **Theleadsm.com**
+8. [Papers: Man Utd to consider legal action if Gabriel leaves](https://www.skysports.com/football/transfer-paper-talk/13594537/man-utd-to-consider-legal-action-if-jj-gabriel-leaves-as-bayern-munich-barcelona-and-real-madrid-chase-youngster-paper-talk) - **Sky Sports**
+9. [Federal judge stops Education Department from releasing list of foreign sources of funding for Ivy League universities](https://nypost.com/2026/10/02/us-news/federal-judge-stops-education-department-from-releasing-list-of-foreign-sources-of-funding-for-ivy-league-universities/) - **New York Post**
+10. [Saints’ Chase Young Quietly Emerging as Top NFL Pass Rusher](https://theleadsm.com/saints-chase-young-quietly-emerging-as-top-nfl-pass-rusher/) - **Theleadsm.com**
 
 
 ---
-*최근 업데이트: 2026-10-04 05:11:22 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-04 08:09:19 (KST) / (하루 100회 제한 준수 중)*
