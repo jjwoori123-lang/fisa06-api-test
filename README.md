@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man United will be delighted to learn David Raum’s response as INEOS plot sensational January raid](https://thepeoplesperson.com/2026/10/01/david-raum-open-to-january-man-united-transfer-from-rb-leipzig-317767/) - **The Peoples Person**
-2. [Klopp wins first game as Germany coach, without 'top dogs'](https://www.dw.com/en/klopp-wins-first-game-as-germany-coach-without-top-dogs/a-79508898) - **DW (English)**
-3. [Chris Mason: Why Andy Burnham's about-turn on Manchester City matters](https://www.bbc.co.uk/news/articles/c5kg0gwwpyx8o) - **BBC News**
-4. [What to know about the Man City scandal and charges against the Premier League soccer team](https://biztoc.com/x/5d6486fb179f926c) - **Biztoc.com**
-5. [Hallgrímsson says fatigue proved costly as Ireland give up two-goal lead to Austria](https://www.irishtimes.com/sport/soccer/2026/10/01/hallgrimsson-says-fatigue-proved-costly-as-ireland-give-up-two-goal-lead-to-austria/) - **The Irish Times**
-6. [Downing Street responds after Prime Minister 'backs' Manchester City owners amid charges](https://www.alloutsoccer.com/news/downing-street-burnham-manchester-city-2049384) - **Alloutsoccer.com**
-7. [Tzolis injured as Greece draw with Netherlands](https://www.bbc.com/sport/football/live/cmp8ddd2dgpwt?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Manchester City could face $1 billion-plus bill as Arsenal, United, Liverpool, and Spurs to sue](https://www.alloutsoccer.com/news/manchester-city-bill-rivals-sue-2049365) - **Alloutsoccer.com**
-9. [Papers: Man City players could be entitled to rip up contracts](https://www.skysports.com/football/transfer-paper-talk/13594183/man-city-players-told-they-could-be-entitled-to-rip-up-contracts-after-guilty-verdict-in-premier-league-case-paper-talk) - **Sky Sports**
-10. [Real Madrid keen on Quansah - Friday's gossip](https://www.bbc.com/sport/football/articles/cw8r6r0pdkyzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [2026 World Darts Grand Prix quarterfinals predictions and previews](https://www.sportingnews.com/us/darts/news/2026-world-darts-grand-prix-quarterfinals-prediction-preview/983b4e64accd6204e0251819) - **Sporting News**
+2. [GPL Match Day 5: Fans Brace For Another Weekend Of Drama](https://thechronicle.com.gh/gpl-match-day-5-fans-brace-for-another-weekend-of-drama/) - **Thechronicle.com.gh**
+3. [JEFF POWELL MBE: Anyone who believes City are English football's only miscreants is delusional - more than one other club is privately grateful to them for taking all the heat. This is my five-point plan to truly repair the people's game](https://www.dailymail.com/sport/football/article-16172389/english-football-man-city-crisis-plan.html) - **Dailymail.com**
+4. [Joey Porter Jr. to Cowboys: Smart move but wrong position?](https://cowboyswire.usatoday.com/story/sports/nfl/cowboys/2026/10/01/cowboys-trade-for-joey-porter-jr-but-was-it-the-right-move/92035235007/) - **USA Today**
+5. [Cavan Sullivan Man City Future Intact as Haaland Plots Barcelona Exit](https://heavy.com/sports/soccer/cavan-sullivan-man-city-future-haaland-exit/) - **Heavy.com**
+6. [Ndidi withdraws from Russia friendly](https://punchng.com/ndidi-withdraws-from-russia-friendly/) - **The Punch**
+7. [Sports world marks Nigeria’s 66th Independence](https://punchng.com/sports-world-marks-nigerias-66th-independence/) - **The Punch**
+8. [Week 4 Yahoo Fantasy x Arena Club Slab Packs: Brock Purdy, Bijan Robinson among chase cards](https://sports.yahoo.com/fantasy/article/week-4-yahoo-fantasy-x-arena-club-slab-packs-brock-purdy-bijan-robinson-among-chase-cards-235749643.html) - **Yahoo Entertainment**
+9. [Man United will be delighted to learn David Raum’s response as INEOS plot sensational January raid](https://thepeoplesperson.com/2026/10/01/david-raum-open-to-january-man-united-transfer-from-rb-leipzig-317767/) - **The Peoples Person**
+10. [Klopp wins first game as Germany coach, without 'top dogs'](https://www.dw.com/en/klopp-wins-first-game-as-germany-coach-without-top-dogs/a-79508898) - **DW (English)**
 
 
 ---
-*최근 업데이트: 2026-10-03 08:03:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-03 11:05:12 (KST) / (하루 100회 제한 준수 중)*
