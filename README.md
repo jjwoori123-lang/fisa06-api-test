@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Former Chelsea Boss Graham Potter Mocks Manchester City Over FFP Charges](https://heavy.com/sports/soccer/former-chelsea-graham-potter-mocks-manchester-city-ffp-charges/) - **Heavy.com**
-2. [Juventus keen on Brendford’s Michael Kayode](https://thefootballfaithful.com/juventus-keen-on-brendfords-michael-kayode/) - **The Football Faithful**
-3. [PSV Duo Guus Til and Ruben van Bommel Criticised After Netherlands Draw With Greece](https://roundtable.io/sports/soccer/eredivisie/psv-eindhoven/news/psv-duo-guus-til-and-ruben-van-bommel-criticised-after-netherlands-draw-with-greece) - **Roundtable.io**
-4. [Sean Steur impressive as young Dutch stars win 4-2 in Euro qualifier](https://www.themag.co.uk/2026/10/sean-steur-impressive-as-young-dutch-stars-win-4-2-in-euro-qualifier-newcastle-united-netherlands-under-21s/) - **The Mag**
-5. [FEATURE | Can Florian Wirtz bring his Germany form to Liverpool?](https://www.getfootballnewsgermany.com/2026/wirtz-germany-liverpool-klopp/) - **Getfootballnewsgermany.com**
-6. [Dyche enjoying break from management after Forest exit](https://www.bbc.com/sport/football/articles/ckvgd5ldyp0go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Premier League players with the most interceptions so far this season](https://www.footballmuse.com/features/premier-league-players-with-the-most-interceptions-so-far-this-season) - **Footballmuse.com**
-8. [Dyche would be open to Celtic approach - gossip](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8bdc7aae-ebe2-463b-814d-31ca47244b53) - **Yahoo Entertainment**
-9. [Dyche would be open to Celtic approach - gossip](https://www.bbc.co.uk/sport/football/articles/c5398k7ezemko) - **BBC News**
-10. [Liverpool find answer to massive problem in 'one-man wrecking ball'](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-find-answer-to-massive-problem-in-one-man-wrecking-ball/) - **Anfieldwatch.co.uk**
+1. [Arsenal have joined the race to sign midfield wonderkid](https://eplindex.com/151052/arsenal-have-joined-the-race-to-sign-midfield-wonderkid.html) - **English Premier League Index - Opta Stats**
+2. [Youssouf Fofana: Why Man United have the edge over Sevilla in the race for the Frenchman](https://thepeoplesperson.com/2026/10/03/man-united-monitoring-youssouf-fofana-as-sevilla-exit-looms-317883/) - **The Peoples Person**
+3. [Driver, 18, who allegedly ploughed into ten people cheering on the Newcastle Knights is charged - as girl, five, remains in a critical condition in an induced coma](https://www.dailymail.com/news/article-16180437/newcastle-knights-crash-driver-charged.html) - **Dailymail.com**
+4. [Ji-soo Kim Becomes Asian Games Champion With South Korea](https://roundtable.io/sports/soccer/premier-league/brentford/news/ji-soo-kim-becomes-asian-games-champion-with-south-korea) - **Roundtable.io**
+5. [‘Very good, very, very good’ – France manager Zinédine Zidane blown away by Liverpool defender Jérémy Jacquet](https://www.getfootballnewsfrance.com/2026/very-good-very-very-good-france-manager-zinedine-zidane-blown-away-by-liverpool-defender-jeremy-jacquet/) - **Get French Football News**
+6. [Why it feels unlikely Chelsea make January move for €55m defender](https://www.talkchelsea.net/news-now/chelsea-unlikely-move-e55m-defender-feels/) - **Talk Chelsea**
+7. [USMNT vs. Mexico prediction, odds, time: Expert reveals soccer picks for Oct. 3 international friendly](https://www.cbssports.com/betting/news/usmnt-mexico-prediction-odds-time-soccer-picks-for-october-3-2026-international-friendly/) - **CBS Sports**
+8. [Etihad Airways considering legal action. Am I free to write that?](https://untold-arsenal.com/archives/123384) - **Untold-arsenal.com**
+9. [Como’s Jacobo Ramon not keen on Real Madrid return amidst Arsenal interest](https://www.getfootballnewsitaly.com/2026/comos-jacobo-ramon-not-keen-on-real-madrid-return-amidst-arsenal-interest/) - **Getfootballnewsitaly.com**
+10. [Lamine Yamal explains why Thierry Henry inspired his latest iconic celebration](https://gamedaychatter.com/lamine-yamal-explains-why-thierry-henry-inspired-his-latest-iconic-celebration/) - **Gamedaychatter.com**
 
 
 ---
-*최근 업데이트: 2026-10-04 18:28:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-04 23:58:38 (KST) / (하루 100회 제한 준수 중)*
