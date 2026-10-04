@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tyler Adams named USMNT captain with new World Cup cycle underway](https://www.usatoday.com/story/sports/soccer/usmnt/2026/10/02/new-usmnt-captain-tyler-adams-mauricio-pochettino-christian-pulisic/92064235007/) - **USA Today**
-2. [“Only his Dutch players played”: former Man United star Fred rips apart Erik ten Hag](https://thepeoplesperson.com/2026/10/02/fred-erik-ten-hag-clashed-with-ronaldo-casemiro-rashford-317828/) - **The Peoples Person**
-3. [Which clubs did Man City's 'inflated' money flow to in transfer market?](https://www.bbc.com/sport/football/articles/cmew9w451vx8o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Which clubs did Man City's 'inflated' money flow to in transfer market?](https://www.bbc.co.uk/sport/football/articles/cmew9w451vx8o) - **BBC News**
-5. [Pretorius breaks Gayle's T20 record score](https://www.bbc.com/sport/cricket/articles/cmq8n2ynqex0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Pretorius breaks Gayle's T20 record score](https://www.bbc.co.uk/sport/cricket/articles/cmq8n2ynqex0o) - **BBC News**
-7. [Can the Panthers Defy the Odds on Sunday Night Football?](https://theleadsm.com/can-the-panthers-defy-the-odds-on-sunday-night-football/) - **Theleadsm.com**
-8. [Papers: Man Utd to consider legal action if Gabriel leaves](https://www.skysports.com/football/transfer-paper-talk/13594537/man-utd-to-consider-legal-action-if-jj-gabriel-leaves-as-bayern-munich-barcelona-and-real-madrid-chase-youngster-paper-talk) - **Sky Sports**
-9. [Federal judge stops Education Department from releasing list of foreign sources of funding for Ivy League universities](https://nypost.com/2026/10/02/us-news/federal-judge-stops-education-department-from-releasing-list-of-foreign-sources-of-funding-for-ivy-league-universities/) - **New York Post**
-10. [Saints’ Chase Young Quietly Emerging as Top NFL Pass Rusher](https://theleadsm.com/saints-chase-young-quietly-emerging-as-top-nfl-pass-rusher/) - **Theleadsm.com**
+1. [Padres-Brewers NLDS matchup breakdown: Who has the edge in October showdown?](https://nypost.com/2026/10/02/sports/padres-vs-brewers-nlds-preview-matchups-pitching-lineups-and-prediction/) - **New York Post**
+2. [Seahawks’ Pass Rush Draws $114 Million Chargers Tackle in Key Week 4 Battle](https://heavy.com/sports/nfl/seattle-seahawks/seahawks-rashawn-slater-nwosu-hall-chargers/) - **Heavy.com**
+3. [Freddie Freeman vs. Atlanta? Dodgers star not buying into playoff narrative](https://www.usatoday.com/story/sports/mlb/columnist/bob-nightengale/2026/10/02/dodgers-braves-nlds-freddie-freeman-return-mlb-playoffs/92066416007/) - **USA Today**
+4. [Tyler Adams Named USMNT Captain in New Pochettino Era](https://www.ussoccer.com/stories/on-the-pitch/2026/10/usmnt/mauricio-pochettino-names-tyler-adams-captain-2030-cycle) - **U.S. Soccer**
+5. [Tyler Adams gets USMNT captain's armband back as new World Cup cycle begins](https://www.timesunion.com/sports/article/usmnt-tyler-adams-pochettino-captain-soccer-22460426.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - **Albany Times Union**
+6. [It's a disgrace that a case as seismic as City's is STILL shrouded in secrecy - we don't even know who was on the panel that found them guilty: OLIVER HOLT](https://www.dailymail.com/sport/football/article-16178377/manchester-city-premier-league-secrecy-panel.html) - **Dailymail.com**
+7. [Tyler Adams begins second stint as USMNT captain ahead of Mexico rivalry match](https://sports.yahoo.com/soccer/article/tyler-adams-begins-second-stint-as-usmnt-captain-ahead-of-mexico-rivalry-match-234626909.html) - **Yahoo Entertainment**
+8. [Marcos Rojo refuses to train for Racing Club as he pushes to rejoin former side](https://thepeoplesperson.com/2026/10/03/marcos-rojo-skips-racing-club-training-to-rejoin-estudiantes-317823/) - **The Peoples Person**
+9. [Adams named new US captain to 2030 World Cup](https://sports.yahoo.com/articles/adams-named-us-captain-2030-231653809.html) - **Yahoo Entertainment**
+10. [Tyler Adams named USMNT captain with new World Cup cycle underway](https://www.usatoday.com/story/sports/soccer/usmnt/2026/10/02/new-usmnt-captain-tyler-adams-mauricio-pochettino-christian-pulisic/92064235007/) - **USA Today**
 
 
 ---
-*최근 업데이트: 2026-10-04 08:09:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-04 11:44:13 (KST) / (하루 100회 제한 준수 중)*
