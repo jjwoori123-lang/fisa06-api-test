@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Senne Lammens names the best thing about playing for Man United, and it says everything about the club](https://thepeoplesperson.com/2026/10/04/senne-lammens-praises-man-united-fans-as-best-part-of-club-317965/) - **The Peoples Person**
-2. [Raiders prepare for massive early season game in battle of unbeatens](https://www.thesportingtribune.com/2026/10/03/raiders-prepare-for-massive-early-season-game-in-battle-of-unbeatens) - **Thesportingtribune.com**
-3. [Liverpool set to face Real Madrid battle in the race for midfielder – Report](https://anfieldindex.com/101355/liverpool-set-to-face-real-madrid-battle-in-the-race-for-midfielder-report.html) - **Anfieldindex.com**
-4. [(VIDEO) Colts vs Commanders Today: Where to Watch, TV Channel and Live Stream for NFL London Game at Tottenham](https://www.ibtimes.com.au/colts-commanders-london-how-watch-1876229) - **Ibtimes.com.au**
-5. [Manchester United have joined the race to sign £50m-rated forward](https://eplindex.com/151093/manchester-united-have-joined-the-race-to-sign-50m-rated-forward.html) - **English Premier League Index - Opta Stats**
-6. [BetMGM bonus code POSTBET: Get up to $1,500 back in bonus bets for Jets vs. Bears](https://nypost.com/2026/10/04/betting/betmgm-bonus-code-postbet-get-up-to-1500-back-in-bonus-bets-for-jets-vs-bears/) - **New York Post**
-7. [The definitive USMNT all-time Starting 11: The only true lineup that matters](https://www.hitc.com/the-definitive-usmnt-all-time-starting-11-the-only-true-lineup-that-matters/) - **HITC - Football, Gaming, Movies, TV, Music**
-8. [Stephen Curry Stares at Potential Goodbye as Warriors Remain Unmoved About Free Agent Seth Curry](https://www.essentiallysports.com/nba-active-basketball-news-stephen-curry-stares-at-potential-goodbye-as-golden-state-warriors-remain-unmoved-about-free-agent-seth-curry/) - **Essentially Sports**
-9. [Anthony Gordon is playing with swagger and belief - and his telepathic connection with Lewis Hall could mean Thomas Tuchel FINALLY solves a problem area in his team](https://www.dailymail.com/sport/football/article-16181949/Anthony-Gordon-England-Lewis-Hall.html) - **Dailymail.com**
-10. [Anthony Gordon is playing with swagger and belief - and his telepathic connection with Lewis Hall could mean Thomas Tuchel FINALLY solves a problem area in his team](https://www.dailymail.com/sport/football/article-16181949/Anthony-Gordon-England-Lewis-Hall.html) - **Dailymail.com**
+1. [Match Awards from Germany’s frustrating 0-0 draw against Greece](https://www.bavarianfootballworks.com/germany-international-soccer/264264/match-awards-from-germanys-frustrating-0-0-draw-against-greece) - **Bavarian Football Works**
+2. [Humphries wins Grand Prix to end barren spell](https://www.bbc.com/sport/darts/articles/cw1m49g84mmro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Luke Humphries pulls off comeback, stuns Gerwyn Price in 2026 World Darts Grand Prix final](https://www.sportingnews.com/us/darts/news/luke-humphries-gerwyn-price-2026-darts-grand-prix-final/85cab6bc891a341b9d8fa718) - **Sporting News**
+4. [Liverpool Are Eyeing A Move For This Tottenham Hotspur Ace Next Year: Good Option For Iraola?](https://the4thofficial.net/2026/10/liverpool-are-eyeing-a-move-for-this-tottenham-hotspur-defender-next-year/) - **The4thofficial.net**
+5. [Humphries wins Grand Prix to end barren spell](https://www.bbc.co.uk/sport/darts/articles/cw1m49g84mmro) - **BBC News**
+6. [West Ham United Eye This 47-Year-Old Fan Favourite As Manager: Should Nuno Be Worried About His Future?](https://the4thofficial.net/2026/10/west-ham-united-eye-this-47-year-old-fan-favourite-as-manager-should-nuno-be-worried-about-his-future/) - **The4thofficial.net**
+7. ["Bodes well": Liverpool take gigantic step towards Alisson and Van Dijk contract renewals](https://www.anfieldwatch.co.uk/liverpool-fc/news/bodes-well-liverpool-take-gigantic-step-towards-alisson-and-van-dijk-contract-renewals/) - **Anfieldwatch.co.uk**
+8. [Triple injury boost for Arsenal as three defenders return ahead of Leeds](https://www.justarsenal.com/triple-injury-boost-for-arsenal-as-three-defenders-return-ahead-of-leeds/423212) - **Just Arsenal News**
+9. [Erling Haaland limps off during Norway's Nations League clash with Portugal to leave Man City sweating just a week before Liverpool showdown](https://www.dailymail.com/sport/football/article-16182619/erling-haaland-norway-man-city-portugal.html) - **Dailymail.com**
+10. [Steven Gerrard Hints Returning At Rangers: Should Derek McInnes Be Worried?](https://the4thofficial.net/2026/10/steven-gerrard-hints-returning-at-rangers-should-derek-mcinnes-be-worried/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-10-05 23:56:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-06 06:54:42 (KST) / (하루 100회 제한 준수 중)*
