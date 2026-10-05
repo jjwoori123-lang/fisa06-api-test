@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Andy Carroll confirms he was sexually assaulted by BBC Fame Academy dance coach Kevin Adams](https://www.dailymail.com/news/article-16181047/Andy-Carroll-sexually-assaulted-BBC-Fame-Academy-coach.html) - **Dailymail.com**
-2. [Adrien Truffert ready to approve Manchester United move, just one hurdle remains](https://thepeoplesperson.com/2026/10/03/adrien-truffert-open-to-man-united-move-but-may-cost-60m-317923/) - **The Peoples Person**
-3. [Barcelona star in Chelsea’s sights for January](https://getfootballnewsspain.com/barcelona-star-in-chelseas-sights-for-january/) - **Getfootballnewsspain.com**
-4. [Xabi Alonso plot to lure Liverpool midfielder to Chelsea in January deal](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-alexis-mac-allister-xabi-alonso-plot-to-lure-midfielder-to-chelsea-in-january-deal/) - **Anfieldwatch.co.uk**
-5. [Manchester United Identify This Premier League Defender As A Target: Should Carrick Move In For Him?](https://the4thofficial.net/2026/10/manchester-united-identify-this-nottingham-forest-defender-as-a-target/) - **The4thofficial.net**
-6. [Chelsea LOSE behind-closed-doors 'training exercise' friendly to Portsmouth as Xabi Alonso focuses on tactics with his side holding the worst defensive Premier League record](https://www.dailymail.com/sport/football/article-16180939/Chelsea-LOSE-closed-doors-training-exercise-friendly-Portsmouth-Xabi-Alonso-focuses-tactics-holding-worst-defensive-Premier-League-record.html) - **Dailymail.com**
-7. [Henry defends Arsenal’s style under Mikel Arteta](https://www.justarsenal.com/henry-defends-arsenals-style-under-mikel-arteta/423146) - **Just Arsenal News**
-8. [Leeds Face Premier League Battle For £34m, 23-Year-Old Defender: Should Farke Reject Any Offers?](https://the4thofficial.net/2026/10/leeds-face-premier-league-battle-for-34m-23-year-old-defender-should-farke-reject-any-offers/) - **The4thofficial.net**
-9. [Man Utd & Arsenal eye Croatia striker - Sunday's gossip](https://www.bbc.com/sport/football/articles/cw62y457008lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Man Utd & Arsenal eye Croatia striker - Sunday's gossip](https://www.bbc.co.uk/sport/football/articles/cw62y457008lo) - **BBC News**
+1. [Why is Julian Quinones not playing today for Mexico vs USMNT in 2026 International friendly game?](https://worldsoccertalk.com/news/why-is-julian-quinones-not-playing-today-for-mexico-vs-usmnt-in-2026-international-friendly-game/) - **Worldsoccertalk.com**
+2. [Manchester City faces uncertain future after 114 charges upheld](https://gamedaychatter.com/manchester-city-faces-uncertain-future-after-114-charges-upheld/) - **Gamedaychatter.com**
+3. [2026 World Darts Grand Prix final: Luke Humphries vs. Gerwyn Price, prediction and preview](https://www.sportingnews.com/us/darts/news/2026-darts-grand-prix-final-humphries-price-prediction-preview/a4c826e7e5d451e40f050b7c) - **Sporting News**
+4. [USMNT vs. Mexico prediction, odds, time: Expert reveals soccer picks for Oct. 3 international friendly](https://www.cbssports.com/betting/news/usmnt-mexico-prediction-odds-line-time-soccer-picks-for-october-3-2026-international-friendly/) - **CBS Sports**
+5. [Ravens discussion: score prediction, X-factors for Week 4 vs. Titans](https://www.baltimorebeatdown.com/baltimore-ravens-analysis/85874/ravens-discussion-score-prediction-x-factors-for-week-4-vs-titans) - **Baltimore Beatdown**
+6. [Pep Guardiola spotted for first time since seismic guilty verdict against Man City: Club's former boss attends Paris Fashion Week alongside his daughter after breaking silence](https://www.dailymail.com/sport/football/article-16181125/pep-guardiola-paris-fashion-week-man-city-sighting.html) - **Dailymail.com**
+7. [Diego Leon: Forgotten Man United star emerges as surprise solution as Michael Carrick seeks defensive cover](https://thepeoplesperson.com/2026/10/03/diego-leon-features-for-man-united-as-michael-carrick-seeks-cover-317925/) - **The Peoples Person**
+8. [Opinion: Lewis-Skelly’s growth must not be sacrificed for Bruno Guimaraes](https://www.justarsenal.com/opinion-lewis-skellys-growth-must-not-be-sacrificed-for-bruno-guimaraes/423147) - **Just Arsenal News**
+9. [Papers: Ronaldo to make Portugal return](https://www.skysports.com/football/transfer-paper-talk/13595152/cristiano-ronaldo-to-make-portugal-return-in-2027-paper-talk) - **Sky Sports**
+10. [Papers: Arsenal leading race for winger Nusa](https://www.skysports.com/football/transfer-paper-talk/13594837/arsenal-leading-race-for-rb-leipzig-winger-antonio-nusa-paper-talk) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-10-05 06:55:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-05 09:33:55 (KST) / (하루 100회 제한 준수 중)*
