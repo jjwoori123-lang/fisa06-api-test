@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Saudi Arabia to ABANDON their £2BILLION one-of-a-kind World Cup stadium plan to host football at 350 metres above ground level amid spiralling costs](https://www.dailymail.com/sport/football/article-16184249/Saudi-Arabia-ABANDON-2BILLION-one-kind-World-Cup-stadium-plan-host-football-350-metres-ground-level-amid-spiralling-costs.html) - **Dailymail.com**
-2. [Ireland optimism? The Kazakhstan mission & FAI cup semis](https://www.rte.ie/sport/soccer/2026/1005/1594041-ireland-optimism-the-kazakhstan-mission-fai-cup-semis/) - **RTE**
-3. [What happened between Ireland and Israel in their Nations League match?](https://www.aljazeera.com/sports/2026/10/5/what-happened-between-ireland-and-israel-in-their-nations-league-match) - **Al Jazeera English**
-4. [Explained: What do other PL clubs expect to happen after Man City rule breaches?](https://www.skysports.com/football/video/13595484/manchester-city-what-do-other-pl-clubs-expect-to-happen-after-man-city-rule-breaches) - **Sky Sports**
-5. [Ex-Manchester leader defends deals with Man City owners](https://www.bbc.co.uk/news/articles/c9gkv7pdd620o) - **BBC News**
-6. [Liverpool could be set for £115m double Brentford raid](https://eplindex.com/151124/liverpool-could-be-set-for-115m-double-brentford-raid.html) - **English Premier League Index - Opta Stats**
-7. [Enzo Maresca to hold talks with Man City stars on THURSDAY with jet-setting stars set to return after guilty verdict - as boss is spotted for the first time since Premier League decision](https://www.dailymail.com/sport/football/article-16183693/enzo-maresca-manchester-city-verdict.html) - **Dailymail.com**
-8. [King backs Tottenham to end winless run, says one big result can ignite De Zerbi’s revival](https://www.footballmuse.com/news/king-backs-tottenham-to-end-winless-run-says-one-big-result-can-ignite-de-zerbis-revival) - **Footballmuse.com**
-9. [“I’d like to go…”: Antonio Conte sparks fresh Man United intrigue as Carrick pressure mounts](https://thepeoplesperson.com/2026/10/05/id-like-to-go-antonio-conte-sparks-fresh-man-united-intrigue-as-carrick-pressure-mounts-318133/) - **The Peoples Person**
-10. [How Matthijs de Ligt has performed in Man United training ahead of much-awaited comeback](https://thepeoplesperson.com/2026/10/05/matthijs-de-ligt-impresses-in-man-united-training-on-return-318139/) - **The Peoples Person**
+1. [Bledisloe Cup rugby: A dummies guide to the Wallabies’ Eden Park hoodoo against the All Blacks – 40 years without a win](https://www.nzherald.co.nz/sport/rugby/all-blacks/bledisloe-cup-rugby-a-dummies-guide-to-the-wallabies-eden-park-hoodoo-against-the-all-blacks-40-years-without-a-win/premium/NJA7AEN2BFBOPAMY7ZZNNYX7QQ/) - **New Zealand Herald**
+2. [Chelsea Set To Rival Liverpool For This Brazilian Defender: Decent Option For Alonso?](https://the4thofficial.net/2026/10/chelsea-are-set-to-rival-liverpool-for-this-nottingham-forest-defender/) - **The4thofficial.net**
+3. [Kochen Is The Key, Citizens Could Suffer, CR7's Prolonged Goodbye](https://sports.yahoo.com/soccer/article/kochen-is-the-key-citizens-could-suffer-cr7s-prolonged-goodbye-204812278.html) - **Yahoo Entertainment**
+4. [Today in sports history - December 2](https://www.usatoday.com/story/sports/history/2026/10/05/today-in-sports-history-december-2/92109925007/) - **USA Today**
+5. [Juventus & Atletico Madrid eye Madueke - Tuesday's gossip](https://www.bbc.com/sport/football/articles/cw203mjx7r46o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Juventus & Atletico Madrid eye Madueke - Tuesday's gossip](https://www.bbc.co.uk/sport/football/articles/cw203mjx7r46o) - **BBC News**
+7. [JJ Gabriel INCLUDED in Man United first-team photo - but doubt still surrounds future of the wantaway wonderkid as he turns 16 tomorrow, amid tug-of-war between Real Madrid and Barcelona](https://www.dailymail.com/sport/football/article-16185101/JJ-Gabriel-INCLUDED-Man-United-team-photo.html) - **Dailymail.com**
+8. [Serie A Club Are Ready To Sell This Aston Villa Target: Should Emery Make The Move?](https://the4thofficial.net/2026/10/serie-a-club-are-ready-to-sell-this-aston-villa-target-should-emery-make-the-move/) - **The4thofficial.net**
+9. [Manchester City Superstar Wants To Make A Move To Spain: What Should Maresca Do?](https://the4thofficial.net/2026/10/manchester-city-forward-wants-to-make-a-move-to-spain/) - **The4thofficial.net**
+10. [Premier League viewership in US up 20 percent among young Americans](https://www.aljazeera.com/sports/2026/10/5/premier-league-viewership-in-us-up-20-percent-among-young-americans) - **Al Jazeera English**
 
 
 ---
-*최근 업데이트: 2026-10-07 01:00:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-07 06:02:45 (KST) / (하루 100회 제한 준수 중)*
