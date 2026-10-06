@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Defensive back Jaelyn Easterling-Flores honored as a 2027 Navy All-American](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/defensive-back-jaelyn-easterling-flores-honored-as-a-2027-navy-all-american) - **NBCSports.com**
-2. [Anger, remorse, conspiracy theories: how sports fans cope when their club does wrong](https://theconversation.com/anger-remorse-conspiracy-theories-how-sports-fans-cope-when-their-club-does-wrong-293205) - **The Conversation Africa**
-3. [Goalless drama as Hearts hold Dreams, Vision and Gold Stars share spoils](https://thechronicle.com.gh/goalless-drama-as-hearts-hold-dreams-vision-and-gold-stars-share-spoils/) - **Thechronicle.com.gh**
-4. [Medeama in a hard-fought narrow victory over Debibi United](https://thechronicle.com.gh/medeama-in-a-hard-fought-narrow-victory-over-debibi-united/) - **Thechronicle.com.gh**
-5. [8 Burning Questions About the Manchester City Case](https://frontofficesports.com/article/man-city-cheating-case-fallout/) - **Frontofficesports.com**
-6. [NPFL: Rangers go top as Enyimba secure second win](https://punchng.com/npfl-rangers-go-top-as-enyimba-secure-second-win/) - **The Punch**
-7. [Ex-Ajax coach hails Arokodare’s impact](https://punchng.com/ex-ajax-coach-hails-arokodares-impact/) - **The Punch**
-8. [Rodri Studied Business by Day, Played for Villarreal by Night](https://futbolchronicle.com/rodri-studied-business-by-day-played-for-villarreal-by-night/) - **Futbolchronicle.com**
-9. [Manchester City must be relegated, says Canada’s ex-Leeds manager](https://www.aljazeera.com/sports/2026/10/4/manchester-city-must-be-relegated-says-canadas-ex-leeds-manager) - **Al Jazeera English**
-10. ['Everyone knew': Canadian men's coach Jesse Marsch calls for Manchester City's relegation](https://www.cbc.ca/sports/soccer/canadian-mens-soccer-coach-marsch-manchester-city-9.7368997) - **CBC News**
+1. [Erling Haaland Sues Airline Over Photo Edit Featuring His Hairstyle](https://petapixel.com/2026/10/05/erling-haaland-sues-airline-over-photo-edit-featuring-his-hairstyle/) - **PetaPixel**
+2. [Wagner: Why Germany national team has gone backwards](https://www.skysports.com/football/news/13574142/david-wagner-rb-leipzig-academy-manager-on-why-german-football-has-gone-backwards-and-what-must-change) - **Sky Sports**
+3. [Tottenham Hotspur return seems unlikely for striker](https://eplindex.com/151112/tottenham-hotspur-return-seems-unlikely-for-striker.html) - **English Premier League Index - Opta Stats**
+4. [How Gordon cast off consistency concerns to become key England cog](https://www.skysports.com/football/news/13595274/anthony-gordon-england-and-barcelona-winger-shrugs-off-consistency-concerns-to-become-key-figure-for-club-and-country) - **Sky Sports**
+5. [Report: Bournemouth set mammoth €80 million asking price for Real Madrid midfield target](https://madriduniversal.com/report-bournemouth-set-mammoth-e80-million-asking-price-for-real-madrid-midfield-target/) - **Madriduniversal.com**
+6. [Workload concerns over Haaland after Man City striker asks to come off during Norway loss](https://sports.yahoo.com/articles/workload-concerns-over-haaland-man-083857842.html) - **Yahoo Entertainment**
+7. [Wayne Rooney, Tottenham and a childhood dream: Colts K Spencer Shrader’s London moment](https://www.indystar.com/story/sports/nfl/colts/2026/10/05/colts-k-spencer-shrader-fulfills-childhood-dream-in-londons-tottenham-hotspur-stadium/92093540007/) - **The Indianapolis Star**
+8. [Alex Scott facing two-month absence after withdrawing from England squad](https://www.101greatgoals.com/football/internationals/alex-scott-facing-two-month-absence-after-withdrawing-from-england-squad/) - **101 Great Goals**
+9. [Is Bradley Barcola the answer to replacing Luis Díaz at Liverpool?](https://www.bavarianfootballworks.com/bayern-munich-history/263503/is-bradley-barcola-the-answer-to-replacing-luis-diaz-at-liverpool-bayern-munich) - **Bavarian Football Works**
 
 
 ---
-*최근 업데이트: 2026-10-06 11:06:44 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-06 18:05:55 (KST) / (하루 100회 제한 준수 중)*
