@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Erling Haaland Sues Airline Over Photo Edit Featuring His Hairstyle](https://petapixel.com/2026/10/05/erling-haaland-sues-airline-over-photo-edit-featuring-his-hairstyle/) - **PetaPixel**
-2. [Wagner: Why Germany national team has gone backwards](https://www.skysports.com/football/news/13574142/david-wagner-rb-leipzig-academy-manager-on-why-german-football-has-gone-backwards-and-what-must-change) - **Sky Sports**
-3. [Tottenham Hotspur return seems unlikely for striker](https://eplindex.com/151112/tottenham-hotspur-return-seems-unlikely-for-striker.html) - **English Premier League Index - Opta Stats**
-4. [How Gordon cast off consistency concerns to become key England cog](https://www.skysports.com/football/news/13595274/anthony-gordon-england-and-barcelona-winger-shrugs-off-consistency-concerns-to-become-key-figure-for-club-and-country) - **Sky Sports**
-5. [Report: Bournemouth set mammoth €80 million asking price for Real Madrid midfield target](https://madriduniversal.com/report-bournemouth-set-mammoth-e80-million-asking-price-for-real-madrid-midfield-target/) - **Madriduniversal.com**
-6. [Workload concerns over Haaland after Man City striker asks to come off during Norway loss](https://sports.yahoo.com/articles/workload-concerns-over-haaland-man-083857842.html) - **Yahoo Entertainment**
-7. [Wayne Rooney, Tottenham and a childhood dream: Colts K Spencer Shrader’s London moment](https://www.indystar.com/story/sports/nfl/colts/2026/10/05/colts-k-spencer-shrader-fulfills-childhood-dream-in-londons-tottenham-hotspur-stadium/92093540007/) - **The Indianapolis Star**
-8. [Alex Scott facing two-month absence after withdrawing from England squad](https://www.101greatgoals.com/football/internationals/alex-scott-facing-two-month-absence-after-withdrawing-from-england-squad/) - **101 Great Goals**
-9. [Is Bradley Barcola the answer to replacing Luis Díaz at Liverpool?](https://www.bavarianfootballworks.com/bayern-munich-history/263503/is-bradley-barcola-the-answer-to-replacing-luis-diaz-at-liverpool-bayern-munich) - **Bavarian Football Works**
+1. [Saudi Arabia to ABANDON their £2BILLION one-of-a-kind World Cup stadium plan to host football at 350 metres above ground level amid spiralling costs](https://www.dailymail.com/sport/football/article-16184249/Saudi-Arabia-ABANDON-2BILLION-one-kind-World-Cup-stadium-plan-host-football-350-metres-ground-level-amid-spiralling-costs.html) - **Dailymail.com**
+2. [Ireland optimism? The Kazakhstan mission & FAI cup semis](https://www.rte.ie/sport/soccer/2026/1005/1594041-ireland-optimism-the-kazakhstan-mission-fai-cup-semis/) - **RTE**
+3. [What happened between Ireland and Israel in their Nations League match?](https://www.aljazeera.com/sports/2026/10/5/what-happened-between-ireland-and-israel-in-their-nations-league-match) - **Al Jazeera English**
+4. [Explained: What do other PL clubs expect to happen after Man City rule breaches?](https://www.skysports.com/football/video/13595484/manchester-city-what-do-other-pl-clubs-expect-to-happen-after-man-city-rule-breaches) - **Sky Sports**
+5. [Ex-Manchester leader defends deals with Man City owners](https://www.bbc.co.uk/news/articles/c9gkv7pdd620o) - **BBC News**
+6. [Liverpool could be set for £115m double Brentford raid](https://eplindex.com/151124/liverpool-could-be-set-for-115m-double-brentford-raid.html) - **English Premier League Index - Opta Stats**
+7. [Enzo Maresca to hold talks with Man City stars on THURSDAY with jet-setting stars set to return after guilty verdict - as boss is spotted for the first time since Premier League decision](https://www.dailymail.com/sport/football/article-16183693/enzo-maresca-manchester-city-verdict.html) - **Dailymail.com**
+8. [King backs Tottenham to end winless run, says one big result can ignite De Zerbi’s revival](https://www.footballmuse.com/news/king-backs-tottenham-to-end-winless-run-says-one-big-result-can-ignite-de-zerbis-revival) - **Footballmuse.com**
+9. [“I’d like to go…”: Antonio Conte sparks fresh Man United intrigue as Carrick pressure mounts](https://thepeoplesperson.com/2026/10/05/id-like-to-go-antonio-conte-sparks-fresh-man-united-intrigue-as-carrick-pressure-mounts-318133/) - **The Peoples Person**
+10. [How Matthijs de Ligt has performed in Man United training ahead of much-awaited comeback](https://thepeoplesperson.com/2026/10/05/matthijs-de-ligt-impresses-in-man-united-training-on-return-318139/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-10-06 18:05:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-07 01:00:52 (KST) / (하루 100회 제한 준수 중)*
