@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How Zidane reacted to Leny Yoro’s “great” performance on France debut](https://thepeoplesperson.com/2026/10/06/how-zidane-reacted-to-leny-yoros-great-performance-on-france-debut-318174/) - **The Peoples Person**
-2. [Obaje celebrates 100th NPFL goal, joins elite trio](https://punchng.com/obaje-celebrates-100th-npfl-goal-joins-elite-trio/) - **The Punch**
-3. [Kano Pillars name RAFA Detergent front-shirt sponsor](https://punchng.com/kano-pillars-name-rafa-detergent-front-shirt-sponsor/) - **The Punch**
-4. [NI make huge strides despite Georgia frustration](https://www.bbc.com/sport/football/articles/cmvg9lp24p1po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Joey Essex vs. Dapper Laughs: Misfits Boxing full fight card, start time, how to watch Saturday's show](https://sports.yahoo.com/boxing/article/joey-essex-vs-dapper-laughs-misfits-boxing-full-fight-card-start-time-how-to-watch-saturdays-show-224859120.html) - **Yahoo Entertainment**
-6. [Man United told they have a “real chance” to land Elliot Anderson from Man City in certain situation](https://thepeoplesperson.com/2026/10/05/man-united-could-sign-elliot-anderson-if-man-city-are-relegated-318169/) - **The Peoples Person**
-7. [Papers: Liverpool's Jacquet suffers hamstring strain on France duty](https://www.skysports.com/football/news/13595580/x-paper-talk) - **Sky Sports**
-8. [Lionel Messi’s Final Match: Here’s Where to Livestream the Argentina vs. Benin Soccer Game Online Free](https://www.billboard.com/culture/product-recommendations/watch-messi-final-game-argentina-soccer-match-online-free-1236354349/) - **Billboard**
-9. [Microsoft Is Betting on Local AI, With Nvidia as Its Wingman. On Oct. 7 We'll See If It Pays Off](https://uk.pcmag.com/laptops/167664/microsoft-is-betting-on-local-ai-with-nvidia-as-its-wingman-on-oct-7-well-see-if-it-pays-off) - **PCMag.com**
-10. [European football’s darkest scandals: Bribes, corruption and match-fixing Part 1](https://www.justarsenal.com/european-footballs-darkest-scandals-bribes-corruption-and-match-fixing-part-1/423298) - **Just Arsenal News**
+1. [Report: Two European giants eyeing move for Arsenal forward](https://eplindex.com/151134/report-two-european-giants-eyeing-move-for-arsenal-forward.html) - **English Premier League Index - Opta Stats**
+2. [Report: Liverpool interested in move for £51m-rated Premier League star](https://anfieldindex.com/101450/report-liverpool-interested-in-move-for-51m-rated-premier-league-star.html) - **Anfieldindex.com**
+3. [Aston Villa remain keen on Raskin - gossip](https://www.bbc.com/sport/football/articles/cqg7x8pkx2pgo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Liverpool handed massive boost in transfer chase for £46m sensation](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-handed-massive-boost-in-transfer-chase-for-ps46m-sensation/) - **Anfieldwatch.co.uk**
+5. [Aston Villa remain keen on Raskin - gossip](https://www.bbc.co.uk/sport/football/articles/cqg7x8pkx2pgo) - **BBC News**
+6. ['He Was The Best' - Willian Names Best Chelsea Boss After Jose Mourinho](https://roundtable.io/sports/soccer/premier-league/chelsea/news/he-was-the-best---willian-names-best-chelsea-boss-after-jose-mourinho) - **Roundtable.io**
+7. [India a key market as SA20 looks to widen global audience: COO Lynn Naude](https://www.business-standard.com/sports/business/india-a-key-market-as-sa20-looks-to-widen-global-audience-coo-lynn-naude-126100600335_1.html) - **Business Standard**
+8. [As Harmanpreet Kaur steps down, four names emerge in India women’s cricket captaincy race](https://economictimes.indiatimes.com/news/sports/cricket/harmanpreet-kaur-steps-down-who-will-lead-indias-womens-cricket-team-next-smriti-mandhana-deepti-sharma-jemimah-rodriguez-richa-ghosh/articleshow/134725071.cms) - **The Times of India**
+9. [Bayern reach breakthrough in contract negotiations with Harry Kane over a new deal](https://footballtoday.com/2026/10/06/bayern-reach-breakthrough-in-contract-negotiations-with-harry-kane-over-a-new-deal/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=bayern-reach-breakthrough-in-contract-negotiations-with-harry-kane-over-a-new-deal) - **Footballtoday.com**
+10. [Leny Yoro: French media deliver verdict on Man United star after 4-1 Belgium win](https://thepeoplesperson.com/2026/10/06/leny-yoro-praised-by-french-media-after-france-4-1-belgium-win-318178/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-10-07 09:47:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-07 15:58:08 (KST) / (하루 100회 제한 준수 중)*
