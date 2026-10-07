@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bledisloe Cup rugby: A dummies guide to the Wallabies’ Eden Park hoodoo against the All Blacks – 40 years without a win](https://www.nzherald.co.nz/sport/rugby/all-blacks/bledisloe-cup-rugby-a-dummies-guide-to-the-wallabies-eden-park-hoodoo-against-the-all-blacks-40-years-without-a-win/premium/NJA7AEN2BFBOPAMY7ZZNNYX7QQ/) - **New Zealand Herald**
-2. [Chelsea Set To Rival Liverpool For This Brazilian Defender: Decent Option For Alonso?](https://the4thofficial.net/2026/10/chelsea-are-set-to-rival-liverpool-for-this-nottingham-forest-defender/) - **The4thofficial.net**
-3. [Kochen Is The Key, Citizens Could Suffer, CR7's Prolonged Goodbye](https://sports.yahoo.com/soccer/article/kochen-is-the-key-citizens-could-suffer-cr7s-prolonged-goodbye-204812278.html) - **Yahoo Entertainment**
-4. [Today in sports history - December 2](https://www.usatoday.com/story/sports/history/2026/10/05/today-in-sports-history-december-2/92109925007/) - **USA Today**
-5. [Juventus & Atletico Madrid eye Madueke - Tuesday's gossip](https://www.bbc.com/sport/football/articles/cw203mjx7r46o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Juventus & Atletico Madrid eye Madueke - Tuesday's gossip](https://www.bbc.co.uk/sport/football/articles/cw203mjx7r46o) - **BBC News**
-7. [JJ Gabriel INCLUDED in Man United first-team photo - but doubt still surrounds future of the wantaway wonderkid as he turns 16 tomorrow, amid tug-of-war between Real Madrid and Barcelona](https://www.dailymail.com/sport/football/article-16185101/JJ-Gabriel-INCLUDED-Man-United-team-photo.html) - **Dailymail.com**
-8. [Serie A Club Are Ready To Sell This Aston Villa Target: Should Emery Make The Move?](https://the4thofficial.net/2026/10/serie-a-club-are-ready-to-sell-this-aston-villa-target-should-emery-make-the-move/) - **The4thofficial.net**
-9. [Manchester City Superstar Wants To Make A Move To Spain: What Should Maresca Do?](https://the4thofficial.net/2026/10/manchester-city-forward-wants-to-make-a-move-to-spain/) - **The4thofficial.net**
-10. [Premier League viewership in US up 20 percent among young Americans](https://www.aljazeera.com/sports/2026/10/5/premier-league-viewership-in-us-up-20-percent-among-young-americans) - **Al Jazeera English**
+1. [How Zidane reacted to Leny Yoro’s “great” performance on France debut](https://thepeoplesperson.com/2026/10/06/how-zidane-reacted-to-leny-yoros-great-performance-on-france-debut-318174/) - **The Peoples Person**
+2. [Obaje celebrates 100th NPFL goal, joins elite trio](https://punchng.com/obaje-celebrates-100th-npfl-goal-joins-elite-trio/) - **The Punch**
+3. [Kano Pillars name RAFA Detergent front-shirt sponsor](https://punchng.com/kano-pillars-name-rafa-detergent-front-shirt-sponsor/) - **The Punch**
+4. [NI make huge strides despite Georgia frustration](https://www.bbc.com/sport/football/articles/cmvg9lp24p1po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Joey Essex vs. Dapper Laughs: Misfits Boxing full fight card, start time, how to watch Saturday's show](https://sports.yahoo.com/boxing/article/joey-essex-vs-dapper-laughs-misfits-boxing-full-fight-card-start-time-how-to-watch-saturdays-show-224859120.html) - **Yahoo Entertainment**
+6. [Man United told they have a “real chance” to land Elliot Anderson from Man City in certain situation](https://thepeoplesperson.com/2026/10/05/man-united-could-sign-elliot-anderson-if-man-city-are-relegated-318169/) - **The Peoples Person**
+7. [Papers: Liverpool's Jacquet suffers hamstring strain on France duty](https://www.skysports.com/football/news/13595580/x-paper-talk) - **Sky Sports**
+8. [Lionel Messi’s Final Match: Here’s Where to Livestream the Argentina vs. Benin Soccer Game Online Free](https://www.billboard.com/culture/product-recommendations/watch-messi-final-game-argentina-soccer-match-online-free-1236354349/) - **Billboard**
+9. [Microsoft Is Betting on Local AI, With Nvidia as Its Wingman. On Oct. 7 We'll See If It Pays Off](https://uk.pcmag.com/laptops/167664/microsoft-is-betting-on-local-ai-with-nvidia-as-its-wingman-on-oct-7-well-see-if-it-pays-off) - **PCMag.com**
+10. [European football’s darkest scandals: Bribes, corruption and match-fixing Part 1](https://www.justarsenal.com/european-footballs-darkest-scandals-bribes-corruption-and-match-fixing-part-1/423298) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-10-07 06:02:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-07 09:47:57 (KST) / (하루 100회 제한 준수 중)*
