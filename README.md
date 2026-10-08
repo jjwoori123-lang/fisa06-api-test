@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [‘Ted Lasso’ Season 4 Finale Recap: The Last Match Of The Season & A Shareholders’ Showdown](http://deadline.com/2026/10/ted-lasso-season-4-finale-recap-how-it-ends-1237148745/) - **Deadline**
-2. [Bruno Fernandes: Real reason Diego Simeone wants Man United star at Atletico Madrid](https://thepeoplesperson.com/2026/10/07/bruno-fernandes-real-reason-diego-simeone-wants-man-united-star-at-atletico-madrid-318268/) - **The Peoples Person**
-3. [Son Heung-min surpasses Cha Bum to become top goal scorer for South Korea](https://www.business-standard.com/sports/football-news/son-heung-min-surpasses-cha-bum-to-become-top-goal-scorer-for-south-korea-126100601309_1.html) - **Business Standard**
-4. [Wednesday’s Everton News: England Blues in action, Hull City preview](https://royalbluemersey.sbnation.com/everton-news/83689/england-blues-in-action-pickford-branthwaite-garner-hull-city-preview) - **SB Nation**
-5. [BCCI names Smriti Mandhana new captain of India women's cricket team](https://www.business-standard.com/cricket/news/bcci-names-smriti-mandhana-new-captain-of-india-women-s-cricket-team-126100601392_1.html) - **Business Standard**
-6. [Liverpool handed boost in pursuit of Andoni Iraola favourite](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-handed-boost-in-pursuit-of-andoni-iraola-favourite-alex-scott/) - **Anfieldwatch.co.uk**
-7. [Wrexham's Kop: The project matching the club's rise](https://www.bbc.com/sport/football/articles/c5dj4j2kvm98o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Wrexham's Kop: The project matching the club's rise](https://www.bbc.co.uk/sport/football/articles/c5dj4j2kvm98o) - **BBC News**
-9. [From Italy: Ruben Amorim plots mid-season reunion with Man Utd star whom he believes ‘gives everything’](https://utdreport.co.uk/2026/10/07/ruben-amorim-joshua-zirkzee-ac-milan-manchester-united/) - **Utdreport.co.uk**
-10. [Bay Area sports calendar, Oct. 7-8](https://www.sfchronicle.com/sports/article/sportscal-22463792.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - **San Francisco Chronicle**
+1. [No chances taken: Liverpool forward ‘pulled out of training’ after he ‘felt something’](https://www.empireofthekop.com/2026/10/07/liverpool-forward-pulled-out-of-training-rob-page-update/) - **Empire of The Kop**
+2. [Charlie Nicholas explains why Sir Alex Ferguson chose United over Arsenal in 1986](https://thepeoplesperson.com/2026/10/07/charlie-nicholas-reveals-why-sir-alex-ferguson-chose-man-united-318327/) - **The Peoples Person**
+3. [Politics and power behind Man City's major soccer controversy](https://biztoc.com/x/3e1da1181f5a5810) - **Biztoc.com**
+4. ['WHAT A GOAL!' | The GREATEST goals between Man Utd and Spurs](https://www.skysports.com/football/video/13596158/manchester-united-vs-tottenham-some-of-the-greatest-goals-scored-over-the-years-in-this-incredible-fixture) - **Sky Sports**
+5. [Report: Liverpool in the race to sign Manchester City magician](https://anfieldindex.com/101541/report-liverpool-in-the-race-to-sign-manchester-city-magician.html) - **Anfieldindex.com**
+6. [Italy new boy Zoma on Klose influence and ‘not closing doors’ on Premier League or Serie A](https://football-italia.net/italy-new-boy-zoma-on-klose-influence/) - **Football Italia**
+7. [Report: Chelsea are in the race to sign £84.5m-rated wonderkid](https://eplindex.com/151185/report-chelsea-are-in-the-race-to-sign-84-5m-rated-wonderkid.html) - **English Premier League Index - Opta Stats**
+8. [Mikel Arteta signs new long-term Arsenal contract until 2030](https://www.rediff.com/sports/report/mikel-arteta-signs-new-arsenal-contract-until-2030-after-premier-league-title-win/20261007.htm) - **Rediff.com**
+9. [Ex-Real Madrid presidential candidate wanted to bring Arsenal’s Mikel Arteta as manager](https://madriduniversal.com/ex-real-madrid-presidential-candidate-wanted-to-bring-arsenals-mikel-arteta-as-manager/) - **Madriduniversal.com**
+10. [What’s gone wrong for Spurs after a summer of spending big?](https://hayters.com/whats-gone-wrong-for-spurs-after-a-summer-of-spending-big/) - **Hayters.com**
 
 
 ---
-*최근 업데이트: 2026-10-08 15:17:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-08 22:43:45 (KST) / (하루 100회 제한 준수 중)*
