@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Julian Ward lining up 11-goal sensation to replace Milos Kerkez](https://www.anfieldwatch.co.uk/liverpool-fc/news/julian-ward-lining-up-11-goal-sensation-to-replace-milos-kerkez/) - **Anfieldwatch.co.uk**
-2. [Who am I? Guess Premier League star No 80](https://www.bbc.co.uk/sport/football/articles/cmd7qnqrzdg1o) - **BBC News**
-3. [Joshua Zirkzee: Willem van Hanegem delivers surprise verdict on Man United star](https://thepeoplesperson.com/2026/10/08/willem-van-hanegem-praises-man-united-striker-joshua-zirkzee-318376/) - **The Peoples Person**
-4. [Football Daily](https://www.bbc.co.uk/sounds/play/p0pffw0n?at_campaign=rss) - **BBC News**
-5. [Real eye McTominay in Jan, Pio 100m  and Woltemade flop: morning news☀️](https://onefootball.com/en/news/real-eye-mctominay-in-jan-pio-100m-and-woltemade-flop-morning-news-43576902) - **Onefootball.com**
-6. [From MI family to CSK: Kieron Pollard's complete T20 franchise journey across tournaments detailed](https://www.cricketnews.com/en/cricket/news/mi-family-csk-kieron-pollard-complete-t20-franchise-journey-tournaments/2ff3bc394378e586ceaa20d3) - **Cricketnews.com**
-7. [Romano: ‘Conversations’ will ‘for sure’ take place — Man Utd on verge of agreement with ‘world-class’ defender](https://utdreport.co.uk/2026/10/08/manchester-united-lisandro-martinez-contract-extension/) - **Utdreport.co.uk**
-8. [Declan Rice close to signing new long-term Arsenal contract](https://footballtoday.com/2026/10/08/declan-rice-close-to-signing-new-long-term-arsenal-contract/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=declan-rice-close-to-signing-new-long-term-arsenal-contract) - **Footballtoday.com**
-9. [Enzo Maresca could unleash his first-choice attack right when Manchester City need it](https://esteemedkompany.com/2026/10/08/enzo-maresca-could-unleash-his-first-choice-attack-right-when-manchester-city-need-it/) - **Esteemedkompany.com**
-10. [Dani Olmo race heating up as Barcelona’s January asking price revealed amid interest from Man United and Bayern Munich](https://thepeoplesperson.com/2026/10/08/dani-olmo-wanted-by-man-united-and-bayern-as-barcelona-set-price-318374/) - **The Peoples Person**
+1. [Relief for Sunderland as Brobbey set for swift return from hamstring injury](https://www.101greatgoals.com/football/premier-league/sunderland-brian-brobbey-swift-return-from-hamstring-injury/) - **101 Great Goals**
+2. [EPL managers cautious after Man City guilty verdict](https://punchng.com/epl-managers-cautious-after-man-city-guilty-verdict/) - **The Punch**
+3. [Time to draw line through Spygate - Parkinson](https://www.bbc.com/sport/football/articles/cmwyvd7zqv5jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Time to draw line through Spygate - Parkinson](https://www.bbc.co.uk/sport/football/articles/cmwyvd7zqv5jo) - **BBC News**
+5. [How to watch Liverpool vs Manchester City live: Stream link, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-liverpool-vs-manchester-city-live-stream-link-tv-channel-team-news-prediction) - **NBCSports.com**
+6. [Declan Rice close to agreeing new £350,000-per-week deal with Arsenal: England star set to become club's joint-highest earner with Bukayo Saka](https://www.dailymail.com/sport/football/article-16192569/declan-rice-arsenal-contract-england.html) - **Dailymail.com**
+7. [AC Milan boss Ruben Amorim makes fresh Man United admission with blunt assessment](https://thepeoplesperson.com/2026/10/08/ac-milan-boss-ruben-amorim-makes-fresh-man-united-admission-with-blunt-assessment-318424/) - **The Peoples Person**
+8. [Manchester City guilty verdict: PL managers have their say](https://www.skysports.com/football/video/13596506/manchester-city-guilty-verdict-premier-league-managers-have-their-say) - **Sky Sports**
+9. [Real Madrid working on midfield superstar’s contract renewal to avoid Premier League interest – Romano](https://madriduniversal.com/real-madrid-working-on-midfield-superstars-contract-renewal-to-avoid-premier-league-interest-romano/) - **Madriduniversal.com**
+10. [The latest Premier League market values ](https://onefootball.com/en/news/the-latest-premier-league-market-values-43578683) - **Onefootball.com**
 
 
 ---
-*최근 업데이트: 2026-10-09 15:19:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-09 22:30:59 (KST) / (하루 100회 제한 준수 중)*
