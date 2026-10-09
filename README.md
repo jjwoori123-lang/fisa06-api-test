@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [USA's Next Generation Lived Up To The Hype; Now The Real Work Begins](https://www.foxsports.com/stories/soccer/usas-next-generation-lived-up-hype-now-real-work-begins) - **Fox Sports**
-2. [Julian Ward is about to make the perfect decision over 'incredible' sensation](https://www.anfieldwatch.co.uk/liverpool-fc/news/julian-ward-is-about-to-make-the-perfect-decision-over-incredible-sensation/) - **Anfieldwatch.co.uk**
-3. [Celtic Transfer Twist As £10m Forward Rejected O’Neill: Could A 62-Cap Striker Have Changed Things?](https://the4thofficial.net/2026/10/celtic-transfer-twist-as-10m-forward-rejected-oneill-could-a-62-cap-striker-have-changed-things/) - **The4thofficial.net**
-4. [Official: Barcelona legend announces retirement from football](https://getfootballnewsspain.com/official-barcelona-legend-announces-retirement-from-football/) - **Getfootballnewsspain.com**
-5. [£52m Striker Claim Reignites Jesse Marsch’s City Blast: Should Leeds United Seek Compensation?](https://the4thofficial.net/2026/10/52m-striker-claim-reignites-jesse-marschs-city-blast-should-leeds-united-seek-compensation/) - **The4thofficial.net**
-6. [Is it too early to look at Premier League table?](https://www.bbc.com/sport/football/articles/ck1l3gjpzz0qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [2026 Swiss Darts Trophy qualifiers](https://www.sportingnews.com/us/darts/news/2026-swiss-darts-trophy-qualifiers/9720cfd2d9f49a9a96e7f985) - **Sporting News**
-8. [West Ham Get Contract Boost Ahead Of QPR: Should The £90k-A-Week, 31-Year-Old Stay?](https://the4thofficial.net/2026/10/west-ham-get-contract-boost-ahead-of-qpr-should-the-90k-a-week-31-year-old-stay/) - **The4thofficial.net**
-9. [Haaland chooses his preferred next team if he has to leave Man City](https://www.justarsenal.com/haaland-chooses-his-preferred-next-team-if-he-has-to-leave-man-city/423403) - **Just Arsenal News**
-10. [Dan Campbell: 'It'll take a minute' for Brian Branch to knock off rust](https://www.freep.com/story/sports/nfl/lions/2026/10/07/brian-branch-injury-update-dan-campbell/92138538007/) - **Detroit Free Press**
+1. [10 Nigerian stars to watch after first international break](https://punchng.com/10-nigerian-stars-to-watch-after-first-international-break/) - **The Punch**
+2. [Gilberto Mora’s Agent Breaks Silence Amid Liverpool, Arsenal Transfer Talk](https://heavy.com/sports/soccer/gilberto-mora-agent-breaks-silence-liverpool-arsenal-transfer-talk/) - **Heavy.com**
+3. [Guardiola set to attend Man City v PSG next week](https://www.bbc.com/sport/football/articles/ckrey77jq1n7o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Arsenal wonderkid Max Dowman presented with THREE world records after memorable breakthrough Premier League season](https://www.dailymail.com/sport/football/article-16189889/Arsenal-wonderkid-Max-Dowman-presented-THREE-world-records-memorable-breakthrough-Premier-League-season.html) - **Dailymail.com**
+5. [Arsenal wonderkid Max Dowman presented with THREE world records after memorable breakthrough Premier League season](https://www.dailymail.com/sport/football/article-16189889/Arsenal-wonderkid-Max-Dowman-presented-THREE-world-records-memorable-breakthrough-Premier-League-season.html) - **Dailymail.com**
+6. [Man United join Barcelona in the hunt for magical Fulham star who has started the season in sizzling form](https://thepeoplesperson.com/2026/10/07/man-united-join-barcelona-in-the-hunt-for-magical-fulham-star-who-has-started-the-season-in-sizzling-form-318372/) - **The Peoples Person**
+7. [The 'nightmare' Premier League player of the month 'so rich he won't run': The decline of 22-year-old Jhon Duran... less than two years after his Premier League exploits at Aston Villa earned him a £71m move to Saudi](https://www.dailymail.com/sport/football/article-16184581/The-nightmare-Premier-League-player-month-rich-wont-run-decline-22-year-old-Jhon-Duran-two-years-Premier-League-exploits-Aston-Villa-earned-71m-Saudi.html) - **Dailymail.com**
+8. [Gianluigi Donnarumma's defiant agent insists Man City will get 'sporting justice' in appeal over guilty verdict - claiming that 'everyone is calm' after club 'reassured' the goalkeeper](https://www.dailymail.com/sport/football/article-16191551/Gianluigi-Donnarumma-Man-City-agent-guilty-verdict.html) - **Dailymail.com**
+9. [Lorenzo Palmisani’s agent confirms Juventus’ summer interest, floats possible future move to Turin](https://www.blackwhitereadallover.com/juventus-transfer-rumors-news/41929/lorenzo-palmisani-agent-quotes-juventus-frosinone-2026-serie-a-transfers) - **Black & White & Read All Over**
+10. [Papers: Arteta becomes Premier League's highest-paid boss on £20m-a-year](https://www.skysports.com/football/transfer-paper-talk/13596325/arsenal-manager-mikel-arteta-becomes-premier-leagues-highest-paid-boss-on-lb20m-a-year-new-contract-paper-talk) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-10-09 04:42:36 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-09 09:11:39 (KST) / (하루 100회 제한 준수 중)*
