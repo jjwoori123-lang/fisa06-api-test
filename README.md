@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [GAMEFACE: Football is a retreat for Fletcher Thompson and Williams Valley](https://www.republicanherald.com/2026/10/08/gameface-football-is-a-retreat-for-fletcher-thompson-and-williams-valley/) - **Republicanherald.com**
-2. [Bradley happy with Rovers' ruthlessness in downing Drogs](https://www.rte.ie/sport/soccer/2026/1008/1594650-bradley-happy-with-rovers-ruthlessness-in-downing-drogs/) - **RTE**
-3. [UK Prime Minister addresses backlash over Manchester City Premier League charges comments](https://www.alloutsoccer.com/news/andy-burnham-manchester-city-comments-2060296) - **Alloutsoccer.com**
-4. [New ATLAS league brings DME, other elite basketball teams together for world title](https://www.news-journalonline.com/story/sports/high-school/basketball/2026/10/08/atlas-basketball-league-teams-dme-academy-schedule/92158980007/) - **Daytona Beach News-Journal**
-5. [Stats boffins reveal the Premier League side with the TOUGHEST fixtures before the next international break as Man United face tricky tests and City have mixed run after guilty verdict](https://www.dailymail.com/sport/football/article-16190051/Liverpool-difficult-matches-stats-boffins-Premier-League.html) - **Dailymail.com**
-6. [Report: Hull City favourites to sign 18-year-old star](https://eplindex.com/151221/report-hull-city-favourites-to-sign-18-year-old-star.html) - **English Premier League Index - Opta Stats**
-7. [What Man City charges anger Liverpool before Premier League game?](https://www.aljazeera.com/sports/2026/10/8/liverpool-vs-manchester-city-what-premier-league-charges-grate-reds-most) - **Al Jazeera English**
-8. [Mourinho jokes he’ll be lucky to see final Man City verdict](https://www.101greatgoals.com/football/premier-league/mourinho-jokes-final-man-city-verdict/) - **101 Great Goals**
-9. [American football's popularity growing across UK: 'We will watch until like 1 a.m.'](https://6abc.com/post/eagles-london-american-footballs-popularity-growing-uk-will-watch-like-1-am/19922655/) - **WPVI-TV**
-10. [SEC weighs new rule requiring intra-conference transfers to sit out a season](https://www.cbssports.com/college-football/news/sec-intra-conference-rule-transfers-sit-season/) - **CBS Sports**
+1. [CBS Sports, TNT Sports merger expected to be ‘a bloodbath,’ per report](https://awfulannouncing.com/paramount-skydance/cbs-tnt-sports-merger-expected-bloodbath.html) - **Awful Announcing**
+2. [Man City face Anfield cauldron after guilty Premier League verdicts](https://sports.yahoo.com/articles/man-city-face-anfield-cauldron-012545639.html) - **Yahoo Entertainment**
+3. [Tigers May Have Another Superstar Coming After Skubal Trade](https://detroitsportsnation.com/tigers-zyhir-hope-future-superstar-skubal-trade/ddrysdale/detroit-tigers/10/08/2026/498626/) - **Detroit Sports Nation**
+4. [What did Texans OC Nick Caley say ahead of Week 5 game vs Titans?](https://texanswire.usatoday.com/story/sports/nfl/texans/2026/10/08/texans-titans-everything-offensive-coordinator-nick-caley-said-jeffery-simmons/92161140007/) - **USA Today**
+5. [IMG, DME Academy joining new international basketball league ATLAS](https://www.news-journalonline.com/story/sports/high-school/basketball/2026/10/08/dme-academy-img-academy-atlas-basketball-league/92160691007/) - **Daytona Beach News-Journal**
+6. [Ghana Premier League Enters Matchday 6 With Tricky Duels](https://thechronicle.com.gh/ghana-premier-league-enters-matchday-6-with-tricky-duels/) - **Thechronicle.com.gh**
+7. [European Leagues’Resume After International Break](https://thechronicle.com.gh/european-leaguesresume-after-international-break/) - **Thechronicle.com.gh**
+8. [Azeez begins team training at Brighton](https://punchng.com/azeez-begins-team-training-at-brighton/) - **The Punch**
+9. [Man City charges: Mourinho jokes Premier League case will outlast him](https://www.aljazeera.com/sports/2026/10/8/man-city-charges-mourinho-jokes-premier-league-case-will-outlast-him) - **Al Jazeera English**
+10. [GAMEFACE: Football is a retreat for Fletcher Thompson and Williams Valley](https://www.republicanherald.com/2026/10/08/gameface-football-is-a-retreat-for-fletcher-thompson-and-williams-valley/) - **Republicanherald.com**
 
 
 ---
-*최근 업데이트: 2026-10-10 08:09:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-10 11:25:20 (KST) / (하루 100회 제한 준수 중)*
