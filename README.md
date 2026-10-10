@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man City charges: How Premier League reacted – United, Arsenal, Liverpool](https://www.aljazeera.com/sports/2026/10/9/man-city-charges-how-premier-league-reacted-man-utd-arsenal-liverpool) - **Al Jazeera English**
-2. [Arteta urges 'respect' for process after Man City financial verdict](https://sports.yahoo.com/articles/arteta-urges-respect-process-man-150748977.html) - **Yahoo Entertainment**
-3. [Real Madrid presidential candidate looked into hiring Arteta](https://dailycannon.com/2026/10/arteta-real-madrid-riquelme/) - **Dailycannon.com**
-4. [Arteta calls for ‘process to be respected’ in Man City financial case](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261009-930-816777/) - **Dpa-international.com**
-5. [Liverpool v Manchester City: Preview, expected line-ups, stats and where to watch](https://www.101greatgoals.com/match-previews/premier-league-matches/liverpool-v-manchester-city-preview-expected-line-ups-stats-stream-where-to-watch/) - **101 Great Goals**
-6. [The Friedkin Group place Everton on the market with key takeover conditions](https://www.alloutsoccer.com/news/friedkin-group-everton-sale-conditions-2061546) - **Alloutsoccer.com**
-7. [Michael Carrick calls for Manchester United to receive titles if Manchester City are punished](https://www.footballmuse.com/news/michael-carrick-calls-for-manchester-united-to-receive-titles-if-manchester-city-are-punished) - **Footballmuse.com**
-8. [Liverpool receive update in chase for Chelsea star](https://anfieldindex.com/101627/liverpool-receive-update-in-chase-for-chelsea-star.html) - **Anfieldindex.com**
-9. [Arsenal vs Leeds United: Team news, key stats and everything you need to know](https://www.leedsunited.com/en/news/arsenal-vs-leeds-united-team-news-key-stats-and-everything-you-need-to-know) - **Leedsunited.com**
-10. [Chelsea handed boost with Moises Caicedo and Cole Palmer among FIVE stars 'ready to go' for Bournemouth after injuries](https://www.dailymail.com/sport/football/article-16196549/Chelsea-Moises-Caicedo-Cole-Palmer-FIVE-stars-ready-Bournemouth-injuries.html) - **Dailymail.com**
+1. [Aston Villa Loanee Could Head For Spain: Should Emery Trigger The Deal?](https://the4thofficial.net/2026/10/aston-villa-loanee-could-head-for-spain-should-emery-trigger-the-deal/) - **The4thofficial.net**
+2. [Premier League legend warns Roberto De Zerbi Manchester United match could be his last](https://www.alloutsoccer.com/news/shearer-de-zerbi-spurs-united-2062086) - **Alloutsoccer.com**
+3. [Will Emery Make Any Changes? | 4-2-3-1 Aston Villa Predicted Lineup Vs Brentford](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_ebda4247-c931-4cc3-8cea-6ae212e484e1) - **Yahoo Entertainment**
+4. [Xabi Alonso just said what Chelsea fans want to hear – but actions speak louder than words](https://www.talkchelsea.net/news/xabi-alonso-said-what-chelsea-fans-want-to-hear-on-acheampong/) - **Talk Chelsea**
+5. [Chelsea to open talks with star amid Liverpool interest](https://eplindex.com/151247/chelsea-to-open-talks-with-star-amid-liverpool-interest.html) - **English Premier League Index - Opta Stats**
+6. [More than just football: How scandal-tainted City led Manchester's rebirth](https://economictimes.indiatimes.com/news/sports/football/more-than-just-football-how-scandal-tainted-city-led-manchesters-rebirth/articleshow/134841703.cms) - **The Times of India**
+7. [EPL: Alonso confirms James, Palmer, Caicedo fit for Bournemouth clash](https://punchng.com/epl-alonso-confirms-james-palmer-caicedo-fit-for-bournemouth-clash/) - **The Punch**
+8. [Enzo Maresca may be bullish but Liverpool cauldron is just the start: Man City's guilty verdict will follow them all season and raises more questions than answers for their stars, the title race and the league, writes IAN LADYMAN](https://www.dailymail.com/sport/football/article-16196877/Enzo-Maresca-Man-City-guilty-press-conference.html) - **Dailymail.com**
+9. [Isidor To Spearhead Le Bris’ Attack | 4-2-3-1 Sunderland Predicted Lineup Vs Brighton](https://the4thofficial.net/2026/10/isidor-to-spearhead-le-bris-attack-4-2-3-1-sunderland-predicted-lineup-vs-brighton/) - **The4thofficial.net**
+10. [Everton's American owners open to selling Premier League club](https://www.usatoday.com/story/sports/soccer/epl/2026/10/09/everton-for-sale-american-owners-friedkin-group/92173426007/) - **USA Today**
 
 
 ---
-*최근 업데이트: 2026-10-11 00:13:41 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-11 04:20:28 (KST) / (하루 100회 제한 준수 중)*
