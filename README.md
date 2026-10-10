@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Enzo Maresca breaks silence on Man City charges and previews Liverpool clash](https://eplindex.com/151234/enzo-maresca-breaks-silence-on-man-city-charges-and-previews-liverpool-clash.html) - **English Premier League Index - Opta Stats**
-2. [Everton owners open to sale of controlling stake](https://www.channelnewsasia.com/sport/everton-owners-open-sale-controlling-stake-6445646) - **CNA**
-3. [Everton have been put up for sale](https://www.themag.co.uk/2026/10/everton-have-been-put-up-for-sale/) - **The Mag**
-4. [Manchester City guilty - reaction LIVE: 'Throw them out!'... Calls for Premier League to be 'relentless' in punishing them and Enzo Maresca faces a grilling](https://www.dailymail.com/sport/football/article-16195413/manchester-city-guilty-premier-league-reaction.html) - **Dailymail.com**
-5. ['I loved playing for the club' - Kompany responds to Man City guilty charges](https://www.skysports.com/football/video/13596755/vincent-kompany-responds-to-man-city-guilty-charges-i-loved-playing-for-the-club) - **Sky Sports**
-6. [Official: Roma and Everton owners Friedkin open to Premier League club’s sale](https://football-italia.net/official-roma-everton-owners-friedkin-sale/) - **Football Italia**
-7. [Newcastle United, bench power and defeating Coventry City](https://www.themag.co.uk/2026/10/newcastle-united-bench-power-and-defeating-coventry-city/) - **The Mag**
-8. [Man Utd May Break Harry Maguire Transfer Record Next Summer For His Replacement](https://roundtable.io/sports/soccer/premier-league/manchester-united/transfers/man-utd-may-break-harry-maguire-transfer-record-next-summer-for-his-replacement) - **Roundtable.io**
-9. [Will Carlos Baleba fix Manchester United? Three big questions ahead of potential debut](https://sports.yahoo.com/articles/carlos-baleba-fix-manchester-united-080042484.html) - **Yahoo Entertainment**
-10. [Daniel Farke spies opportunity despite 'worst possible' timing of Arsenal clash](https://www.leedsunited.com/en/news/daniel-farke-spies-opportunity-despite-worst-possible-timing-of-arsenal-clash) - **Leedsunited.com**
+1. [Man City charges: How Premier League reacted – United, Arsenal, Liverpool](https://www.aljazeera.com/sports/2026/10/9/man-city-charges-how-premier-league-reacted-man-utd-arsenal-liverpool) - **Al Jazeera English**
+2. [Arteta urges 'respect' for process after Man City financial verdict](https://sports.yahoo.com/articles/arteta-urges-respect-process-man-150748977.html) - **Yahoo Entertainment**
+3. [Real Madrid presidential candidate looked into hiring Arteta](https://dailycannon.com/2026/10/arteta-real-madrid-riquelme/) - **Dailycannon.com**
+4. [Arteta calls for ‘process to be respected’ in Man City financial case](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261009-930-816777/) - **Dpa-international.com**
+5. [Liverpool v Manchester City: Preview, expected line-ups, stats and where to watch](https://www.101greatgoals.com/match-previews/premier-league-matches/liverpool-v-manchester-city-preview-expected-line-ups-stats-stream-where-to-watch/) - **101 Great Goals**
+6. [The Friedkin Group place Everton on the market with key takeover conditions](https://www.alloutsoccer.com/news/friedkin-group-everton-sale-conditions-2061546) - **Alloutsoccer.com**
+7. [Michael Carrick calls for Manchester United to receive titles if Manchester City are punished](https://www.footballmuse.com/news/michael-carrick-calls-for-manchester-united-to-receive-titles-if-manchester-city-are-punished) - **Footballmuse.com**
+8. [Liverpool receive update in chase for Chelsea star](https://anfieldindex.com/101627/liverpool-receive-update-in-chase-for-chelsea-star.html) - **Anfieldindex.com**
+9. [Arsenal vs Leeds United: Team news, key stats and everything you need to know](https://www.leedsunited.com/en/news/arsenal-vs-leeds-united-team-news-key-stats-and-everything-you-need-to-know) - **Leedsunited.com**
+10. [Chelsea handed boost with Moises Caicedo and Cole Palmer among FIVE stars 'ready to go' for Bournemouth after injuries](https://www.dailymail.com/sport/football/article-16196549/Chelsea-Moises-Caicedo-Cole-Palmer-FIVE-stars-ready-Bournemouth-injuries.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-10-10 17:58:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-11 00:13:41 (KST) / (하루 100회 제한 준수 중)*
