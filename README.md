@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Inside the £800m Everton sale: The moment the Friedkins knew they couldn't meet fans' demands, why absentee owners are confident of deal before end of season - and the signings they still want to make in January](https://www.dailymail.com/sport/football/article-16196875/Everton-sale-Friedkins-transfers-Moyes.html) - **Dailymail.com**
-2. [How the Premier League killed Arsenal's set-piece threat - and the fightback against winning ugly being led by referees, rulemakers... and towels](https://www.dailymail.com/sport/football/article-16194021/Arsenal-set-pieces-goals-Premier-League-referees-towels.html) - **Dailymail.com**
-3. [Barcelona vs Getafe – Predicted lineup and team news](https://thefootballfaithful.com/barcelona-vs-getafe-predicted-lineup/) - **The Football Faithful**
-4. [Barcelona vs Getafe – Match preview and team news](https://thefootballfaithful.com/barcelona-vs-getafe-match-preview/) - **The Football Faithful**
-5. [2026 College Football Week 6 Best Bets: 5 picks for Oct 10 including Alabama vs Georgia, USC, Notre Dame](https://www.nbcsports.com/betting/college-football/news/2026-college-football-week-6-best-bets-5-picks-for-oct-10-including-alabama-vs-georgia-usc-notre-dame) - **NBCSports.com**
-6. [Chanji Boys end People’s Elephant unbeaten run](https://punchng.com/chanji-boys-end-peoples-elephant-unbeaten-run/) - **The Punch**
-7. [Seminole Hard Rock Hotel & Casino Hollywood Unveils 'Zona de Fuego' Florida's First Fully Integrated Latin Gaming & Entertainment Experience](https://www.prnewswire.com/news-releases/seminole-hard-rock-hotel--casino-hollywood-unveils-zona-de-fuego-floridas-first-fully-integrated-latin-gaming--entertainment-experience-302903934.html) - **PRNewswire**
-8. [Iwobi, Aina, Ajayi lead Nigerians’ EPL comeback after international break](https://punchng.com/iwobi-aina-ajayi-lead-nigerians-epl-comeback-after-international-break/) - **The Punch**
-9. [Man City whistleblower to remain in witness protection](https://www.bbc.com/sport/football/articles/cq4g1xerk398o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Man City whistleblower to remain in witness protection](https://www.bbc.co.uk/sport/football/articles/cq4g1xerk398o) - **BBC News**
+1. [It's looking real, Premier League star to replace Alexis Mac Allister at Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/its-looking-real-premier-league-star-to-replace-alexis-mac-allister-at-liverpool/) - **Anfieldwatch.co.uk**
+2. [Champions League club considering adding ‘gentleman’s agreement’ to player’s deal to allow him to sign for United](https://utdreport.co.uk/2026/10/09/napoli-scott-mctominay-manchester-united-return/) - **Utdreport.co.uk**
+3. [Celtic decide against offering Bakayoko deal - gossip](https://www.bbc.com/sport/football/articles/c8r4ylzn6gkxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Celtic decide against offering Bakayoko deal - gossip](https://www.bbc.co.uk/sport/football/articles/c8r4ylzn6gkxo) - **BBC News**
+5. [Newcastle United signing from Leganes scores twice in 4-1 Premier League victory](https://www.themag.co.uk/2026/10/newcastle-united-signing-from-leganes-scores-twice-in-4-1-premier-league-victory/) - **The Mag**
+6. [Antonio Conte: Man United make key decision after Italian’s latest comments](https://thepeoplesperson.com/2026/10/09/antonio-conte-man-united-make-key-decision-after-italians-latest-comments-318475/) - **The Peoples Person**
+7. [Old Trafford reveals latest artwork to encapsulate club’s incredible history](https://thepeoplesperson.com/2026/10/10/man-united-unveil-new-old-trafford-mural-by-daniel-gudgeon-318589/) - **The Peoples Person**
+8. [Nick Woltemade’s Newcastle Future Looks Over With No Plans For A Return](https://roundtable.io/sports/soccer/premier-league/newcastle-united/news/nick-woltemade-s-newcastle-future-looks-over-with-no-plans-for-a-return) - **Roundtable.io**
+9. [Where to watch Chelsea vs. Bournemouth live stream, TV channel, start time for Premier League match](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7279f8e3-d2a7-43a6-97b9-bc2483cd4d3d) - **Yahoo Entertainment**
+10. [Bournemouth's Scott Blow: Can Christie Step Up Against Chelsea Today?](https://roundtable.io/sports/soccer/premier-league/afc-bournemouth/news/bournemouths-scott-blow-can-christie-step-up-against-chelsea-today) - **Roundtable.io**
 
 
 ---
-*최근 업데이트: 2026-10-11 10:38:42 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-11 16:49:44 (KST) / (하루 100회 제한 준수 중)*
