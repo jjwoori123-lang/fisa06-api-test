@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester United vs. Tottenham Hotspur: game time, live blog, and how to watch online](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-match-threads/74245/manchester-united-vs-tottenham-hotspur-game-time-live-blog-and-how-to-watch-online) - **SB Nation**
-2. [Arsenal beat Leeds 2-1 in comeback win to move level with Man City at top](https://www.aljazeera.com/sports/2026/10/10/arsenal-beat-leeds-2-1-in-comeback-win-to-move-level-with-man-city-at-top) - **Al Jazeera English**
-3. [Mikel Arteta hails Arsenal response against Leeds – ‘We had to restore our identity’](https://www.101greatgoals.com/football/premier-league/mikel-arteta-hails-arsenal-response-leeds/) - **101 Great Goals**
-4. [Super sub Bruno Guimaraes puts Arsenal’s title defence back on track with win over Leeds](https://www.the42.ie/arsenal-v-leeds-7189136-Oct2026/) - **The42**
-5. [Gudmundsson Gets 7.5, Justin With 7 | Leeds United Players Rated In Tough Loss Vs Arsenal](https://the4thofficial.net/2026/10/gudmundsson-gets-7-5-justin-with-7-leeds-united-players-rated-in-tough-loss-vs-arsenal/) - **The4thofficial.net**
-6. [Manchester City spent £1.388bn on players amid 9 years of financial charges](https://www.business-standard.com/sports/football-news/manchester-city-spent-1-388bn-on-players-amid-9-years-of-financial-charges-126101000813_1.html) - **Business Standard**
-7. [“I like that”: Carlos Baleba singles out what has impressed him about Kobbie Mainoo](https://thepeoplesperson.com/2026/10/10/carlos-baleba-praises-man-united-teammate-kobbie-mainoo-318637/) - **The Peoples Person**
-8. [⚡️ Chelsea blitz Bournemouth in early PL onslaught at the Bridge](https://onefootball.com/en/news/chelsea-blitz-bournemouth-in-early-pl-onslaught-at-the-bridge-43589793) - **Onefootball.com**
-9. [Chelsea v Bournemouth: Blues make club history with two goals in 149 seconds](https://www.101greatgoals.com/football/premier-league/chelsea-bournemouth-history-two-goals-149-seconds/) - **101 Great Goals**
-10. [Arsenal 2 – Leeds United 1 match report: job done](https://theshortfuse.sbnation.com/premier-league/37610/arsenal-2-leeds-united-1-match-report) - **SB Nation**
+1. [Jordan Henderson joins Cristiano Ronaldo in rare Premier League club with historic Chelsea performance](https://worldsoccertalk.com/news/jordan-henderson-joins-cristiano-ronaldo-in-rare-premier-league-club-with-historic-chelsea-performance/) - **Worldsoccertalk.com**
+2. [Man City guilty verdict reignites Liverpool rivalry](https://economictimes.indiatimes.com/news/sports/football/man-city-guilty-verdict-reignites-liverpool-rivalry-anfield/articleshow/134860732.cms) - **The Times of India**
+3. [EPL: Iwobi, Bassey’s Fulham remain winless after 2-1 defeat to Ipswich](https://punchng.com/epl-iwobi-basseys-fulham-remain-winless-after-2-1-defeat-to-ipswich/) - **The Punch**
+4. [Neville's Man Utd warning: 'Get a grip or face worrying few weeks'](https://www.skysports.com/football/news/13597587/gary-neville-warns-man-utd-players-to-get-a-grip-or-face-a-worrying-few-weeks-after-draw-with-10-man-spurs) - **Sky Sports**
+5. [Why we’re stuck with a Premier League in the clutches of the global mega-rich | Jonathan Wilson](https://biztoc.com/x/5cd63dca66004e3c) - **Biztoc.com**
+6. [Solanke saves wasteful Spurs - analysis](https://www.bbc.com/sport/football/articles/c9dr8y80d7e5o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Feckless Man United were dreadful and embarrassing at times. They almost got away with one, even after Rodrigo Bentancur's idiotic headbutt. But now Michael Carrick faces a week of reckoning, writes IAN LADYMAN](https://www.dailymail.com/sport/football/article-16195543/Feckless-Man-United-dreadful-embarrassing-Michael-Carrick.html) - **Dailymail.com**
+8. [Italy talent Palestra finally makes Chelsea debut](https://football-italia.net/italy-palestra-finally-makes-chelsea-debut/) - **Football Italia**
+9. [Manchester United 1-1 Tottenham Hotspur: Community Player Ratings](https://cartilagefreecaptain.sbnation.com/community-player-ratings/74261/manchester-united-vs-tottenham-hotspur-community-player-ratings) - **SB Nation**
+10. [This is amazing! Andoni Iraola confirms incredible Liverpool news](https://www.anfieldwatch.co.uk/liverpool-fc/news/this-is-amazing-andoni-iraola-confirms-incredible-liverpool-news/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-10-11 23:44:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-12 04:23:26 (KST) / (하루 100회 제한 준수 중)*
