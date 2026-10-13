@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mikel Arteta rules out Arsenal duo ahead of Champions League visit from Lille](https://www.alloutsoccer.com/news/arteta-arsenal-lille-hincapie-zubimendi-2065745) - **Alloutsoccer.com**
-2. [Lankshear could be key for Boro promotion aims](https://www.bbc.com/sport/football/articles/cm4g101ydng1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Steven Gerrard calls for Man City titles to be stripped if club are found guilty](https://footballtoday.com/2026/10/12/steven-gerrard-calls-for-man-city-titles-to-be-stripped-if-club-are-found-guilty/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=steven-gerrard-calls-for-man-city-titles-to-be-stripped-if-club-are-found-guilty) - **Footballtoday.com**
-4. [Coventry vs. Newcastle — Match Thread](https://cominghomenewcastle.sbnation.com/newcastle-united-match-threads/26401/coventry-vs-newcastle-match-thread) - **SB Nation**
-5. [Man City Champions League fixtures, results, squad and standings](https://www.101greatgoals.com/football/champions-league/man-city-champions-league-fixtures-games-results-squad-standings-schedule/) - **101 Great Goals**
-6. [Arsenal suffer unprecedented double injury setback, says Arteta](https://www.channelnewsasia.com/sport/arsenal-suffer-unprecedented-double-injury-setback-says-arteta-6453801) - **CNA**
-7. [49ers are officially the team to beat in the NFL after toppling Seahawks on the road](https://clutchpoints.com/nfl/nfl-stories/49ers-are-officially-the-team-to-beat-in-the-nfl-after-toppling-seahawks-on-the-road) - **ClutchPoints**
-8. [How to watch Atletico Madrid vs Manchester United live: Stream, TV channel, team news, prediction](https://www.nbcsports.com/soccer/news/how-to-watch-atletico-madrid-vs-manchester-united-live-stream-tv-channel-team-news-prediction) - **NBCSports.com**
-9. [SEC Power Rankings: Georgia rises to the top of the rankings](https://gatorswire.usatoday.com/story/sports/college/gators/football/2026/10/12/sec-power-rankings-week-6-florida-georgia-texas-kentucky/92212970007/) - **USA Today**
-10. [Manchester United Champions League fixtures, results, squad and standings](https://www.101greatgoals.com/football/champions-league/manchester-united-champions-league-fixtures-games-results-squad-standings-schedule/) - **101 Great Goals**
+1. [Shamrock Rovers take giant leap towards title as Dylan Watts downs Bohemians](https://www.irishtimes.com/sport/soccer/2026/10/12/shamrock-rovers-take-giant-leap-towards-title-as-dylan-watts-downs-bohemians/) - **The Irish Times**
+2. [Lampard keeping 'feet on ground' following big win over Newcastle](https://www.bbc.co.uk/sport/football/videos/cqvgrp5225z7o) - **BBC News**
+3. [Steven Gerrard rejects idea of retrospective Premier League medal amid Man City charges](https://www.alloutsoccer.com/news/gerrard-premier-league-title-city-2066102) - **Alloutsoccer.com**
+4. [Coventry beat Newcastle 4-1 to climb out of relegation zone](https://punchng.com/coventry-beat-newcastle-4-1-to-climb-out-of-relegation-zone/) - **The Punch**
+5. [Coventry hammer Toon for first top flight win in 25 years](https://www.rte.ie/sport/soccer/2026/1012/1594971-coventry-hammer-toon-for-first-top-flight-win-in-25-years/) - **RTE**
+6. [Coventry thrash Newcastle to claim first PL home win in 25 years](https://www.bbc.co.uk/sport/football/videos/c65y71z4rjj2o) - **BBC News**
+7. [Shamrock Rovers and Bohemians players clash at full-time as champions come out on top in derby](https://www.the42.ie/shamrock-rovers-bohemians-league-of-ireland-7191032-Oct2026/) - **The42**
+8. [Conte momentum grows as pressure mounts on Carrick at Manchester United](https://football-italia.net/conte-momentum-grows-carrick-manchester-united/) - **Football Italia**
+9. [Ryan Gomes still gets reminded of Jim Calhoun's infamous recruiting rant: ‘See it every year'](https://www.ctinsider.com/sports/uconn-mens-basketball/article/ryan-gomes-jim-calhoun-rant-providence-waterbury-22473897.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - **Ctinsider.com**
+10. [5 Fights Batman Definitely Should Not Have Won, Even With Prep Time](http://comicbook.com/comics/list/5-fights-batman-definitely-should-not-have-won-even-with-prep-time/) - **ComicBook.com**
 
 
 ---
-*최근 업데이트: 2026-10-14 01:59:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-14 06:47:24 (KST) / (하루 100회 제한 준수 중)*
