@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [£47m Liverpool deal for Lamine Camara now hinges on one factor](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-lamine-camara-monaco-trey-nyoni/) - **Anfieldwatch.co.uk**
-2. ['Investors must have a long-term view to unlock India's sports market potential': JioStar VC Uday Shankar](https://economictimes.indiatimes.com/industry/media/entertainment/media/investors-must-have-a-long-term-view-to-unlock-indias-sports-market-potential-jiostar-vc-uday-shankar/articleshow/134876853.cms) - **The Times of India**
-3. ['Investors must have a long-term view to unlock India's sports market potential': JioStar VC Uday Shankar](https://economictimes.indiatimes.com/industry/media/entertainment/media/investors-must-have-a-long-term-view-to-unlock-indias-sports-market-potential-jiostar-vc-uday-shankar/articleshow/134877000.cms) - **The Times of India**
-4. [Football Daily](https://www.bbc.co.uk/sounds/play/p0pg61sx?at_campaign=rss) - **BBC News**
-5. [Manchester United Are In The Mix To Sign This Atletico Madrid Winger: Good Fit For Carrick?](https://the4thofficial.net/2026/10/manchester-united-are-in-the-mix-to-sign-this-atletico-madrid-winger/) - **The4thofficial.net**
-6. [UK PM Burnham to release details of dealings with Manchester City](https://www.channelnewsasia.com/sport/uk-pm-burnham-release-details-dealings-manchester-city-6451426) - **CNA**
-7. [Who’s singing now? Maresca wants Man City to drown out noise](https://www.channelnewsasia.com/sport/whos-singing-now-maresca-wants-man-city-drown-out-noise-6451421) - **CNA**
-8. [West Ham’s 28-Year-Old Star On Why He Rejected Exit: Has Nuno Found His Promotion Weapon?](https://the4thofficial.net/2026/10/west-hams-28-year-old-star-on-why-he-rejected-exit-has-nuno-found-his-promotion-weapon/) - **The4thofficial.net**
-9. [Hits & Misses: Anderson and Wirtz offering opposite value for money](https://www.skysports.com/football/news/13597832/man-citys-elliot-anderson-deemed-a-bargain-while-florian-wirtz-fails-to-offer-return-on-liverpools-huge-investment-premier-league-hits-and-misses) - **Sky Sports**
-10. [Hits & Misses: Anderson and Wirtz offering opposite value for money](https://www.skysports.com/football/news/13597832/man-citys-elliot-anderson-deemed-a-bargain-while-florian-wirtz-fails-to-offer-return-on-liverpools-huge-investment-premier-league-hits-and-misses) - **Sky Sports**
+1. [32 things we learned in NFL Week 5: Star quarterbacks are playing better – finally](https://www.usatoday.com/story/sports/nfl/columnist/nate-davis/2026/10/11/nfl-week-5-takeaways-joe-burrow-drake-maye-jared-goff/92207279007/) - **USA Today**
+2. [Young Apostles in a hard-fought victory over Aduana FC](https://thechronicle.com.gh/young-apostles-in-a-hard-fought-victory-over-aduana-fc/) - **Thechronicle.com.gh**
+3. [AshantiGold secure 1-0 victory over Samartex](https://thechronicle.com.gh/ashantigold-secure-1-0-victory-over-samartex/) - **Thechronicle.com.gh**
+4. [All Blacks last-gasp penalty sinks Kotoko](https://thechronicle.com.gh/all-blacks-last-gasp-penalty-sinks-kotoko/) - **Thechronicle.com.gh**
+5. [Hearts end three-game winless run with narrow win over Port City](https://thechronicle.com.gh/hearts-end-three-game-winless-run-with-narrow-win-over-port-city/) - **Thechronicle.com.gh**
+6. ['Call it a day with VAR' - Rooney on Palace's controversial goal](https://www.bbc.co.uk/sport/football/videos/cqlyendmk7wyo) - **BBC News**
+7. ['It's a bad situation' - Why Man City win creates uncertainty](https://www.bbc.co.uk/sport/football/videos/cw073z5j55y9o) - **BBC News**
+8. [Lakers’ Walker Kessler ready to play with ‘so much joy’ after lost season](https://nypost.com/2026/10/11/sports/lakers-walker-kessler-ready-to-play-with-so-much-joy-after-lost-season/) - **New York Post**
+9. [Lakers’ Walker Kessler ready to play with ‘so much joy’ after lost season](https://nypost.com/2026/10/11/sports/lakers-walker-kessler-ready-to-play-with-so-much-joy-after-lost-season/?utm_source=yahoo&amp;utm_campaign=nypost&amp;utm_medium=referral) - **New York Post**
+10. [Liverpool's lack of depth exposed as Andoni Iraola's men crumbled far too easily against rampant Man City... the big-money signings failed to step up when needed, writes LEWIS STEELE](https://www.dailymail.com/sport/football/article-16195609/Liverpools-lack-depth-exposed-Andoni-Iraolas-men-crumbled-far-easily-against-rampant-Man-City-big-money-signings-failed-step-needed-writes-LEWIS-STEELE.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-10-13 04:40:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-13 10:53:05 (KST) / (하루 100회 제한 준수 중)*
