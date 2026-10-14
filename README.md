@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Today’s UEFA Champions League Fixtures & Previews](https://thechronicle.com.gh/todays-uefa-champions-league-fixtures-previews-25/) - **Thechronicle.com.gh**
-2. [Champions League expert picks, predictions, best bets: Man United face stiff test at Atletico](https://www.cbssports.com/soccer/news/champions-league-expert-picks-predictions-best-bets-matchday-2-2026/) - **CBS Sports**
-3. [Welcome to Country booing at Australia Cup final condemned](https://www.abc.net.au/news/2026-10-13/vic-australia-cup-final-booing/107258950) - **ABC News (AU)**
-4. [Leicester City for Sale: Got $300 Million to Buy a Former Champion?](https://heavy.com/sports/soccer/leicester-city-for-sale-300-million/) - **Heavy.com**
-5. [Coventry announce themselves back in the big time](https://www.bbc.com/sport/football/articles/cw78p7l7rp30o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Coventry announce themselves back in the big time](https://www.bbc.co.uk/sport/football/articles/cw78p7l7rp30o) - **BBC News**
-7. [Who has made Troy's Premier League team of the week?](https://www.bbc.co.uk/sport/football/articles/cme36q1gnpnlo) - **BBC News**
-8. [Jaissle sorry for Coventry loss as Carra says Newcastle 'beaten up' again](https://www.skysports.com/football/news/13598360/matthias-jaissle-newcastle-boss-apologises-for-coventry-loss-as-jamie-carragher-says-they-were-beaten-up) - **Sky Sports**
-9. [Matthias Jaissle hits out at Newcastle's lack of 'desire and hunger to score' after humbling at Coventry](https://www.dailymail.com/sport/football/article-16203825/Matthias-Jaissle-Newcastles-lack-desire-hunger.html) - **Dailymail.com**
-10. [Stephen Bradley says four red cards shown after Shamrock Rovers’ win over Bohemians](https://www.irishtimes.com/sport/soccer/2026/10/12/stephen-bradley-says-four-red-cards-shown-after-shamrock-rovers-win-over-bohemians/) - **The Irish Times**
+1. [Is Man Utd's Fernandes issue a symptom or reason for their form?](https://www.bbc.com/sport/football/articles/cr4g10nz0593o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Michael Carrick makes decision on selling out-of-favour Red mid-season after what he saw vs Tottenham](https://utdreport.co.uk/2026/10/13/michael-carrick-joshua-zirkzee-decision-manchester-united-sale/) - **Utdreport.co.uk**
+3. [Andrey Santos: Steven Gerrard delivers brutal verdict on Man United midfielder](https://thepeoplesperson.com/2026/10/13/steven-gerrard-says-andrey-santos-not-good-enough-for-man-united-318916/) - **The Peoples Person**
+4. [How NRL's Super League bid could revive a fallen giant](https://www.abc.net.au/news/2026-10-13/how-nrl-s-super-league-bid-could-revive-a-fallen-giant/107261024) - **ABC News (AU)**
+5. [Chemsdine Talbi: Why Is Sunderland’s Talented Winger Being Frozen Out?](https://rokerreport.sbnation.com/opinion/155999/chemsdine-talbis-sunderland-situation-is-helping-nobody) - **SB Nation**
+6. [Sunderland Raised the Standards – So Why Can’t We Want More?](https://rokerreport.sbnation.com/opinion/156111/sunderland-raised-the-standards-so-why-cant-we-want-more) - **SB Nation**
+7. [It might surprise you, but Paul George gets your ire over the Celtics Jaylen Brown trade](https://celticswire.usatoday.com/story/sports/nba/celtics/2026/10/13/paul-george-gets-your-ire-over-the-celtics-jaylen-brown-trade/92227861007/) - **USA Today**
+8. [2027 NFL Mock Draft: Titans Land Jeremiah Smith at No. 1 as Jets Trade up for QB](https://www.essentiallysports.com/nfl-active-news-twenty-twenty-seven-nfl-mock-draft-titans-land-jeremiah-smith-at-no-one-as-jets-trade-up-for-qb/) - **Essentially Sports**
+9. [Fabrizio Romano details what he’s hearing from inside United about Carrick’s imminent future](https://thepeoplesperson.com/2026/10/13/fabrizio-romano-details-what-hes-hearing-from-inside-united-about-carricks-imminent-future-318912/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-10-14 09:56:38 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-14 14:58:42 (KST) / (하루 100회 제한 준수 중)*
