@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Shamrock Rovers take giant leap towards title as Dylan Watts downs Bohemians](https://www.irishtimes.com/sport/soccer/2026/10/12/shamrock-rovers-take-giant-leap-towards-title-as-dylan-watts-downs-bohemians/) - **The Irish Times**
-2. [Lampard keeping 'feet on ground' following big win over Newcastle](https://www.bbc.co.uk/sport/football/videos/cqvgrp5225z7o) - **BBC News**
-3. [Steven Gerrard rejects idea of retrospective Premier League medal amid Man City charges](https://www.alloutsoccer.com/news/gerrard-premier-league-title-city-2066102) - **Alloutsoccer.com**
-4. [Coventry beat Newcastle 4-1 to climb out of relegation zone](https://punchng.com/coventry-beat-newcastle-4-1-to-climb-out-of-relegation-zone/) - **The Punch**
-5. [Coventry hammer Toon for first top flight win in 25 years](https://www.rte.ie/sport/soccer/2026/1012/1594971-coventry-hammer-toon-for-first-top-flight-win-in-25-years/) - **RTE**
-6. [Coventry thrash Newcastle to claim first PL home win in 25 years](https://www.bbc.co.uk/sport/football/videos/c65y71z4rjj2o) - **BBC News**
-7. [Shamrock Rovers and Bohemians players clash at full-time as champions come out on top in derby](https://www.the42.ie/shamrock-rovers-bohemians-league-of-ireland-7191032-Oct2026/) - **The42**
-8. [Conte momentum grows as pressure mounts on Carrick at Manchester United](https://football-italia.net/conte-momentum-grows-carrick-manchester-united/) - **Football Italia**
-9. [Ryan Gomes still gets reminded of Jim Calhoun's infamous recruiting rant: ‘See it every year'](https://www.ctinsider.com/sports/uconn-mens-basketball/article/ryan-gomes-jim-calhoun-rant-providence-waterbury-22473897.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - **Ctinsider.com**
-10. [5 Fights Batman Definitely Should Not Have Won, Even With Prep Time](http://comicbook.com/comics/list/5-fights-batman-definitely-should-not-have-won-even-with-prep-time/) - **ComicBook.com**
+1. [Today’s UEFA Champions League Fixtures & Previews](https://thechronicle.com.gh/todays-uefa-champions-league-fixtures-previews-25/) - **Thechronicle.com.gh**
+2. [Champions League expert picks, predictions, best bets: Man United face stiff test at Atletico](https://www.cbssports.com/soccer/news/champions-league-expert-picks-predictions-best-bets-matchday-2-2026/) - **CBS Sports**
+3. [Welcome to Country booing at Australia Cup final condemned](https://www.abc.net.au/news/2026-10-13/vic-australia-cup-final-booing/107258950) - **ABC News (AU)**
+4. [Leicester City for Sale: Got $300 Million to Buy a Former Champion?](https://heavy.com/sports/soccer/leicester-city-for-sale-300-million/) - **Heavy.com**
+5. [Coventry announce themselves back in the big time](https://www.bbc.com/sport/football/articles/cw78p7l7rp30o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Coventry announce themselves back in the big time](https://www.bbc.co.uk/sport/football/articles/cw78p7l7rp30o) - **BBC News**
+7. [Who has made Troy's Premier League team of the week?](https://www.bbc.co.uk/sport/football/articles/cme36q1gnpnlo) - **BBC News**
+8. [Jaissle sorry for Coventry loss as Carra says Newcastle 'beaten up' again](https://www.skysports.com/football/news/13598360/matthias-jaissle-newcastle-boss-apologises-for-coventry-loss-as-jamie-carragher-says-they-were-beaten-up) - **Sky Sports**
+9. [Matthias Jaissle hits out at Newcastle's lack of 'desire and hunger to score' after humbling at Coventry](https://www.dailymail.com/sport/football/article-16203825/Matthias-Jaissle-Newcastles-lack-desire-hunger.html) - **Dailymail.com**
+10. [Stephen Bradley says four red cards shown after Shamrock Rovers’ win over Bohemians](https://www.irishtimes.com/sport/soccer/2026/10/12/stephen-bradley-says-four-red-cards-shown-after-shamrock-rovers-win-over-bohemians/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-10-14 06:47:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-14 09:56:38 (KST) / (하루 100회 제한 준수 중)*
