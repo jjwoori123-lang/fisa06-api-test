@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [MLB's Salary Cap Fight Isn't About Competitive Balance, It's About Limiting Labor Costs](https://reason.com/2026/10/13/mlbs-salary-cap-fight-isnt-about-competitive-balance-its-about-limiting-labor-costs/) - **Reason**
-2. [MLB's Salary Cap Fight Isn't About Competitive Balance, It's About Limiting Labor Costs](https://sports.yahoo.com/articles/mlbs-salary-cap-fight-isnt-155521982.html) - **Yahoo Entertainment**
-3. [‘Knowing him…’ – Milos Kerkez hints at when Dominik Szoboszlai could return from injury](https://www.empireofthekop.com/2026/10/13/kerkez-hints-at-when-szoboszlai-could-return-from-injury/) - **Empire of The Kop**
-4. [Week 6 Fantasy Waiver Wire: Woody Marks, Dameon Pierce, Brenton Strange, Germie Bernard and MORE](https://www.thesportingtribune.com/2026/10/13/nfl-week-6-fantasy-waiver-wire) - **Thesportingtribune.com**
-5. [Jaissle explains why Woltemade joined Juventus on loan: ‘Still one of our players’](https://football-italia.net/jaissle-explains-why-woltemade-joined-juventus/) - **Football Italia**
-6. [West Ham have to fix slow starts - Nuno](https://www.bbc.co.uk/sport/football/articles/ckx2qwd0g728o) - **BBC News**
-7. [Team of the Week: The Best Italian players in Europe, featuring Calafiori, Tonali and Maldini](https://football-italia.net/italian-team-of-the-week-best-europe-calafiori/) - **Football Italia**
-8. [Rajputana Royals Revive APL Campaign](https://www.rediff.com/sports/report/rajputana-royals-outplay-chero-archers-in-archery-premier-league/20261013.htm) - **Rediff.com**
-9. [Champions League: How to watch Atletico Madrid vs. Man United live for free](https://nypost.com/2026/10/13/sports/champions-league-how-to-watch-atletico-madrid-man-united-for-free/) - **New York Post**
-10. [Expected Goals stats tell the very real story after Coventry City 4 Newcastle United 1](https://www.themag.co.uk/2026/10/expected-goals-stats-tell-the-very-real-story-after-coventry-city-4-newcastle-united-1/) - **The Mag**
+1. [Porro eyes La Liga return - Wednesday's gossip](https://www.bbc.co.uk/sport/football/articles/cm62yxegwy41o) - **BBC News**
+2. [Richarlison scores for Spurs Under-21s in EFL Trophy](https://www.bbc.com/sport/football/articles/cx4g141vpe3eo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Richarlison scores for Spurs Under-21s in EFL Trophy](https://www.bbc.co.uk/sport/football/articles/cx4g141vpe3eo) - **BBC News**
+4. [Steven Gerrard hits back at 'disrespectful' claims aimed at Chelsea's Jordan Henderson](https://www.alloutsoccer.com/news/liverpool-gerrard-chelsea-henderson-claims-2067645) - **Alloutsoccer.com**
+5. [Man City deserve to keep titles — PSG’s Luis Enrique](https://punchng.com/man-city-deserve-to-keep-titles-psgs-luis-enrique/) - **The Punch**
+6. [Erling Haaland’s latest message reveals the growing pressure surrounding Manchester City](https://gamedaychatter.com/erling-haalands-latest-message-reveals-the-growing-pressure-surrounding-manchester-city/) - **Gamedaychatter.com**
+7. [Soccer executive warns he will quit if UK government interferes in Manchester City case](https://www.alloutsoccer.com/news/kogan-quit-government-city-case-2067614) - **Alloutsoccer.com**
+8. [PSG’s Luis Enrique Hopes Man City Avoids Sanctions After Financial Rules Verdict](https://www.foxsports.com/stories/soccer/psg-coach-luis-enrique-says-man-city-deserved-trophies-despite-financial-breach-ruling) - **Fox Sports**
+9. [Arsenal wants 23-year-old Inter Milan star](https://www.justarsenal.com/arsenal-wants-23-year-old-inter-milan-star/423751) - **Just Arsenal News**
+10. [Manchester United's crisis hits new low in Madrid ](https://onefootball.com/en/news/manchester-uniteds-crisis-hits-new-low-in-madrid-43607097) - **Onefootball.com**
 
 
 ---
-*최근 업데이트: 2026-10-15 00:57:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-15 05:07:53 (KST) / (하루 100회 제한 준수 중)*
