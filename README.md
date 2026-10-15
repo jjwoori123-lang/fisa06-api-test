@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Lisandro Martinez slams Man United hierarchy after Champions League loss](https://www.business-standard.com/sports/football-news/lisandro-martinez-slams-man-united-hierarchy-after-champions-league-loss-126101400196_1.html) - **Business Standard**
-2. ['Awful' and 'disrespectful' - Carra and Rooney criticise Martinez outburst](https://www.skysports.com/football/news/13599115/lisandro-martinez-jamie-carragher-says-man-utd-defenders-comments-criticising-hierarchy-are-awful-as-wayne-rooney-brands-them-disrespectful) - **Sky Sports**
-3. [IPL 2027: DC rope in Yuvraj Singh as new assistant and batting coach](https://www.business-standard.com/cricket/ipl/ipl-2027-dc-rope-in-yuvraj-singh-as-new-assistant-and-batting-coach-126101301165_1.html) - **Business Standard**
-4. [Lisandro Martinez was absolutely right to call out Man United's hierarchy - Jason Wilcox has got away with not fronting up for too long but expect nuclear ramifications, writes NATHAN SALT](https://www.dailymail.com/sport/football/article-16204597/Lisandro-Martinez-absolutely-right-call-Man-Uniteds-hierarchy-Jason-Wilcox-got-away-not-fronting-long-expect-nuclear-ramifications-writes-NATHAN-SALT.html) - **Dailymail.com**
-5. [Dewsbury-Hall Shows Leadership at Everton With Thierno Barry Comments](https://roundtable.io/sports/soccer/premier-league/everton/news/dewsbury-hall-shows-leadership-at-everton-with-thierno-barry-comments) - **Roundtable.io**
-6. [Both Man City and Paris Saint-Germain breached football's financial regulations, but the Gulf state rivals could not have dealt with scrutiny more differently, writes IAN HERBERT](https://www.dailymail.com/sport/article-16205833/Both-Man-City-Paris-Saint-Germain-breached-footballs-financial-regulations-Gulf-state-rivals-not-dealt-scrutiny-differently-writes-IAN-HERBERT.html) - **Dailymail.com**
-7. [Both Man City and Paris Saint-Germain breached football's financial regulations, but the Gulf state rivals could not have dealt with scrutiny more differently, writes IAN HERBERT](https://www.dailymail.com/sport/article-16205833/Both-Man-City-Paris-Saint-Germain-breached-footballs-financial-regulations-Gulf-state-rivals-not-dealt-scrutiny-differently-writes-IAN-HERBERT.html) - **Dailymail.com**
-8. [How did these go in?! Top five most unlikely PL goals so far in 2026/27 (according to xG)](https://www.skysports.com/football/video/13598908/top-five-most-unlikely-premier-league-goals-so-far-in-2026-27-according-to-xg) - **Sky Sports**
-9. [From Albufeira to Leiria: A Reflection on How Far We’ve Come](https://rokerreport.sbnation.com/opinion/156153/from-albufeira-to-leiria-a-reflection-on-how-far-weve-come) - **SB Nation**
+1. [Fulham manager Arbeloa fined for Man Utd refereeing outburst](https://www.aljazeera.com/sports/2026/10/14/fulham-manager-arbeloa-fined-for-man-utd-refereeing-outburst) - **Al Jazeera English**
+2. [Mexicans Abroad: Round-Up](https://www.fmfstateofmind.com/mexicans-abroad/27737/mexicans-abroad-round-up) - **Fmfstateofmind.com**
+3. [What is wrong with Bruno Fernandes?](https://www.skysports.com/football/news/13599170/bruno-fernandes-what-has-happened-to-the-form-of-man-utds-best-player-and-should-michael-carrick-drop-him) - **Sky Sports**
+4. [Houston Astros roster analysis: Shortstop. Will Jeremy Peña get extension and buck trend?](https://www.houstonchronicle.com/sports/astros/article/houston-astros-roster-analysis-jeremy-pe-a-22475893.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - **Houston Chronicle**
+5. [Manchester United: Don’t blame Carrick, Wilcox, or even Ratcliffe. The Glazers remain the root of the problem](https://www.101greatgoals.com/football/premier-league/manchester-united-michael-carrick-jason-wilcox-jim-ratcliffe-glazers-remain-root-problem/) - **101 Great Goals**
+6. [Regulator expects Man City appeal to be heard by January](https://economictimes.indiatimes.com/news/sports/football/regulator-expects-man-city-appeal-to-be-heard-by-january/articleshow/134941555.cms) - **The Times of India**
+7. [Andy Burnham responds to growing pressure around his relationship with Man City's owners after 'secret freebies from Abu Dhabi chiefs were DELETED from the public record'](https://www.dailymail.com/sport/football/article-16208071/Andy-Burnham-Man-City-Abu-Dhabi-deleted-records.html) - **Dailymail.com**
+8. [“Different energy”: Carlos Baleba was on another level from his team-mates on Man United debut, says Quinton Fortune](https://thepeoplesperson.com/2026/10/14/wes-brown-praises-carlos-baleba-after-man-united-debut-319154/) - **The Peoples Person**
+9. [Fulham manager Arbeloa fined £25,000 after Man Utd outburst](https://sports.yahoo.com/articles/fulham-manager-arbeloa-fined-25-112724682.html) - **Yahoo Entertainment**
+10. [Fulham's Arbeloa fined over comments implying bias after Man United draw](https://www.channelnewsasia.com/sport/fulhams-arbeloa-fined-over-comments-implying-bias-after-man-united-draw-6458881) - **CNA**
 
 
 ---
-*최근 업데이트: 2026-10-15 15:25:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-15 21:05:41 (KST) / (하루 100회 제한 준수 중)*
