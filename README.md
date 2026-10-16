@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Report: European giants remain interested in move for Liverpool star](https://eplindex.com/151450/report-european-giants-remain-interested-in-move-for-liverpool-star.html) - **English Premier League Index - Opta Stats**
-2. [Southgate has not been to football match in 18 months](https://www.rte.ie/sport/soccer/2026/1015/1595505-southgate-has-not-been-to-football-match-in-18-months/) - **RTE**
-3. [Fantasy Premier League 2026/27 : Manchester City duo headline five players to consider ahead of Gameweek 7](https://www.101greatgoals.com/football/fantasy/fpl-2026-27-manchester-city-duo-headline-five-players-need-gameweek-7/) - **101 Great Goals**
-4. [Ticket information for Spurs clash](https://www.leedsunited.com/en/news/ticket-information-for-spurs-clash) - **Leedsunited.com**
-5. [Eddie Howe turns down Champions League club amid growing links to Man United job](https://thepeoplesperson.com/2026/10/15/eddie-howe-rejects-lens-approach-amid-man-united-manager-links-319244/) - **The Peoples Person**
-6. [Antonio Conte launches major fresh move to replace Michael Carrick at Man United](https://thepeoplesperson.com/2026/10/15/antonio-conte-pushes-to-replace-michael-carrick-at-man-united-319249/) - **The Peoples Person**
-7. [PREVIEW | Everton vs Chelsea: team news, lineups, predictions (Premier League 17/10)](https://www.playmakerstats.com/news/preview-everton-vs-chelsea-team-news-lineups-predictions-premier-league-17-10/1227745) - **Playmakerstats.com**
-8. [Southgate does not foresee a return to management](https://sports.yahoo.com/articles/southgate-does-not-forsee-return-111839990.html) - **Yahoo Entertainment**
-9. [Everton's Thierno Barry on the video he was scared to post](https://www.bbc.com/news/articles/cq8rzgry7dgko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Allan Saint-Maximin brings insane tekkers to Charlotte FC](https://www.mlssoccer.com/news/allan-saint-maximin-brings-insane-tekkers-to-charlote-fc) - **MLSsoccer.com**
+2. [Louis van Gaal believes Man City financial scandal contributed to Man Utd sacking](https://footballtoday.com/2026/10/15/louis-van-gaal-believes-man-city-financial-scandal-contributed-to-man-utd-sacking/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=louis-van-gaal-believes-man-city-financial-scandal-contributed-to-man-utd-sacking) - **Footballtoday.com**
+3. [Newcastle boss Jaissle says Fernandez-Pardo just needs a goal](https://sports.yahoo.com/articles/newcastle-boss-jaissle-says-fernandez-160750513.html) - **Yahoo Entertainment**
+4. [The Champions Cup is on life support and if European rugby chiefs don't act now, the unthinkable will happen. Here are four ways to save the jewel in the sport's crown from extinction, writes ALEX BYWATER](https://www.dailymail.com/sport/rugbyunion/article-16208871/Champions-Cup-life-support-European-rugby.html) - **Dailymail.com**
+5. [Roy Keane criticizes Bruno Fernandes and Harry Maguire after Lisandro Martínez outburst](https://www.alloutsoccer.com/news/united-keane-fernandes-maguire-martinez-2070835) - **Alloutsoccer.com**
+6. [Low viewing figures, copy-cat content and a passion for his own voice: DOLLY BUSBY reviews the podcast launch Amol Rajan's new venture](https://www.dailymail.com/tvshowbiz/article-16212201/viewing-figures-DOLLY-BUSBY-reviews-podcast-Amol-Rajan.html) - **Dailymail.com**
+7. [Liverpool Confidential: Boost in Alex Scott hunt as Bournemouth sources say Reds in 'driving seat' for £100m midfielder, truth about Dominik Szoboszlai injury rumours and Giovanni Leoni update](https://www.dailymail.com/sport/football/article-16208237/liverpool-alex-scott-transfer-Szoboszlai-Leoni.html) - **Dailymail.com**
+8. [Power Rankings: The top sporting schools in New Zealand in 2026](https://www.nzherald.co.nz/nz/power-rankings-the-top-sporting-schools-in-new-zealand-in-2026/premium/5K6GBDLEKZAK3PTOMVL4QJHBIM/) - **New Zealand Herald**
+9. [Arsenal could have signed Barcelona man instead of Guimaraes](https://www.justarsenal.com/arsenal-could-have-signed-barcelona-man-instead-of-guimaraes/423873) - **Just Arsenal News**
+10. [Giovanni Leoni’s return from injury delayed in fresh blow to Liverpool](https://www.irishtimes.com/sport/soccer/2026/10/15/giovanni-leonis-return-from-injury-delayed-in-fresh-blow-to-liverpool/) - **The Irish Times**
 
 
 ---
-*최근 업데이트: 2026-10-16 20:53:12 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-17 01:18:06 (KST) / (하루 100회 제한 준수 중)*
