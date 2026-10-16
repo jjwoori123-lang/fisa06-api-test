@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Allan Saint-Maximin brings insane tekkers to Charlotte FC](https://www.mlssoccer.com/news/allan-saint-maximin-brings-insane-tekkers-to-charlote-fc) - **MLSsoccer.com**
-2. [Louis van Gaal believes Man City financial scandal contributed to Man Utd sacking](https://footballtoday.com/2026/10/15/louis-van-gaal-believes-man-city-financial-scandal-contributed-to-man-utd-sacking/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=louis-van-gaal-believes-man-city-financial-scandal-contributed-to-man-utd-sacking) - **Footballtoday.com**
-3. [Newcastle boss Jaissle says Fernandez-Pardo just needs a goal](https://sports.yahoo.com/articles/newcastle-boss-jaissle-says-fernandez-160750513.html) - **Yahoo Entertainment**
-4. [The Champions Cup is on life support and if European rugby chiefs don't act now, the unthinkable will happen. Here are four ways to save the jewel in the sport's crown from extinction, writes ALEX BYWATER](https://www.dailymail.com/sport/rugbyunion/article-16208871/Champions-Cup-life-support-European-rugby.html) - **Dailymail.com**
-5. [Roy Keane criticizes Bruno Fernandes and Harry Maguire after Lisandro Martínez outburst](https://www.alloutsoccer.com/news/united-keane-fernandes-maguire-martinez-2070835) - **Alloutsoccer.com**
-6. [Low viewing figures, copy-cat content and a passion for his own voice: DOLLY BUSBY reviews the podcast launch Amol Rajan's new venture](https://www.dailymail.com/tvshowbiz/article-16212201/viewing-figures-DOLLY-BUSBY-reviews-podcast-Amol-Rajan.html) - **Dailymail.com**
-7. [Liverpool Confidential: Boost in Alex Scott hunt as Bournemouth sources say Reds in 'driving seat' for £100m midfielder, truth about Dominik Szoboszlai injury rumours and Giovanni Leoni update](https://www.dailymail.com/sport/football/article-16208237/liverpool-alex-scott-transfer-Szoboszlai-Leoni.html) - **Dailymail.com**
-8. [Power Rankings: The top sporting schools in New Zealand in 2026](https://www.nzherald.co.nz/nz/power-rankings-the-top-sporting-schools-in-new-zealand-in-2026/premium/5K6GBDLEKZAK3PTOMVL4QJHBIM/) - **New Zealand Herald**
-9. [Arsenal could have signed Barcelona man instead of Guimaraes](https://www.justarsenal.com/arsenal-could-have-signed-barcelona-man-instead-of-guimaraes/423873) - **Just Arsenal News**
-10. [Giovanni Leoni’s return from injury delayed in fresh blow to Liverpool](https://www.irishtimes.com/sport/soccer/2026/10/15/giovanni-leonis-return-from-injury-delayed-in-fresh-blow-to-liverpool/) - **The Irish Times**
+1. [Lisandro Martínez apologizes after meeting with Michael Carrick and Manchester United bosses](https://www.alloutsoccer.com/news/lisandro-martinez-apologizes-carrick-united-2071129) - **Alloutsoccer.com**
+2. [Sutton's predictions v boxer & Ipswich fan Fabio Wardley](https://www.bbc.co.uk/sport/football/articles/crgqwvnnyv30o) - **BBC News**
+3. [PSG brings embattled Man City down to earth after pre-match show of defiance in the Champions League](https://economictimes.indiatimes.com/news/sports/football/psg-brings-embattled-man-city-down-to-earth-after-pre-match-show-of-defiance-in-the-champions-league/articleshow/134975907.cms) - **The Times of India**
+4. [Lyon 3-2 Crystal Palace: Eagles suffer Europa League defeat despite spirited second-half comeback](https://footballtoday.com/2026/10/15/lyon-3-2-crystal-palace-eagles-suffer-europa-league-defeat-despite-spirited-second-half-comeback/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=lyon-3-2-crystal-palace-eagles-suffer-europa-league-defeat-despite-spirited-second-half-comeback) - **Footballtoday.com**
+5. [Dedic To Start, Willock On The Bench | 4-2-3-1 Newcastle United Predicted Lineup Vs Aston Villa](https://the4thofficial.net/2026/10/dedic-to-start-willock-on-the-bench-4-2-3-1-newcastle-united-predicted-lineup-vs-aston-villa/) - **The4thofficial.net**
+6. [Regis Le Bris’s Sunderland: You’re either All in or You’re Out](https://sports.yahoo.com/articles/regis-le-bris-sunderland-either-191813362.html) - **Yahoo Entertainment**
+7. [Gareth Southgate suggests he will NEVER manage in the Premier League again - as former England boss admits he 'stopped enjoying' wins and hasn't been to a game in 18 months](https://www.dailymail.com/sport/football/article-16212859/Gareth-Southgate-manage-Premier-League-England.html) - **Dailymail.com**
+8. [Tottenham eye free transfer swoop for Real Madrid veteran defender – report](https://madriduniversal.com/tottenham-eye-free-transfer-swoop-for-real-madrid-veteran-defender-report/) - **Madriduniversal.com**
+9. [Mac Allister, Van Dijk and Kerkez To Start | 4-2-3-1 Liverpool Predicted Lineup Vs Brentford](https://the4thofficial.net/2026/10/mac-allister-van-dijk-and-kerkez-to-start-4-2-3-1-liverpool-predicted-lineup-vs-brentford/) - **The4thofficial.net**
+10. [Buzzing Adam Lawrence hails “exciting” Dan Armer after brilliant achievement under Carrick](https://thepeoplesperson.com/2026/10/15/adam-lawrence-praises-dan-armer-after-man-united-squad-call-up-319279/) - **The Peoples Person**
 
 
 ---
-*최근 업데이트: 2026-10-17 01:18:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-17 04:35:46 (KST) / (하루 100회 제한 준수 중)*
