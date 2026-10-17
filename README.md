@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [When will New Zealand league fans stop expecting a fair go? – Paul Lewis](https://www.nzherald.co.nz/sport/rugby-league/when-will-new-zealand-league-fans-stop-expecting-a-fair-go-paul-lewis/premium/AURLHW7ML5CZPKY2CBXVBEFT4Y/) - **New Zealand Herald**
-2. [Week 6 Yahoo Fantasy x Arena Club Slab Packs: Josh Allen, Puka Nacua among chase cards](https://sports.yahoo.com/fantasy/article/week-6-yahoo-fantasy-x-arena-club-slab-packs-josh-allen-puka-nacua-among-chase-cards-235904540.html) - **Yahoo Entertainment**
-3. [I picked basketball after a lady outplayed me – MVP Offia](https://punchng.com/i-picked-basketball-after-a-lady-outplayed-me-mvp-offia/) - **The Punch**
-4. [Dikko preaches unity as Abdullahi emerges new NBBF boss](https://punchng.com/dikko-preaches-unity-as-abdullahi-emerges-new-nbbf-boss/) - **The Punch**
-5. [Former ref jumps to Osimhen’s defense](https://punchng.com/former-ref-jumps-to-osimhens-defense/) - **The Punch**
-6. [Breaking: Mexico’s starting striker Raul Jimenez to be sidelined with MCL injury](https://www.fmfstateofmind.com/mexicans-abroad/27751/breaking-mexicos-starting-striker-raul-jimenez-to-be-sidelined-with-mcl-injury) - **Fmfstateofmind.com**
-7. [Celtic Fan Outrage Erupts Amid Benfica Europa League Clash](https://heavy.com/sports/soccer/celtic-fan-outrage-erupts-amid-benfica-europa-league-clash/) - **Heavy.com**
-8. [Burnham left squirming over dealings with City: He is forced to order fresh 'trawl' of gifts and freebies](https://www.dailymail.com/news/article-16213189/Burnham-dealings-City-forced-order-gifts-freebies.html) - **Dailymail.com**
-9. [Papers: Conte tells Man Utd he's ready to take over if Carrick sacked](https://www.skysports.com/football/transfer-paper-talk/13599794/manchester-united-latest-antonio-conte-tells-man-utd-hes-ready-to-take-over-if-michael-carrick-is-sacked-paper-talk) - **Sky Sports**
-10. [Minus 17 to European dreams as Bournemouth fairytale continues](https://www.bbc.com/sport/football/articles/c6lyez88m1n2o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [‘Zero Minutes at SF,’ ‘Kinda Crazy’ — NBA Fans Perplexed As GMs Vote Lakers Guard Luka Dončić the League’s ‘Best Small Forward’](https://www.profootballnetwork.com/nba/luka-doncic-gm-survey-small-forward/?utm_medium=rss&amp;utm_source=nordot) - **Pro Football Network**
+2. [Bayern Munich News: FC Bayern still monitoring Liverpool’s Florian Wirtz; Bayern tracking Nicolò Tresoldi; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/268181/bayern-munich-liverpool-wirtz-tresoldi-fc-barcelona-olmo-chelsea-de-jong-manchester-united) - **Bavarian Football Works**
+3. [Swans' squad depth is best since relegation - Fulton](https://www.bbc.com/sport/football/articles/cmvg670v3j23o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Swans' squad depth is best since relegation - Fulton](https://www.bbc.co.uk/sport/football/articles/cmvg670v3j23o) - **BBC News**
+5. [Why is there growing optimism at Newport County?](https://www.bbc.com/sport/football/articles/cwd09lr0vzpko?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Instant reaction: Broncos upend Seahawks in overtime thriller on Thursday Night Football](https://www.milehighreport.com/denver-broncos-news/189046/instant-reaction-broncos-upend-seahawks-in-overtime-thriller-on-thursday-night-football) - **Mile High Report**
+7. [Patriots 1st Pro Bowler Ever Dies at 84](https://heavy.com/sports/nfl/new-england-patriots/patriots-first-franchise-pro-bowler-dies-at-84/) - **Heavy.com**
+8. [How to watch Samoa vs France for FREE: Live streams for Rugby League World Cup 2026 game](https://www.techradar.com/how-to-watch/rugby/samoa-vs-france-free-rugby-league-world-cup-2026) - **TechRadar**
+9. [Martinez apologises for criticising Man Utd hierarchy](https://www.rediff.com/sports/report/lisandro-martinez-apologises-to-man-united-after-comments-following-atletico-madrid-defeat/20261016.htm) - **Rediff.com**
+10. [Carmelo Anthony reveals pick for best 2-way player in the league today](https://clutchpoints.com/nba/philadelphia-76ers/nba-news-carmelo-anthony-best-two-way-player-jaylen-brown) - **ClutchPoints**
 
 
 ---
-*최근 업데이트: 2026-10-17 09:34:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-17 13:58:06 (KST) / (하루 100회 제한 준수 중)*
