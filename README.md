@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Argyle's Irow wins League One goal of the month award](https://www.bbc.com/sport/football/articles/cwdd8z0g92vmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [No Room For Racism Takeover](https://www.mancity.com/news/mens/no-room-for-racism-takeover-63927736) - **Manchester City FC**
-3. [Subscribe to CITY+ for live audio commentary of Ipswich clash](https://www.mancity.com/news/mens/manchester-city-ipswich-town-live-audio-commentary-63927737) - **Manchester City FC**
-4. [Chelsea's Reece James has surgery over knee issue](https://www.bbc.co.uk/sport/football/articles/cq073d9l0ly9o) - **BBC News**
-5. [Chelsea confirm captain Reece James has undergone knee surgery after suffering training injury that ruled him out of 5-1 win over Bournemouth](https://www.dailymail.com/sport/football/article-16214089/Chelsea-confirm-captain-Reece-James-undergone-knee-surgery.html) - **Dailymail.com**
-6. [Calafiori: Arsenal title win ‘the best day of my life’ but some players wanted to skip parade](https://football-italia.net/calafiori-arsenal-title-best-day-life-parade/) - **Football Italia**
-7. [A week in a castle for €99,000: The eye-watering cost of Ryder Cup accommodation](https://www.irishtimes.com/sport/2026/10/16/a-week-in-a-castle-for-99000-the-eye-watering-cost-of-ryder-cup-accommodation/) - **The Irish Times**
-8. [Chelsea captain James has knee surgery](https://sports.yahoo.com/articles/chelsea-captain-james-knee-surgery-085855857.html) - **Yahoo Entertainment**
-9. [Former Chelsea owner Roman Abramovich considered FC Nantes takeover](https://www.getfootballnewsfrance.com/2026/former-chelsea-owner-roman-abramovich-considered-fc-nantes-takeover/) - **Get French Football News**
+1. [Leeds United show continued support for No Room For Racism campaign](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_5f132d22-a819-43dc-b28a-be5564b89a81) - **Yahoo Entertainment**
+2. [Liverpool ready to push hard to sign £100m-rated midfielder](https://eplindex.com/151483/liverpool-ready-to-push-hard-to-sign-100m-rated-midfielder.html) - **English Premier League Index - Opta Stats**
+3. [Liverpool star told he must do more after recent struggles](https://anfieldindex.com/101889/liverpool-star-told-he-must-do-more-after-recent-struggles.html) - **Anfieldindex.com**
+4. [Man Utd have 'moved on' from Martinez outburst, says Carrick](https://sports.yahoo.com/articles/man-utd-moved-martinez-outburst-124844542.html) - **Yahoo Entertainment**
+5. [George Vardinogiannis, known as “The Captain”, dies aged 90](https://en.protothema.gr/2026/10/16/george-vardinogiannis-known-as-the-captain-dies-aged-90/) - **Protothema.gr**
+6. [Arsenal and Aston Villa lock horns for Bayern defender Kim](https://bulinews.com/arsenal-and-aston-villa-lock-horns-for-bayern-defender-kim) - **Bulinews.com**
+7. [Chelsea skipper Reece James faces lay-off after minor knee surgery](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261016-930-850103/) - **Dpa-international.com**
+8. [South Africa look to re-establish test credentials after Australia mauling](https://www.channelnewsasia.com/sport/south-africa-look-re-establish-test-credentials-after-australia-mauling-6466096) - **CNA**
+9. [Why Sangare turned down Europe's elite for Brentford](https://www.playmakerstats.com/news/why-sangare-turned-down-europe-s-elite-for-brentford/1228557) - **Playmakerstats.com**
+10. [Reece James surgery update: Chelsea captain set for months out of the team](https://www.nbcsports.com/soccer/news/reece-james-surgery-update-chelsea-captain-set-for-months-out-of-the-team) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-10-17 18:10:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-17 22:01:25 (KST) / (하루 100회 제한 준수 중)*
