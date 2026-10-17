@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ranking the Premier League's all-time greatest super subs](https://www.bbc.co.uk/sport/football/articles/cqn73xe5eelgo) - **BBC News**
-2. [Night of glorious possibility ends in brutal realisation as St Pat's blow huge title chance](https://www.the42.ie/st-patricks-athletic-shelbourne-match-7195986-Oct2026/) - **The42**
-3. [Superb performance from Samuel Lusale not enough to prevent dramatic end to U21s’ unbeaten run at Nottingham Forest](https://thepeoplesperson.com/2026/10/16/superb-performance-from-samuel-lusale-not-enough-to-prevent-dramatic-end-to-u21s-unbeaten-run-at-nottingham-forest-319348/) - **The Peoples Person**
-4. [Leeds v Man United: Preview, expected line ups, stats and where to watch](https://www.101greatgoals.com/match-previews/leeds-v-manchester-united-team-news-line-ups-stats-preview-where-to-watch-tv-channel-live-online-stream-prediction/) - **101 Great Goals**
-5. [Real Madrid Magic And Drama In Manchester: What Stood Out With Europe's Top Clubs](https://www.foxsports.com/stories/soccer/manchester-city-champions-league-psg-manchester-united-real-madrid-inter-milan) - **Fox Sports**
-6. [Burnley’s winless home run to pass one-year mark after Wolves fightback](https://www.skysports.com/football/news/13592969/burnley-x-x-wolves) - **Sky Sports**
-7. [Galway stun Rovers to keep the title race wide open](https://www.rte.ie/sport/soccer/2026/1016/1595613-galway-beat-rovers-for-the-first-time-in-20-years/) - **RTE**
-8. [Bohs get revenge on Blues to stay involved in title race](https://www.rte.ie/sport/soccer/2026/1016/1595611-bohs-get-revenge-on-blues-to-stay-involved-in-title-race/) - **RTE**
-9. [Missouri vs Ole Miss Prediction: Odds, expert picks, team and player news, betting trends, and stats](https://www.nbcsports.com/betting/college-football/news/missouri-vs-ole-miss-prediction-odds-expert-picks-team-and-player-news-betting-trends-and-stats) - **NBCSports.com**
-10. [Everton vs Chelsea: Match Preview, Latest Team News and Predicted Lineups](https://eplindex.com/151503/everton-vs-chelsea-match-preview-latest-team-news-and-predicted-lineups.html) - **English Premier League Index - Opta Stats**
+1. [“We’ve done the opposite”: Peter Schmeichel speaks out on Lisandro Martinez public outburst](https://thepeoplesperson.com/2026/10/16/peter-schmeichel-rebukes-lisandro-martinez-over-jason-wilcox-319357/) - **The Peoples Person**
+2. [Leeds vs Manchester United: Premier League – teams, prediction, lineups](https://www.aljazeera.com/sports/2026/10/16/leeds-vs-manchester-united-premier-league-teams-prediction-lineups) - **Al Jazeera English**
+3. [Bradley: Win two more games and we know what that brings](https://www.rte.ie/sport/soccer/2026/1016/1595729-bradley-win-two-more-games-and-we-know-what-that-brings/) - **RTE**
+4. [The fact Man United cannot drop Lisandro Martinez after his outburst just goes to show he was spot on about Sir Jim Ratcliffe's politburo of under-qualified, over-protected advisors, writes RIATH AL-SAMARRAI](https://www.dailymail.com/sport/football/article-16215263/The-fact-Man-United-drop-Lisandro-Martinez-outburst-just-goes-spot-Sir-Jim-Ratcliffes-politburo-qualified-protected-advisors-writes-RIATH-AL-SAMARRAI.html) - **Dailymail.com**
+5. [The fact Man United cannot drop Lisandro Martinez after his outburst just goes to show he was spot on about Sir Jim Ratcliffe's politburo of under-qualified, over-protected advisors, writes RIATH AL-SAMARRAI](https://www.dailymail.com/sport/football/article-16215263/The-fact-Man-United-drop-Lisandro-Martinez-outburst-just-goes-spot-Sir-Jim-Ratcliffes-politburo-qualified-protected-advisors-writes-RIATH-AL-SAMARRAI.html) - **Dailymail.com**
+6. [Samuel Lusale tops the ratings for Man United U21s, but this midfield metronome pulled all the strings – player ratings](https://thepeoplesperson.com/2026/10/16/samuel-lusale-stars-as-man-united-u21s-lose-to-nottingham-forest-319364/) - **The Peoples Person**
+7. [Kenny believes Saints can respond to 'huge setback'](https://www.rte.ie/sport/soccer/2026/1016/1595728-kenny-believes-saints-can-respond-to-huge-setback/) - **RTE**
+8. [Shohei Ohtani's health and a possible lockout loom over an uncertain offseason for the Dodgers](https://sports.yahoo.com/articles/shohei-ohtanis-health-possible-lockout-220452081.html) - **Yahoo Entertainment**
+9. [Michael Carrick confirms intention behind Amad's brutal social media post after United loss](https://www.alloutsoccer.com/news/michael-carrick-amad-manchester-united-2072816) - **Alloutsoccer.com**
 
 
 ---
-*최근 업데이트: 2026-10-18 06:19:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-18 08:12:49 (KST) / (하루 100회 제한 준수 중)*
