@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Five months on from final-day devastation, can Hearts harness sense of injustice to announce themselves as title contenders once again?](https://www.dailymail.com/sport/football/article-16215019/Five-months-final-day-devastation-Hearts-harness-sense-injustice-announce-title-contenders-again.html) - **Dailymail.com**
-2. [Sunderland Have Signed Future Superstar In Jules Ahoka After Stunning Europa League Display](https://roundtable.io/sports/soccer/premier-league/sunderland/news/sunderland-have-signed-future-superstar-in-jules-ahoka-after-stunning-europa-league-display) - **Roundtable.io**
-3. [How to watch Newcastle vs Aston Villa](https://www.skysports.com/football/news/13599817/newcastle-vs-aston-villa-how-to-watch-tv-channel-live-stream-now-tv-team-news-and-score-prediction) - **Sky Sports**
-4. [Man City 'More United'; Arsenal's Zubimendi Nears Return](https://www.rediff.com/sports/report/epl-preview-man-citys-unity-amidst-premier-league-charges-arsenal-injury-update-on-zubimendi-hincapie/20261017.htm) - **Rediff.com**
-5. [IPL 2027: Delhi Capitals appoints ex-Sri Lanka pacer Chaminda Vaas as fast-bowling coach](https://economictimes.indiatimes.com/news/sports/cricket/ipl-2027-delhi-capitals-appoints-ex-sri-lanka-pacer-chaminda-vaas-as-fast-bowling-coach/articleshow/135007900.cms) - **The Times of India**
-6. [Man Utd’s official media team speak out to confirm ‘good news’ ahead of Leeds trip](https://utdreport.co.uk/2026/10/17/man-utds-official-media-team-speak-out-to-confirm-good-news-ahead-of-leeds-trip/) - **Utdreport.co.uk**
-7. [How and when to watch Leeds United vs Man United across the globe](https://thepeoplesperson.com/2026/10/17/how-to-watch-leeds-united-vs-man-united-live-around-the-world-319367/) - **The Peoples Person**
-8. [Liverpool XI vs Brentford – Predicted lineup and team news](https://thefootballfaithful.com/liverpool-xi-vs-brentford-predicted-lineup-and-team-news-3/) - **The Football Faithful**
-9. [Bay Area sports calendar, Oct. 17-18](https://www.sfchronicle.com/sports/article/sportscal-22479667.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - **San Francisco Chronicle**
-10. [OTD (17/10/2009): Sunderland Beat Liverpool In ‘The Beach Ball Game’!](https://rokerreport.sbnation.com/features/156193/otd-17-10-2009-sunderland-beat-liverpool-in-the-beach-ball-game) - **SB Nation**
+1. [Everton host Chelsea in early Premier League kick-off](https://onefootball.com/en/news/everton-host-chelsea-in-early-premier-league-kick-off-43625826) - **Onefootball.com**
+2. [Neville tells Carrick the exact players he has to deploy to seal crucial win over Leeds](https://utdreport.co.uk/2026/10/17/neville-tells-carrick-the-exact-players-he-has-to-deploy-to-seal-crucial-win-over-leeds/) - **Utdreport.co.uk**
+3. [Arteta explains why Saliba was left out of team photo](https://dailycannon.com/2026/10/arteta-saliba-squad-photo/) - **Dailycannon.com**
+4. [Arteta says Arsenal will try to end their goal drought at the City Ground](https://www.justarsenal.com/arteta-says-arsenal-will-try-to-end-their-goal-drought-at-the-city-ground/423973) - **Just Arsenal News**
+5. [How to watch Brentford vs Liverpool: Live streams and TV channels for Premier League 2026/27](https://www.techradar.com/how-to-watch/football/watch-brentford-vs-liverpool-premier-league-2026-27) - **TechRadar**
+6. [How to watch Man City vs Ipswich: Live streams and TV channels for Premier League 2026/27](https://www.techradar.com/how-to-watch/football/man-city-vs-ipswich-premier-league-2026-27) - **TechRadar**
+7. [LIVE – Everton v Chelsea: Commentary, updates, goals as Hato starts, Toffees change two](https://www.101greatgoals.com/live/everton-vs-chelsea-live-latest-score-updates-premier-league-goals-stats/) - **101 Great Goals**
+8. [Predicted Newcastle United team v Aston Villa ahead of kick-off today](https://www.themag.co.uk/2026/10/predicted-newcastle-united-team-v-aston-villa-ahead-of-kick-off-today/) - **The Mag**
+9. [Team News: Xabi Alonso makes change at wing back for Everton away](https://www.talkchelsea.net/news/team-news-xabi-alonso-everton/) - **Talk Chelsea**
+10. [Everton vs Chelsea - Premier League LIVE: Battle of the Blues on Merseyside as they both seek a spot in the top four](https://www.dailymail.com/sport/football/article-16211399/Everton-vs-Chelsea-Premier-League-LIVE.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-10-18 15:02:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-18 20:21:40 (KST) / (하루 100회 제한 준수 중)*
