@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Liverpool were 'cute and clever' says Andrews](https://www.rte.ie/sport/soccer/2026/1017/1595791-liverpool-were-cute-and-clever-says-andrews/) - **RTE**
-2. [Paul Finebaum supports 24-team playoff; Tim Tebow against the change](https://www.sportingnews.com/us/ncaa-football/news/paul-finebaum-24-team-playoff-tim-tebow-against-change/d0230a7a3df3d5ea83020d2f) - **Sporting News**
-3. [Swansea must use West Ham defeat as fuel - Matos](https://www.bbc.co.uk/sport/football/articles/cr5ynge8jnnyo) - **BBC News**
-4. [Jacquet was 'cute and clever' for his part in Yarmoliuk red - Andrews](https://www.skysports.com/football/news/13600414/brentford-liverpool-were-cute-and-clever-says-keith-andrews-after-his-side-ended-defeat-with-nine-men) - **Sky Sports**
-5. [Shohei Ohtani’s health and a possible lockout loom over an uncertain offseason for the Dodgers](https://www.nbcsports.com/mlb/news/shohei-ohtanis-health-and-a-possible-lockout-loom-over-an-uncertain-offseason-for-the-dodgers) - **NBCSports.com**
-6. [EPL: Haaland double fires Man City past Ipswich as Liverpool edge Brentford 2-1](https://punchng.com/epl-haaland-double-fires-man-city-past-ipswich-as-liverpool-edge-brentford-2-1/) - **The Punch**
-7. [Haaland stars in Man City win, Liverpool beat Brentford](https://sports.yahoo.com/articles/haaland-stars-man-city-win-161432178.html) - **Yahoo Entertainment**
-8. [In-form Johan Manzambi continues to haunt Newcastle ](https://onefootball.com/en/news/in-form-johan-manzambi-continues-to-haunt-newcastle-43627745) - **Onefootball.com**
+1. [Wirtz delivers but remains Liverpool's conundrum](https://www.bbc.com/sport/football/articles/c9j34rke27zjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Wirtz delivers but remains Liverpool's conundrum](https://www.bbc.co.uk/sport/football/articles/c9j34rke27zjo) - **BBC News**
+3. [Premier League's most exciting midfielder to replace Alexis Mac Allister](https://www.anfieldwatch.co.uk/liverpool-fc/news/premier-leagues-most-exciting-midfielder-to-replace-alexis-mac-allister-johan-manzambi/) - **Anfieldwatch.co.uk**
+4. [West Ham Outcast Eyes Winter Escape: Should Nuno Sanction A January Exit?](https://the4thofficial.net/2026/10/west-ham-outcast-eyes-winter-escape-should-nuno-sanction-a-january-exit/) - **The4thofficial.net**
+5. [19 dead, 25 hurt in stampede at India religious gathering](https://www.channelnewsasia.com/asia/19-dead-25-hurt-in-stampede-india-religious-gathering-6468991) - **CNA**
+6. [At least 17 killed in stampede at religious gathering in India](https://www.aljazeera.com/news/2026/10/17/at-least-17-killed-in-stampede-at-religious-gathering-in-india) - **Al Jazeera English**
+7. [Real Madrid Score Three Late Goals to Stun Roma in 4-3 Thriller](https://homeandawaymedia.com/business/real-madrid-beat-roma-4-3-after-stunning-late-comeback-in-champions-league/) - **Homeandawaymedia.com**
+8. [All the details on Gian van Veen's record European Tour average vs. Sebastian Bialecki](https://www.sportingnews.com/us/darts/news/all-details-gian-van-veen-record-european-tour-average/eca32fceb1cdf035ab5fe0a6) - **Sporting News**
+9. [Emery praises Manzambi's 'skills and intelligence'](https://www.bbc.co.uk/sport/football/videos/cw80zpzx3vxjo) - **BBC News**
+10. [Haaland’s Record Run Proves Manchester City’s Unshakable Core](https://gamedaytimes.com/haalands-record-run-proves-manchester-citys-unshakable-core/) - **Gamedaytimes.com**
 
 
 ---
-*최근 업데이트: 2026-10-19 02:53:05 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-19 05:17:35 (KST) / (하루 100회 제한 준수 중)*
