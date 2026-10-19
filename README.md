@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Tony Buti's uni mega-merger faces opposition, controversy](https://www.abc.net.au/news/2026-10-18/tony-buti-public-university-mega-merger-wa/107275274) - **ABC News (AU)**
-2. [There's a crackdown on sports piracy - but is it already out of control?](https://www.bbc.com/news/articles/cmx2375zqwwwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [There's a crackdown on sports piracy - but is it already out of control?](https://www.bbc.co.uk/news/articles/cmx2375zqwwwo) - **BBC News**
-4. [Stampede kills at least 17 people at religious festival in India](https://www.abc.net.au/news/2026-10-18/india-stampede-kolkata-hindu-festival/107280156) - **ABC News (AU)**
-5. [Angela Rayner 'is dodging probe into Andy Burnham's £55m homes loans to Man City owner'](https://www.dailymail.com/news/article-16217377/Angela-Rayner-dodging-probe-Andy-Burnhams-55m-homes-loans-Man-City-owner.html) - **Dailymail.com**
-6. [How 'dangerous' Man City maintained 100 per cent record](https://www.bbc.co.uk/sport/football/videos/cx7vpl5qd008o) - **BBC News**
-7. [Arsenal’s Heroic Comeback From 3-0 Down Against Bournemouth in 2017](https://www.justarsenal.com/arsenals-heroic-comeback-from-3-0-down-against-bournemouth-in-2017/424010) - **Just Arsenal News**
-8. [Papers: Gyokeres keen to leave Arsenal](https://www.skysports.com/football/news/13600491/viktor-gyokeres-keen-to-leave-arsenal-due-to-lack-of-first-team-opportunites-paper-talk) - **Sky Sports**
-9. [Michael Carrick responds to Nicky Butt's 'management's not for me' claim before landing the Man United job - as defiant boss insists he does not fear the sack ahead of crunch Leeds clash](https://www.dailymail.com/sport/football/article-16216611/Michael-Carrick-responds-Nicky-Butts-managements-not-claim-landing-Man-United-job-defiant-boss-insists-does-not-fear-sack-ahead-crunch-Leeds-clash.html) - **Dailymail.com**
-10. [Michael Carrick responds to Nicky Butt's 'management's not for me' claim before landing the Man United job - as defiant boss insists he does not fear the sack ahead of crunch Leeds clash](https://www.dailymail.com/sport/football/article-16216611/Michael-Carrick-responds-Nicky-Butts-managements-not-claim-landing-Man-United-job-defiant-boss-insists-does-not-fear-sack-ahead-crunch-Leeds-clash.html) - **Dailymail.com**
+1. [Match Preview: Bournemouth v Sunderland — Too Early To Be A Six-Pointer?](https://rokerreport.sbnation.com/match-previews/156447/match-preview-bournemouth-v-sunderland-too-early-to-be-a-six-pointer) - **SB Nation**
+2. [Fan Focus: What can Sunderland expect from Marco Rose’s Bournemouth side?](https://rokerreport.sbnation.com/fan-focus/156588/fan-focus-what-can-sunderland-expect-from-marco-roses-bournemouth-side) - **SB Nation**
+3. [Score Predictions: Can Sunderland Grab A Key Win At Bournemouth?](https://rokerreport.sbnation.com/features/156273/score-predictions-can-sunderland-grab-a-key-win-at-bournemouth) - **SB Nation**
+4. [Starting XI: Is This The Sunderland Team To Take On Bournemouth Today?](https://rokerreport.sbnation.com/match-previews/156600/starting-xi-is-this-the-sunderland-team-to-take-on-bournemouth-today) - **SB Nation**
+5. [Bay Area sports calendar, Oct. 18-19](https://www.sfchronicle.com/sports/article/sportscal-22479696.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - **San Francisco Chronicle**
+6. [Nottingham Forest vs Arsenal – Predicted lineup and team news](https://thefootballfaithful.com/nottingham-forest-vs-arsenal-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+7. [Brighton vs Crystal Palace – Predicted lineup and team news](https://thefootballfaithful.com/brighton-vs-crystal-palace-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+8. [Manchester United XI vs Leeds United – Predicted lineup and team news](https://thefootballfaithful.com/manchester-united-xi-vs-leeds-united-predicted-lineup-and-team-news/) - **The Football Faithful**
+9. [Leeds United vs Manchester United – Match preview and team news](https://thefootballfaithful.com/leeds-united-vs-manchester-united-match-preview-and-team-news-2/) - **The Football Faithful**
+10. [Brighton vs Crystal Palace – Match preview and team news](https://thefootballfaithful.com/brighton-vs-crystal-palace-match-preview-and-team-news-2/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-10-19 09:27:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-19 14:17:49 (KST) / (하루 100회 제한 준수 중)*
