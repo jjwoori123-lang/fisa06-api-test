@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Richarlison backs criticism of Roberto De Zerbi in another pointed social media post before Tottenham boss responds - as rift deepens amid star's exile](https://www.dailymail.com/sport/football/article-16217379/Richarlison-backs-criticism-Roberto-Zerbi-pointed-social-media-post-Tottenham-boss-responds-rift-deepens-amid-stars-exile.html) - **Dailymail.com**
-2. [Manchester United commission detailed Natan reports as Barcelona open transfer talks](https://thepeoplesperson.com/2026/10/18/natan-man-united-scout-real-betis-defender-as-barcelona-act-319522/) - **The Peoples Person**
-3. [Liverpool star shines against Brentford but leaves Iraola with issue](https://anfieldindex.com/101946/liverpool-star-shines-against-brentford-but-leaves-iraola-with-issue.html) - **Anfieldindex.com**
-4. [Premier League today: How to watch Nottingham Forest v Arsenal, TV channels & live stream Sunday 18 October](https://sports.yahoo.com/articles/premier-league-today-watch-nottingham-103057481.html) - **Yahoo Entertainment**
-5. [Digging Deeper Into Manchester City’s Body Count](https://liverpooloffside.sbnation.com/liverpool-fc-tactics-longform/84193/digging-deeper-into-manchester-citys-body-count-114-charges-guilty-af-epl) - **SB Nation**
-6. [Liverpool’s Bradley Barcola says Premier League is ‘less tactical’ than Ligue 1](https://www.getfootballnewsfrance.com/2026/liverpools-bradley-barcola-says-premier-league-is-less-tactical-than-ligue-1/) - **Get French Football News**
-7. [Why did Lisandro Martinez apologize? Manchester United controversy explained](https://www.usatoday.com/story/sports/soccer/epl/2026/10/18/lisandro-martinez-controversy-manchester-united-apology/92312602007/) - **USA Today**
-8. [Arsenal failed summer target still yet to play this season](https://dailycannon.com/2026/10/monga-swansea-loan-arsenal-city/) - **Dailycannon.com**
-9. [Szoboszlai ruled out 'for some time' with hamstring issue](https://www.rte.ie/sport/soccer/2026/1018/1595846-szoboszlai-ruled-out-for-some-time-with-hamstring-issue/) - **RTE**
+1. [Report De Zerbi targets Endrick and a new Italian arrival at Tottenham](https://football-italia.net/de-zerbi-endrick-new-italian-arrival-tottenham/) - **Football Italia**
+2. [Liverpool given golden chance to sign £40m star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-given-golden-chance-to-sign-ps40m-star/) - **Anfieldwatch.co.uk**
+3. [Fabian Hurzeler breaks his Crystal Palace duck as Brighton blow their big rivals away 5-0 to leave Pierre Sage smarting, writes Nick Szczepanik](https://www.dailymail.com/sport/football/article-16218749/Fabian-Hurzeler-breaks-Crystal-Palace-duck-Brighton-blow-big-rivals-away-5-0-leave-Pierre-Sage-smarting-writes-Nick-Szczepanik.html) - **Dailymail.com**
+4. [PAC-12 LIGHTING UP THE SCOREBOARDS! Texas State, Oregon State and San Diego State all pull out victories.](https://www.mwcconnection.com/pac-12-football/94453/pac-12-offensive-juggernauts) - **Mwcconnection.com**
+5. [Neville delivers Carrick warning after Man Utd 'stepping stone' performance](https://www.skysports.com/football/news/13600722/man-utd-boss-michael-carrick-must-not-be-in-bottom-half-come-january-warns-gary-neville-after-leeds-draw) - **Sky Sports**
+6. [Man Utd extend winless run ahead of Como clash, but Conte still unlikely to replace Carrick](https://football-italia.net/man-utd-extend-winless-run-como-conte-carrick/) - **Football Italia**
+7. [0 aerial duels won, dribbled past twice, 0 crosses: Andrey Santos struggles vs Leeds highlights INEOS’ dismal summer performance](https://thepeoplesperson.com/2026/10/18/andrey-santos-struggles-vs-leeds-as-man-united-drop-points-319577/) - **The Peoples Person**
+8. [Haway The Podcast | “UNACCEPTABLE!” – Bournemouth 2-0 Sunderland Reaction](https://rokerreport.sbnation.com/haway-the-podcast/156702/haway-the-podcast-unacceptable-bournemouth-2-0-sunderland-reaction) - **SB Nation**
+9. [Honeymoon is over for Hibs boss Reedijk as hapless Leith men make it SIX months without a league win at Easter Road](https://www.dailymail.com/sport/football/article-16218693/Honeymoon-Hibs-boss-Reedijk-hapless-Leith-men-make-SIX-months-without-league-win-Easter-Road.html) - **Dailymail.com**
+10. [Awful display is glorious news for Liverpool, they've got someone special](https://www.anfieldwatch.co.uk/liverpool-fc/news/awful-display-is-glorious-news-for-liverpool-theyve-got-someone-special/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-10-19 19:57:24 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-20 02:24:35 (KST) / (하루 100회 제한 준수 중)*
