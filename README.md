@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Julian Ward handed bargain opportunity to sign record-breaker for Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/julian-ward-handed-bargain-opportunity-to-sign-record-breaker-for-liverpool/) - **Anfieldwatch.co.uk**
-2. [“A stepping stone”: Gary Neville sees shoots of recovery for Man United in 1-1 draw with Leeds](https://thepeoplesperson.com/2026/10/19/gary-neville-on-man-united-1-1-draw-with-leeds-signs-of-recovery-319613/) - **The Peoples Person**
-3. [Michael Carrick admits Man Utd situation 'doesn't look great' but hails 'fresh start' at Leeds](https://www.footballmuse.com/news/michael-carrick-admits-man-utd-situation-doesnt-look-great-but-hails-fresh-start-at-leeds) - **Footballmuse.com**
-4. [Injury bombshells: Carrick confirms one Red has been managing problem since WC and another sustained an issue v Leeds](https://utdreport.co.uk/2026/10/19/injury-bombshells-carrick-confirms-one-red-has-been-managing-problem-since-wc-and-another-sustained-an-issue-v-leeds/) - **Utdreport.co.uk**
-5. [APL 2026: Mighty Marathas clinch title with 6-2 win over Kakatiya Knights](https://www.business-standard.com/sports/other-sports-news/apl-2026-mighty-marathas-clinch-title-with-6-2-win-over-kakatiya-knights-126101800819_1.html) - **Business Standard**
-6. [Euro Leagues](https://www.bbc.co.uk/sounds/play/p0ph7nfj?at_campaign=rss) - **BBC News**
-7. [The Premier League’s intensity arms race is killing the art of football](https://www.irishtimes.com/sport/soccer/2026/10/19/the-premier-leagues-intensity-arms-race-is-killing-the-art-of-football/) - **The Irish Times**
-8. [Talking Points: Sunderland Hit The Skids As Bournemouth Cash In](https://rokerreport.sbnation.com/opinion/156642/talking-points-sunderland-hit-the-skids-as-bournemouth-cash-in) - **SB Nation**
-9. [Manchester City’s inflatable bananas are back. Business is booming for Imre Varadi](https://www.irishtimes.com/sport/soccer/2026/10/19/manchester-citys-inflatable-bananas-are-back-business-is-booming-for-imre-varadi/) - **The Irish Times**
-10. [Editorial: Simply Not Good Enough – Something Needs To Change](https://rokerreport.sbnation.com/opinion/156720/editorial-simply-not-good-enough-something-needs-to-change) - **SB Nation**
+1. [Madueke sends message to Arsenal fans after ‘champions’ performance](https://dailycannon.com/2026/10/madueke-forest-arsenal-champions/) - **Dailycannon.com**
+2. [Tottenham predicted lineup vs. Coventry City: Projected XI, team news](https://www.usatoday.com/story/sports/soccer/epl/2026/10/19/tottenham-lineup-coventry-premier-league/92312883007/) - **USA Today**
+3. [TV and streaming viewing picks for October 19, 2026: How to watch MNF and WNBA Finals](https://awfulannouncing.com/viewing-picks/october-19-2026-watch-mnf-alcs-game-6.html) - **Awful Announcing**
+4. [No wonder there is frantic hype around Carlos Baleba - desperate Man United know his £70m move HAS to work... and did Man City sell the wrong goalkeeper this summer? IAN LADYMAN on My Football Weekend](https://www.dailymail.com/sport/football/article-16219871/No-wonder-frantic-hype-Carlos-Baleba-desperate-Man-United-know-70m-work-did-Man-City-sell-wrong-goalkeeper-summer-IAN-LADYMAN-Football-Weekend.html) - **Dailymail.com**
+5. [Where to watch Tottenham vs. Coventry live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-tottenham-vs-coventry-live-stream-tv-channel-time/8918933f21e296160fdc6a4b) - **Sporting News**
+6. [Orioles news: Former Orioles nail down a Rays win](https://www.camdenchat.com/baltimore-orioles-news/71518/orioles-news-links) - **Camden Chat**
+7. [“A big win” Arteta reacts to Arsenal’s victory at Forest](https://www.justarsenal.com/a-big-win-arteta-reacts-to-arsenals-victory-at-forest/424088) - **Just Arsenal News**
+8. [Tip of the Day: Tottenham to finally get a win and goals galore in Turkey](https://www.101greatgoals.com/football/premier-league/tip-of-the-day-tottenham/) - **101 Great Goals**
+9. [Merson: Brighton defeat scared Arsenal – they won’t beat Bayern](https://www.skysports.com/football/news/13600922/arsenal-were-spooked-by-brighton-defeat-and-have-reverted-to-type-they-wont-beat-bayern-munich-says-paul-merson) - **Sky Sports**
+10. [Ferguson takes over as Glentoran manager](https://www.rte.ie/sport/soccer/2026/1019/1595954-ferguson-takes-over-as-new-glentoran-manager/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-10-20 14:50:39 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-20 20:07:05 (KST) / (하루 100회 제한 준수 중)*
