@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The best quotes about Eric Cantona](https://www.footballmuse.com/features/the-best-quotes-about-eric-cantona) - **Footballmuse.com**
-2. [Crystal Palace make sack decision on Pierre Sage after Brighton thrashing](https://footballtoday.com/2026/10/20/crystal-palace-make-sack-decision-on-pierre-sage-after-brighton-thrashing/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=crystal-palace-make-sack-decision-on-pierre-sage-after-brighton-thrashing) - **Footballtoday.com**
-3. [Revealed: The Matches Emiliano Martinez Is Expected To Miss For Chelsea](https://roundtable.io/sports/soccer/premier-league/chelsea/news/revealed-the-matches-emiliano-martinez-is-expected-to-miss-for-chelsea) - **Roundtable.io**
-4. [Explained: What is BCCI-CA Umpire exchange programme as Australian umpire set to officiate Ranji Trophy matches](https://www.cricketnews.com/en/cricket/news/bcci-ca-umpire-exchange-programme-australian-umpire-ranji-trophy/55bf3f85b7cb9b28e718f76c) - **Cricketnews.com**
-5. [Ibrahim Mbaye is giving Aston Villa something they've been missing](https://roundtable.io/sports/soccer/premier-league/aston-villa/news/ibrahim-mbaye-is-giving-aston-villa-something-theyve-been-missing) - **Roundtable.io**
-6. [How Norwegian club Viking became the talk of Europe](https://www.skysports.com/football/news/13598206/viking-s-champions-league-adventure-erik-nevland-and-eirik-bjorno-explain-the-norwegian-club-s-rise-from-the-depths) - **Sky Sports**
-7. [New Zealand study Vaibhav Sooryavanshi ahead of T20 series, expect home conditions to test teen](https://economictimes.indiatimes.com/news/sports/cricket/new-zealand-study-vaibhav-sooryavanshi-ahead-of-t20-series-expect-home-conditions-to-test-teen/articleshow/135063301.cms) - **The Times of India**
-8. [Premier League return or Jose Mourinho reunion? Scott McTominay transfer prediction made by former Scotland international as ex-Man Utd star is linked with Real Madrid](https://www.goal.com/en-us/lists/premier-league-return-jose-mourinho-reunion-scott-mctominay-transfer-prediction-scotland-man-utd-real-madrid/blt4b0e4440dfd9a046) - **Goal.com**
-9. [Moyes insider doubts potential Celtic move - Tuesday's gossip](https://www.bbc.com/sport/football/articles/cq74p0d8wm4ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Moyes insider doubts potential Celtic move - gossip](https://www.bbc.co.uk/sport/football/articles/cq74p0d8wm4ro) - **BBC News**
+1. [How to Watch This Week's UEFA Champions League Matches (Even for Free)](https://uk.pcmag.com/video-streaming-services/167135/how-to-watch-uefa-champions-league-2026-27-for-free) - **PCMag.com**
+2. [Lyon sporting director Matthieu Louis-Jean praises Paulo Fonseca ‘essential’ role after Champions League setback](https://www.getfootballnewsfrance.com/2026/lyon-sporting-director-matthieu-louis-jean-praises-paulo-fonseca-essential-role-after-champions-league-setback/) - **Get French Football News**
+3. [Carrick drops pre-Como line-up hint as he lauds two ‘terrific’ Reds who were ‘a massive positive’ vs Leeds](https://utdreport.co.uk/2026/10/20/michael-carrick-carlos-baleba-andrey-santos-como-leeds/) - **Utdreport.co.uk**
+4. [Brighton set for major boost ahead of crucial Liverpool clash](https://anfieldindex.com/102039/brighton-set-for-major-boost-ahead-of-crucial-liverpool-clash.html) - **Anfieldindex.com**
+5. [‘He sacrifices so much’: Carrick expresses gratitude for MUFC ace who’s ‘willing to do anything’ for the team](https://utdreport.co.uk/2026/10/20/michael-carrick-praise-for-bryan-mbeumo-manchester-united/) - **Utdreport.co.uk**
+6. [Kulusevski a 'different man' after emotional Spurs return](https://sports.yahoo.com/articles/kulusevski-different-man-emotional-spurs-123933726.html) - **Yahoo Entertainment**
+7. [Ronaldo let Man United down, says club's former boss Ten Hag](https://www.channelnewsasia.com/sport/ronaldo-let-man-united-down-says-clubs-former-boss-ten-hag-6475631) - **CNA**
+8. [“They fuel it”: Erik ten Hag launches scathing attack on INEOS over “toxic” Man United](https://thepeoplesperson.com/2026/10/20/erik-ten-hag-criticises-ineos-for-toxic-culture-at-man-united-319735/) - **The Peoples Person**
+9. [How to Watch This Week's Premier League Matches for Free](https://uk.pcmag.com/video-streaming-services/166522/how-to-watch-2026-premier-league-matches-even-for-free-oct-23) - **PCMag.com**
+10. [Bears’ perfect Josh Sweat trade offer to Cardinals before NFL trade deadline](https://clutchpoints.com/nfl/chicago-bears/bears-perfect-josh-sweat-trade-offer-to-cardinals-before-nfl-trade-deadline) - **ClutchPoints**
 
 
 ---
-*최근 업데이트: 2026-10-21 16:15:20 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-21 21:59:37 (KST) / (하루 100회 제한 준수 중)*
