@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [ Haaland on the bench: Manchester City's line-up against AEK](https://onefootball.com/en/news/haaland-on-the-bench-manchester-citys-line-up-against-aek-43643736) - **Onefootball.com**
-2. [Zawyer Sports & Entertainment Acquire Controlling Interest of Huntsville Havoc](https://zawyersports.com/news/2026/09/zawyer-sports-entertainment-acquire-controlling-interest-of-huntsville-havoc) - **Zawyersports.com**
-3. [Liverpool tries to beat Arsenal to sign their former player](https://www.justarsenal.com/liverpool-tries-to-beat-arsenal-to-sign-their-former-player/424186) - **Just Arsenal News**
-4. [Webb backs VAR over Botman challenge on Jackson](https://www.bbc.com/sport/football/articles/cm3vqz1de9lro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Liverpool vs Villarreal and Manchester City vs AEK Athens - Champions League: Live updates as Premier League duo return to Europe plus updates from PSG vs Barcelona](https://www.dailymail.com/sport/football/article-16223047/Liverpool-vs-Villarreal-Manchester-City-vs-AEK-Athens-Champions-League-LIVE.html) - **Dailymail.com**
-6. [Ronaldo let Man Utd down says Ten Hag](https://sports.yahoo.com/articles/ronaldo-let-man-utd-down-173017347.html) - **Yahoo Entertainment**
-7. [Tim Howard weighs in on how Man City charges could affect Cavan Sullivan’s Premier League move](https://www.alloutsoccer.com/news/usmnt-howard-sullivan-manchester-city-2077516) - **Alloutsoccer.com**
-8. [PREVIEW | Lech Poznan vs Sunderland: team news, lineups, predictions (Europa League 22/10)](https://www.playmakerstats.com/news/preview-lech-poznan-vs-sunderland-team-news-lineups-predictions-europa-league-22-10/1233740) - **Playmakerstats.com**
-9. ["Not a very nice question" - Fabregas furiously dismisses disrespectful rumours about replacing Carrick at Manchester United](https://www.goal.com/en-us/lists/not-nice-question-fabregas-furiously-dismisses-disrespectful-rumours-replacing-carrick-manchester-united/blt0bd862dc71ea57bd) - **Goal.com**
+1. [Papers: Man Utd target two left-backs as Martinez faces axe in planned overhaul](https://www.skysports.com/football/transfer-paper-talk/13601643/man-utd-eye-moves-for-lewis-hall-and-adrien-truffert-while-lisandro-martinez-faces-axe-in-summer-defensive-overhaul-paper-talk) - **Sky Sports**
+2. [Carrick wants more clean sheets to turn season around](https://www.bbc.co.uk/sport/football/articles/cje362v35175o) - **BBC News**
+3. [Liverpool recover from early setbacks to win 7-goal thriller](https://www.the42.ie/liverpool-beat-villarreal-in-7-goal-thriller-7200026-Oct2026/) - **The42**
+4. [UCL: Liverpool beat Villarreal 4-3 in seven-goal thriller](https://punchng.com/ucl-liverpool-beat-villarreal-4-3-in-seven-goal-thriller/) - **The Punch**
+5. [Phil Foden back to his best in Man City's rout of AEK Athens](https://www.the42.ie/phil-foden-hits-hat-trick-in-man-citys-rout-of-aek-athens-7200045-Oct2026/) - **The42**
+6. [The Phil Foden show in front of 20,000 empty seats at the Etihad: Man City's hat-trick hero is playing with the fizz and purpose that will be needed to fill in for the injured Antoine Semenyo, writes JACK GAUGHAN](https://www.dailymail.com/sport/football/article-16223069/Man-City-5-1-AEK-Athens-Phil-Foden-JACK-GAUGHAN-Champions-League.html) - **Dailymail.com**
+7. [Iowa Football: How Aussie Punter Boston Everitt Mastered the Art of “Punting is Winning”](https://www.blackheartgoldpants.com/football/71430/iowa-football-how-aussie-punter-boston-everitt-mastered-the-art-of-punting-is-winning-chris-polizzi-kirk-ferentz) - **Black Heart Gold Pants**
+8. [Audit regulator looking into Manchester City accounting](https://www.bbc.com/news/articles/cm93z1xlgqxqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Audit regulator looking into Manchester City accounting](https://www.bbc.co.uk/news/articles/cm93z1xlgqxqo) - **BBC News**
+10. [League reportedly concludes Jalen Hurts's blood clot "was handled appropriately" before Week 5 game](https://www.nbcsports.com/nfl/profootballtalk/rumor-mill/news/league-reportedly-concludes-jalen-hurtss-blood-clot-was-handled-appropriately-before-week-5-game) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-10-22 02:58:35 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-22 06:32:51 (KST) / (하루 100회 제한 준수 중)*
