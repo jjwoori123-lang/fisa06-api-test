@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Football regulator confirms it can force Manchester City sale](https://dailycannon.com/2026/10/manchester-city-force-sale/) - **Dailycannon.com**
-2. [Ashley Young warns Antonio Conte appointment could be a “disaster” for Manchester United](https://www.footballmuse.com/news/ashley-young-warns-antonio-conte-could-be-a-disaster-for-manchester-united) - **Footballmuse.com**
-3. [‘Don’t Give Up on Him’: Gerrard backs Wirtz to bounce back after difficult Liverpool start](https://www.footballmuse.com/news/dont-give-up-on-him-gerrard-backs-wirtz-to-bounce-back-after-difficult-liverpool-start) - **Footballmuse.com**
-4. ['Something wasn't right' - Alexis Mac Allister takes aim at Arne Slot era as he explains how Andoni Iraola fixed Liverpool’s broken dressing room](https://www.goal.com/en-us/lists/alexis-mac-allister-arne-slot-andoni-iraola-liverpool/bltb6e8ee933b9a16ba) - **Goal.com**
-5. [Football regulator insists it will have 'absolute power' to force Man City owners to sell if they are proven to have run the club 'in a way that is neither fit nor fair'](https://www.dailymail.com/sport/football/article-16226029/Football-regulator-insists-absolute-power-force-Man-City-owners-sell-proven-run-club-way-neither-fit-nor-fair.html) - **Dailymail.com**
-6. [How Barcelona schooled Real Madrid in the pursuit of former Premier League star – report](https://barcauniversal.com/how-barcelona-schooled-real-madrid-in-the-pursuit-of-former-premier-league-star-report/) - **Barcauniversal.com**
-7. [Raya reveals why he chose Arsenal over Bayern Munich](https://www.justarsenal.com/raya-reveals-why-he-chose-arsenal-over-bayern-munich/424228) - **Just Arsenal News**
-8. [Why Eze is struggling to find his form at Arsenal](https://www.bbc.com/sport/football/articles/cqgm0ze7vepmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Jamie Carragher blown away by Man Utd star Youri Tielemans' NEW role](https://www.goal.com/en-us/lists/youri-tielemans-man-utd-jamie-carragher-praise/bltd23052d5d29cee79) - **Goal.com**
-10. [Four St Pat’s players named in League of Ireland team of the year](https://www.irishtimes.com/sport/soccer/2026/10/21/four-st-pats-players-named-in-league-of-ireland-team-of-the-year/) - **The Irish Times**
+1. [Christian Pulisic’s status for Milan’s UEFA Europa League clash vs Bournemouth emerges as Ruben Amorim loses Goncalo Ramos and Samuel Chukwueze](https://worldsoccertalk.com/news/christian-pulisics-status-for-milans-uefa-europa-league-clash-vs-bournemouth-emerges-as-ruben-amorim-loses-goncalo-ramos-and-samuel-chukwueze/) - **Worldsoccertalk.com**
+2. [Report: Manchester City could be forced to seek new owners](https://eplindex.com/151643/report-manchester-city-could-be-forced-to-seek-new-owners.html) - **English Premier League Index - Opta Stats**
+3. [Arsenal job cuts raise questions despite Premier League triumph](https://footballtoday.com/2026/10/21/arsenal-job-cuts-raise-questions-despite-premier-league-triumph/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-job-cuts-raise-questions-despite-premier-league-triumph) - **Footballtoday.com**
+4. [Manchester United hit by fresh injury nightmare! Benjamin Sesko facing four-month absence as Michael Carrick sweats over striker's recovery](https://www.goal.com/en-us/news/-manchester-united-injury-nightmare-benjamin-sesko-absence-michael-carrick-recovery-/blt77b929adcd454a14) - **Goal.com**
+5. [Eagles News: Saquon Barkley included among 3 ESPN trade proposals](https://www.bleedinggreennation.com/news/187776/eagles-news-saquon-barkley-included-among-3-espn-trade-proposals) - **Bleeding Green Nation**
+6. [Valencia head coach ‘delighted’ with one thing Harvey Elliott has been doing during loan spell](https://www.empireofthekop.com/2026/10/21/valencia-head-coach-delighted-with-harvey-elliott-attitude/) - **Empire of The Kop**
+7. [Cowboys linked to Pro Bowl pass rusher ahead of NFL trade deadline](https://www.thebiglead.com/cowboys-linked-josh-sweat-cardinals-2026-nfl-trade-deadline/) - **The Big Lead**
+8. [Milan back fan boycott of Udinese match over away ticket prices](https://www.channelnewsasia.com/sport/milan-back-fan-boycott-udinese-match-over-away-ticket-prices-6479551) - **CNA**
+9. [Cristiano Ronaldo sends emotional message to Khvicha Kvaratskhelia after ACL injury vs Barcelona](https://www.101greatgoals.com/football/champions-league/cristiano-ronaldo-emotional-message-to-khvicha-kvaratskhelia/) - **101 Great Goals**
+10. [ICC grants List A T20 Status to all NPL matches](https://english.khabarhub.com/2026/21/572780/) - **Khabarhub.com**
 
 
 ---
-*최근 업데이트: 2026-10-22 19:18:10 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-23 00:23:30 (KST) / (하루 100회 제한 준수 중)*
