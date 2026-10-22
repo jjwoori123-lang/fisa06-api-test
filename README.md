@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Champions League: Wirtz ends scoring drought as he breaks personal record at Liverpool](https://bulinews.com/champions-league-wirtz-ends-scoring-drought-breaks-personal-record-liverpool) - **Bulinews.com**
-2. [Regulator has 'power' to force Man City sale if charges upheld](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261020-930-869219/) - **Dpa-international.com**
-3. [Rangers urged to remain focused for CAF CL tie](https://punchng.com/rangers-urged-to-remain-focused-for-caf-cl-tie/) - **The Punch**
-4. [NPFL sanctions Doma, orders three home games behind closed doors](https://punchng.com/npfl-sanctions-doma-orders-three-home-games-behind-closed-doors/) - **The Punch**
-5. [As Harry Kane aims to haunt Arsenal again, and with the Ballon d'Or on the horizon, this is the story of his remarkable rise - and what English football must do to unearth its next superstar](https://www.dailymail.com/sport/football/article-16215959/Harry-Kane-Arsenal-Bayern-Munich-Ballon-DOr-Tottenham.html) - **Dailymail.com**
-6. [Arsenal want to sign Barcelona star but face Premier League competition](https://www.justarsenal.com/arsenal-want-to-sign-barcelona-star-but-face-premier-league-competition/424211) - **Just Arsenal News**
-7. [UConn men's basketball faces Michigan State in top-10 preseason exhibition: Live updates, analysis](https://www.ctinsider.com/sports/uconn-mens-basketball/article/uconn-michigan-state-exhibition-live-10-20-26-22486369.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - **Ctinsider.com**
-8. [Ngumoha comes of age on breathless Anfield night](https://www.channelnewsasia.com/sport/ngumoha-comes-age-breathless-anfield-night-6476946) - **CNA**
-9. [No Haaland, no problem - can Foden be Man City's alternative goalscorer?](https://www.bbc.com/sport/football/articles/cqx2vjdnwkyyo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [3 Matchups That Will Decide Texas A&M's Week 8 Game Against Alabama](https://www.si.com/college/tamu/football/3-matchups-that-will-decide-texas-am-week-8-game-against-alabama) - **Sports Illustrated**
+1. [League of Ireland permutations: Any Bohemians slip-up could hand Shamrock Rovers title](https://www.irishtimes.com/sport/soccer/2026/10/21/league-of-ireland-permutations-any-bohemians-slip-up-could-hand-shamrock-rovers-title/) - **The Irish Times**
+2. [What time is Como vs. Man United? Live stream, TV channel, kickoff schedule for Champions League match](https://www.sportingnews.com/us/soccer/news/what-time-como-vs-man-united-live-stream-channel-champions-league/dc5a1bc5d220121cea605dd1) - **Sporting News**
+3. [Fan Letters: Sunderland Need More From Granit Xhaka](https://rokerreport.sbnation.com/fan-letters/156903/fan-letters-sunderland-need-more-from-granit-xhaka) - **SB Nation**
+4. [Rallying The Lads: Time To Get Back To Winning Ways](https://rokerreport.sbnation.com/opinion/156880/rallying-the-lads-time-to-get-back-to-winning-ways) - **SB Nation**
+5. [Sunderland Have Issues, But They Are Fixable](https://rokerreport.sbnation.com/opinion/156845/sunderland-have-issues-but-they-are-fixable) - **SB Nation**
+6. [Manchester City boss Enzo Maresca plays down Rayan Cherki Ballon d'Or talk and stresses 'this is a team sport' after emphatic European win](https://www.goal.com/en-us/lists/enzo-maresca-plays-down-rayan-cherki-ballon-dor-manchester-city-aek-athens/blt3da0a235b65ae7f8) - **Goal.com**
+7. ['I'm going in the right direction' - Phil Foden hungry for more goals after starring with treble in Manchester City's 5-1 win over AEK Athens](https://www.goal.com/en-us/lists/phil-foden-hungry-more-goals-treble-manchester-city-win-aek-athens/blta15d8c40757daad1) - **Goal.com**
+8. [Liverpool's 18-year-old Ngumoha Steals The Show!](https://www.rediff.com/sports/report/uefa-champions-league-liverpool-vs-villareal-18-year-old-ngumoha-inspires-liverpools-epic-comeback/20261021.htm) - **Rediff.com**
+9. [You're getting mauled by the Tigers](https://knowyourmeme.com/memes/youre-getting-mauled-by-the-tigers) - **Knowyourmeme.com**
+10. ["Who will talk to me?": Mohammed Shami on communication with selectors](https://www.business-standard.com/cricket/news/mohammed-shami-interview-fitness-long-spells-international-future-126102000536_1.html) - **Business Standard**
 
 
 ---
-*최근 업데이트: 2026-10-22 09:11:14 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-22 14:01:48 (KST) / (하루 100회 제한 준수 중)*
