@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Christian Pulisic’s status for Milan’s UEFA Europa League clash vs Bournemouth emerges as Ruben Amorim loses Goncalo Ramos and Samuel Chukwueze](https://worldsoccertalk.com/news/christian-pulisics-status-for-milans-uefa-europa-league-clash-vs-bournemouth-emerges-as-ruben-amorim-loses-goncalo-ramos-and-samuel-chukwueze/) - **Worldsoccertalk.com**
-2. [Report: Manchester City could be forced to seek new owners](https://eplindex.com/151643/report-manchester-city-could-be-forced-to-seek-new-owners.html) - **English Premier League Index - Opta Stats**
-3. [Arsenal job cuts raise questions despite Premier League triumph](https://footballtoday.com/2026/10/21/arsenal-job-cuts-raise-questions-despite-premier-league-triumph/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=arsenal-job-cuts-raise-questions-despite-premier-league-triumph) - **Footballtoday.com**
-4. [Manchester United hit by fresh injury nightmare! Benjamin Sesko facing four-month absence as Michael Carrick sweats over striker's recovery](https://www.goal.com/en-us/news/-manchester-united-injury-nightmare-benjamin-sesko-absence-michael-carrick-recovery-/blt77b929adcd454a14) - **Goal.com**
-5. [Eagles News: Saquon Barkley included among 3 ESPN trade proposals](https://www.bleedinggreennation.com/news/187776/eagles-news-saquon-barkley-included-among-3-espn-trade-proposals) - **Bleeding Green Nation**
-6. [Valencia head coach ‘delighted’ with one thing Harvey Elliott has been doing during loan spell](https://www.empireofthekop.com/2026/10/21/valencia-head-coach-delighted-with-harvey-elliott-attitude/) - **Empire of The Kop**
-7. [Cowboys linked to Pro Bowl pass rusher ahead of NFL trade deadline](https://www.thebiglead.com/cowboys-linked-josh-sweat-cardinals-2026-nfl-trade-deadline/) - **The Big Lead**
-8. [Milan back fan boycott of Udinese match over away ticket prices](https://www.channelnewsasia.com/sport/milan-back-fan-boycott-udinese-match-over-away-ticket-prices-6479551) - **CNA**
-9. [Cristiano Ronaldo sends emotional message to Khvicha Kvaratskhelia after ACL injury vs Barcelona](https://www.101greatgoals.com/football/champions-league/cristiano-ronaldo-emotional-message-to-khvicha-kvaratskhelia/) - **101 Great Goals**
-10. [ICC grants List A T20 Status to all NPL matches](https://english.khabarhub.com/2026/21/572780/) - **Khabarhub.com**
+1. [Why Brian Kelly to Maryland football isn't as crazy as you'd think](https://www.usatoday.com/story/sports/ncaaf/2026/10/21/maryland-football-coaching-candidates-brian-kelly-charles-huff/92330726007/) - **USA Today**
+2. [Bukayo Saka injury update: Arsenal star goes down vs Bayern Munich](https://www.usatoday.com/story/sports/soccer/ucl/2026/10/21/bukayo-saka-injury-update-arsenal-bayern/92367698007/) - **USA Today**
+3. [What went wrong for Michael Carrick at Man United? Embarrassing defeat to Como puts boss on brink of the sack](https://www.sportingnews.com/us/soccer/manchester-united/news/what-wrong-michael-carrick-man-united-defeat-como-sack/5e32f631380ad44f3d3f2d9f) - **Sporting News**
+4. [Angulo, Fofana And O’Nien To Start | 4-2-3-1 Sunderland Predicted Lineup Vs Lech Poznan](https://the4thofficial.net/2026/10/angulo-fofana-and-onien-to-start-4-2-3-1-sunderland-predicted-lineup-vs-lech-poznan/) - **The4thofficial.net**
+5. [PREVIEW | Ipswich Town vs Nottingham Forest: team news, lineups, predictions (Premier League 23/10)](https://www.playmakerstats.com/news/preview-ipswich-town-vs-nottingham-forest-team-news-lineups-predictions-premier-league-23-10/1235135) - **Playmakerstats.com**
+6. [Kylian Mbappé? Harry Kane? Lamine Yamal? Soccer's Top 20 Players Right Now](https://www.foxsports.com/stories/soccer/kylian-mbappe-harry-kane-lamine-yamal-soccers-top-20-players-right-now) - **Fox Sports**
+7. [Como 4-1 Manchester United: Report, result and goals as pressure piles on Carrick](https://www.101greatgoals.com/match-reports/como-4-1-manchester-united-report-result-goals/) - **101 Great Goals**
+8. [Ligue des champions : avec Côme, Nico Paz croque à lui tout seul Manchester United](https://www.sofoot.com/breves/ligue-des-champions-avec-come-nico-paz-croque-a-lui-tout-seul-manchester-united) - **SO FOOT**
 
 
 ---
-*최근 업데이트: 2026-10-23 00:23:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-23 04:28:21 (KST) / (하루 100회 제한 준수 중)*
