@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Why Brian Kelly to Maryland football isn't as crazy as you'd think](https://www.usatoday.com/story/sports/ncaaf/2026/10/21/maryland-football-coaching-candidates-brian-kelly-charles-huff/92330726007/) - **USA Today**
-2. [Bukayo Saka injury update: Arsenal star goes down vs Bayern Munich](https://www.usatoday.com/story/sports/soccer/ucl/2026/10/21/bukayo-saka-injury-update-arsenal-bayern/92367698007/) - **USA Today**
-3. [What went wrong for Michael Carrick at Man United? Embarrassing defeat to Como puts boss on brink of the sack](https://www.sportingnews.com/us/soccer/manchester-united/news/what-wrong-michael-carrick-man-united-defeat-como-sack/5e32f631380ad44f3d3f2d9f) - **Sporting News**
-4. [Angulo, Fofana And O’Nien To Start | 4-2-3-1 Sunderland Predicted Lineup Vs Lech Poznan](https://the4thofficial.net/2026/10/angulo-fofana-and-onien-to-start-4-2-3-1-sunderland-predicted-lineup-vs-lech-poznan/) - **The4thofficial.net**
-5. [PREVIEW | Ipswich Town vs Nottingham Forest: team news, lineups, predictions (Premier League 23/10)](https://www.playmakerstats.com/news/preview-ipswich-town-vs-nottingham-forest-team-news-lineups-predictions-premier-league-23-10/1235135) - **Playmakerstats.com**
-6. [Kylian Mbappé? Harry Kane? Lamine Yamal? Soccer's Top 20 Players Right Now](https://www.foxsports.com/stories/soccer/kylian-mbappe-harry-kane-lamine-yamal-soccers-top-20-players-right-now) - **Fox Sports**
-7. [Como 4-1 Manchester United: Report, result and goals as pressure piles on Carrick](https://www.101greatgoals.com/match-reports/como-4-1-manchester-united-report-result-goals/) - **101 Great Goals**
-8. [Ligue des champions : avec Côme, Nico Paz croque à lui tout seul Manchester United](https://www.sofoot.com/breves/ligue-des-champions-avec-come-nico-paz-croque-a-lui-tout-seul-manchester-united) - **SO FOOT**
+1. [Harry Kane shows Arsenal what they're missing at striker as Bayern hold Arsenal in Champions League draw](https://www.cbssports.com/soccer/news/harry-kane-shows-arsenal-what-theyre-missing-at-striker-bayern-arsenal-champions-league/) - **CBS Sports**
+2. [Papers: Brighton boss Hurzeler would be Shearer's pick to replace Carrick](https://www.skysports.com/football/transfer-paper-talk/13602091/manchester-united-should-appoint-fabio-hurzeler-if-they-replace-michel-carrick-says-former-premier-league-winner-alan-shearer-paper-talk) - **Sky Sports**
+3. [fpl-context-mcp 0.11.0](https://pypi.org/project/fpl-context-mcp/0.11.0/) - **Pypi.org**
+4. [fpl-context-mcp 0.10.1](https://pypi.org/project/fpl-context-mcp/0.10.1/) - **Pypi.org**
+5. [Man Utd humiliated as Arsenal deny Bayern in Champions League](https://sports.yahoo.com/articles/man-utd-humiliated-arsenal-deny-220815573.html) - **Yahoo Entertainment**
+6. ['It doesn't look good': Mikel Arteta sparks fears over Bukayo Saka injury after Arsenal winger limped off during 2-2 draw with Bayern Munich](https://www.dailymail.com/sport/football/article-16228305/Mikel-Arteta-sparks-fears-Bukayo-Saka-injury-Bayern-Munich.html) - **Dailymail.com**
+7. [Villa tame Viking to stay perfect in Champions League](https://sports.yahoo.com/articles/villa-tame-viking-stay-perfect-205922852.html) - **Yahoo Entertainment**
+8. [Manchester United Humiliated 4-1 by Como as Cesc Fàbregas Exposes Defensive Weaknesses](https://heavy.com/sports/soccer/premier-league/manchester-united-fc/manchester-united-humiliated-4-1-by-como-as-cesc-fabregas-exposes-defensive-weaknesses/) - **Heavy.com**
+9. [fpl-context-mcp 0.10.0](https://pypi.org/project/fpl-context-mcp/0.10.0/) - **Pypi.org**
+10. [Will the real Celtic stand up? Devastating against Hearts, diabolical against Benfica ... Maloney praying Bhoys can bring their domestic form to the table for must-win Celta Vigo clash](https://www.dailymail.com/sport/football/article-16227735/Will-real-Celtic-stand-Devastating-against-Hearts-diabolical-against-Benfica-Maloney-praying-Bhoys-bring-domestic-form-table-win-Celta-Vigo-clash.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-10-23 04:28:21 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-23 07:44:27 (KST) / (하루 100회 제한 준수 중)*
