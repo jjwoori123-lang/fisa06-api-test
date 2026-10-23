@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Maresca hails Man City star Rayan Cherki as “One of Europe’s Best” after stunning start to the season](https://www.footballmuse.com/news/maresca-hails-man-city-star-rayan-cherki-as-one-of-europes-best-after-stunning-start-to-the-season) - **Footballmuse.com**
-2. [Meet Tom Chalmers, the 17-year-old who started Help4Homeless after repeatedly seeing a man sleeping rough in Peterborough](https://timesofindia.indiatimes.com/world/rest-of-world/meet-tom-chalmers-the-17-year-old-who-started-help4homeless-after-repeatedly-seeing-a-man-sleeping-rough-in-peterborough/articleshow/135117765.cms) - **The Times of India**
-3. [Liverpool in three-horse race with Champions League winners for €50m sensation](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-in-three-horse-race-with-champions-league-winners-for-eur50m-sensation/) - **Anfieldwatch.co.uk**
-4. [Why PETA Wants Crystal Palace to Ground Their Eagle Mascot](https://www.rediff.com/sports/report/peta-wants-crystal-palace-to-set-phoenix-free-says-stadiums-are-no-place-for-birds/20261022.htm) - **Rediff.com**
-5. [Manley relishing chance to lead Ireland into battle again](https://www.rte.ie/sport/camogie/2026/1022/1596445-manley-relishing-chance-to-lead-ireland-into-battle-again/) - **RTE**
-6. [Bye Week Check-Ins: Week 7](https://sports.yahoo.com/articles/bye-week-check-ins-week-113543094.html) - **Yahoo Entertainment**
-7. [PREVIEW | Aston Villa vs Manchester City: team news, lineups, predictions (Premier League 24/10)](https://www.playmakerstats.com/news/preview-aston-villa-vs-manchester-city-team-news-lineups-predictions-premier-league-24-10/1235938) - **Playmakerstats.com**
-8. [USA Sports Presents 100+ Pac-12 and Atlantic 10 College Basketball Games on USA Network in 2026-27](http://www.thefutoncritic.com/news/2026/10/22/usa-sports-presents-100plus-pac-12-and-atlantic-10-college-basketball-games-on-usa-network-in-2026-27-758412/20261022usa01/) - **Thefutoncritic.com**
-9. ['Not what a captain should be' - the debate around Fernandes' outburst](https://www.bbc.com/sport/football/articles/cq5ynp67grjro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-10. [Man City boss Eno Maresca declares star striker Erling Haaland '100 per cent' fit for Aston Villa clash](https://www.goal.com/en-us/news/man-city-eno-maresca-erling-haaland-aston-villa/blt88161596cf8ab6ac) - **Goal.com**
+1. [PREVIEW | Chelsea vs Tottenham: team news, lineups, predictions (Premier League 24/10)](https://www.playmakerstats.com/news/preview-chelsea-vs-tottenham-team-news-lineups-predictions-premier-league-24-10/1236187) - **Playmakerstats.com**
+2. [Sutton's predictions v Waffle the Wonder Dog and his owner, Simon](https://www.bbc.co.uk/sport/football/articles/c3y0eqkneze4o) - **BBC News**
+3. [Fernandes to remain Man Utd captain despite outburst](https://www.bbc.com/sport/football/articles/cqe8rglz8p90o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Rays catcher Liam Hicks spent teenage years in Toronto area before baseball career blossomed](https://www.cbc.ca/sports/baseball/mlb/liam-hicks-rays-career-blossomed-world-series-mlb-9.7391737) - **CBC News**
+5. [Fernandes to remain Man Utd captain despite outburst](https://www.bbc.co.uk/sport/football/articles/cqe8rglz8p90o) - **BBC News**
+6. [JOOLA Named Title Sponsor of DUPR, Introducing "DUPR powered by JOOLA"](https://www.prnewswire.com/news-releases/joola-named-title-sponsor-of-dupr-introducing-dupr-powered-by-joola-302917205.html) - **PRNewswire**
+7. [Bruno Fernandes tells Manchester United to 'stop living in the past' in brutal interview](https://www.alloutsoccer.com/news/fernandes-manchester-united-interview-como-2080441) - **Alloutsoccer.com**
+8. [Oliver Mansson responds to Arsenal transfer links](https://dailycannon.com/2026/10/oliver-mansson-arsenal/) - **Dailycannon.com**
+9. [Americans Abroad Weekend Preview: Robinson, Dest, and more](https://sbisoccer.com/2026/10/americans-abroad-weekend-preview-robinson-dest-and-more) - **Sbisoccer.com**
+10. [Three clubs join Arsenal in the battle for Haaland](https://www.justarsenal.com/three-clubs-join-arsenal-in-the-battle-for-haaland/424315) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-10-23 20:49:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-24 01:42:01 (KST) / (하루 100회 제한 준수 중)*
