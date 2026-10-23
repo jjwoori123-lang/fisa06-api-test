@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Harry Kane shows Arsenal what they're missing at striker as Bayern hold Arsenal in Champions League draw](https://www.cbssports.com/soccer/news/harry-kane-shows-arsenal-what-theyre-missing-at-striker-bayern-arsenal-champions-league/) - **CBS Sports**
-2. [Papers: Brighton boss Hurzeler would be Shearer's pick to replace Carrick](https://www.skysports.com/football/transfer-paper-talk/13602091/manchester-united-should-appoint-fabio-hurzeler-if-they-replace-michel-carrick-says-former-premier-league-winner-alan-shearer-paper-talk) - **Sky Sports**
-3. [fpl-context-mcp 0.11.0](https://pypi.org/project/fpl-context-mcp/0.11.0/) - **Pypi.org**
-4. [fpl-context-mcp 0.10.1](https://pypi.org/project/fpl-context-mcp/0.10.1/) - **Pypi.org**
-5. [Man Utd humiliated as Arsenal deny Bayern in Champions League](https://sports.yahoo.com/articles/man-utd-humiliated-arsenal-deny-220815573.html) - **Yahoo Entertainment**
-6. ['It doesn't look good': Mikel Arteta sparks fears over Bukayo Saka injury after Arsenal winger limped off during 2-2 draw with Bayern Munich](https://www.dailymail.com/sport/football/article-16228305/Mikel-Arteta-sparks-fears-Bukayo-Saka-injury-Bayern-Munich.html) - **Dailymail.com**
-7. [Villa tame Viking to stay perfect in Champions League](https://sports.yahoo.com/articles/villa-tame-viking-stay-perfect-205922852.html) - **Yahoo Entertainment**
-8. [Manchester United Humiliated 4-1 by Como as Cesc Fàbregas Exposes Defensive Weaknesses](https://heavy.com/sports/soccer/premier-league/manchester-united-fc/manchester-united-humiliated-4-1-by-como-as-cesc-fabregas-exposes-defensive-weaknesses/) - **Heavy.com**
-9. [fpl-context-mcp 0.10.0](https://pypi.org/project/fpl-context-mcp/0.10.0/) - **Pypi.org**
-10. [Will the real Celtic stand up? Devastating against Hearts, diabolical against Benfica ... Maloney praying Bhoys can bring their domestic form to the table for must-win Celta Vigo clash](https://www.dailymail.com/sport/football/article-16227735/Will-real-Celtic-stand-Devastating-against-Hearts-diabolical-against-Benfica-Maloney-praying-Bhoys-bring-domestic-form-table-win-Celta-Vigo-clash.html) - **Dailymail.com**
+1. [Chelsea Confidential: The untold stories that shaped 'Magic' Mike Penders, as Cobham insiders tip 6ft 7in goalkeeper with unshakeable mentality and secret signal to be 'absolutely elite' ahead of acid test against Spurs](https://www.dailymail.com/sport/football/article-16224023/chelsea-confidential-mike-penders-goalkeeper.html) - **Dailymail.com**
+2. [Former Celtic manager reveals where Hoops would finish in Premier League](https://celticshorts.com/2026/10/former-celtic-manager-reveals-where-hoops-would-finish-in-premier-league/) - **Celticshorts.com**
+3. [How to Watch the 2026/27 UEFA Champions League, Even for Free](https://uk.pcmag.com/video-streaming-services/168037/how-to-watch-the-champions-league-even-for-free-2026-27-october) - **PCMag.com**
+4. [How to Watch the Columbus Crew vs. St. Louis City SC 2026 US Open Cup Final (Even for Free)](https://uk.pcmag.com/video-streaming-services/168007/how-to-watch-columbus-crew-vs-st-louis-city-sc-for-free-2026-us-open-final) - **PCMag.com**
+5. [Bayern Munich’s Vincent Kompany delivers health update after Arsenal clash](https://www.bavarianfootballworks.com/bayern-munich-champions-league/271115/bayern-munich-vincent-kompany-health-update-arsenal-champions-league-viral-infection) - **Bavarian Football Works**
+6. [Arsenal boss Mikel Arteta concerned over Bukayo Saka's quad injury](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261021-930-874469/) - **Dpa-international.com**
+7. [Goal, assist... goal-kick - Kane underlines Ballon d'Or credentials](https://www.bbc.com/sport/football/articles/ck79p7qq1q9ro?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. ['Doesn't look good' - Arteta concerned over Saka injury](https://www.rte.ie/sport/soccer/2026/1021/1596372-doesnt-look-good-arteta-concerned-over-saka-injury/) - **RTE**
+9. [What did Bruno Fernandes say about Man United tactics? Red Devils captain questions Michael Carrick after Como loss](https://www.sportingnews.com/us/soccer/manchester-united/news/what-bruno-fernandes-say-man-united-tactics-captain-carrick/325b5b5f5ef16b75d9dc5fb2) - **Sporting News**
+10. [Mourinho: “I’ve been here 105 days, Real Madrid are not where I want us to be”](https://www.managingmadrid.com/coach/114472/mourinho-ive-been-here-105-days-real-madrid-are-not-where-i-want-us-to-be) - **Managing Madrid**
 
 
 ---
-*최근 업데이트: 2026-10-23 07:44:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-23 10:19:24 (KST) / (하루 100회 제한 준수 중)*
