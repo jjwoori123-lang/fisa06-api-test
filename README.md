@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bournemouth batter 10-man Milan, while other English sides all draw in Europe](https://www.thejournal.ie/european-football-round-up-5-7202562-Oct2026/) - **TheJournal.ie**
-2. [Wesley continues to draw interest in Premier League](https://romapress.net/wesley-continues-to-draw-interest-in-premier-league/) - **RomaPress**
-3. [Man City Sanctions: Would Arsenal Fans Be Happy With Relegation?](https://www.justarsenal.com/man-city-sanctions-would-arsenal-fans-be-happy-with-relegation/424344) - **Just Arsenal News**
-4. [Haaland captaincy headache - stick or twist? FPL gameweek eight dilemmas](https://www.bbc.co.uk/sport/football/articles/cq1m43jee9z5o) - **BBC News**
-5. [Manchester United could turn to former Premier League boss as Michael Carrick replacement](https://eplindex.com/151685/manchester-united-could-turn-to-former-premier-league-boss-as-michael-carrick-replacement.html) - **English Premier League Index - Opta Stats**
-6. [Eddie Howe in pole position to replace Michael Carrick as Manchester United manager](https://footballtoday.com/2026/10/23/eddie-howe-in-pole-position-to-replace-michael-carrick-as-manchester-united-manager/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=eddie-howe-in-pole-position-to-replace-michael-carrick-as-manchester-united-manager) - **Footballtoday.com**
-7. [What is going on at 'chaotic' Newcastle?](https://www.bbc.com/sport/football/articles/c60qkpe0e54qo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [What is going on at 'chaotic' Newcastle?](https://www.bbc.co.uk/sport/football/articles/c60qkpe0e54qo) - **BBC News**
-9. [Premier League 2026/27: Man City face tricky Villa test, Man United need to bounce back](https://footballtoday.com/2026/10/23/premier-league-2026-27-man-city-face-tricky-villa-test-man-united-need-to-bounce-back/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=premier-league-2026-27-man-city-face-tricky-villa-test-man-united-need-to-bounce-back) - **Footballtoday.com**
-10. [Michael Carrick’s Last Dance? Three men who could drag Man United out of the mud](https://www.goal.com/en-us/news/michael-carrick-s-last-dance-three-men-who-could-drag-man-united-out-of-the-mud/blt0c748669e626181b) - **Goal.com**
+1. [All you need to know about the 2026 Ballon d'Or](https://www.bbc.com/sport/football/articles/cw0541g4qzgeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [All you need to know about the 2026 Ballon d'Or](https://www.bbc.co.uk/sport/football/articles/cw0541g4qzgeo) - **BBC News**
+3. [Man United eyeing former Arsenal boss as potential Carrick replacement](https://eplindex.com/151689/man-united-eyeing-former-arsenal-boss-as-potential-carrick-replacement.html) - **English Premier League Index - Opta Stats**
+4. [How to watch Aston Villa vs Manchester City match in the USA: Live stream and TV for 2026-27 Premier League](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-aston-villa-vs-manchester-city-match-in-the-usa-live-stream-and-tv-for-2026-27-premier-league/) - **Worldsoccertalk.com**
+5. [“Too good one-on-one”: Hurzeler reveals Brighton plan to contain Liverpool star Wirtz](https://www.footballmuse.com/news/too-good-one-on-one-hurzeler-reveals-brighton-plan-to-contain-liverpool-star-wirtz) - **Footballmuse.com**
+6. [Ian Rush imparts 5-word advice to ‘fantastic’ Bradley Barcola after £106m Liverpool move](https://www.empireofthekop.com/2026/10/23/ian-rush-advice-fantastic-bradley-barcola/) - **Empire of The Kop**
+7. [Birmingham City appoint former Man Utd chief as new director of football](https://hayters.com/birmingham-city-appoint-former-man-utd-chief-as-new-director-of-football/) - **Hayters.com**
+8. [‘I’m focused on my job’: Hurzeler brushes off Manchester United speculation ahead of Liverpool clash](https://www.footballmuse.com/news/hurzeler-brushes-off-manchester-united-speculation-ahead-of-liverpool-clash) - **Footballmuse.com**
+9. [India cricketer S Meghana announces retirement from all formats](https://economictimes.indiatimes.com/news/sports/cricket/india-cricketer-s-meghana-announces-retirement-from-all-formats/articleshow/135144288.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-10-24 15:59:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-24 20:56:29 (KST) / (하루 100회 제한 준수 중)*
