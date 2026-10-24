@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [All you need to know about the 2026 Ballon d'Or](https://www.bbc.com/sport/football/articles/cw0541g4qzgeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [All you need to know about the 2026 Ballon d'Or](https://www.bbc.co.uk/sport/football/articles/cw0541g4qzgeo) - **BBC News**
-3. [Man United eyeing former Arsenal boss as potential Carrick replacement](https://eplindex.com/151689/man-united-eyeing-former-arsenal-boss-as-potential-carrick-replacement.html) - **English Premier League Index - Opta Stats**
-4. [How to watch Aston Villa vs Manchester City match in the USA: Live stream and TV for 2026-27 Premier League](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-aston-villa-vs-manchester-city-match-in-the-usa-live-stream-and-tv-for-2026-27-premier-league/) - **Worldsoccertalk.com**
-5. [“Too good one-on-one”: Hurzeler reveals Brighton plan to contain Liverpool star Wirtz](https://www.footballmuse.com/news/too-good-one-on-one-hurzeler-reveals-brighton-plan-to-contain-liverpool-star-wirtz) - **Footballmuse.com**
-6. [Ian Rush imparts 5-word advice to ‘fantastic’ Bradley Barcola after £106m Liverpool move](https://www.empireofthekop.com/2026/10/23/ian-rush-advice-fantastic-bradley-barcola/) - **Empire of The Kop**
-7. [Birmingham City appoint former Man Utd chief as new director of football](https://hayters.com/birmingham-city-appoint-former-man-utd-chief-as-new-director-of-football/) - **Hayters.com**
-8. [‘I’m focused on my job’: Hurzeler brushes off Manchester United speculation ahead of Liverpool clash](https://www.footballmuse.com/news/hurzeler-brushes-off-manchester-united-speculation-ahead-of-liverpool-clash) - **Footballmuse.com**
-9. [India cricketer S Meghana announces retirement from all formats](https://economictimes.indiatimes.com/news/sports/cricket/india-cricketer-s-meghana-announces-retirement-from-all-formats/articleshow/135144288.cms) - **The Times of India**
+1. [Vincent Kompany rushed to hospital in an ambulance after 'collapsing' at Bayern Munich's training ground](https://www.dailymail.com/sport/football/article-16233701/Vincent-Kompany-rushed-hospital-Bayern-Munichs-training-ground-ambulance-viral-infection-left-manager-struggling-climb-stairs.html) - **Dailymail.com**
+2. [Arsenal predicted lineup vs. Everton: Who replaces injured Bukayo Saka?](https://www.usatoday.com/story/sports/soccer/epl/2026/10/23/arsenal-lineup-everton-bukayo-saka-replacement/92395437007/) - **USA Today**
+3. [EPL: Arteta hails Moyes, warns Arsenal of Everton threat](https://punchng.com/epl-arteta-hails-moyes-warns-arsenal-of-everton-threat/) - **The Punch**
+4. [USA Sports Delivers Most-Watched WNBA Finals Game 3 Since 1999, Best Ever on Cable](http://www.thefutoncritic.com/ratings/2026/10/23/usa-sports-delivers-most-watched-wnba-finals-game-3-since-1999-best-ever-on-cable-609225/20261023usa01/) - **Thefutoncritic.com**
+5. [De Zerbi says Tottenham's dire record at Chelsea 'more motivation'](https://sports.yahoo.com/articles/zerbi-says-tottenhams-dire-record-152446878.html) - **Yahoo Entertainment**
+6. [Manchester United boss Michael Carrick delivers defiant five-minute monologue at press conference](https://www.irishtimes.com/sport/soccer/2026/10/23/manchester-united-boss-michael-carrick-delivers-defiant-five-minute-monologue-at-press-conference/) - **The Irish Times**
+7. [Saka to miss Everton clash as Arsenal await injury scans](https://punchng.com/saka-to-miss-everton-clash-as-arsenal-await-injury-scans/) - **The Punch**
+8. [EPL: Gusto fit for Tottenham clash, Martinez out, says Alonso](https://punchng.com/epl-gusto-fit-for-tottenham-clash-martinez-out-says-alonso/) - **The Punch**
+9. [Chelsea vs Tottenham: Match preview, team news and predicted line-ups](https://www.talkchelsea.net/match-previews/chelsea-vs-tottenham-match-preview-team-news-and-predicted-line-ups/) - **Talk Chelsea**
+10. [Passions high! Alonso tells Blues stars to use derby fire to extinguish Spurs at Stamford Bridge](https://www.goal.com/en-us/news/xabi-alonso-chelsea-tottenham-derby-emotional-control/bltc2190bb96f64a64e) - **Goal.com**
 
 
 ---
-*최근 업데이트: 2026-10-24 20:56:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-25 00:44:09 (KST) / (하루 100회 제한 준수 중)*
