@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [From Cobham to the Boys in Green: Chelsea’s quiet contribution to Irish football](https://www.talkchelsea.net/opinions/from-cobham-to-the-boys-in-green-chelseas-quiet-contribution-to-irish-football/) - **Talk Chelsea**
-2. [Chelsea outcast Alejandro Garnacho faces transfer limbo as Aston Villa prepare to freeze out winger to avoid permanent buy clause](https://www.goal.com/en-us/news/chelsea-outcast-alejandro-garnacho-transfer-limbo-aston-villa-avoid-buy-clause/bltd3b4178dbfe32073) - **Goal.com**
-3. [David Moyes is not sure Arteta has taken so much from him](https://www.justarsenal.com/david-moyes-is-not-sure-arteta-has-taken-so-much-from-him/424438) - **Just Arsenal News**
-4. [Watch: Jackson gives Villa early advantage against Premier League leaders](https://www.101greatgoals.com/football/premier-league/watch-jackson-gives-villa-early-advantage-against-premier-league-leaders/) - **101 Great Goals**
-5. [Chelsea Starting XI vs Tottenham Hotspur: Confirmed Team News and Predicted Lineup](https://eplindex.com/151726/chelsea-starting-xi-vs-tottenham-hotspur-confirmed-team-news-and-predicted-lineup-3.html) - **English Premier League Index - Opta Stats**
-6. [Ex-United coach Benni McCarthy name drops the perfect Carrick replacement at Man United](https://thepeoplesperson.com/2026/10/24/ex-united-coach-benni-mccarthy-name-drops-the-perfect-carrick-replacement-at-man-united-320144/) - **The Peoples Person**
-7. [Liverpool have stepped up their interest in Champions League midfielder](https://anfieldindex.com/102173/liverpool-have-stepped-up-their-interest-in-champions-league-midfielder.html) - **Anfieldindex.com**
-8. [England defender Marc Guehi rejects the knee AGAIN: Man City star doubles down against anti-racism gesture after suggesting it had 'lost its meaning'](https://www.dailymail.com/sport/football/article-16235095/marc-guehi-england-knee-racism.html) - **Dailymail.com**
-9. [Iraola tells young Liverpool star Ngumoha to ignore the hype](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261024-930-887111/) - **Dpa-international.com**
-10. [Newcastle United perspective on Premier League fixtures to play out today (24 October 2026)](https://www.themag.co.uk/2026/10/newcastle-united-perspective-on-premier-league-fixtures-to-play-out-today-24-october-2026/) - **The Mag**
+1. [Yankees and pitching coach Matt Blake agree on three-year contract extension](https://sny.tv/articles/yankees-pitching-coach-matt-blake-three-year-contract-extension) - **SNY.tv**
+2. [Xabi Alonso delivers worrying injury update on in-form Joao Pedro as Chelsea face Tottenham without their top scorer](https://www.goal.com/en-us/news/xabi-alonso-delivers-worrying-injury-update-in-form-joao-pedro-chelsea-face-tottenham-without-top-scorer/blt43a2369ade99fc5d) - **Goal.com**
+3. [“It has to be done”: Michael Carrick fires demand to his Man United stars ahead of Bournemouth](https://thepeoplesperson.com/2026/10/24/it-has-to-be-done-michael-carrick-fires-demand-to-his-man-united-stars-ahead-of-bournemouth-320157/) - **The Peoples Person**
+4. [Arsenal player ratings vs Everton: Ezri Konsa and Gabriel lead tactical masterclass in routine win](https://www.goal.com/en-us/news/arsenal-vs-everton-player-ratings-premier-league/blte9bf20cbb66308df) - **Goal.com**
+5. [Arsenal 2-0 Everton: Konsa and Gabriel Fire Gunners Level With Man City](https://www.justarsenal.com/arsenal-2-0-everton-konsa-and-gabriel-fire-gunners-level-with-man-city/424391) - **Just Arsenal News**
+6. [Arsenal wipe out gap to leaders Man City as defensive duo down Everton](https://www.the42.ie/arsenal-everton-premier-league-7204242-Oct2026/) - **The42**
+7. [Gabriel Gets 8.5, Konsa With 8 | Arsenal Players Rated In Solid Win Vs Everton](https://the4thofficial.net/2026/10/gabriel-gets-8-5-konsa-with-8-arsenal-players-rated-in-solid-win-vs-everton/) - **The4thofficial.net**
+8. [EPL: Arsenal beat Everton 2-0 to level with Man City on points](https://punchng.com/epl-arsenal-beat-everton-2-0-to-level-with-man-city-on-points/) - **The Punch**
+9. [Arsenal 2-0 Everton: Match Report & Instant Reaction | Arsenal cruise past Blues](https://royalbluemersey.sbnation.com/everton-2025-26-season-premier-league-fixtures-hill-dickinson-moyes/84107/arsenal-2-0-everton-match-report-instant-reaction-arsenal-cruise-past-blues) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-10-25 21:23:56 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-26 01:47:54 (KST) / (하루 100회 제한 준수 중)*
