@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Yankees and pitching coach Matt Blake agree on three-year contract extension](https://sny.tv/articles/yankees-pitching-coach-matt-blake-three-year-contract-extension) - **SNY.tv**
-2. [Xabi Alonso delivers worrying injury update on in-form Joao Pedro as Chelsea face Tottenham without their top scorer](https://www.goal.com/en-us/news/xabi-alonso-delivers-worrying-injury-update-in-form-joao-pedro-chelsea-face-tottenham-without-top-scorer/blt43a2369ade99fc5d) - **Goal.com**
-3. [“It has to be done”: Michael Carrick fires demand to his Man United stars ahead of Bournemouth](https://thepeoplesperson.com/2026/10/24/it-has-to-be-done-michael-carrick-fires-demand-to-his-man-united-stars-ahead-of-bournemouth-320157/) - **The Peoples Person**
-4. [Arsenal player ratings vs Everton: Ezri Konsa and Gabriel lead tactical masterclass in routine win](https://www.goal.com/en-us/news/arsenal-vs-everton-player-ratings-premier-league/blte9bf20cbb66308df) - **Goal.com**
-5. [Arsenal 2-0 Everton: Konsa and Gabriel Fire Gunners Level With Man City](https://www.justarsenal.com/arsenal-2-0-everton-konsa-and-gabriel-fire-gunners-level-with-man-city/424391) - **Just Arsenal News**
-6. [Arsenal wipe out gap to leaders Man City as defensive duo down Everton](https://www.the42.ie/arsenal-everton-premier-league-7204242-Oct2026/) - **The42**
-7. [Gabriel Gets 8.5, Konsa With 8 | Arsenal Players Rated In Solid Win Vs Everton](https://the4thofficial.net/2026/10/gabriel-gets-8-5-konsa-with-8-arsenal-players-rated-in-solid-win-vs-everton/) - **The4thofficial.net**
-8. [EPL: Arsenal beat Everton 2-0 to level with Man City on points](https://punchng.com/epl-arsenal-beat-everton-2-0-to-level-with-man-city-on-points/) - **The Punch**
-9. [Arsenal 2-0 Everton: Match Report & Instant Reaction | Arsenal cruise past Blues](https://royalbluemersey.sbnation.com/everton-2025-26-season-premier-league-fixtures-hill-dickinson-moyes/84107/arsenal-2-0-everton-match-report-instant-reaction-arsenal-cruise-past-blues) - **SB Nation**
+1. [McInnes urges Rangers to shut out the noise and deliver in vital double-header](https://www.dailymail.com/sport/football/article-16235887/McInnes-Rangers.html) - **Dailymail.com**
+2. ['We could have played better' - Alonso disappointed after defeat](https://www.bbc.co.uk/sport/football/videos/ckvg6j1p51xdo) - **BBC News**
+3. [Leeds United Consider Contract Extension For Their Main Man: Can His System Deliver Europe?](https://the4thofficial.net/2026/10/leeds-united-consider-contract-extension-for-their-main-man-can-his-system-deliver-europe/) - **The4thofficial.net**
+4. [Chelsea vs Tottenham Player Ratings: Palmer Sees Red as Spurs Claim Rare Win](https://eplindex.com/151749/chelsea-vs-tottenham-player-ratings-palmer-sees-red-as-spurs-claim-rare-win.html) - **English Premier League Index - Opta Stats**
+5. [Spurs pick up rare Stamford Bridge win as Palmer sent off](https://www.bbc.co.uk/sport/football/videos/ckly0dnqz0r7o) - **BBC News**
+6. [Palmer Gets 5, Rogers With 5.5 | Chelsea Players Rated In Derby Defeat Vs Tottenham Hotspur](https://the4thofficial.net/2026/10/palmer-gets-5-rogers-with-5-5-chelsea-players-rated-in-derby-defeat-vs-tottenham-hotspur/) - **The4thofficial.net**
+7. [Chelsea 0-2 Spurs PLAYER RATINGS: Which Blues star endured a nightmare outing? Who was an 'absolute nuisance' for the visitors? And how did Cole Palmer rate after red card?](https://www.dailymail.com/sport/football/article-16229499/Chelsea-0-2-Spurs-PLAYER-RATINGS-Blues-star-endured-nightmare-outing-absolute-nuisance-visitors-did-Cole-Palmer-rate-red-card.html) - **Dailymail.com**
+8. [Chelsea 0-2 Spurs PLAYER RATINGS: Which Blues star endured a nightmare outing? Who was an 'absolute nuisance' for the visitors? And how did Cole Palmer rate after red card?](https://www.dailymail.com/sport/football/article-16229499/Chelsea-0-2-Spurs-PLAYER-RATINGS-Blues-star-endured-nightmare-outing-absolute-nuisance-visitors-did-Cole-Palmer-rate-red-card.html) - **Dailymail.com**
+9. ['Best performance since I arrived' - De Zerbi praises Spurs after win](https://www.bbc.co.uk/sport/football/videos/cqkg5m3lnr5zo) - **BBC News**
+10. [Right-back confirms he's ready to return to Liverpool](https://www.anfieldwatch.co.uk/liverpool-fc/news/right-back-confirms-hes-ready-to-return-to-liverpool/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-10-26 01:47:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-26 04:27:56 (KST) / (하루 100회 제한 준수 중)*
