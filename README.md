@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Man Utd not an unmanageable club - Carrick](https://www.bbc.com/sport/football/articles/c9ly0dxxgp7lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Man Utd not an unmanageable club - Carrick](https://www.bbc.co.uk/sport/football/articles/c9ly0dxxgp7lo) - **BBC News**
-3. [James Tarkowski says they were undone by Arsenal’s setpieces](https://www.justarsenal.com/james-tarkowski-says-they-were-undone-by-arsenals-setpieces/424484) - **Just Arsenal News**
-4. [Highest position since early January - are Spurs finally on way back?](https://www.bbc.co.uk/sport/football/articles/cqev38dz34vxo) - **BBC News**
-5. [Liverpool ready to make move for 23-year-old Premier League star](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-ready-to-make-move-for-23-year-old-premier-league-star/) - **Anfieldwatch.co.uk**
-6. [Celtic Consider January Exit For Their 33-Year-Old Keeper: Should They Sign Toth Instead?](https://the4thofficial.net/2026/10/celtic-consider-january-exit-for-their-33-year-old-keeper-should-they-sign-toth-instead/) - **The4thofficial.net**
-7. [Alejandro Garnacho: Aston Villa settle on radical step to avoid permanent deal for ex-Man United star](https://thepeoplesperson.com/2026/10/24/alejandro-garnacho-aston-villa-settle-on-radical-step-to-avoid-permanent-deal-for-ex-man-united-star-320163/) - **The Peoples Person**
-8. [Papers: Sancho could land in Spain as Getafe offer winger shock deal](https://www.skysports.com/football/transfer-paper-talk/13603391/jadon-sancho-offered-shock-deal-by-la-liga-side-getafe-riccardo-calafiori-adds-to-arsenal-injury-woes-paper-talk) - **Sky Sports**
-9. [From Barcelona to Inter: Europe’s domestically unbeaten teams](https://punchng.com/from-barcelona-to-inter-europes-domestically-unbeaten-teams/) - **The Punch**
-10. [Behind the chants and jeers, Man City may have more allies than anyone cares to admit... and Unai Emery's silence speaks volumes, writes JACK GAUGHAN](https://www.dailymail.com/sport/football/article-16229471/man-city-allies-aston-villa-ambitious-owners.html) - **Dailymail.com**
+1. [Nigerian stars hit historic 100-mark milestones in 2026](https://punchng.com/nigerian-stars-hit-historic-100-mark-milestones-in-2026/) - **The Punch**
+2. [Chukwueze faces two-month injury lay-off](https://punchng.com/chukwueze-faces-two-month-injury-lay-off/) - **The Punch**
+3. [Changi Boys fight back to hold Peace Boys](https://punchng.com/changi-boys-fight-back-to-hold-peace-boys/) - **The Punch**
+4. [Oga Boys, Oluyole Warriors battle in Southwest derby](https://punchng.com/oga-boys-oluyole-warriors-battle-in-southwest-derby/) - **The Punch**
+5. [Benin Arsenals, Pride of Rivers clash in Benin City](https://punchng.com/benin-arsenals-pride-of-rivers-clash-in-benin-city/) - **The Punch**
+6. [The candid meeting that 'changed' Spurs - are they finally on way back?](https://www.bbc.com/sport/football/articles/cqev38dz34vxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+7. [Ronald Araujo admits staying at Liverpool ‘isn’t solely up to me’ amid talk of permanent transfer](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/136025/ronald-araujo-admits-staying-liverpool-not-upto-me) - **Barca Blaugranes**
+8. [Watch Match of the Day on iPlayer](https://www.bbc.co.uk/iplayer/episode/m0033jlx/match-of-the-day-24102026?at_campaign=rss&at_medium=RSS) - **BBC News**
+9. [Man Utd not an unmanageable club - Carrick](https://www.bbc.com/sport/football/articles/c9ly0dxxgp7lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-10-26 07:01:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-26 09:27:23 (KST) / (하루 100회 제한 준수 중)*
