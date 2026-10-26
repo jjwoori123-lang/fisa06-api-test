@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Nigerian stars hit historic 100-mark milestones in 2026](https://punchng.com/nigerian-stars-hit-historic-100-mark-milestones-in-2026/) - **The Punch**
-2. [Chukwueze faces two-month injury lay-off](https://punchng.com/chukwueze-faces-two-month-injury-lay-off/) - **The Punch**
-3. [Changi Boys fight back to hold Peace Boys](https://punchng.com/changi-boys-fight-back-to-hold-peace-boys/) - **The Punch**
-4. [Oga Boys, Oluyole Warriors battle in Southwest derby](https://punchng.com/oga-boys-oluyole-warriors-battle-in-southwest-derby/) - **The Punch**
-5. [Benin Arsenals, Pride of Rivers clash in Benin City](https://punchng.com/benin-arsenals-pride-of-rivers-clash-in-benin-city/) - **The Punch**
-6. [The candid meeting that 'changed' Spurs - are they finally on way back?](https://www.bbc.com/sport/football/articles/cqev38dz34vxo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [Ronald Araujo admits staying at Liverpool ‘isn’t solely up to me’ amid talk of permanent transfer](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/136025/ronald-araujo-admits-staying-liverpool-not-upto-me) - **Barca Blaugranes**
-8. [Watch Match of the Day on iPlayer](https://www.bbc.co.uk/iplayer/episode/m0033jlx/match-of-the-day-24102026?at_campaign=rss&at_medium=RSS) - **BBC News**
-9. [Man Utd not an unmanageable club - Carrick](https://www.bbc.com/sport/football/articles/c9ly0dxxgp7lo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [Score Predictions - Leeds in the league - can we get a welcome win?](https://rokerreport.sbnation.com/features/157052/score-predictions-can-sunderland-find-the-winning-formula-against-leeds) - **SB Nation**
+2. [Manchester United vs Bournemouth – Match preview and team news](https://thefootballfaithful.com/manchester-united-vs-bournemouth-match-preview-and-team-news-3/) - **The Football Faithful**
+3. [Leeds United XI vs Sunderland – Predicted lineup and team news](https://thefootballfaithful.com/leeds-united-xi-vs-sunderland-predicted-lineup-and-team-news-2/) - **The Football Faithful**
+4. [Brentford XI vs Hull City – Predicted lineup and team news](https://thefootballfaithful.com/brentford-xi-vs-hull-city-predicted-lineup-and-team-news/) - **The Football Faithful**
+5. [Liverpool vs Brighton – Predicted lineup and team news](https://thefootballfaithful.com/liverpool-vs-brighton-predicted-lineup-and-team-news-4/) - **The Football Faithful**
+6. [Hull City vs Brentford – Match preview and team news](https://thefootballfaithful.com/hull-city-vs-brentford-match-preview-and-team-news/) - **The Football Faithful**
+7. [Hull City vs Brentford – Predicted lineup and team news](https://thefootballfaithful.com/hull-city-vs-brentford-predicted-lineup-and-team-news/) - **The Football Faithful**
+8. [Newcastle United XI vs Crystal Palace – Predicted lineup and team news](https://thefootballfaithful.com/newcastle-united-xi-vs-crystal-palace-predicted-lineup-and-team-news/) - **The Football Faithful**
+9. [Liverpool vs Brighton – Match preview and team news](https://thefootballfaithful.com/liverpool-vs-brighton-match-preview-and-team-news-4/) - **The Football Faithful**
+10. [Manchester United vs Bournemouth – Predicted lineup and team news](https://thefootballfaithful.com/manchester-united-vs-bournemouth-predicted-lineup-and-team-news-3/) - **The Football Faithful**
 
 
 ---
-*최근 업데이트: 2026-10-26 09:27:23 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-26 14:15:54 (KST) / (하루 100회 제한 준수 중)*
