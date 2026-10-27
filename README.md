@@ -1,14 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Chelsea vs Tottenham: Ref Watch Panel Debate Palmer and Van de Ven Incidents](https://sports.yahoo.com/articles/chelsea-vs-tottenham-ref-watch-180639278.html) - **Yahoo Entertainment**
-2. [Who should replace Michael Carrick as Man United boss as pressure mounts? Bringing in Unai Emery would be the best thing INEOS have done, writes NATHAN SALT... but would Eddie Howe simply be Carrick 2.0?](https://www.dailymail.com/sport/football/article-16238943/michael-carrick-man-united-replacement-favourites.html) - **Dailymail.com**
-3. [Ben White says we are about to see the best of him and Jurrien Timber](https://www.justarsenal.com/ben-white-says-we-are-about-to-see-the-best-of-him-and-jurrien-timber/424594) - **Just Arsenal News**
-4. [Two names emerge to replace Michael Carrick! Manchester United consider Eddie Howe and Julian Nagelsmann after Bournemouth humiliation](https://www.goal.com/en-us/news/-michael-carrick-manchester-united-eddie-howe-julian-nagelsmann-bournemouth-humiliation-/bltb87d23303ab10519) - **Goal.com**
-5. [Steps forward but questions abound for Bohs and Pat's](https://www.rte.ie/sport/soccer/2026/1026/1596879-steps-forward-but-questions-abound-for-bohs-and-pats/) - **RTE**
-6. [Liverpool interested in move for £34m Premier League star](https://eplindex.com/151800/liverpool-interested-in-move-for-34m-premier-league-star.html) - **English Premier League Index - Opta Stats**
-7. [How PSG Became the Best Team In the World](https://urbanpitch.com/how-psg-became-the-best-team-in-the-world/) - **Urbanpitch.com**
-8. [Antonio Conte: Ex-Man United coach delivers blunt verdict on potential Old Trafford move](https://thepeoplesperson.com/2026/10/26/antonio-conte-not-right-for-man-united-says-rene-meulensteen-320396/) - **The Peoples Person**
+1. [Leeds United Boss Wins Exit Clause: Is It Loyalty Or Pragmatism?](https://the4thofficial.net/2026/10/leeds-united-boss-wins-exit-clause-is-it-loyalty-or-pragmatism/) - **The4thofficial.net**
+2. [Andoni Iraola handpicks new £30m right-back](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-benfica-daniel-banjaqui-andoni-iraola-handpicks-new-ps30m-right-back/) - **Anfieldwatch.co.uk**
+3. [Chelsea and Liverpool could be set for huge Alex Scott blow](https://eplindex.com/151801/chelsea-and-liverpool-could-be-set-for-huge-alex-scott-blow.html) - **English Premier League Index - Opta Stats**
+4. [Michael Carrick left in limbo as vilified chiefs Omar Berrada and Jason Wilcox meet for crisis summit at Carrington: Inside Man United's day of reckoning after humiliating Bournemouth defeat](https://www.dailymail.com/sport/football/article-16240537/Michael-Carrick-left-limbo-chiefs-meet-crisis-summit-Inside-Man-Uniteds-day-reckoning.html) - **Dailymail.com**
+5. [Liverpool reach decision over deal for £50m Senegal forward](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-ismaila-sarr-crystal-palace-reach-decision-over-deal-for-ps50m-senegal-forward/) - **Anfieldwatch.co.uk**
+6. [Who Rules The Big 12? Oklahoma State, TCU, Baylor, West Virginia All In The Mix](https://www.foxsports.com/stories/womens-college-basketball/big-12-power-shift-oklahoma-states-women-loaded-with-transfers-baylor-no-longer-alone-at-the-top) - **Fox Sports**
+7. [No. 1 South Carolina, Texas, Vanderbilt Lead Loaded SEC Women’s Basketball Field](https://www.foxsports.com/stories/womens-college-basketball/south-carolina-gamecocks-texas-longhorns-lsu-tigers-sec-preview) - **Fox Sports**
+8. [Everton Takeover Threatens Moyes: Should The Club Change Its Cautious Approach?](https://the4thofficial.net/2026/10/everton-takeover-threatens-moyes-should-the-club-change-its-cautious-approach/) - **The4thofficial.net**
+9. [Where does Manchester United go next?](https://thebusbybabe.sbnation.com/general/36247/where-does-manchester-united-go-next) - **SB Nation**
+10. [Botman, Ramsey And Wissa To Start | 4-3-3 Newcastle United Predicted Lineup Vs Everton](https://the4thofficial.net/2026/10/botman-ramsey-and-wissa-to-start-4-3-3-newcastle-united-predicted-lineup-vs-everton/) - **The4thofficial.net**
 
 
 ---
-*최근 업데이트: 2026-10-28 03:18:00 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-28 07:25:26 (KST) / (하루 100회 제한 준수 중)*
