@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bruno Fernandes: Ex-Newcastle boss explains why Carrick was wrong to drop Man United skipper](https://thepeoplesperson.com/2026/10/26/bruno-fernandes-ex-newcastle-boss-explains-why-carrick-was-wrong-to-drop-man-united-skipper-320319/) - **The Peoples Person**
-2. [Sri Lanka’s Perera to play for Janakpur Bolts in NPL](https://english.khabarhub.com/2026/26/573182/) - **Khabarhub.com**
-3. [Ranking the 6 worst trades in WNBA history, from Becky Hammon to Angel Reese](https://www.sportingnews.com/us/wnba/news/ranking-worst-trades-wnba-history-becky-hammon-angel-reese/bce7f1914a802ff9aa472ddb) - **Sporting News**
-4. [Nepal Premier League prize money: How much will teams, players earn for winning NPL 2026?](https://www.sportingnews.com/in/tsn/news/nepal-premier-league-2026-prize-money-breakdown-winners-earn-npl-2026/c1f5b001426a807c73ba324d) - **Sporting News**
-5. [‘Hanging by a thread’: Sky provide bleak update on Carrick’s future as INEOS line up two successors](https://utdreport.co.uk/2026/10/26/hanging-by-a-thread-sky-provide-bleak-update-on-carricks-future-as-ineos-line-up-two-successors/) - **Utdreport.co.uk**
-6. [United can make a huge statement by hiring Didier Deschamps who is a free agent](https://thepeoplesperson.com/2026/10/26/united-can-make-a-huge-statement-by-hiring-didier-deschamps-who-is-a-free-agent-320312/) - **The Peoples Person**
-7. [Salah-mania grips Turkey after soccer star joins Trabzonspor club](https://sports.yahoo.com/articles/salah-mania-grips-turkey-soccer-050552942.html) - **Yahoo Entertainment**
-8. [Editorial: Sunderland Need To Go Back To Build For The Future](https://rokerreport.sbnation.com/opinion/157553/editorial-sunderland-need-to-go-back-to-build-for-the-future) - **SB Nation**
-9. [Talking Points: Solid And Steady As Sunderland Draw With Leeds](https://rokerreport.sbnation.com/features/157382/talking-points-solid-and-steady-as-sunderland-draw-with-leeds) - **SB Nation**
-10. [Kelly Olynyk: from the NBA Finals to Italian hoops: “It’s amazing playing for such passionate fans”](https://www.repubblica.it/en/europe/sport/2026/10/26/news/basketball_player_kelly_olynyk_from_the_nba_to_bc_roma-425673073/) - **La Repubblica**
+1. [Virgil's brick wall! Van Dijk salutes aggressive partners Araujo and Jacquet after shut-out](https://www.goal.com/en-us/news/virgil-van-dijk-liverpool-ronald-araujo-jeremy-jacquet-brighton/bltf676516b3a445b6b) - **Goal.com**
+2. [Cody Gakpo reveals Liverpool’s ‘big help’ ahead of Arsenal & Chelsea clashes](https://footballtoday.com/2026/10/26/cody-gakpo-reveals-liverpools-big-help-ahead-of-arsenal-chelsea-clashes/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=cody-gakpo-reveals-liverpools-big-help-ahead-of-arsenal-chelsea-clashes) - **Footballtoday.com**
+3. [Key takeaways from Real Madrid’s El Clasico win over Barcelona](https://www.aljazeera.com/sports/2026/10/26/real-madrid-barcelona-el-clasico-mourinho-mbappe-takeaways) - **Al Jazeera English**
+4. [OLIVER HOLT: Man City and Man United fans are saddled with despicable owners who have twisted their great clubs out of shape. One is a plaything, the other a cash cow. These are dark days for Manchesterism in football](https://www.dailymail.com/sport/football/article-16239187/OLIVER-HOLT-Man-City-Man-United-Manchesterism.html) - **Dailymail.com**
+5. [Man Utd crisis deepens as Carrick faces axe](https://sports.yahoo.com/articles/man-utd-crisis-deepens-carrick-122035071.html) - **Yahoo Entertainment**
+6. [Manchester United crisis: What are the top five problems facing the club?](https://www.aljazeera.com/sports/2026/10/26/manchester-united-crisis-what-are-the-top-five-problems-facing-the-club) - **Al Jazeera English**
+7. [Ballon d'Or Power Rankings: Why Harry Kane should win over Lamine Yamal, Kylian Mbappe, and Lionel Messi](https://www.cbssports.com/soccer/news/ballon-dor-harry-kane-should-win-lamine-yamal-kylian-mbappe-lionel-messi/) - **CBS Sports**
+8. [“The Championship's Crazy" - Callum O'Hare Talks Wrexham](https://roundtable.io/sports/soccer/efl/wrexham/players/the-championships-crazy---callum-ohare-talks-wrexham) - **Roundtable.io**
+9. [Manager Guardiola describes as ‘top-class’ is the favourite to replace Carrick as Man Utd hold emergency meeting](https://utdreport.co.uk/2026/10/26/eddie-howe-favourite-michael-carrick-man-utd/) - **Utdreport.co.uk**
+10. [Richard Hughes' mistake now looks painfully obvious](https://www.anfieldwatch.co.uk/liverpool-fc/news/richard-hughes-mistake-now-looks-painfully-obvious-andrew-robertson/) - **Anfieldwatch.co.uk**
 
 
 ---
-*최근 업데이트: 2026-10-27 15:24:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-27 21:39:01 (KST) / (하루 100회 제한 준수 중)*
