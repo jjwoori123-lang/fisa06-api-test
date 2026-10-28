@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How to watch Detroit Pistons vs New York Knicks: TV/live stream info for tonight's game](https://www.nbcsports.com/nba/news/how-to-watch-detroit-pistons-vs-new-york-knicks-tv-live-stream-info-for-tonights-game) - **NBCSports.com**
-2. [Man United chiefs have been struck by paralysis and indecision again. By not putting Michael Carrick out of his misery, they are letting another season go to the dogs, writes IAN HERBERT](https://www.dailymail.com/sport/football/article-16242667/Michael-Carrick-Man-United-Old-Trafford.html) - **Dailymail.com**
-3. [NPL: Karnali Yaks beats Janakpur Bolts by 19 runs](https://english.khabarhub.com/2026/27/573397/) - **Khabarhub.com**
-4. [Eze set for long run in Arsenal team; can he prove his worth?](https://www.justarsenal.com/eze-set-for-long-run-in-arsenal-team-can-he-prove-his-worth/424657) - **Just Arsenal News**
-5. [Bayern 'risk' reaps huge reward for Ballon d'Or winner Kane](https://sports.yahoo.com/articles/bayern-risk-reaps-huge-reward-145737808.html) - **Yahoo Entertainment**
-6. [Carrick stays on as Manchester United manager for crucial Chelsea match](https://www.aljazeera.com/sports/2026/10/27/carrick-stays-on-as-manchester-united-manager-for-crucial-chelsea-match) - **Al Jazeera English**
-7. [Gerrard says Michael Carrick won’t win back Manchester United dressing room mmid ‘bad group’](https://www.footballmuse.com/news/gerrard-says-michael-carrick-wont-win-back-manchester-united-dressing-room-mmid-bad-group) - **Footballmuse.com**
-8. [Barcelona lose ground in race for JJ Gabriel as Manchester United delay exit – report](https://barcauniversal.com/barcelona-lose-ground-in-race-for-jj-gabriel-as-manchester-united-delay-exit-report/) - **Barcauniversal.com**
-9. [Michael Carrick survives United crisis talks as under-pressure boss to take charge against Chelsea](https://www.alloutsoccer.com/news/michael-carrick-manchester-united-chelsea-2086294) - **Alloutsoccer.com**
-10. ['Delaying the inevitable' or right call? Key questions as Carrick stays](https://www.skysports.com/football/news/13604361/michael-carrick-why-man-utd-head-coach-will-stay-on-and-could-bruno-fernandes-play-vs-chelsea-plus-other-key-questions) - **Sky Sports**
+1. [Journalist names one thing Liverpool can do to instantly become Premier League title challengers](https://anfieldindex.com/102496/journalist-names-one-thing-liverpool-can-do-to-instantly-become-premier-league-title-challengers.html) - **Anfieldindex.com**
+2. [Manchester City Are Keeping Tabs On This Talented Forward: Should Maresca Get Him On Board?](https://the4thofficial.net/2026/10/manchester-city-are-keeping-tabs-on-this-talented-forward/) - **The4thofficial.net**
+3. [Crystal Palace consider former Tottenham and Brentford boss Thomas Frank as potential replacement for under-pressure Pierre Sage](https://www.goal.com/en-us/news/crystal-palace-consider-former-tottenham-brentford-boss-thomas-frank-potential-replacement-under-pressure-pierre-sage/blte19e958688af8272) - **Goal.com**
+4. [Aston Villa Scout Turkish Winger: Would He Solve Emery’s Left-Wing Problem?](https://the4thofficial.net/2026/10/aston-villa-scout-turkish-winger-would-he-solve-emerys-left-wing-problem/) - **The4thofficial.net**
+5. [Carlos Forbs: Why Man United see ex-City winger as perfect fit for their attack](https://thepeoplesperson.com/2026/10/27/carlos-forbs-transfer-man-united-target-ex-man-city-winger-320477/) - **The Peoples Person**
+6. [PREVIEW: Fleetwood Town host Arsenal for the first time in Carabao Cup clash](https://wp.fromthespot.co.uk/32103/preview-fleetwood-town-host-arsenal-for-the-first-time-in-carabao-cup-clash/) - **Fromthespot.co.uk**
+7. [When is Carabao Cup quarterfinal draw? Ball numbers and key dates for next stage of 2026/27 EFL knockout tournament](https://www.sportingnews.com/us/soccer/news/when-carabao-cup-quarterfinal-draw-details-efl-tournament/c3ffe04e4134e2066a049de6) - **Sporting News**
+8. [Joao Pedro's absence for Chelsea gives a chance to Emegha](https://sports.yahoo.com/articles/joao-pedros-absence-chelsea-gives-192045477.html) - **Yahoo Entertainment**
+9. [LIVE – Fleetwood v Arsenal: Commentary, updates, goals and stats as Gunners visit Highbury Stadium](https://www.101greatgoals.com/live/fleetwood-vs-arsenal-live-latest-score-text-updates-goals-stats-latest-result-carabao-efl-cup/) - **101 Great Goals**
+10. ['I was fearing for my leg': Former Premier League star Jermaine Pennant breaks silence on brutal dog attack that left him needing 50 stitches](https://www.dailymail.com/sport/football/article-16243413/Former-Premier-League-Jermaine-Pennant-brutal-dog-attack-50-stitches.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-10-29 00:12:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-29 05:21:36 (KST) / (하루 100회 제한 준수 중)*
