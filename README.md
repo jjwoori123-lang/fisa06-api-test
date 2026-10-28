@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Carabao Cup: Arsenal should unleash Dowman as Liverpool-Chelsea clash](https://www.skysports.com/football/news/13603943/arsenal-should-unleash-max-dowman-liverpool-and-chelsea-clash-in-battle-of-the-basques-and-man-city-continue-defence-carabao-cup-talking-points) - **Sky Sports**
-2. [Carabao Cup: Arsenal should unleash Dowman as Liverpool-Chelsea clash](https://www.skysports.com/football/news/13603943/arsenal-should-unleash-max-dowman-liverpool-and-chelsea-clash-in-battle-of-the-basques-and-man-city-continue-defence-carabao-cup-talking-points) - **Sky Sports**
-3. [What is wrong with the media coverage of ManU and what Arsenal are doing now](https://untold-arsenal.com/archives/123897) - **Untold-arsenal.com**
-4. [Anirudh Ravichander-Kavya Maran wedding reception invite: A look at Baroque design, vintage seal in viral video. Who is on the guest list?](https://economictimes.indiatimes.com/magazines/panache/anirudh-ravichander-kavya-maran-wedding-reception-invite-a-look-at-baroque-design-vintage-seal-in-viral-video-who-is-on-the-guest-list/articleshow/135227324.cms) - **The Times of India**
-5. ['Streets ahead of everyone else!' - Paul Scholes tells Man Utd to ignore 'madman' warning and appoint Antonio Conte](https://www.goal.com/en-us/news/paul-scholes-tells-man-utd-to-antonio-conte/blt9858977c62e072cb) - **Goal.com**
-6. [Value Adder: Luka Vuskovic to Liverpool is a Premier League bombshell](https://www.anfieldwatch.co.uk/liverpool-fc/news/value-adder-luka-vuskovic-to-liverpool-is-a-premier-league-bombshell/) - **Anfieldwatch.co.uk**
-7. [Bruno Fernandes’ position in Ballon d’Or rankings announced](https://thepeoplesperson.com/2026/10/27/bruno-fernandes-ballon-dor-ranking-man-united-star-27th-320422/) - **The Peoples Person**
-8. [Zion Suzuki is making a case to be the signing of the Premier League season](https://roundtable.io/sports/soccer/premier-league/aston-villa/news/zion-suzuki-is-making-a-case-to-be-the-signing-of-the-premier-league-season) - **Roundtable.io**
-9. [‘Our pride is in play’ - Mikel Arteta issues stern warning to Arsenal stars ahead of Fleetwood Town clash](https://www.goal.com/en-us/news/mikel-arteta-arsenal-fleetwood-town/blt1703ccf571a9fe75) - **Goal.com**
-10. [No Saliba, no problem - Konsa stepping up for Arsenal](https://www.bbc.com/sport/football/articles/cw5ynr87jdr0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [How to watch Detroit Pistons vs New York Knicks: TV/live stream info for tonight's game](https://www.nbcsports.com/nba/news/how-to-watch-detroit-pistons-vs-new-york-knicks-tv-live-stream-info-for-tonights-game) - **NBCSports.com**
+2. [Man United chiefs have been struck by paralysis and indecision again. By not putting Michael Carrick out of his misery, they are letting another season go to the dogs, writes IAN HERBERT](https://www.dailymail.com/sport/football/article-16242667/Michael-Carrick-Man-United-Old-Trafford.html) - **Dailymail.com**
+3. [NPL: Karnali Yaks beats Janakpur Bolts by 19 runs](https://english.khabarhub.com/2026/27/573397/) - **Khabarhub.com**
+4. [Eze set for long run in Arsenal team; can he prove his worth?](https://www.justarsenal.com/eze-set-for-long-run-in-arsenal-team-can-he-prove-his-worth/424657) - **Just Arsenal News**
+5. [Bayern 'risk' reaps huge reward for Ballon d'Or winner Kane](https://sports.yahoo.com/articles/bayern-risk-reaps-huge-reward-145737808.html) - **Yahoo Entertainment**
+6. [Carrick stays on as Manchester United manager for crucial Chelsea match](https://www.aljazeera.com/sports/2026/10/27/carrick-stays-on-as-manchester-united-manager-for-crucial-chelsea-match) - **Al Jazeera English**
+7. [Gerrard says Michael Carrick won’t win back Manchester United dressing room mmid ‘bad group’](https://www.footballmuse.com/news/gerrard-says-michael-carrick-wont-win-back-manchester-united-dressing-room-mmid-bad-group) - **Footballmuse.com**
+8. [Barcelona lose ground in race for JJ Gabriel as Manchester United delay exit – report](https://barcauniversal.com/barcelona-lose-ground-in-race-for-jj-gabriel-as-manchester-united-delay-exit-report/) - **Barcauniversal.com**
+9. [Michael Carrick survives United crisis talks as under-pressure boss to take charge against Chelsea](https://www.alloutsoccer.com/news/michael-carrick-manchester-united-chelsea-2086294) - **Alloutsoccer.com**
+10. ['Delaying the inevitable' or right call? Key questions as Carrick stays](https://www.skysports.com/football/news/13604361/michael-carrick-why-man-utd-head-coach-will-stay-on-and-could-bruno-fernandes-play-vs-chelsea-plus-other-key-questions) - **Sky Sports**
 
 
 ---
-*최근 업데이트: 2026-10-28 17:01:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-29 00:12:02 (KST) / (하루 100회 제한 준수 중)*
