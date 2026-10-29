@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [AshantiGold CEO explains why he sacked Karim Zito](https://thechronicle.com.gh/ashantigold-ceo-explains-why-he-sacked-karim-zito/) - **Thechronicle.com.gh**
-2. [Today’s English League Cup Last 16 Fixtures & Previews](https://thechronicle.com.gh/todays-english-league-cup-last-16-fixtures-previews-2/) - **Thechronicle.com.gh**
-3. [Arsenal stunned by fourth-tier Fleetwood in League Cup](https://sports.yahoo.com/articles/arsenal-stunned-fourth-tier-fleetwood-222738054.html) - **Yahoo Entertainment**
-4. [How Michael Carrick survived as Man United boss after 72 hours of drama: Why Jason Wilcox and Omar Berrada were reluctant to pull the trigger and the signs he was keeping his job after being given stay of execution](https://www.dailymail.com/sport/football/article-16243857/How-Michael-Carrick-survived-Man-United-boss-72-hours-drama-Jason-Wilcox-Omar-Berrada-reluctant-pull-trigger-signs-keeping-job-given-stay-execution.html) - **Dailymail.com**
-5. [How Michael Carrick survived as Man United boss after 72 hours of drama: Why Jason Wilcox and Omar Berrada were reluctant to pull the trigger and the signs he was keeping his job after being given stay of execution](https://www.dailymail.com/sport/football/article-16243857/How-Michael-Carrick-survived-Man-United-boss-72-hours-drama-Jason-Wilcox-Omar-Berrada-reluctant-pull-trigger-signs-keeping-job-given-stay-execution.html) - **Dailymail.com**
-6. [Where does Fleetwood beating Arsenal rank in biggest cup upsets?](https://www.bbc.com/sport/football/articles/cq62y7yzjdmzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-7. [NFL Offensive Line Tiers Week 8: Rams, 49ers Stand Alone While Eagles, Vikings Fall to F Tier](https://www.profootballnetwork.com/nfl-offensive-line-tiers-week-8-2026/) - **Pro Football Network**
-8. [How to watch WPL auction in India? Live stream, TV channel and start time for Women's Premier League 2027 mini-auction](https://www.sportingnews.com/in/cricket/news/watch-wpl-auction-live-stream-tv-channel-start-time-womens-premier-league-2027/278d359b0fd874fa29388dee) - **Sporting News**
-9. [Peter Schmeichel accuses Erik ten Hag of 'stirring the pot' with his attack on Man United's owners - and tells former Red Devils boss to look in the mirror: 'How DARE he go out and say that!'](https://www.dailymail.com/sport/football/article-16243533/peter-schmeichel-erik-ten-hag-man-united-criticism.html) - **Dailymail.com**
-10. ['A very sad day': Arteta despair as Arsenal stunned by Fleetwood](https://sports.yahoo.com/articles/very-sad-day-arteta-despair-231609444.html) - **Yahoo Entertainment**
+1. [Ice in his veins! Fleetwood hero Conor Haughey reveals he DID NOT even practise penalties before dumping Arsenal out of Carabao Cup](https://www.goal.com/en-us/news/fleetwood-conor-haughey-practise-penalties-arsenal-carabao-cup/blt4d338d5f00b9e740) - **Goal.com**
+2. ['One to tell the grandkids!' - Fleetwood defender Jake Batty revels in historic Carabao Cup giant-killing after dumping out 10-man Premier League champions Arsenal on penalties](https://www.goal.com/en-us/news/fleetwood-defender-jake-batty-carabao-cup-giant-killing-10-man-arsenal-penalties/blt5ece37f9962640a4) - **Goal.com**
+3. [Manchester City vs Brighton: Latest City team news and predicted starting XI](https://esteemedkompany.com/2026/10/28/manchester-city-vs-brighton-latest-city-team-news-and-predicted-starting-xi/) - **Esteemedkompany.com**
+4. [Arsenal knocked out of League Cup by fourth-tier Fleetwood Town](https://www.aljazeera.com/sports/2026/10/28/arsenal-fleetwood-town-league-cup-penalties-guimaraes-dowman) - **Al Jazeera English**
+5. [Payton Wilson on brutal 'Welcome to the NFL' moment vs. Jaylen Warren](https://steelerswire.usatoday.com/story/sports/nfl/steelers/2026/10/28/steelers-payton-wilson-hilarious-jaylen-warren-story/92233680007/) - **USA Today**
+6. [Michael Carrick will revive Bruno Fernandes and turn United’s season around with one tactical change](https://thepeoplesperson.com/2026/10/28/how-michael-carrick-can-revive-bruno-fernandes-at-man-united-320488/) - **The Peoples Person**
+7. [‘What we need’ – Virgil van Dijk explains why Ronald Araujo is thriving at Liverpool](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/136317/virgil-van-dijk-explains-why-ronald-araujo-thriving-liverpool) - **Barca Blaugranes**
+8. [WPL 2027 Auction Live Streaming: When and where to watch Women's Premier League in India, time, venue and top players to watch out for](https://economictimes.indiatimes.com/news/new-updates/wpl-2027-auction-live-streaming-when-and-where-to-watch-womens-premier-league-in-india-time-venue-jiohotstar-sony-sports-network-and-top-players-to-watch-out-for/articleshow/135252828.cms) - **The Times of India**
+9. [WPL 2027 auction: When and where to watch live, date, time and streaming details](https://timesofindia.indiatimes.com/sports/cricket/wpl/wpl-2027-auction-when-and-where-to-watch-live-date-time-and-streaming-details/articleshow/135250990.cms) - **The Times of India**
+10. [Navy All-American Bowl to honor wide receiver Jaylen Addai](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/navy-all-american-bowl-to-honor-wide-receiver-jaylen-addai) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-10-29 09:22:47 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-29 15:26:11 (KST) / (하루 100회 제한 준수 중)*
