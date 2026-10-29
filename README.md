@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Mikel Arteta criticized for angry reaction to 16-year-old Max Dowman's red card](https://www.usatoday.com/story/sports/soccer/2026/10/28/mikel-arteta-criticized-dowman-red-card-arsenal-vs-fleetwood/92475227007/) - **USA Today**
-2. [Predicted XI: Brazilian starlet finally gets his chance as Alonso mixes up the rotation](https://www.talkchelsea.net/news/estevao-gets-chance-alonso-rotation/) - **Talk Chelsea**
-3. [Pokhara Avengers set 146-run target for Sudurpaschim Royals](https://english.khabarhub.com/2026/28/573516/) - **Khabarhub.com**
-4. [Odegaard urges Arsenal to move on after Fleetwood defeat](https://punchng.com/odegaard-urges-arsenal-to-move-on-after-fleetwood-defeat/) - **The Punch**
-5. [Ref Watch: Arsenal's red card appeal will fail - Dowman was aggressive](https://www.skysports.com/football/news/13604803/max-dowman-red-card-arsenals-appeal-against-decision-will-fail-says-former-premier-league-referee-dermot-gallagher) - **Sky Sports**
-6. [WPL 2027 auction: UP Warriorz pick Sushma Verma for Rs 30 lakh as Uma Chetry, Taniya Bhatia go unsold](https://economictimes.indiatimes.com/news/sports/cricket/wpl-2027-auction-up-warriorz-pick-sushma-verma-for-rs-30-lakh-as-uma-chetry-taniya-bhatia-go-unsold/articleshow/135266931.cms) - **The Times of India**
-7. [Why I chose music over football — Mr Eazi](https://punchng.com/why-i-chose-music-over-football-mr-eazi/) - **The Punch**
-8. [WPL 2027 auction most expensive players: Top 10 biggest buys, highest bids, player prices and teams revealed](https://timesofindia.indiatimes.com/sports/cricket/wpl/wpl-2027-auction-most-expensive-players-top-10-biggest-buys-highest-bids-player-prices-and-teams-revealed/articleshow/135266429.cms) - **The Times of India**
-9. [Are Brighton a Premier League contender? Manchester City EFL Cup match will be biggest test yet](https://www.cbssports.com/soccer/news/brighton-premier-league-manchester-city-efl-cup/) - **CBS Sports**
+1. [Manchester United striker Benjamin Sesko ruled out until January to add to Carrick’s woes](https://www.101greatgoals.com/football/premier-league/manchester-united-striker-benjamin-sesko-ruled-out-until-january-to-add-to-carricks-woes/) - **101 Great Goals**
+2. [Why is Gianluigi Donnarumma not playing for Manchester City vs Brighton in the Carabao Cup?](https://worldsoccertalk.com/news/why-is-gianluigi-donnarumma-not-playing-for-manchester-city-vs-brighton-in-the-carabao-cup/) - **Worldsoccertalk.com**
+3. [Cristiano Ronaldo beats Lionel Messi for inaugural Ballon d'Or 'B.O.A.T' award](https://www.usatoday.com/story/sports/soccer/2026/10/28/ronaldo-messi-ballon-dor-boat-award/92482017007/) - **USA Today**
+4. [Celestini appointed Burnley head coach after Hayen's departure](https://www.channelnewsasia.com/sport/celestini-appointed-burnley-head-coach-after-hayens-departure-6501141) - **CNA**
+5. [Joe Cole explains how Man City can beat Arsenal to the title](https://www.justarsenal.com/joe-cole-explains-how-man-city-can-beat-arsenal-to-the-title/424715) - **Just Arsenal News**
+6. [Everton Given Verdict To Sign This Rangers Midfield Star: Should Moyes Pursue Him?](https://the4thofficial.net/2026/10/everton-given-verdict-to-sign-this-rangers-midfield-star-should-moyes-pursue-him/) - **The4thofficial.net**
+7. [Liverpool vs. Chelsea, League Cup: Confirmed lineups; how to watch](https://weaintgotnohistory.sbnation.com/chelsea-fc-league-cup/173513/liverpool-vs-chelsea-league-cup-confirmed-lineups-how-to-watch) - **SB Nation**
+8. [Alexi Lalas suggests ‘best of both worlds’ Man City scenario for Cavan Sullivan after charges](https://www.alloutsoccer.com/news/lalas-sullivan-manchester-city-charges-2088109) - **Alloutsoccer.com**
+9. [Confirmed: Cristiano Ronaldo’s 2008 Ballon d’Or voted best of all time in historic fan poll](https://madriduniversal.com/confirmed-cristiano-ronaldos-2008-ballon-dor-voted-best-of-all-time-in-historic-fan-poll/) - **Madriduniversal.com**
+10. [Ronaldo’s 2008 Ballon d’Or tops fan poll](https://punchng.com/ronaldos-2008-ballon-dor-tops-fan-poll/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-10-29 22:41:45 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-30 04:26:48 (KST) / (하루 100회 제한 준수 중)*
