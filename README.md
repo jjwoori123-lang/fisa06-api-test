@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [EFL Cup quarter-final draw: Fleetwood earn Everton or Newcastle tie](https://thefootballfaithful.com/efl-cup-quarter-final-draw-fleetwood-earn-everton-or-newcastle-tie/) - **The Football Faithful**
-2. [Bournemouth in pinch-me territory as another underdog success story in English soccer](https://sports.yahoo.com/articles/bournemouth-pinch-territory-another-underdog-093232658.html) - **Yahoo Entertainment**
-3. [New Episode of BBOC: Syracuse University Director of Athletics Bryan Blair](https://www.johnwallstreet.com/p/new-episode-of-bboc-northwestern-university-combe-family-vice-president-for-athletics-and-recreation-6358) - **Johnwallstreet.com**
-4. [Former team-mate ready to put the final nail in Carrick’s United coffin: match storylines for landmark Chelsea encounter](https://thepeoplesperson.com/2026/10/29/danny-welbeck-and-andrey-santos-man-united-vs-chelsea-preview-320607/) - **The Peoples Person**
-5. [Iraola praises Liverpool teenager after man-of-the-match Chelsea performance](https://thefootballfaithful.com/iraola-praises-liverpool-teenager-after-man-of-the-match-chelsea-performance/) - **The Football Faithful**
-6. [Chelsea injury nightmare deepens as Xabi Alonso provides update on Maxence Lacroix blow against Liverpool](https://www.goal.com/en-us/news/chelsea-injury-maxence-lacroix-liverpool-xabi-alonso/bltcd98f4664608188d) - **Goal.com**
-7. [Dev's Digest: Markanday '100 percent interested' in playing for India](https://www.skysports.com/football/news/13602656/devs-digest-dilan-markanday-100-per-cent-interested-in-playing-for-india-hamza-choudhury-fa-cup-final-shirt-raises-lb7-000-at-charity-auction) - **Sky Sports**
-8. [Tip of the Day: EFL Cup stalemate in tetchy clash on Merseyside](https://www.101greatgoals.com/football/tip-of-the-day-efl-cup-stalemate-in-tetchy-clash-on-merseyside/) - **101 Great Goals**
-9. [Xabi Alonso says Chelsea 'played with courage' despite Carabao Cup shootout exit at Liverpool](https://www.footballmuse.com/news/xabi-alonso-says-chelsea-played-with-courage-despite-carabao-cup-shootout-exit-at-liverpool) - **Footballmuse.com**
-10. [FULL LIST: Carabao Cup quarter-final fixtures revealed](https://punchng.com/full-list-carabao-cup-quarter-final-fixtures-revealed/) - **The Punch**
+1. [Sage on finding solutions at Palace and visiting De Zerbi for ideas](https://www.skysports.com/football/news/13605441/crystal-palace-pierre-sage-on-finding-solutions-visiting-roberto-de-zerbi-and-building-foundations-for-future-success) - **Sky Sports**
+2. [Manchester United’s Carrick backs Fernandes and is expected to face Chelsea](https://www.aljazeera.com/sports/2026/10/29/manchester-uniteds-carrick-expected-to-face-chelsea-and-backs-fernandes) - **Al Jazeera English**
+3. [Michael Carrick keeps Bruno Fernandes as captain and says he needs no assurances on future](https://www.irishtimes.com/sport/soccer/2026/10/29/michael-carrick-keeps-bruno-fernandes-as-captain-and-says-he-needs-no-assurances-on-future/) - **The Irish Times**
+4. [Dodgers open as favorites to win 2027 World Series despite Brewers' dominant championship season](https://www.thesportingtribune.com/2026/10/29/dodgers-open-as-favorites-to-win-2027-world-series) - **Thesportingtribune.com**
+5. [Jordan Henderson badge celebration delights Chelsea and infuriates Liverpool fans](https://www.alloutsoccer.com/news/jordan-henderson-badge-celebration-delights-2089282) - **Alloutsoccer.com**
+6. [Chelsea vs Liverpool Carabao Cup: 12 players could miss Anfield clash](https://www.alloutsoccer.com/news/chelsea-vs-liverpool-carabao-cup-2089279) - **Alloutsoccer.com**
+7. [Arizona coach Tommy Lloyd knows there are ‘rough seas ahead’ in a Big 12 that is as deep as ever](https://www.nbcsports.com/mens-college-basketball/news/arizona-coach-tommy-lloyd-knows-there-are-rough-seas-ahead-in-a-big-12-that-is-as-deep-as-ever) - **NBCSports.com**
+8. [Today’s News in a Nutshell](https://english.khabarhub.com/2026/29/573572/) - **Khabarhub.com**
+9. [Landon Donovan and Tim Howard refuse to dumb down the conversation on ‘Unfiltered Soccer’](https://awfulannouncing.com/podcasts/landon-donovan-tim-howard-refuse-dumb-down-conversation-unfiltered-soccer.html) - **Awful Announcing**
+10. [Bears’ Jeffery Simmons trade sets up epic Quenton Nelson showdown vs. Seahawks](https://clutchpoints.com/nfl/chicago-bears/bears-news-chicago-jeffery-simmons-trade-sets-up-quenton-nelson-showdown-vs-seahawks) - **ClutchPoints**
 
 
 ---
-*최근 업데이트: 2026-10-30 18:45:52 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-31 01:34:16 (KST) / (하루 100회 제한 준수 중)*
