@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Aussie captain most expensive player at WPL auction](https://www.abc.net.au/news/2026-10-29/sophie-molineux-most-expensive-player-at-wpl-auction/107323522) - **ABC News (AU)**
-2. [Harry Kane is 'still processing' his Ballon d'Or win, so he went back to the only thing he knows](https://www.cbssports.com/soccer/news/harry-kane-reacts-to-ballon-dor-win-on-bayern-munich-return/) - **CBS Sports**
-3. ['Bournemouth is incredible - in summer it feels like I'm back in Brazil!': EVANILSON on taking down Man United and AC Milan, Marco Rose's 'high expectations', leaving home at 13 and drawing his late mother every day](https://www.dailymail.com/sport/football/article-16242639/Evanilson-interview-Bournemouth-Brazil.html) - **Dailymail.com**
-4. [Pat McAfee Makes Strong Statement on 49ers, Colts Blockbuster Trade](https://heavy.com/sports/nfl/san-francisco-49ers/pat-mcafee-makes-strong-statement-on-49ers-colts-blockbuster-trade/) - **Heavy.com**
-5. [Chiefs Could Solve Josh Simmons and WR Problems in Package Deal With Colts](https://heavy.com/sports/nfl/kansas-city-chiefs/josh-downs-bernhard-raimann-package-trade/) - **Heavy.com**
-6. [Dodgers Owner: Team Not For Sale Despite Complicated Financial Scrutiny](https://sports.yahoo.com/articles/dodgers-owner-team-not-sale-010139514.html) - **Yahoo Entertainment**
-7. [NPL: Janakpur face Kathmandu as Biratnagar take on Karnali](https://english.khabarhub.com/2026/29/573546/) - **Khabarhub.com**
-8. [Mark Walter says he will keep Dodgers 'no matter what' despite federal investigation into businesses](https://www.foxnews.com/outkick-sports/mark-walter-keep-dodgers-despite-federal-investigation-businesses) - **Fox News**
-9. ['He could be happier' - why is Estevao becoming Chelsea's forgotten man?](https://www.bbc.co.uk/sport/football/articles/cv5ynwkndw61o) - **BBC News**
-10. [Liverpool's Iraola did not want to pick Cherries in quarter-final draw](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261028-930-909296/) - **Dpa-international.com**
+1. [EFL Cup quarter-final draw: Fleetwood earn Everton or Newcastle tie](https://thefootballfaithful.com/efl-cup-quarter-final-draw-fleetwood-earn-everton-or-newcastle-tie/) - **The Football Faithful**
+2. [Bournemouth in pinch-me territory as another underdog success story in English soccer](https://sports.yahoo.com/articles/bournemouth-pinch-territory-another-underdog-093232658.html) - **Yahoo Entertainment**
+3. [New Episode of BBOC: Syracuse University Director of Athletics Bryan Blair](https://www.johnwallstreet.com/p/new-episode-of-bboc-northwestern-university-combe-family-vice-president-for-athletics-and-recreation-6358) - **Johnwallstreet.com**
+4. [Former team-mate ready to put the final nail in Carrick’s United coffin: match storylines for landmark Chelsea encounter](https://thepeoplesperson.com/2026/10/29/danny-welbeck-and-andrey-santos-man-united-vs-chelsea-preview-320607/) - **The Peoples Person**
+5. [Iraola praises Liverpool teenager after man-of-the-match Chelsea performance](https://thefootballfaithful.com/iraola-praises-liverpool-teenager-after-man-of-the-match-chelsea-performance/) - **The Football Faithful**
+6. [Chelsea injury nightmare deepens as Xabi Alonso provides update on Maxence Lacroix blow against Liverpool](https://www.goal.com/en-us/news/chelsea-injury-maxence-lacroix-liverpool-xabi-alonso/bltcd98f4664608188d) - **Goal.com**
+7. [Dev's Digest: Markanday '100 percent interested' in playing for India](https://www.skysports.com/football/news/13602656/devs-digest-dilan-markanday-100-per-cent-interested-in-playing-for-india-hamza-choudhury-fa-cup-final-shirt-raises-lb7-000-at-charity-auction) - **Sky Sports**
+8. [Tip of the Day: EFL Cup stalemate in tetchy clash on Merseyside](https://www.101greatgoals.com/football/tip-of-the-day-efl-cup-stalemate-in-tetchy-clash-on-merseyside/) - **101 Great Goals**
+9. [Xabi Alonso says Chelsea 'played with courage' despite Carabao Cup shootout exit at Liverpool](https://www.footballmuse.com/news/xabi-alonso-says-chelsea-played-with-courage-despite-carabao-cup-shootout-exit-at-liverpool) - **Footballmuse.com**
+10. [FULL LIST: Carabao Cup quarter-final fixtures revealed](https://punchng.com/full-list-carabao-cup-quarter-final-fixtures-revealed/) - **The Punch**
 
 
 ---
-*최근 업데이트: 2026-10-30 11:55:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-30 18:45:52 (KST) / (하루 100회 제한 준수 중)*
