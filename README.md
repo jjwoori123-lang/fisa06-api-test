@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sage on finding solutions at Palace and visiting De Zerbi for ideas](https://www.skysports.com/football/news/13605441/crystal-palace-pierre-sage-on-finding-solutions-visiting-roberto-de-zerbi-and-building-foundations-for-future-success) - **Sky Sports**
-2. [Manchester United’s Carrick backs Fernandes and is expected to face Chelsea](https://www.aljazeera.com/sports/2026/10/29/manchester-uniteds-carrick-expected-to-face-chelsea-and-backs-fernandes) - **Al Jazeera English**
-3. [Michael Carrick keeps Bruno Fernandes as captain and says he needs no assurances on future](https://www.irishtimes.com/sport/soccer/2026/10/29/michael-carrick-keeps-bruno-fernandes-as-captain-and-says-he-needs-no-assurances-on-future/) - **The Irish Times**
-4. [Dodgers open as favorites to win 2027 World Series despite Brewers' dominant championship season](https://www.thesportingtribune.com/2026/10/29/dodgers-open-as-favorites-to-win-2027-world-series) - **Thesportingtribune.com**
-5. [Jordan Henderson badge celebration delights Chelsea and infuriates Liverpool fans](https://www.alloutsoccer.com/news/jordan-henderson-badge-celebration-delights-2089282) - **Alloutsoccer.com**
-6. [Chelsea vs Liverpool Carabao Cup: 12 players could miss Anfield clash](https://www.alloutsoccer.com/news/chelsea-vs-liverpool-carabao-cup-2089279) - **Alloutsoccer.com**
-7. [Arizona coach Tommy Lloyd knows there are ‘rough seas ahead’ in a Big 12 that is as deep as ever](https://www.nbcsports.com/mens-college-basketball/news/arizona-coach-tommy-lloyd-knows-there-are-rough-seas-ahead-in-a-big-12-that-is-as-deep-as-ever) - **NBCSports.com**
-8. [Today’s News in a Nutshell](https://english.khabarhub.com/2026/29/573572/) - **Khabarhub.com**
-9. [Landon Donovan and Tim Howard refuse to dumb down the conversation on ‘Unfiltered Soccer’](https://awfulannouncing.com/podcasts/landon-donovan-tim-howard-refuse-dumb-down-conversation-unfiltered-soccer.html) - **Awful Announcing**
-10. [Bears’ Jeffery Simmons trade sets up epic Quenton Nelson showdown vs. Seahawks](https://clutchpoints.com/nfl/chicago-bears/bears-news-chicago-jeffery-simmons-trade-sets-up-quenton-nelson-showdown-vs-seahawks) - **ClutchPoints**
+1. [Aston Villa Force £75m Valuation For Targeted Goalkeeper: Should Emery Walk Away?](https://the4thofficial.net/2026/10/aston-villa-force-75m-valuation-for-targeted-goalkeeper-should-emery-walk-away/) - **The4thofficial.net**
+2. [USA Roster Prediction: Who Makes Pochettino's Nations League Quarterfinal Squad?](https://www.foxsports.com/stories/soccer/usmnt-roster-prediction-nations-league-quarterfinal-haiti) - **Fox Sports**
+3. [How a co-owner of the New York Giants is using AI to build a women's sports powerhouse with Gotham FC](https://www.businessinsider.com/carolyn-tisch-blodgett-womens-sports-gotham-fc-new-york-giants-2026-10#article) - **Business Insider**
+4. [Phil Parkinson may need to change his trusted approach to get Wrexham fans back on side](https://www.alloutsoccer.com/news/wrexham-phil-parkinson-change-approach-2088276) - **Alloutsoccer.com**
+5. [betr pointsbet steps and methods](https://learningjquery.com/2026/10/betr-pointsbet-steps-and-methods) - **Learningjquery.com**
+6. [Man United learn their chances of landing Calvert-Lewin as they plot January swoop](https://thepeoplesperson.com/2026/10/29/dominic-calvert-lewin-man-uniteds-chances-of-signing-star-320703/) - **The Peoples Person**
+7. [Sutton's predictions v A Bad Day At The Office star John Hannah](https://www.bbc.com/sport/football/articles/cq1m4j79x50jo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Sutton's predictions v Bad Day At The Office star John Hannah](https://www.bbc.co.uk/sport/football/articles/cq1m4j79x50jo) - **BBC News**
+9. [Haji Wright “progressing” towards Coventry City return](https://sbisoccer.com/2026/10/haji-wright-progressing-towards-coventry-city-return) - **Sbisoccer.com**
+10. [Weston McKennie delivers blunt assessment as Juventus' inconsistent season continues](https://www.alloutsoccer.com/news/usmnt-weston-mckennie-juventus-genoa-2089562) - **Alloutsoccer.com**
 
 
 ---
-*최근 업데이트: 2026-10-31 01:34:16 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-31 06:00:57 (KST) / (하루 100회 제한 준수 중)*
