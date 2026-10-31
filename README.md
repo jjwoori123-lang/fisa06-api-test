@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Game over for Liverpool forward: Talks resume over transfer away](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-transfer-news-federico-chiesa-inter-milan-forward-talks-resume-over-transfer-away/) - **Anfieldwatch.co.uk**
-2. [Predicted Starting XI: Manchester City vs Brighton & Hove Albion (Premier League)](https://cityxtra.co.uk/CITYXTRA/match-coverage/predicted-starting-xi-manchester-city-vs-brighton-hove-albion-premier-league-1) - **Cityxtra.co.uk**
-3. [Appeal rejected! Arsenal wonderkid Max Dowman slapped with three-match ban after Carabao Cup red card drama](https://www.goal.com/en-us/news/appeal-rejected-arsenal-max-dowman-ban-carabao-cup-red-card/blt3938e1d611f73b3f) - **Goal.com**
-4. [Revealed: Why Michael Carrick is 'not surprised' to still be Man Utd manager despite horror run](https://www.goal.com/en-us/news/michael-carrick-not-surprised-man-utd-manager/blt698797a149cbeffc) - **Goal.com**
-5. [How talking about Man Utd's cycle of doom became an industry](https://www.bbc.com/sport/football/articles/cjn5v3pl0159o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [IPL's $17 billion franchise values signal a premium on future growth](https://www.business-standard.com/sports/business/cricket-ipl-ipl-valuation-2026-sportico-franchise-values-revenue-sharing-126103000484_1.html) - **Business Standard**
-7. [Shamrock Rovers set for Dundalk trophy lift as St Pat’s and Bohs rue what might have been](https://www.irishtimes.com/sport/soccer/2026/10/30/shamrock-rovers-set-for-dundalk-trophy-lift-as-st-pats-and-bohs-rue-what-might-have-been/) - **The Irish Times**
-8. [Connacht’s experience could be enough to see off Leinster in URC clash](https://www.irishtimes.com/sport/rugby/2026/10/30/connachts-experience-could-be-enough-to-see-off-leinster-in-urc-clash/) - **The Irish Times**
-9. [Black Caps v India live updates: Fourth Twenty20 International from Eden Park](https://www.nzherald.co.nz/sport/cricket/black-caps/black-caps-v-india-live-updates-fourth-twenty20-at-eden-park/VRHHWSFN3ZAW5CALGE5HOFZMDQ/) - **New Zealand Herald**
-10. [Spooky! 11 HORROR mistakes from the PL this season!](https://www.skysports.com/football/video/13604798/11-horror-mistakes-from-the-premier-league-this-season-ft-martinez-petrovic-penders-and-more) - **Sky Sports**
+1. [What Now For Jack Grealish After Everton Punishment?](https://www.forbes.com/sites/grahamruthven/2026/10/30/what-now-for-jack-grealish-after-everton-punishment/) - **Forbes**
+2. [Paul Merson makes Premier League title claim Andoni Iraola may disagree with](https://www.empireofthekop.com/2026/10/30/paul-merson-makes-premier-league-title-claim-andoni-iraola-may-disagree-with/) - **Empire of The Kop**
+3. [AC Milan owner Gerry Cardinale gives Ruben Amorim unconditional backing and insists Scudetto is '100% possible'](https://www.goal.com/en-us/news/ac-milan-gerry-cardinale-ruben-amorim-scudetto/blt8ff0f8d3a3610c30) - **Goal.com**
+4. [SBI Spotlight: Sebastian Berhalter staying “super locked in” at league-leading Middlesbrough](https://sbisoccer.com/2026/10/sbi-spotlight-sebastian-berhalter-staying-super-locked-in-at-league-leading-middlesbrough) - **Sbisoccer.com**
+5. [St. John Bosco vs Mater Dei: How to watch California high school football clash](https://www.usatoday.com/story/sports/high-school/football/2026/10/30/st-john-bosco-mater-dei-high-school-football-nfhs-network/92478151007/) - **USA Today**
+6. [Manchester United considering surprise move for Premier League defender](https://eplindex.com/151937/manchester-united-considering-surprise-move-for-premier-league-defender.html) - **English Premier League Index - Opta Stats**
+7. ["It's a Dream" - Manchester City Winger Allan Elias Reacts to First Senior Brazil Call-Up](https://cityxtra.co.uk/CITYXTRA/news/its-a-dream---manchester-city-winger-allan-elias-reacts-to-first-senior-brazil-call-up) - **Cityxtra.co.uk**
+8. [Former Real Madrid defender’s potential return will be sorted in March-April as Mourinho talks await](https://madriduniversal.com/former-real-madrid-defenders-potential-return-will-be-sorted-in-march-april-as-mourinho-talks-await/) - **Madriduniversal.com**
+9. [Mark Tatum Gives An Update On NBA Europe’s Plans For 2027](https://sports.yahoo.com/articles/mark-tatum-gives-nba-europe-123711431.html) - **Yahoo Entertainment**
+10. [Liverpool home v Arsenal away and results the reverse of what you might expect](https://untold-arsenal.com/archives/123939) - **Untold-arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-10-31 15:45:37 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-10-31 22:26:01 (KST) / (하루 100회 제한 준수 중)*
