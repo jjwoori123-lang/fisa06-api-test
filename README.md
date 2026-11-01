@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Confirmed Line-Ups: Manchester City vs Brighton and Hove Albion (Premier League)](https://cityxtra.co.uk/CITYXTRA/match-coverage/confirmed-line-ups-manchester-city-vs-brighton-and-hove-albion-premier-league) - **Cityxtra.co.uk**
-2. [City make 10 changes - Haaland, Bouaddi and Nunes all start](https://www.mancity.com/news/mens/manchester-city-v-brighton-pl-31-oct-team-news-and-tactics-63929047) - **Manchester City FC**
-3. [WATCH: Matheus Cunha denied Manchester United opener against Chelsea](https://www.101greatgoals.com/football/premier-league/watch-matheus-cunha-denied-manchester-united-opener-chelsea/) - **101 Great Goals**
-4. [Bayern Munich vs. Borussia Dortmund: Match discussion, Game time thread, How to watch](https://www.bavarianfootballworks.com/bayern-munich-gamethreads-discussion/275252/bayern-munich-vs-borussia-dortmund-match-discussion-game-time-thread-how-to-watch) - **Bavarian Football Works**
-5. [Liverpool manager knows how Arsenal stars work as he plots their downfall](https://www.justarsenal.com/liverpool-manager-knows-how-arsenal-stars-work-as-he-plots-their-downfall/424878) - **Just Arsenal News**
-6. [Forest booed off as scoring woes continue in defeat at Brentford](https://www.skysports.com/football/news/13606092/brentford-2-0-nottingham-forest-oliver-glasners-side-put-in-another-concerning-performance-in-attack-as-bees-win) - **Sky Sports**
-7. [Forest's scoring woes under Glasner continue as Brentford win easily](https://www.skysports.com/football/news/13606092/brentford-2-0-nottingham-forest-oliver-glasners-side-put-in-another-concerning-performance-in-attack-as-bees-win) - **Sky Sports**
-8. [Araujo convinced Liverpool have another gear ahead of hosting Arsenal](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261031-930-922907/) - **Dpa-international.com**
-9. [Xabi Alonso requests for Chelsea: Barcelona’s top defender in January](https://barcauniversal.com/xabi-alonso-requests-for-chelsea-barcelonas-top-defender-in-january/) - **Barcauniversal.com**
+1. [Henderson denies Solanke with Spurs hungry for a second](https://www.skysports.com/football/video/13606406/save-d-henderson-51-tottenham-hotspur-1-0-crystal-palace) - **Sky Sports**
+2. [Le Fee Gets 7, Alderete With 5 | Sunderland Players Rated In Disappointing Loss Vs Coventry City](https://the4thofficial.net/2026/10/le-fee-gets-7-alderete-with-5-sunderland-players-rated-in-disappointing-loss-vs-coventry-city/) - **The4thofficial.net**
+3. [Brilliant Brighton show Carragher's chain must be broken when Man City charges case ends](https://www.sportingnews.com/us/soccer/news/brighton-carraghers-chain-man-city-charges-case/37a6292be3a572c06fe2ec24) - **Sporting News**
+4. [WATCH: Gray heads Tottenham in front after Mateta’s first Palace red](https://www.101greatgoals.com/football/premier-league/watch-gray-heads-tottenham-in-front-after-matetas-first-palace-red/) - **101 Great Goals**
+5. [Le Bris confident he has backing as Sunderland’s struggles continue](https://hayters.com/le-bris-confident-he-has-backing-as-sunderlands-struggles-continue/) - **Hayters.com**
+6. ['We're slow, making same mistakes!' - Glasner goes on a rant post Brentford loss!](https://www.skysports.com/football/video/13606379/nottingham-forests-oliver-glasner-goes-on-a-rant-post-brentford-loss) - **Sky Sports**
+7. [Analysis: Is Glasner under pressure?](https://www.bbc.com/sport/football/articles/cq62y14z76gmo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Le Bris shrugs off questions on Sunderland future](https://www.bbc.co.uk/sport/football/videos/cm9dz2yy1225o) - **BBC News**
+9. [Analysis: Thiago re-discovers scoring touch against Forest](https://www.bbc.com/sport/football/articles/c617ky0lk0pno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Maresca: It feels similar to Villa loss](https://www.mancity.com/news/mens/man-city-0-1-brighton-enzo-maresca-reaction-63929064) - **Manchester City FC**
 
 
 ---
-*최근 업데이트: 2026-11-01 22:45:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-02 03:46:36 (KST) / (하루 100회 제한 준수 중)*
