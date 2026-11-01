@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sourav Ganguly’s ‘Bigg Boss Bangla’ Among Highlights as Indian Media Giant JioStar Revenues Climb 10%](https://variety.com/2026/tv/news/sourav-ganguly-bigg-boss-highlight-jiostar-revenue-rises-1236935940/) - **Variety**
-2. [Xabi Alonso sheds light on Cole Palmer to Man Utd transfer rumours and issues 'big game' challenge to Chelsea star](https://www.goal.com/en-us/news/xabi-alonso-cole-palmer-man-utd-transfer-chelsea/bltb17c6be1a8f221a1) - **Goal.com**
-3. [Manchester City receive major squad boost ahead of Brighton clash as several key players become available](https://esteemedkompany.com/2026/10/31/manchester-city-receive-major-squad-boost-ahead-of-brighton-clash-as-several-key-players-become-available/) - **Esteemedkompany.com**
-4. [Watch Australia vs Cook Islands for FREE: Live streams](https://www.techradar.com/entertainment/rugby/watch-australia-vs-cook-islands-rugby-league-world-cup-2026-free) - **TechRadar**
-5. [Ballon d’Or winner Harry Kane and the Irish team of England players that never was](https://www.irishtimes.com/ireland/2026/10/31/ballon-dor-winner-harry-kane-and-the-irish-team-of-england-players-that-never-was/) - **The Irish Times**
-6. [Fabrizio Romano names the elite tactician “most appreciated” by the Man United board, he is a serial winner](https://thepeoplesperson.com/2026/10/31/unai-emery-most-admired-by-man-united-board-says-fabrizio-romano-320833/) - **The Peoples Person**
-7. [Andrey Santos reveals how his £50m switch from Chelsea to Manchester United started while taking his children to the doctor](https://www.goal.com/en-us/news/andrey-santos-reveals-how-50m-switch-chelsea-manchester-united-started-doctor/bltb52bba4faac4b21f) - **Goal.com**
-8. ['Something I want to prove' - Former Ireland star James McClean calls out reality TV star Joey Essex for Misfits boxing bout](https://www.goal.com/en-us/news/former-ireland-star-james-mcclean-calls-out-joey-essex-misfits-boxing-bout/blt7cb0a82aecdfd480) - **Goal.com**
-9. [Crystal Palace XI vs Tottenham – Predicted lineup and team news](https://thefootballfaithful.com/crystal-palace-xi-vs-tottenham-lineup/) - **The Football Faithful**
-10. [Starting XI: Is This The Sunderland Team For Massive Coventry Clash?](https://rokerreport.sbnation.com/match-previews/158120/starting-xi-is-this-the-sunderland-team-for-massive-coventry-clash) - **SB Nation**
+1. [Confirmed Line-Ups: Manchester City vs Brighton and Hove Albion (Premier League)](https://cityxtra.co.uk/CITYXTRA/match-coverage/confirmed-line-ups-manchester-city-vs-brighton-and-hove-albion-premier-league) - **Cityxtra.co.uk**
+2. [City make 10 changes - Haaland, Bouaddi and Nunes all start](https://www.mancity.com/news/mens/manchester-city-v-brighton-pl-31-oct-team-news-and-tactics-63929047) - **Manchester City FC**
+3. [WATCH: Matheus Cunha denied Manchester United opener against Chelsea](https://www.101greatgoals.com/football/premier-league/watch-matheus-cunha-denied-manchester-united-opener-chelsea/) - **101 Great Goals**
+4. [Bayern Munich vs. Borussia Dortmund: Match discussion, Game time thread, How to watch](https://www.bavarianfootballworks.com/bayern-munich-gamethreads-discussion/275252/bayern-munich-vs-borussia-dortmund-match-discussion-game-time-thread-how-to-watch) - **Bavarian Football Works**
+5. [Liverpool manager knows how Arsenal stars work as he plots their downfall](https://www.justarsenal.com/liverpool-manager-knows-how-arsenal-stars-work-as-he-plots-their-downfall/424878) - **Just Arsenal News**
+6. [Forest booed off as scoring woes continue in defeat at Brentford](https://www.skysports.com/football/news/13606092/brentford-2-0-nottingham-forest-oliver-glasners-side-put-in-another-concerning-performance-in-attack-as-bees-win) - **Sky Sports**
+7. [Forest's scoring woes under Glasner continue as Brentford win easily](https://www.skysports.com/football/news/13606092/brentford-2-0-nottingham-forest-oliver-glasners-side-put-in-another-concerning-performance-in-attack-as-bees-win) - **Sky Sports**
+8. [Araujo convinced Liverpool have another gear ahead of hosting Arsenal](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261031-930-922907/) - **Dpa-international.com**
+9. [Xabi Alonso requests for Chelsea: Barcelona’s top defender in January](https://barcauniversal.com/xabi-alonso-requests-for-chelsea-barcelonas-top-defender-in-january/) - **Barcauniversal.com**
 
 
 ---
-*최근 업데이트: 2026-11-01 15:23:38 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-01 22:45:34 (KST) / (하루 100회 제한 준수 중)*
