@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [He's a man in the early throes of romance. So what COULD possibly be eating 'bored,' 'dead-eyed' Match of the Day's Mark Chapman? KATIE HIND's sources might just know the answer... and it's yet another headache for the BBC](https://www.dailymail.com/tvshowbiz/article-16255187/romance-bored-Match-Day-Mark-Chapman-KATIE-HIND-BBC.html) - **Dailymail.com**
-2. [Customs win men’s, women’s 2026 CGC Volleyball Premier League](https://punchng.com/customs-win-mens-womens-2026-cgc-volleyball-premier-league/) - **The Punch**
-3. [Bruins’ David Pastrnak Passes Legendary Ex-Teammate in Win Over Chicago](https://heavy.com/sports/nhl/boston-bruins/bruins-david-pastrnak-patrice-bergeron-heartfelt-message/) - **Heavy.com**
-4. ['Premier League' Strictly? It feels more like League One! - BBC bosses' lament before crisis talks to revive ailing show](https://www.dailymail.com/tvshowbiz/article-16255717/Premier-League-Strictly-League-One-BBC.html) - **Dailymail.com**
-5. [Benin Arsenals target first away points at Harmony Boys](https://punchng.com/benin-arsenals-target-first-away-points-at-harmony-boys/) - **The Punch**
-6. [Oluyole Warriors host Ochendo Boys in Ibadan](https://punchng.com/oluyole-warriors-host-ochendo-boys-in-ibadan/) - **The Punch**
-7. [Leeds get Zaidu worry ahead Jan transfer](https://punchng.com/leeds-get-zaidu-worry-ahead-jan-transfer/) - **The Punch**
-8. [Pride of Rivers, Flying Antelopes in top-of-table clash](https://punchng.com/pride-of-rivers-flying-antelopes-in-top-of-table-clash/) - **The Punch**
-9. [Halloween HORROR moments in the PL! Ft. Suzuki, Mateta, Martinez & more!](https://www.skysports.com/football/video/13606544/halloween-horror-moments-in-the-premier-league-ft-martinez-mateta-trafford-suzuki-and-more) - **Sky Sports**
-10. [Are Manchester United really at risk of a relegation scrap?](https://www.bbc.com/sport/football/articles/c8g47wl06vkqo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+1. [A big one that got away - Graham Smyth's Verdict on Bournemouth 2-0 Leeds United](https://www.leedsunited.com/en/news/a-big-one-that-got-away-graham-smyths-verdict-on-bournemouth-2-0-leeds-united) - **Leedsunited.com**
+2. [EXCLUSIVE I Angers’ Carlens Arcus: ‘Being a lowly team doesn’t necessarily mean we don’t want to play football’](https://www.getfootballnewsfrance.com/2026/exclusive-i-angers-carlens-arcus-being-a-lowly-team-doesnt-necessarily-mean-we-dont-want-to-play-football/) - **Get French Football News**
+3. [Manchester United consider bringing England star back to the Premier League](https://eplindex.com/151984/manchester-united-consider-bringing-england-star-back-to-the-premier-league.html) - **English Premier League Index - Opta Stats**
+4. [Liverpool star calls on Anfield crowd ahead of huge clash](https://anfieldindex.com/102785/liverpool-star-calls-on-anfield-crowd-ahead-of-huge-clash.html) - **Anfieldindex.com**
+5. [Arsenal maintain contact with Real Madrid attacker over January loan move – report](https://madriduniversal.com/arsenal-maintain-contact-with-real-madrid-attacker-over-january-loan-move-report/) - **Madriduniversal.com**
+6. [varzesh3-mcp added to PyPI](https://pypi.org/project/varzesh3-mcp/) - **Pypi.org**
+7. [Mikel Arteta reveals Arsenal's plan to stop Alexander Isak at Liverpool](https://www.footballmuse.com/news/mikel-arteta-reveals-arsenals-plan-to-stop-alexander-isak-at-liverpool) - **Footballmuse.com**
+8. [Five Things Learned: Manchester City 0-1 Brighton & Hove Albion (Premier League)](https://cityxtra.co.uk/CITYXTRA/match-coverage/five-things-learned-manchester-city-0-1-brighton-hove-albion-premier-league) - **Cityxtra.co.uk**
+9. [Real Madrid closely monitoring Premier League goalkeeper as potential Courtois successor](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_cd147661-5608-4d5d-81b6-92f1f78e9716) - **Yahoo Entertainment**
+10. [The black and yellows' November schedule](https://onefootball.com/en/news/the-black-and-yellows-november-schedule-43706734) - **Onefootball.com**
 
 
 ---
-*최근 업데이트: 2026-11-02 10:48:50 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-02 18:01:01 (KST) / (하루 100회 제한 준수 중)*
