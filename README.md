@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [A big one that got away - Graham Smyth's Verdict on Bournemouth 2-0 Leeds United](https://www.leedsunited.com/en/news/a-big-one-that-got-away-graham-smyths-verdict-on-bournemouth-2-0-leeds-united) - **Leedsunited.com**
-2. [EXCLUSIVE I Angers’ Carlens Arcus: ‘Being a lowly team doesn’t necessarily mean we don’t want to play football’](https://www.getfootballnewsfrance.com/2026/exclusive-i-angers-carlens-arcus-being-a-lowly-team-doesnt-necessarily-mean-we-dont-want-to-play-football/) - **Get French Football News**
-3. [Manchester United consider bringing England star back to the Premier League](https://eplindex.com/151984/manchester-united-consider-bringing-england-star-back-to-the-premier-league.html) - **English Premier League Index - Opta Stats**
-4. [Liverpool star calls on Anfield crowd ahead of huge clash](https://anfieldindex.com/102785/liverpool-star-calls-on-anfield-crowd-ahead-of-huge-clash.html) - **Anfieldindex.com**
-5. [Arsenal maintain contact with Real Madrid attacker over January loan move – report](https://madriduniversal.com/arsenal-maintain-contact-with-real-madrid-attacker-over-january-loan-move-report/) - **Madriduniversal.com**
-6. [varzesh3-mcp added to PyPI](https://pypi.org/project/varzesh3-mcp/) - **Pypi.org**
-7. [Mikel Arteta reveals Arsenal's plan to stop Alexander Isak at Liverpool](https://www.footballmuse.com/news/mikel-arteta-reveals-arsenals-plan-to-stop-alexander-isak-at-liverpool) - **Footballmuse.com**
-8. [Five Things Learned: Manchester City 0-1 Brighton & Hove Albion (Premier League)](https://cityxtra.co.uk/CITYXTRA/match-coverage/five-things-learned-manchester-city-0-1-brighton-hove-albion-premier-league) - **Cityxtra.co.uk**
-9. [Real Madrid closely monitoring Premier League goalkeeper as potential Courtois successor](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_cd147661-5608-4d5d-81b6-92f1f78e9716) - **Yahoo Entertainment**
-10. [The black and yellows' November schedule](https://onefootball.com/en/news/the-black-and-yellows-november-schedule-43706734) - **Onefootball.com**
+1. [Newcastle United Player Agrees Personal Terms Over Transfer: Should Jaissle Sell In January?](https://the4thofficial.net/2026/11/newcastle-united-player-agrees-personal-terms-over-transfer/) - **The4thofficial.net**
+2. [Why Ronaldo didn’t fit into my Man United plans — Ten Hag](https://punchng.com/why-ronaldo-didnt-fit-into-my-man-united-plans-ten-hag/) - **The Punch**
+3. [Arteta credits Fleetwood loss for spirited win at Anfield](https://www.bbc.co.uk/sport/football/videos/cx2d2yxv84zo) - **BBC News**
+4. [Man United ready to move for former Arsenal star in January](https://eplindex.com/151999/man-united-ready-to-move-for-former-arsenal-star-in-january.html) - **English Premier League Index - Opta Stats**
+5. [Leeds United Eye Free 29-Year-Old Defender: Is He Right For Farke?](https://the4thofficial.net/2026/11/leeds-united-eye-free-29-year-old-defender-is-he-right-for-farke/) - **The4thofficial.net**
+6. [Arsenal hold on for vital win at Liverpool after Kai Havertz’s close-range finish](https://www.irishtimes.com/sport/soccer/2026/11/01/arsenal-hold-on-for-vital-win-at-liverpool-after-kai-havertzs-close-range-finish/) - **The Irish Times**
+7. [Arsenal go top after narrow win at Liverpool](https://www.aljazeera.com/sports/2026/11/1/arsenal-go-top-after-narrow-win-at-liverpool) - **Al Jazeera English**
+8. [Araujo Gets 7, Alisson With 5.5 | Liverpool Players Rated In Tough Loss Vs Arsenal](https://the4thofficial.net/2026/11/araujo-gets-7-alisson-with-5-5-liverpool-players-rated-in-tough-loss-vs-arsenal/) - **The4thofficial.net**
+9. [Arsenal player ratings vs Liverpool: Declan Rice and Kai Havertz end 14-year Anfield wait as Gunners go top](https://www.goal.com/en-us/news/arsenal-player-ratings-vs-liverpool-declan-rice-kai-havertz-end-14-year-anfield-wait-gunners-go-top/blt4459572fa50cabba) - **Goal.com**
+10. [Three talking points from the Premier League](https://sports.yahoo.com/articles/three-talking-points-premier-league-190538131.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-11-02 18:01:01 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-03 04:35:07 (KST) / (하루 100회 제한 준수 중)*
