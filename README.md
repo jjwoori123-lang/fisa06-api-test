@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Oliver Glasner's great Nottingham Forest gamble: Squad running through fields as punishment, why he thinks players are not serious enough and how alienating stars could see him pay ultimate price](https://www.dailymail.com/sport/football/article-16258665/Oliver-Glasner-Nottingham-Forest-gamble-punishment.html) - **Dailymail.com**
-2. [Liverpool star nominated for FIFPRO World 11 award](https://anfieldindex.com/102847/liverpool-star-nominated-for-fifpro-world-11-award.html) - **Anfieldindex.com**
-3. [Manchester City Receive January 2027 Transfer Green Light From Villarreal Superstar](https://cityxtra.co.uk/CITYXTRA/transfers/manchester-city-receive-january-2027-transfer-green-light-from-villarreal-superstar) - **Cityxtra.co.uk**
-4. [Bills’ Josh Allen sets franchise record in Week 8 performance](https://www.thebiglead.com/bills-josh-allen-franchise-record-jim-kelly-nfl-week-8-2026/) - **The Big Lead**
-5. [Man United scouting four Dortmund stars including Serhou Guirassy, Jobe Bellingham](https://thepeoplesperson.com/2026/11/02/serhou-guirassy-and-co-man-united-january-transfer-targets-321077/) - **The Peoples Person**
-6. [Roma return onto Gabriel Sara’s tracks](https://romapress.net/roma-return-onto-gabriel-saras-tracks/) - **RomaPress**
-7. [Mawlai SC vs Lamlynti FC to Kickstart SSA Champions Cup Tomorrow](https://southasiaviews.com/featured/mawlai-sc-vs-lamlynti-fc-to-kickstart-ssa-champions-cup-tomorrow/) - **Southasiaviews.com**
-8. [“I was excited”- Trey Nyoni speaks on his first Premier League start for Liverpool](https://anfieldindex.com/102842/i-was-excited-trey-nyoni-speaks-on-his-first-premier-league-start-for-liverpool.html) - **Anfieldindex.com**
-9. [Barcelona v Aston Villa: Preview, expected line-ups, stats and where to watch](https://www.101greatgoals.com/match-previews/barcelona-v-aston-villa-preview-expected-line-ups-stats-stream-where-to-watch/) - **101 Great Goals**
+1. [Barry goal sees Everton ease past meagre Newcastle](https://www.skysports.com/football/video/13607313/newcastle-0-1-everton-premier-league-highlights) - **Sky Sports**
+2. [The Manchester City attacking threat is being undermined by a frustrating issue](https://esteemedkompany.com/2026/11/02/the-manchester-city-attacking-threat-is-being-undermined-by-a-frustrating-issue/) - **Esteemedkompany.com**
+3. [Everton beats Newcastle for the second time in four days as boos ring out at St. James' Park](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_7c644aec-66b5-4a74-9727-237a5901eab8) - **Yahoo Entertainment**
+4. [Barry grabs only goal as Everton defeat 10-man Newcastle](https://www.rte.ie/sport/soccer/2026/1102/1597707-barry-grabs-only-goal-as-everton-defeat-10-man-newcastle/) - **RTE**
+5. [Who produced the kind of performance Moyes loves? - player ratings](https://www.bbc.com/sport/football/articles/cmglwjxx45gjo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Who produced the kind of performance Moyes loves? - player ratings](https://www.bbc.co.uk/sport/football/articles/cmglwjxx45gjo) - **BBC News**
+7. [Everton beat Newcastle to pile pressure on Jaissle](https://sports.yahoo.com/articles/everton-beat-newcastle-pile-pressure-220728316.html) - **Yahoo Entertainment**
+8. [Borussia Dortmund vs. Real Betis preview: Team news and predicted lineups](https://bulinews.com/borussia-dortmund-real-betis-preview-team-news-and-predicted-lineups) - **Bulinews.com**
+9. [Xabi Alonso lauds Chelsea backup after Manchester United win in major injury boost](https://www.alloutsoccer.com/news/chelsea-alonso-penders-manchester-united-2094247) - **Alloutsoccer.com**
+10. [Notre Dame commit Abraham Sesay welcomed to the 2027 Navy All-American Bowl](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/notre-dame-commit-abraham-sesay-welcomed-to-the-2027-navy-all-american-bowl) - **NBCSports.com**
 
 
 ---
-*최근 업데이트: 2026-11-04 02:08:48 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-04 07:21:43 (KST) / (하루 100회 제한 준수 중)*
