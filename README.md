@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Rivers, Rangers share spoils as Enyimba win](https://punchng.com/rivers-rangers-share-spoils-as-enyimba-win/) - **The Punch**
-2. [Two NPL matches scheduled for today](https://english.khabarhub.com/2026/02/574015/) - **Khabarhub.com**
-3. [Aston Villa goalie drops the ball into his own net as Fulham earn a draw](https://thechronicle.com.gh/aston-villa-goalie-drops-the-ball-into-his-own-net-as-fulham-earn-a-draw/) - **Thechronicle.com.gh**
-4. [Brighton stun Manchester City in quick revenge](https://thechronicle.com.gh/brighton-stun-manchester-city-in-quick-revenge/) - **Thechronicle.com.gh**
-5. [Chelsea beat Manchester United, heap more pressure on Michael Carrick](https://thechronicle.com.gh/chelsea-beat-manchester-united-heap-more-pressure-on-michael-carrick/) - **Thechronicle.com.gh**
-6. [William Oduro strikes late as Lions beat Bechem United](https://thechronicle.com.gh/william-oduro-strikes-late-as-lions-beat-bechem-united/) - **Thechronicle.com.gh**
-7. [Aduana return to winning ways with win over Chelsea](https://thechronicle.com.gh/aduana-return-to-winning-ways-with-win-over-chelsea/) - **Thechronicle.com.gh**
-8. [Rice is a rounded midfielder, but could be more selfish - Murphy](https://www.bbc.co.uk/sport/football/videos/ck9dz227v751o) - **BBC News**
-9. ['He's been fantastic' - how Konsa has fitted in seamlessly at Arsenal](https://www.bbc.co.uk/sport/football/videos/cmwy4000q97ro) - **BBC News**
-10. [Were Arsenal 'lucky' not to concede penalty at Liverpool?](https://www.bbc.co.uk/sport/football/videos/cw7vpy99y606o) - **BBC News**
+1. [Real Madrid match blacked out on Chinese TV as Kylian Mbappe Mao Zedong meme controversy continues](https://www.goal.com/en-us/news/real-madrid-china-kylian-mbappe-mao-zedong-racing-santander/blt61e8a8bb898a0439) - **Goal.com**
+2. [Liverpool draw up Virgil van Dijk contract plan as Reds make decision on captain's Anfield future](https://www.goal.com/en-us/news/virgil-van-dijk-liverpool-contract-extension/blt84f7d7cab94d5ed4) - **Goal.com**
+3. ['I have something unresolved': Ole Gunnar Solskjaer piles more pressure on old pal Michael Carrick as he says he WOULD manage Man United again - despite trying to back him to succeed](https://www.dailymail.com/sport/football/article-16257985/Manchester-United-Ole-Gunnar-Solskjaer-Michael-Carrick-says-manage-Man-United-despite-trying-succeed.html) - **Dailymail.com**
+4. [ Giving Robben a run for his money?! Ex-star rocks New York Marathon](https://onefootball.com/en/news/giving-robben-a-run-for-his-money-ex-star-rocks-new-york-marathon-43711916) - **Onefootball.com**
+5. [Vance relieved as 10-man Guernsey FC maintain run](https://www.bbc.com/sport/football/articles/c623d5lzpp14o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Kai Havertz makes history! Arsenal star breaks Man City icon record to become ALL-TIME top German scorer in Premier League](https://www.goal.com/en-us/news/kai-havertz-arsenal-liverpool-all-time-top-german-scorer-premier-league-man-city-gundogan/bltf72ccee1d9a44394) - **Goal.com**
+7. [Erling Haaland's Father Dodges 'What-If' Clause Existence Question in Manchester City Forward's Contract](https://cityxtra.co.uk/CITYXTRA/news/erling-haalands-father-dodges-what-if-clause-existence-question-in-manchester-city-forwards-contract) - **Cityxtra.co.uk**
+8. [Alejandro Balde ‘open’ to January exit from Barcelona](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/136851/alejandro-balde-open-january-exit) - **Barca Blaugranes**
+9. [NPL: Karnali Yaks set 181-run target for Kathmandu Gorkhas](https://english.khabarhub.com/2026/02/574088/) - **Khabarhub.com**
+10. [There’s a shortage of league tables just at the moment. I can’t think why](https://untold-arsenal.com/archives/123997) - **Untold-arsenal.com**
 
 
 ---
-*최근 업데이트: 2026-11-03 10:45:54 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-03 18:09:43 (KST) / (하루 100회 제한 준수 중)*
