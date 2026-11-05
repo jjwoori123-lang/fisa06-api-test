@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [RB Leipzig vs Manchester City – Match preview and team news](https://thefootballfaithful.com/rb-leipzig-vs-manchester-city-match-preview-and-team-news/) - **The Football Faithful**
-2. [Arsenal XI vs Slavia Prague – Predicted lineup and team news](https://thefootballfaithful.com/arsenal-xi-vs-slavia-prague-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-3. [Slavia Prague vs Arsenal – Match preview and team news](https://thefootballfaithful.com/slavia-prague-vs-arsenal-match-preview-and-team-news-2/) - **The Football Faithful**
-4. [Manchester City XI vs RB Leipzig – Predicted lineup and team news](https://thefootballfaithful.com/manchester-city-xi-vs-rb-leipzig-predicted-lineup-and-team-news/) - **The Football Faithful**
-5. [South African cricketer David Miller arrives in Nepal](https://english.khabarhub.com/2026/04/574420/) - **Khabarhub.com**
-6. [LaCava continues to embrace different roles, whatever they may be](https://www.abqjournal.com/sports/lacava-continues-to-embrace-different-roles-whatever-they-may-be/3154928) - **Albuquerque Journal**
-7. [Mark Walter seeks buyer for Los Angeles Sparks after selling Lakers, per report](https://www.usatoday.com/story/sports/wnba/sparks/2026/11/03/mark-walter-la-sparks-for-sale-reports-practice-facility/92598095007/) - **USA Today**
-8. [India's cricket sponsorship market crowded, expensive at the top: EMW CEO](https://www.business-standard.com/sports/business/emw-global-michael-rocha-keys-rinku-singh-india-cricket-sponsorship-market-126110400066_1.html) - **Business Standard**
-9. [Bears QB Caleb Williams Receives High Praise From Tom Brady, Russell Wilson After Seahawks Win](https://heavy.com/sports/nfl/chicago-bears/caleb-willliams-tom-brady-russell-wilson-news/) - **Heavy.com**
-10. [Bruno Fernandes insists Man Utd 'don't need to save anyone's job'](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261104-930-940131/) - **Dpa-international.com**
+1. [Ex-Liverpool and Chelsea full-back Glen Johnson backs Anfield as better fit for Bournemouth midfielder Alex Scott amid £100m transfer battle](https://www.goal.com/en-us/news/ex-liverpool-chelsea-glen-johnson-backs-anfield-fit-bournemouth-alex-scott-transfer-battle/blta1c2a7c1649e86e3) - **Goal.com**
+2. [Man City relegation could be ‘very good’ for USMNT wonderkid Cavan Sullivan as teen sensation waits on Premier League verdict & punishments in FFP case](https://www.goal.com/en-us/lists/man-city-relegation-good-usmnt-wonderkid-cavan-sullivan-premier-league-ffp/blt3f93262c473b8c68) - **Goal.com**
+3. [Newcastle Faces Fresh Transfer Questions After £1 Billion Spend Doesn’t Pan Out](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/26657/newcastle-faces-fresh-transfer-questions-after-1-billion-spend-doesnt-pan-out) - **SB Nation**
+4. [Manchester United phenom JJ Gabriel reportedly reaches agreement with Real Madrid](https://www.nbcsports.com/soccer/news/manchester-united-phenom-jj-gabriel-reportedly-reaches-agreement-with-real-madrid) - **NBCSports.com**
+5. [Biggest surprises from initial CFP Rankings; Ravens starting an undrafted rookie QB on 'TNF'](https://www.cbssports.com/fantasy/football/news/biggest-surprises-from-initial-cfp-rankings-ravens-starting-an-undrafted-rookie-qb-on-tnf/) - **CBS Sports**
+6. [WPL 2027 schedule announced: Vadodara, Mumbai to host fifth edition; RCB face MI in opener](https://timesofindia.indiatimes.com/sports/cricket/wpl/wpl-2027-schedule-announced-vadodara-mumbai-to-host-fifth-edition-rcb-face-mi-in-opener/articleshow/135540888.cms) - **The Times of India**
+7. [Napoli make approach over loan-to-buy move for Barcelona fan-favourite midfielder – report](https://barcauniversal.com/napoli-make-approach-over-loan-to-buy-move-for-barcelona-fan-favourite-midfielder-report/) - **Barcauniversal.com**
+8. [WPL 2027 schedule announced, check full fixtures, venues, dates and match timings here](https://economictimes.indiatimes.com/news/sports/cricket/wpl-2027-schedule-announced-check-full-fixtures-venues-dates-and-match-timings-here/articleshow/135540389.cms) - **The Times of India**
+9. [Bangladesh deploys additional paramilitary forces as garment workers' protests continue](https://economictimes.indiatimes.com/news/international/world-news/bangladesh-deploys-additional-paramilitary-forces-as-garment-workers-protests-continue/articleshow/135539482.cms) - **The Times of India**
 
 
 ---
-*최근 업데이트: 2026-11-05 14:45:27 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-05 23:16:43 (KST) / (하루 100회 제한 준수 중)*
