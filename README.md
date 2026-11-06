@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Haaland eyes 'lots of things' Man City can improve after Leipzig win](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261105-930-947078/) - **Dpa-international.com**
-2. [Gianluigi Donnarumma was signed to be world's best shot-stopper, but at Manchester City, he's merely fine](https://www.cbssports.com/soccer/news/gianluigi-donnarumma-issue-manchester-city/) - **CBS Sports**
-3. [British sport under-prepared for climate risks as costs rise, report says](https://sports.yahoo.com/articles/british-sport-under-prepared-climate-000313111.html) - **Yahoo Entertainment**
-4. [British sport under-prepared for climate risks as costs rise, report says](https://www.channelnewsasia.com/sport/british-sport-under-prepared-climate-risks-costs-rise-report-says-6525826) - **CNA**
-5. [ANGUS MACINTYRE: Why I quit the military after 40 years to be Reform's first Armed Forces spokesman](https://www.dailymail.com/news/article-16266255/ANGUS-MACINTYRE-quit-military-40-years-Reforms-Armed-Forces-spokesman.html) - **Dailymail.com**
-6. [Cesc Fabregas' Como equal Champions League record with landmark win at Lens](https://www.alloutsoccer.com/news/cesc-fabregas-como-champions-league-2097840) - **Alloutsoccer.com**
-7. [Liverpool lose to Fenerbahce as Como hit nine in stunning Champions League win](https://sports.yahoo.com/articles/liverpool-lose-fenerbahce-como-hit-231905707.html) - **Yahoo Entertainment**
-8. [Mikel Arteta jumps for joy as Arsenal star shines in Champions League win](https://www.alloutsoccer.com/news/mikel-arteta-arsenal-champions-league-2097820) - **Alloutsoccer.com**
-9. [Miami vs Notre Dame Prediction: Odds, expert picks, team and player news, betting trends, and stats](https://www.nbcsports.com/betting/college-football/news/miami-vs-notre-dame-prediction-odds-expert-picks-team-and-player-news-betting-trends-and-stats) - **NBCSports.com**
-10. [Arsenal edge stubborn Slavia in Champions League](https://sports.yahoo.com/articles/arsenal-edge-stubborn-slavia-champions-222722580.html) - **Yahoo Entertainment**
+1. [NPL: Lumbini Lions set 150-run target for Janakpur Bolts](https://english.khabarhub.com/2026/05/574576/) - **Khabarhub.com**
+2. [Dean Henderson Asseses Crystal Palace's Poor Form](https://roundtable.io/sports/soccer/premier-league/crystal-palace/news/dean-henderson-asseses-crystal-palaces-poor-form) - **Roundtable.io**
+3. [Bangladesh's ousted premier Hasina tells the AP she will return from exile in December at any cost](https://www.ksat.com/business/2026/11/05/bangladeshs-ousted-premier-hasina-tells-the-ap-she-will-return-from-exile-in-december-at-any-cost/) - **KSAT San Antonio**
+4. [Barcelona midfielder’s agent sends clear message amid Napoli transfer speculation: ‘Not negotiated with anyone’](https://barcauniversal.com/barcelona-midfielders-agent-sends-clear-message-amid-napoli-transfer-speculation-not-negotiated-with-anyone/) - **Barcauniversal.com**
+5. [Harry Kane 'becomes highest-paid footballer in Europe' as England captain signs new Bayern Munich contract to stay in Germany for another three years](https://www.dailymail.com/sport/football/article-16267535/Harry-Kane-highest-paid-footballer-Europe-England-captain-signs-new-Bayern-Munich-contract-stay-Germany-three-years.html) - **Dailymail.com**
+6. [Tottenham set one key condition before sanctioning Lucas Bergvall exit in the January window amid fresh transfer links to Barcelona](https://www.goal.com/en-us/news/tottenham-set-key-condition-lucas-bergvall-exit-january-window-transfer-links-barcelona/blt454aa8f499501f8a) - **Goal.com**
+7. [Newcastle United on the road to nowhere via Putney Bridge](https://www.themag.co.uk/2026/11/newcastle-united-on-the-road-to-nowhere-via-putney-bridge/) - **The Mag**
+8. [Erling Haaland to Arsenal!? ‘Headliner’ transfer rumour shocks ex-Man City star as FFP ‘mess’ causes confusion & damages the Premier League ‘brand’](https://www.goal.com/en-us/lists/erling-haaland-arsenal-headliner-transfer-rumour-shocks-man-city-ffp-mess-premier-league/blt30557e3cdadcc697) - **Goal.com**
+9. [Newcastle Players Seeking Clarity On Matthias Jaissle’s Tactical Demands](https://roundtable.io/sports/soccer/premier-league/newcastle-united/news/newcastle-players-seeking-clarity-on-matthias-jaissle-s-tactical-demands) - **Roundtable.io**
+10. [The Munich years: How Harry Kane is shaping FC Bayern](https://fcbayern.com/en/news/2026/11/harry-kanes-records-at-fc-bayern) - **Fcbayern.com**
 
 
 ---
-*최근 업데이트: 2026-11-06 10:37:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-06 17:29:50 (KST) / (하루 100회 제한 준수 중)*
