@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [NPL: Lumbini Lions set 150-run target for Janakpur Bolts](https://english.khabarhub.com/2026/05/574576/) - **Khabarhub.com**
-2. [Dean Henderson Asseses Crystal Palace's Poor Form](https://roundtable.io/sports/soccer/premier-league/crystal-palace/news/dean-henderson-asseses-crystal-palaces-poor-form) - **Roundtable.io**
-3. [Bangladesh's ousted premier Hasina tells the AP she will return from exile in December at any cost](https://www.ksat.com/business/2026/11/05/bangladeshs-ousted-premier-hasina-tells-the-ap-she-will-return-from-exile-in-december-at-any-cost/) - **KSAT San Antonio**
-4. [Barcelona midfielder’s agent sends clear message amid Napoli transfer speculation: ‘Not negotiated with anyone’](https://barcauniversal.com/barcelona-midfielders-agent-sends-clear-message-amid-napoli-transfer-speculation-not-negotiated-with-anyone/) - **Barcauniversal.com**
-5. [Harry Kane 'becomes highest-paid footballer in Europe' as England captain signs new Bayern Munich contract to stay in Germany for another three years](https://www.dailymail.com/sport/football/article-16267535/Harry-Kane-highest-paid-footballer-Europe-England-captain-signs-new-Bayern-Munich-contract-stay-Germany-three-years.html) - **Dailymail.com**
-6. [Tottenham set one key condition before sanctioning Lucas Bergvall exit in the January window amid fresh transfer links to Barcelona](https://www.goal.com/en-us/news/tottenham-set-key-condition-lucas-bergvall-exit-january-window-transfer-links-barcelona/blt454aa8f499501f8a) - **Goal.com**
-7. [Newcastle United on the road to nowhere via Putney Bridge](https://www.themag.co.uk/2026/11/newcastle-united-on-the-road-to-nowhere-via-putney-bridge/) - **The Mag**
-8. [Erling Haaland to Arsenal!? ‘Headliner’ transfer rumour shocks ex-Man City star as FFP ‘mess’ causes confusion & damages the Premier League ‘brand’](https://www.goal.com/en-us/lists/erling-haaland-arsenal-headliner-transfer-rumour-shocks-man-city-ffp-mess-premier-league/blt30557e3cdadcc697) - **Goal.com**
-9. [Newcastle Players Seeking Clarity On Matthias Jaissle’s Tactical Demands](https://roundtable.io/sports/soccer/premier-league/newcastle-united/news/newcastle-players-seeking-clarity-on-matthias-jaissle-s-tactical-demands) - **Roundtable.io**
-10. [The Munich years: How Harry Kane is shaping FC Bayern](https://fcbayern.com/en/news/2026/11/harry-kanes-records-at-fc-bayern) - **Fcbayern.com**
+1. [Yamal Makes History As Barça Ends Villa’s UCL Run](https://pitchsidehooligan.com/yamal-makes-history-as-bara-ends-villas-ucl-run/) - **Pitchsidehooligan.com**
+2. [Kane's Kompany pact! Striker salutes boss and opens up on bold decision to ditch Spurs comfort zone](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3465c1dd-f761-4986-8020-d0d0daa6eba2) - **Yahoo Entertainment**
+3. [Jaissle shrugs off pressure and remains confident everyone at Newcastle is pulling in same direction](https://www.101greatgoals.com/football/premier-league/matthias-jaissle-shrugs-off-pressure-confident-newcastle/) - **101 Great Goals**
+4. [Why Coachella Valley Lakers tip-off is significant to Acrisure Arena](https://www.desertsun.com/story/sports/basketball/2026/11/05/why-coachella-valley-lakers-opener-is-significant-to-acrisure-arena/92618958007/) - **The Desert Sun**
+5. [Newcastle’s Aladji Bamba January Exit Update Emerges Amid Lack of Playing Time](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/26660/newcastles-aladji-bamba-january-exit-update-emerges-amid-lack-of-playing-time) - **SB Nation**
+6. [Man United make decision on Kobbie Mainoo transfer amid genuine interest from PSG](https://thepeoplesperson.com/2026/11/05/kobbie-mainoo-man-united-stance-on-psg-interest-and-january-sale-321359/) - **The Peoples Person**
+7. [Palmer to return? Mainoo recall? Tuchel's England squad dilemmas](https://www.skysports.com/football/news/13608436/england-squad-cole-palmer-to-return-kobbie-mainoo-recall-thomas-tuchels-big-selection-dilemmas-analysed) - **Sky Sports**
+8. [Emery close to agreeing new Aston Villa contract](https://www.bbc.com/sport/football/articles/cw99zde82nmno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. [Today’s News in a Nutshell](https://english.khabarhub.com/2026/05/574581/) - **Khabarhub.com**
+10. [Sunderland Starting XI vs Dinamo Zagreb: Confirmed Team News and Predicted Lineup](https://eplindex.com/152129/sunderland-starting-xi-vs-dinamo-zagreb-confirmed-team-news-and-predicted-lineup.html) - **English Premier League Index - Opta Stats**
 
 
 ---
-*최근 업데이트: 2026-11-06 17:29:50 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-07 01:14:13 (KST) / (하루 100회 제한 준수 중)*
