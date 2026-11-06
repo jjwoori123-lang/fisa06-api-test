@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Yamal Makes History As Barça Ends Villa’s UCL Run](https://pitchsidehooligan.com/yamal-makes-history-as-bara-ends-villas-ucl-run/) - **Pitchsidehooligan.com**
-2. [Kane's Kompany pact! Striker salutes boss and opens up on bold decision to ditch Spurs comfort zone](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3465c1dd-f761-4986-8020-d0d0daa6eba2) - **Yahoo Entertainment**
-3. [Jaissle shrugs off pressure and remains confident everyone at Newcastle is pulling in same direction](https://www.101greatgoals.com/football/premier-league/matthias-jaissle-shrugs-off-pressure-confident-newcastle/) - **101 Great Goals**
-4. [Why Coachella Valley Lakers tip-off is significant to Acrisure Arena](https://www.desertsun.com/story/sports/basketball/2026/11/05/why-coachella-valley-lakers-opener-is-significant-to-acrisure-arena/92618958007/) - **The Desert Sun**
-5. [Newcastle’s Aladji Bamba January Exit Update Emerges Amid Lack of Playing Time](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/26660/newcastles-aladji-bamba-january-exit-update-emerges-amid-lack-of-playing-time) - **SB Nation**
-6. [Man United make decision on Kobbie Mainoo transfer amid genuine interest from PSG](https://thepeoplesperson.com/2026/11/05/kobbie-mainoo-man-united-stance-on-psg-interest-and-january-sale-321359/) - **The Peoples Person**
-7. [Palmer to return? Mainoo recall? Tuchel's England squad dilemmas](https://www.skysports.com/football/news/13608436/england-squad-cole-palmer-to-return-kobbie-mainoo-recall-thomas-tuchels-big-selection-dilemmas-analysed) - **Sky Sports**
-8. [Emery close to agreeing new Aston Villa contract](https://www.bbc.com/sport/football/articles/cw99zde82nmno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. [Today’s News in a Nutshell](https://english.khabarhub.com/2026/05/574581/) - **Khabarhub.com**
-10. [Sunderland Starting XI vs Dinamo Zagreb: Confirmed Team News and Predicted Lineup](https://eplindex.com/152129/sunderland-starting-xi-vs-dinamo-zagreb-confirmed-team-news-and-predicted-lineup.html) - **English Premier League Index - Opta Stats**
+1. [Ruben Amorim rips into his AC Milan players after embarrassing Europa League defeat: Ex-Man United boss hits out at team's attitude and criticises 'awful' performance](https://www.dailymail.com/sport/football/article-16269809/Ruben-Amorim-AC-Milan-Europa-League-Man-United.html) - **Dailymail.com**
+2. [Pierre Sage warns Crystal Palace that Liverpool are a ‘crazy team’ after Europa League draw](https://www.101greatgoals.com/football/europa-league/pierre-sage-warns-crystal-palace-that-liverpool-are-a-crazy-team-after-europa-league-draw/) - **101 Great Goals**
+3. [Harry Kane deal done, Michael Olise next? Bayern Munich chief reveals contract plans as Bundesliga giants turn attention to French superstar](https://www.goal.com/en-us/news/harry-kane-deal-michael-olise-bayern-munich-chief-contract-bundesliga-french-superstar-/blt72ea28debc742706) - **Goal.com**
+4. [Armed police called! Newcastle star Amar Dedic questioned after being spotted carrying bow and arrow in rural countryside](https://www.goal.com/en-us/news/amar-dedic-newcastle-police-bow-arrow/blt34d42d021ffe0dc4) - **Goal.com**
+5. [Bournemouth stay perfect in Europa League as Milan lose again](https://sports.yahoo.com/articles/bournemouth-stay-perfect-europa-league-195821636.html) - **Yahoo Entertainment**
+6. [FPL Gameweek 10 Differential Picks: Best Low-Owned Players](https://www.nevermanagealone.com/playerpicks/16818/fpl-gameweek-10-differential-picks-best-low-owned-players) - **Nevermanagealone.com**
+7. [FPL Gameweek 10 Transfers: 5 Best Players to Buy Before the International Break](https://www.nevermanagealone.com/playerpicks/16814/fpl-gameweek-10-top-transfers-who-should-you-buy-before-the-international-break) - **Nevermanagealone.com**
+8. [Nottingham Forest forward moves closer to exit after latest update](https://eplindex.com/152148/nottingham-forest-forward-moves-closer-to-exit-after-latest-update.html) - **English Premier League Index - Opta Stats**
+9. [FPL Gameweek 10 Captain Picks: Who Should You Captain?](https://www.nevermanagealone.com/playerpicks/16809/fpl-gameweek-10-captain-picks-who-should-you-captain) - **Nevermanagealone.com**
+10. [Bournemouth's bench seal Europa League comeback to maintain flawless start, while Pierre Sage is handed a Crystal Palace lifeline after late equaliser](https://www.dailymail.com/sport/football/article-16267989/Bournemouth-Crystal-Palace-Sunderland-Brighton-Europa-League-Conference-League.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-11-07 01:14:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-07 06:36:06 (KST) / (하루 100회 제한 준수 중)*
