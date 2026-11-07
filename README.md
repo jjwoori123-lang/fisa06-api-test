@@ -1,16 +1,14 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [From playing against Messi & Ronaldo to non-league](https://www.bbc.com/sport/football/articles/cw054d7nmndzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Meet Brighton's merry band of unlikely heroes: a midfielder taking tips from Lionel Messi, a twinkle-toed son of a ballerina and the £3m bargain now running the Premier League](https://www.dailymail.com/sport/football/article-16264487/brighton-unlikely-heroes-premier-league-title-charge.html) - **Dailymail.com**
-3. [Here’s how much financial room Barcelona have for January signings](https://barcauniversal.com/heres-how-much-financial-room-barcelona-have-for-january-signings/) - **Barcauniversal.com**
-4. [Nightmare season looms for Newcastle - and Magpies must make Matthias Jaissle call fast or risk relegation](https://www.goal.com/en-us/originals/nightmare-season-newcastle-magpies-make-matthias-jaissle-call-fast-risk-relegation/blt78d900cbd2123401) - **Goal.com**
-5. [Why managers can learn a lot from leaders like Napoleon - Pulis](https://www.bbc.com/sport/football/articles/ck98z2r17e6po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Australia appoint Mike Hussey as consultant for Ashes and Cricket World Cup](https://www.aljazeera.com/sports/2026/11/6/mike-hussey-australia-cricket-batting-consultant-ashes-world-cup) - **Al Jazeera English**
-7. [Nottingham Forest vs Manchester City (Premier League): Match Preview, Team News, Head to Head, How to Watch](https://cityxtra.co.uk/CITYXTRA/match-coverage/nottingham-forest-vs-manchester-city-premier-league-match-preview-team-news-head-to-head-how-to-watch-1) - **Cityxtra.co.uk**
-8. ['Putting his doubters in their place' - Rooney lands pundit of year award](https://www.bbc.com/sport/football/articles/ck4g1l4nj85zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-9. ['Putting his doubters in their place' - Rooney lands Pundit of the Year award](https://www.bbc.co.uk/sport/football/articles/ck4g1l4nj85zo) - **BBC News**
-10. [The rise of a new era: Who will be the next Ronaldo or Messi of football?](https://www.business-standard.com/sports/football-news/the-rise-of-a-new-era-who-will-be-the-next-ronaldo-or-messi-of-football-126110600638_1.html) - **Business Standard**
+1. [What happened to Jack Grealish? From Man City's £100m treble hero to Everton outcast](https://www.sportingnews.com/us/soccer/news/what-happened-jack-grealish-%C2%A3100m-treble-man-city-everton/993e79c26f8223be78bb426c) - **Sporting News**
+2. [Women's rights matter more than any league, say Afghan cricketers](https://www.bbc.com/sport/cricket/articles/cwr7ydgv03kvo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+3. [Iraola calls for a Liverpool reaction as defensive set-piece woes raise fresh concerns](https://www.footballmuse.com/news/iraola-calls-for-a-liverpool-reaction-as-defensive-set-piece-woes-raise-fresh-concerns) - **Footballmuse.com**
+4. [Newcastle Makes Aladji Bamba Loan Decision Amid Conflicting Reports](https://cominghomenewcastle.sbnation.com/newcastle-united-transfer-news-rumors/26861/newcastle-makes-aladji-bamba-loan-decision-amid-conflicting-reports) - **SB Nation**
+5. [Estimation of aerobic and anaerobic performance using a novel intermittent reactive agility test – An exploratory correlation study](https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0362462) - **Plos.org**
+6. [Watch FA Cup 2026/27 live streams for FREE](https://www.techradar.com/how-to-watch/football/fa-cup-2026-27-live-free) - **TechRadar**
+7. [Weekend Warm-up: German players should learn a life lesson from Snatch; Bundesliga predictions; and MORE!](https://www.bavarianfootballworks.com/bfw-weekend-and-midweek-warmups/277861/german-bayern-munich-wirtz-werner-havertz-woltemade-snatch-bundesliga-predictions) - **Bavarian Football Works**
+8. [ Y! Sports AM: Mapped out](https://sports.yahoo.com/articles/y-sports-am-mapped-135850828.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-11-07 16:17:18 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-07 23:10:24 (KST) / (하루 100회 제한 준수 중)*
