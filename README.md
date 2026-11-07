@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Ruben Amorim rips into his AC Milan players after embarrassing Europa League defeat: Ex-Man United boss hits out at team's attitude and criticises 'awful' performance](https://www.dailymail.com/sport/football/article-16269809/Ruben-Amorim-AC-Milan-Europa-League-Man-United.html) - **Dailymail.com**
-2. [Pierre Sage warns Crystal Palace that Liverpool are a ‘crazy team’ after Europa League draw](https://www.101greatgoals.com/football/europa-league/pierre-sage-warns-crystal-palace-that-liverpool-are-a-crazy-team-after-europa-league-draw/) - **101 Great Goals**
-3. [Harry Kane deal done, Michael Olise next? Bayern Munich chief reveals contract plans as Bundesliga giants turn attention to French superstar](https://www.goal.com/en-us/news/harry-kane-deal-michael-olise-bayern-munich-chief-contract-bundesliga-french-superstar-/blt72ea28debc742706) - **Goal.com**
-4. [Armed police called! Newcastle star Amar Dedic questioned after being spotted carrying bow and arrow in rural countryside](https://www.goal.com/en-us/news/amar-dedic-newcastle-police-bow-arrow/blt34d42d021ffe0dc4) - **Goal.com**
-5. [Bournemouth stay perfect in Europa League as Milan lose again](https://sports.yahoo.com/articles/bournemouth-stay-perfect-europa-league-195821636.html) - **Yahoo Entertainment**
-6. [FPL Gameweek 10 Differential Picks: Best Low-Owned Players](https://www.nevermanagealone.com/playerpicks/16818/fpl-gameweek-10-differential-picks-best-low-owned-players) - **Nevermanagealone.com**
-7. [FPL Gameweek 10 Transfers: 5 Best Players to Buy Before the International Break](https://www.nevermanagealone.com/playerpicks/16814/fpl-gameweek-10-top-transfers-who-should-you-buy-before-the-international-break) - **Nevermanagealone.com**
-8. [Nottingham Forest forward moves closer to exit after latest update](https://eplindex.com/152148/nottingham-forest-forward-moves-closer-to-exit-after-latest-update.html) - **English Premier League Index - Opta Stats**
-9. [FPL Gameweek 10 Captain Picks: Who Should You Captain?](https://www.nevermanagealone.com/playerpicks/16809/fpl-gameweek-10-captain-picks-who-should-you-captain) - **Nevermanagealone.com**
-10. [Bournemouth's bench seal Europa League comeback to maintain flawless start, while Pierre Sage is handed a Crystal Palace lifeline after late equaliser](https://www.dailymail.com/sport/football/article-16267989/Bournemouth-Crystal-Palace-Sunderland-Brighton-Europa-League-Conference-League.html) - **Dailymail.com**
+1. [Game Preview #10: Wolves at Pelicans Game Thread](https://www.canishoopus.com/timberwolves-game-previews/71636/nba-thread-new-orleans-pelicans-zion-williamson-bones-hyland) - **Canis Hoopus**
+2. [Americans Abroad Midweek Rewind: Adams, Tessmann, and more](https://sbisoccer.com/2026/11/americans-abroad-midweek-rewind-adams-tessmann-and-more) - **Sbisoccer.com**
+3. [NPL: Two matches scheduled for today](https://english.khabarhub.com/2026/06/574648/) - **Khabarhub.com**
+4. [Keep or sell Konsa? - FPL gameweek 10 dilemmas](https://www.bbc.com/sport/football/articles/cm4g112qp051o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+5. [Azeez nearing full fitness, says Hurzeler](https://punchng.com/azeez-nearing-full-fitness-says-hurzeler/) - **The Punch**
+6. [Prince William guest edits Country Life Magazine as he focuses on rural mental health and shares his fondness for an occasional pint of cider with ice](https://www.dailymail.com/news/royals/article-16269079/Prince-William-guest-edits-Country-Life-Magazine-focuses-rural-mental-health-shares-fondness-occasional-pint-cider-ice.html) - **Dailymail.com**
+7. [Cole Palmer's England lifeline: Three Lions ask Chelsea about star's fitness in clear sign Thomas Tuchel is considering calling him up after warning over last squad withdrawal](https://www.dailymail.com/sport/football/article-16269817/Cole-Palmer-lined-England-call-Chelsea-asked-fitness-Thomas-Tuchel-weighs-giving-star-reprieve-warning-Three-Lions-squad-withdrawal.html) - **Dailymail.com**
+8. [“We can change the game whenever”: Kobbie Mainoo’s words will strike fear into Aston Villa hearts](https://thepeoplesperson.com/2026/11/05/kobbie-mainoo-issues-warning-ahead-of-man-united-vs-aston-villa-321385/) - **The Peoples Person**
+9. [Milan stunned by Ferencvaros, Marseille and Juventus secure Europa League wins](https://www.channelnewsasia.com/sport/milan-stunned-ferencvaros-marseille-and-juventus-secure-europa-league-wins-6529296) - **CNA**
+10. [European Roundup: Woltemade & Baur deliver strong performances after Klopp snub, Rose's Bournemouth record seventh straight win, Hürzeler's Brighton yet to concede](https://bulinews.com/european-roundup-woltemade-baur-deliver-strong-performances-after-klopp-snub-rose-bournemouth-record-seventh-straight-win-hurzeler-brighton-yet-concede) - **Bulinews.com**
 
 
 ---
-*최근 업데이트: 2026-11-07 06:36:06 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-07 10:11:09 (KST) / (하루 100회 제한 준수 중)*
