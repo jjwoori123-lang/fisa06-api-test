@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Game Preview #10: Wolves at Pelicans Game Thread](https://www.canishoopus.com/timberwolves-game-previews/71636/nba-thread-new-orleans-pelicans-zion-williamson-bones-hyland) - **Canis Hoopus**
-2. [Americans Abroad Midweek Rewind: Adams, Tessmann, and more](https://sbisoccer.com/2026/11/americans-abroad-midweek-rewind-adams-tessmann-and-more) - **Sbisoccer.com**
-3. [NPL: Two matches scheduled for today](https://english.khabarhub.com/2026/06/574648/) - **Khabarhub.com**
-4. [Keep or sell Konsa? - FPL gameweek 10 dilemmas](https://www.bbc.com/sport/football/articles/cm4g112qp051o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-5. [Azeez nearing full fitness, says Hurzeler](https://punchng.com/azeez-nearing-full-fitness-says-hurzeler/) - **The Punch**
-6. [Prince William guest edits Country Life Magazine as he focuses on rural mental health and shares his fondness for an occasional pint of cider with ice](https://www.dailymail.com/news/royals/article-16269079/Prince-William-guest-edits-Country-Life-Magazine-focuses-rural-mental-health-shares-fondness-occasional-pint-cider-ice.html) - **Dailymail.com**
-7. [Cole Palmer's England lifeline: Three Lions ask Chelsea about star's fitness in clear sign Thomas Tuchel is considering calling him up after warning over last squad withdrawal](https://www.dailymail.com/sport/football/article-16269817/Cole-Palmer-lined-England-call-Chelsea-asked-fitness-Thomas-Tuchel-weighs-giving-star-reprieve-warning-Three-Lions-squad-withdrawal.html) - **Dailymail.com**
-8. [“We can change the game whenever”: Kobbie Mainoo’s words will strike fear into Aston Villa hearts](https://thepeoplesperson.com/2026/11/05/kobbie-mainoo-issues-warning-ahead-of-man-united-vs-aston-villa-321385/) - **The Peoples Person**
-9. [Milan stunned by Ferencvaros, Marseille and Juventus secure Europa League wins](https://www.channelnewsasia.com/sport/milan-stunned-ferencvaros-marseille-and-juventus-secure-europa-league-wins-6529296) - **CNA**
-10. [European Roundup: Woltemade & Baur deliver strong performances after Klopp snub, Rose's Bournemouth record seventh straight win, Hürzeler's Brighton yet to concede](https://bulinews.com/european-roundup-woltemade-baur-deliver-strong-performances-after-klopp-snub-rose-bournemouth-record-seventh-straight-win-hurzeler-brighton-yet-concede) - **Bulinews.com**
+1. [From playing against Messi & Ronaldo to non-league](https://www.bbc.com/sport/football/articles/cw054d7nmndzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Meet Brighton's merry band of unlikely heroes: a midfielder taking tips from Lionel Messi, a twinkle-toed son of a ballerina and the £3m bargain now running the Premier League](https://www.dailymail.com/sport/football/article-16264487/brighton-unlikely-heroes-premier-league-title-charge.html) - **Dailymail.com**
+3. [Here’s how much financial room Barcelona have for January signings](https://barcauniversal.com/heres-how-much-financial-room-barcelona-have-for-january-signings/) - **Barcauniversal.com**
+4. [Nightmare season looms for Newcastle - and Magpies must make Matthias Jaissle call fast or risk relegation](https://www.goal.com/en-us/originals/nightmare-season-newcastle-magpies-make-matthias-jaissle-call-fast-risk-relegation/blt78d900cbd2123401) - **Goal.com**
+5. [Why managers can learn a lot from leaders like Napoleon - Pulis](https://www.bbc.com/sport/football/articles/ck98z2r17e6po?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+6. [Australia appoint Mike Hussey as consultant for Ashes and Cricket World Cup](https://www.aljazeera.com/sports/2026/11/6/mike-hussey-australia-cricket-batting-consultant-ashes-world-cup) - **Al Jazeera English**
+7. [Nottingham Forest vs Manchester City (Premier League): Match Preview, Team News, Head to Head, How to Watch](https://cityxtra.co.uk/CITYXTRA/match-coverage/nottingham-forest-vs-manchester-city-premier-league-match-preview-team-news-head-to-head-how-to-watch-1) - **Cityxtra.co.uk**
+8. ['Putting his doubters in their place' - Rooney lands pundit of year award](https://www.bbc.com/sport/football/articles/ck4g1l4nj85zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+9. ['Putting his doubters in their place' - Rooney lands Pundit of the Year award](https://www.bbc.co.uk/sport/football/articles/ck4g1l4nj85zo) - **BBC News**
+10. [The rise of a new era: Who will be the next Ronaldo or Messi of football?](https://www.business-standard.com/sports/football-news/the-rise-of-a-new-era-who-will-be-the-next-ronaldo-or-messi-of-football-126110600638_1.html) - **Business Standard**
 
 
 ---
-*최근 업데이트: 2026-11-07 10:11:09 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-07 16:17:18 (KST) / (하루 100회 제한 준수 중)*
