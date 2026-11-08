@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Anthony Gordon Found Respect At Barcelona, Not Just In England](https://offdaychatter.com/anthony-gordon-found-respect-at-barcelona-not-just-in-england/) - **Offdaychatter.com**
-2. [Nigerians in tough clashes across Europe](https://punchng.com/nigerians-in-tough-clashes-across-europe/) - **The Punch**
-3. [Lampard says hair pull warranted Coventry penalty](https://www.channelnewsasia.com/sport/lampard-says-hair-pull-warranted-coventry-penalty-6532521) - **CNA**
-4. [Where to watch Leeds vs. Tottenham live stream, TV channel, start time for Premier League match](https://www.sportingnews.com/us/soccer/news/watch-leeds-vs-tottenham-live-stream-tv-channel-time-premier-league/fba910fb0ac59b74810291e6) - **Sporting News**
-5. [England 'disappointment' fuels Dewsbury-Hall's Everton heroics](https://www.bbc.com/sport/football/articles/cm4g114p9e7go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [England 'disappointment' fuels Dewsbury-Hall's Everton heroics](https://www.bbc.co.uk/sport/football/articles/cm4g114p9e7go) - **BBC News**
-7. [Lampard feels hair pull should have led to Coventry penalty](https://www.bbc.com/sport/football/articles/cr15jj0yy8xeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-8. [Lampard feels hair pull should have led to Coventry penalty](https://www.bbc.co.uk/sport/football/articles/cr15jj0yy8xeo) - **BBC News**
-9. [Lampard: VAR didn't do its job](https://www.skysports.com/football/news/13609067/everton-3-1-coventry-frank-lampard-says-var-didnt-do-its-job-after-three-incidents-went-against-sky-blues-in-premier-league-defeat) - **Sky Sports**
-10. [Spurs' title ambition excites De Zerbi](https://sports.yahoo.com/articles/spurs-title-ambition-excites-zerbi-231402745.html) - **Yahoo Entertainment**
+1. [Barcelona shortlist seven centre-back targets for January transfer window – report](https://barcauniversal.com/barcelona-shortlist-seven-centre-back-targets-for-january-transfer-window-report/) - **Barcauniversal.com**
+2. [Liverpool Legend Steven Gerrard Linked With Shock Wrexham Move](https://roundtable.io/sports/soccer/premier-league/liverpool/news/liverpool-legend-steven-gerrard-linked-with-shock-wrexham-move) - **Roundtable.io**
+3. [Agniveer cricketer Jayant Goyat: The story of Services' Ranji Trophy talent](https://www.business-standard.com/cricket/news/jayant-goyat-agniveer-services-ranji-trophy-profile-126110700509_1.html) - **Business Standard**
+4. [The Daily Hilario: Open wide for some soccer!](https://weaintgotnohistory.sbnation.com/bobby-ramblings/173789/the-daily-hilario-open-wide-for-some-soccer) - **SB Nation**
+5. [‘Hello darkness my old friend, soon you’ll be here by 5pm’ As Simon and Garfunkel never sang…](https://www.themag.co.uk/2026/11/hello-darkness-my-old-friend-soon-youll-be-here-by-5pm-as-simon-and-garfunkel-never-sang-newcastle-united/) - **The Mag**
+6. [Nico Paz: Como director spills the beans on Man United target’s future amid Real Madrid speculation](https://thepeoplesperson.com/2026/11/07/man-united-target-nico-pazs-future-addressed-by-como-chief-321471/) - **The Peoples Person**
+7. [Manchester City Release Special Edition Shirt in Collaboration With Blossoms](https://cityxtra.co.uk/CITYXTRA/news/manchester-city-release-special-edition-shirt-in-collaboration-with-blossoms) - **Cityxtra.co.uk**
+8. [Manchester United at Old Trafford on Sunday and news conference bits](https://www.thevillablog.co.uk/manchester-united-at-old-trafford-on-sunday-and-news-conference-bits/) - **Thevillablog.co.uk**
+9. [Pressing charts, def cons and more! Nine OPTA facts ahead of #LEETOT](https://www.leedsunited.com/en/news/pressing-charts-def-cons-and-more-nine-opta-facts-ahead-of-leetot) - **Leedsunited.com**
 
 
 ---
-*최근 업데이트: 2026-11-08 10:47:30 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-08 17:43:25 (KST) / (하루 100회 제한 준수 중)*
