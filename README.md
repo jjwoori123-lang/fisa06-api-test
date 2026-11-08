@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Gunners match 2022-23 record! Arsenal equal their best Premier League start after hard-fought win over Hull](https://www.goal.com/en-us/news/arsenal-match-record-premier-league-start/bltb7111dcb4841847c) - **Goal.com**
-2. [Manchester City player ratings vs Nottingham Forest: Rayan Cherki sparks brief hope but defensive disasters cost Enzo Maresca dear](https://www.goal.com/en-us/news/manchester-city-player-ratings-vs-nottingham-forest-rayan-cherki-sparks-brief-hope-defensive-disasters-cost-enzo-maresca-dear/bltf8397100bbf08b9c) - **Goal.com**
-3. [EPL: Delap scores twice as Forest beat Man City 3-1](https://punchng.com/epl-delap-scores-twice-as-forest-beat-man-city-3-1/) - **The Punch**
-4. [Enzo Maresca says Gvardiol, Guehi removed for injury, but what's wrong with Man City's defense?](https://www.nbcsports.com/soccer/news/whats-wrong-with-man-citys-defense-enzo-maresca-reaction-after-loss-at-forest) - **NBCSports.com**
-5. [Kai Havertz leads the Premier League in offsides as Arsenal pile up infractions in 1-0 win over Hull City](https://www.cbssports.com/soccer/news/kai-havertz-premier-league-arsenal-1-0-win-hull-city/) - **CBS Sports**
-6. [Delap brace inspires Forest to stunning win over Man City](https://www.bbc.co.uk/sport/football/videos/crp3gewxj77eo) - **BBC News**
-7. [Delap’s Nottingham Forest stunners hand Manchester City third successive league defeat](https://www.irishtimes.com/sport/soccer/2026/11/07/delaps-nottingham-forest-stunners-hand-manchester-city-third-successive-league-defeat/) - **The Irish Times**
-8. [Pundit says this win shows how far Arsenal have come](https://www.justarsenal.com/pundit-says-this-win-shows-how-far-arsenal-have-come/425374) - **Just Arsenal News**
-9. [Muniz strike denies Newcastle and Jaissle much-needed win](https://www.bbc.co.uk/sport/football/videos/cm2d69p2x3g7o) - **BBC News**
+1. [‘Pokemon’ Anime Studio OLM Trains AI Coloring Tool on Just Three Frames in Japan Government-Backed Project](https://variety.com/2026/tv/markets-festivals/pokemon-anime-studio-olm-ai-coloring-tool-three-frames-1236942198/) - **Variety**
+2. [Finidi vows Rivers revival amid winless run](https://punchng.com/finidi-vows-rivers-revival-amid-winless-run/) - **The Punch**
+3. [Flying Antelopes seek to extend lead at home](https://punchng.com/flying-antelopes-seek-to-extend-lead-at-home/) - **The Punch**
+4. [Maliya Boys, Oluyole Warriors meet in mid-table clash](https://punchng.com/maliya-boys-oluyole-warriors-meet-in-mid-table-clash/) - **The Punch**
+5. [Olympic qualifiers: Seven NPFL players in squad for DR Congo clash](https://punchng.com/olympic-qualifiers-seven-npfl-players-in-squad-for-dr-congo-clash/) - **The Punch**
+6. [Porto hand Leeds Zaidu transfer setback](https://punchng.com/porto-hand-leeds-zaidu-transfer-setback/) - **The Punch**
+7. [Ajayi adds to Eagles injury worries](https://punchng.com/ajayi-adds-to-eagles-injury-worries/) - **The Punch**
+8. [Every word of Michael Carrick’s Aston Villa pre-match press conference – embargoed section](https://thepeoplesperson.com/2026/11/07/every-word-of-michael-carricks-aston-villa-pre-match-press-conference-2-321543/) - **The Peoples Person**
+9. ['I just don't see anybody else' - Jamie Redknapp names Brighton as Arsenal's biggest title rivals after Man City suffer a third straight defeat](https://www.goal.com/en-us/news/just-see-anybody-else-jamie-redknapp-names-brighton-arsenal-biggest-title-rivals-man-city-suffer-third-straight-defeat/blt418eb6b22f4e9c7f) - **Goal.com**
+10. [Carrick not seeking assurances ahead of Villa's visit](https://www.rte.ie/sport/soccer/2026/1107/1598390-carrick-not-seeking-assurances-ahead-of-villas-visit/) - **RTE**
 
 
 ---
-*최근 업데이트: 2026-11-09 05:16:02 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-09 08:48:20 (KST) / (하루 100회 제한 준수 중)*
