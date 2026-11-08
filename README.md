@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Barcelona shortlist seven centre-back targets for January transfer window – report](https://barcauniversal.com/barcelona-shortlist-seven-centre-back-targets-for-january-transfer-window-report/) - **Barcauniversal.com**
-2. [Liverpool Legend Steven Gerrard Linked With Shock Wrexham Move](https://roundtable.io/sports/soccer/premier-league/liverpool/news/liverpool-legend-steven-gerrard-linked-with-shock-wrexham-move) - **Roundtable.io**
-3. [Agniveer cricketer Jayant Goyat: The story of Services' Ranji Trophy talent](https://www.business-standard.com/cricket/news/jayant-goyat-agniveer-services-ranji-trophy-profile-126110700509_1.html) - **Business Standard**
-4. [The Daily Hilario: Open wide for some soccer!](https://weaintgotnohistory.sbnation.com/bobby-ramblings/173789/the-daily-hilario-open-wide-for-some-soccer) - **SB Nation**
-5. [‘Hello darkness my old friend, soon you’ll be here by 5pm’ As Simon and Garfunkel never sang…](https://www.themag.co.uk/2026/11/hello-darkness-my-old-friend-soon-youll-be-here-by-5pm-as-simon-and-garfunkel-never-sang-newcastle-united/) - **The Mag**
-6. [Nico Paz: Como director spills the beans on Man United target’s future amid Real Madrid speculation](https://thepeoplesperson.com/2026/11/07/man-united-target-nico-pazs-future-addressed-by-como-chief-321471/) - **The Peoples Person**
-7. [Manchester City Release Special Edition Shirt in Collaboration With Blossoms](https://cityxtra.co.uk/CITYXTRA/news/manchester-city-release-special-edition-shirt-in-collaboration-with-blossoms) - **Cityxtra.co.uk**
-8. [Manchester United at Old Trafford on Sunday and news conference bits](https://www.thevillablog.co.uk/manchester-united-at-old-trafford-on-sunday-and-news-conference-bits/) - **Thevillablog.co.uk**
-9. [Pressing charts, def cons and more! Nine OPTA facts ahead of #LEETOT](https://www.leedsunited.com/en/news/pressing-charts-def-cons-and-more-nine-opta-facts-ahead-of-leetot) - **Leedsunited.com**
+1. [Man United Look To Ligue 1 Sensation For Problem Position](https://eplindex.com/152208/man-united-look-to-ligue-1-sensation-for-problem-position.html) - **English Premier League Index - Opta Stats**
+2. [De Zerbi declines to blame VAR as Tottenham lose to Leeds](https://www.channelnewsasia.com/sport/de-zerbi-declines-blame-var-tottenham-lose-leeds-6533281) - **CNA**
+3. [Kathmandu Gorkhas end Lumbini Lions’ unbeaten run with 36-run victory](https://english.khabarhub.com/2026/07/574868/) - **Khabarhub.com**
+4. [EPL: Leeds end five-game winless run with 1-0 victory over Tottenham](https://punchng.com/epl-leeds-end-five-game-winless-run-with-1-0-victory-over-tottenham/) - **The Punch**
+5. [Daniel Farke claims Jayden Bogle a ‘butterfly’ after defender escapes red card in Leeds’ win over Tottenham](https://www.101greatgoals.com/football/premier-league/daniel-farke-claims-jayden-bogle-butterfly/) - **101 Great Goals**
+6. [BetMGM bonus code POSTBET: Get up to $1,500 back in bonus bets for Kentucky vs. Tennessee](https://nypost.com/2026/11/07/betting/betmgm-bonus-code-postbet-get-up-to-1500-back-in-bonus-bets-for-kentucky-vs-tennessee/) - **New York Post**
+7. [EPL: Arsenal too strong, but we’re ready to fight, says Hull City coach](https://punchng.com/epl-arsenal-too-strong-but-were-ready-to-fight-says-hull-city-coach/) - **The Punch**
+8. [From Norwich struggles to Arsenal ambition: Tzolis says he’s ready to shine in England](https://www.footballmuse.com/news/from-norwich-struggles-to-arsenal-ambition-tzolis-says-hes-ready-to-shine-in-england) - **Footballmuse.com**
+9. [Isaac Konde makes his debut as Manchester United U18s crash out of the Premier League Cup](https://thepeoplesperson.com/2026/11/07/isaac-konde-debut-man-united-u18s-eliminated-from-premier-league-cup-321512/) - **The Peoples Person**
+10. [Okafor fires Leeds to victory from bench as Tottenham winning run ends](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261107-930-960355/) - **Dpa-international.com**
 
 
 ---
-*최근 업데이트: 2026-11-08 17:43:25 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-09 00:50:56 (KST) / (하루 100회 제한 준수 중)*
