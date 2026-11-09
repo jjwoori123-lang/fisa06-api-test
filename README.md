@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Would Colton Cowser be a good fit for the Cincinnati Reds’ outfield?](https://roundtable.io/sports/mlb/reds/players/would-colton-cowser-be-a-good-fit-for-the-cincinnati-reds-outfield) - **Roundtable.io**
-2. [Manchester United vs Aston Villa – Predicted lineup and team news](https://thefootballfaithful.com/manchester-united-vs-aston-villa-predicted-lineup-and-team-news-3/) - **The Football Faithful**
-3. [Chelsea XI vs Sunderland – Predicted lineup and team news](https://thefootballfaithful.com/chelsea-xi-vs-sunderland-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-4. [Bayern Munich News: The aftermath of FC Bayern’s 2-1 win over Mainz; Arsenal wants Antonio Nusa; Is Bayern eyeing PSG’s Désiré Doué?; & MORE!](https://www.bavarianfootballworks.com/transfer-rumors/277745/bayern-munich-mainz-arsenal-psg-doue-tottenham-fc-barcelona-kane-olise) - **Bavarian Football Works**
-5. [Brentford XI vs Brighton – Predicted lineup and team news](https://thefootballfaithful.com/brentford-xi-vs-brighton-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-6. [Brighton vs Brentford – Predicted lineup and team news](https://thefootballfaithful.com/brighton-vs-brentford-predicted-lineup-and-team-news-2/) - **The Football Faithful**
-7. [Ipswich Town vs Bournemouth – Predicted lineup and team news](https://thefootballfaithful.com/ipswich-town-vs-bournemouth-predicted-lineup-and-team-news/) - **The Football Faithful**
-8. [Ipswich Town vs Bournemouth – Match preview and team news](https://thefootballfaithful.com/ipswich-town-vs-bournemouth-match-preview-and-team-news/) - **The Football Faithful**
-9. [Manchester United vs Aston Villa – Match preview and team news](https://thefootballfaithful.com/manchester-united-vs-aston-villa-match-preview-and-team-news-3/) - **The Football Faithful**
-10. [Brighton vs Brentford – Match preview and team news](https://thefootballfaithful.com/brighton-vs-brentford-match-preview-and-team-news-2/) - **The Football Faithful**
+1. [Man Utd target Milan star Koni De Winter as Lisandro Martinez replacement amid defensive crisis](https://www.goal.com/en-us/news/man-utd-target-koni-de-winter-replace-lisandro-martinez/blt327b049efe654277) - **Goal.com**
+2. [(VIDEO) Crystal Palace vs Liverpool Live Stream: How to Watch Premier League Clash Today on TV, Kickoff Time](https://www.ibtimes.com.au/crystal-palace-liverpool-how-watch-premier-league-1878106) - **Ibtimes.com.au**
+3. [5 things to watch when the Cowboys play the Colts](https://www.bloggingtheboys.com/dallas-cowboys-discussion/225480/colts-game-tyler-goodson-daniel-jones-turnovers) - **Blogging The Boys**
+4. [What does a 27-fight UFC vet do after retirement? Ed Herman is putting everything he's learned to the test](https://sports.yahoo.com/mma/article/what-does-a-17-year-ufc-vet-do-after-retirement-ed-herman-is-putting-everything-hes-learned-to-the-test-140000606.html) - **Yahoo Entertainment**
+5. [More than 100 soccer players try out to join Embers](https://www.cbc.ca/news/canada/manitoba/100-soccer-players-try-out-to-be-an-ember-9.7413819) - **CBC News**
+6. [Konsa’s Hull Masterclass Raises Fresh Questions Over Saliba’s Arsenal Return](https://www.justarsenal.com/konsas-hull-masterclass-raises-fresh-questions-over-salibas-arsenal-return/425402) - **Just Arsenal News**
+7. [Liverpool do not want to rush decision on Barcelona loanee despite talks over January move](https://barcauniversal.com/liverpool-do-not-want-to-rush-decision-on-barcelona-loanee-despite-talks-over-january-move/) - **Barcauniversal.com**
+8. [Premier League legend David Silva, 40, makes emphatic return to football with man-of-the-match performance - three-and-a-half years after retiring](https://www.dailymail.com/sport/football/article-16275987/Premier-League-legend-David-Silva-40-makes-emphatic-return-football-man-match-performance-three-half-years-retiring.html) - **Dailymail.com**
+9. [ Crystal Palace-Liverpool: Iraola backs Wirtz and Barcola at Selhurst Park](https://onefootball.com/en/news/crystal-palace-liverpool-iraola-backs-wirtz-and-barcola-at-selhurst-park-43746211) - **Onefootball.com**
+10. [Hull City boss calls Arsenal ‘the best right now’](https://dailycannon.com/2026/11/jakirovic-hull-arsenal-praise/) - **Dailycannon.com**
 
 
 ---
-*최근 업데이트: 2026-11-09 14:18:59 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-09 23:04:58 (KST) / (하루 100회 제한 준수 중)*
