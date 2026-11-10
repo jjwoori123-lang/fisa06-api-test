@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bayern Munich reportedly prepared massive offer for Liverpool’s Rio Ngumoha](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/279052/rio-ngumoha-liverpool-fc-luis-diaz-bayenr-munich) - **Bavarian Football Works**
-2. [INEOS’ stance on sacking Michael Carrick emerges following eight-goal Aston Villa thriller](https://thepeoplesperson.com/2026/11/08/michael-carrick-ineos-unlikely-to-dismiss-man-united-boss-321769/) - **The Peoples Person**
-3. [Our Fantasy Draft With Europe's Top Players Ahead Of UEFA Nations League](https://www.foxsports.com/stories/soccer/uefa-nations-league-fantasy-draft-yamal-kane-mbappe-spain-england-france) - **Fox Sports**
-4. [EPL: Man United crisis, City’s slump dominate talking points](https://punchng.com/epl-man-united-crisis-citys-slump-dominate-talking-points/) - **The Punch**
-5. [Bizarre & thrilling theatre as Carrick's Man Utd future still in limbo](https://www.bbc.com/sport/football/articles/cked3qjw1q4xo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-6. [Bizarre & thrilling theatre as Carrick's Man Utd future still in limbo](https://www.bbc.co.uk/sport/football/articles/cked3qjw1q4xo) - **BBC News**
-7. [Frank and Dyche on standby! - Crystal Palace consider managerial alternatives as Pierre Sage fights to save his job](https://www.goal.com/en-us/news/frank-dyche-standby-crystal-palace-alternatives-pierre-sage-job-/blt876db2243006be7f) - **Goal.com**
-8. [Astonishing moment manager HEADBUTTS opposition player and is sent off, sparking mass brawl as FA Cup first round clash descends into chaos](https://www.dailymail.com/sport/football/article-16276541/Astonishing-moment-manager-HEADBUTTS-opposition-player-sent-sparking-mass-brawl-FA-Cup-round-clash-descends-chaos.html) - **Dailymail.com**
-9. [How The Hockey Hall Of Fame Class Of 2026 Fared Against the Senators](https://thehockeynews.com/nhl/ottawa-senators/latest-news/how-the-hockey-hall-of-fame-class-of-2026-fared-against-the-senators) - **The Hockey News**
-10. [Aberdeen boss Stephen Robinson is doomed... a haunted man whose players have given up the ghost](https://www.dailymail.com/sport/football/article-16276459/Aberdeen-boss-Stephen-Robinson-doomed-haunted-man-players-given-ghost.html) - **Dailymail.com**
+1. [EPL: Man Utd snatch late draw; Sunderland down Chelsea](https://www.rediff.com/sports/report/epl-manchester-utd-rally-to-snatch-4-4-draw-sunderland-down-chelsea/20261109.htm) - **Rediff.com**
+2. [Man Utd 4-4 Aston Villa (Nov 8, 2026) Game Analysis - ESPN](https://slashdot.org/firehose.pl?op=view&amp;id=186658973) - **Slashdot.org**
+3. [ After exit, coach sees a way for Vasco to be great again](https://onefootball.com/en/news/after-exit-coach-sees-a-path-back-to-greatness-for-vasco-43749347) - **Onefootball.com**
+4. [NPL: Two matches scheduled for today](https://english.khabarhub.com/2026/09/574983/) - **Khabarhub.com**
+5. [Journey to Wembley: Halifax set sights on winning more fans and climbing mountain to the Football League as their FA Cup adventure is ended by route-one Cheltenham](https://www.dailymail.com/sport/football/article-16268451/Journey-Wembley-Halifax-set-sights-winning-fans-climbing-mountain-Football-League-FA-Cup-adventure-ended-route-one-Cheltenham.html) - **Dailymail.com**
+6. [Rangers extend NPFL lead](https://punchng.com/japan-coach-salutes-flamingos-4/) - **The Punch**
+7. [Arokodare nets 13th Ajax goal as summer deal talks intensifies](https://punchng.com/arokodare-nets-13th-ajax-goal-as-summer-deal-talks-intensifies/) - **The Punch**
+8. [Football Daily](https://www.bbc.co.uk/sounds/play/p0plyc8k?at_campaign=rss) - **BBC News**
+9. [Hearts wallop Heart of Lions at Legon Stadium](https://thechronicle.com.gh/hearts-wallop-heart-of-lions-at-legon-stadium/) - **Thechronicle.com.gh**
+10. [Berekum Chelsea fight back to beat Asante Kotoko 2-1](https://thechronicle.com.gh/berekum-chelsea-fight-back-to-beat-asante-kotoko-2-1/) - **Thechronicle.com.gh**
 
 
 ---
-*최근 업데이트: 2026-11-10 08:27:57 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-10 13:46:40 (KST) / (하루 100회 제한 준수 중)*
