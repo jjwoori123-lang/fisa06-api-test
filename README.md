@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Vanderbilt commit Adekunbi Adetayo to be welcomed to the 2027 Navy All-American Bowl](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/vanderbilt-commit-adekunbi-adetayo-to-be-welcomed-to-the-2027-navy-all-american-bowl) - **NBCSports.com**
-2. [Notre Dame commit Xavier Hasan to be honored as a 2027 Navy All-American](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/notre-dame-commit-xavier-hasan-to-be-honored-as-a-2027-navy-all-american) - **NBCSports.com**
-3. [Nasir Richardson to be welcomed to the 2027 Navy All-American Bowl](https://www.nbcsports.com/college-football/navy-all-american-bowl/news/nasir-richardson-to-be-welcomed-to-the-2027-navy-all-american-bowl) - **NBCSports.com**
-4. [USMNT star opens up about Mauricio Pochettino-Manchester United rumors](https://nypost.com/2026/11/10/sports/usmnts-antonee-robinson-reacts-to-mauricio-pochettino-man-united-rumors/) - **New York Post**
-5. [The nine major strategic blunders Ineos have made at Man United that prove they cannot be trusted to choose Michael Carrick's replacement](https://www.dailymail.com/sport/football/article-16280747/Ineos-Man-United-nine-strategic-blunders.html) - **Dailymail.com**
-6. [The nine major strategic blunders Ineos have made at Man United that prove they cannot be trusted to choose Michael Carrick's replacement](https://www.dailymail.com/sport/football/article-16280747/Ineos-Man-United-nine-strategic-blunders.html) - **Dailymail.com**
-7. [NFL trade deadline: Ranking all 18 in-season deals as Kirk Cousins, Jeffery Simmons reshape Super Bowl race](https://www.cbssports.com/nfl/news/nfl-trade-deadline-ranking-all-18-deals-kirk-cousins-jeffery-simmons/) - **CBS Sports**
-8. [Max Verstappen Went From P21 to P2 and Still Says He Lost 12 Hours](https://www.motorbiscuit.com/max-verstappen-went-from-p21-to-p2-and-still-says-he-lost-12-hours/) - **Motorbiscuit.com**
-9. [Pochettino's USA Buyout Clause? What Manchester United Would Have To Pay](https://www.foxsports.com/stories/soccer/pochettino-usmnt-buyout-manchester-united) - **Fox Sports**
-10. [Why Would Mauricio Pochettino Leave The U.S. For Manchester United?](https://www.foxsports.com/stories/soccer/why-would-mauricio-pochettino-leave-u-s-manchester-united) - **Fox Sports**
+1. [Taking instructions from a schoolboy and showing class at half-pace... William Saliba made impressive injury comeback for Arsenal Under-21s - now he faces fight to take Ezri Konsa's spot, writes ISAAN KHAN](https://www.dailymail.com/sport/football/article-16283737/Saliba-Arsenal-injury-return.html) - **Dailymail.com**
+2. [How Mauricio Pochettino feels about managing USMNT’s next two games amid Man Utd talks](https://www.hitc.com/how-mauricio-pochettino-feels-about-managing-usmnts-next-two-games-amid-man-utd-talks/) - **HITC - Football, Gaming, Movies, TV, Music**
+3. [Why FCB Women won at PSG for the third consecutive time!](https://fcbayern.com/frauen/en/news/2026/11/analysis-of-psg-vs.-fc-bayern-women-in-the-champions-league) - **Fcbayern.com**
+4. [EPL: Pochettino ready to take over as Man United manager — Report](https://punchng.com/epl-pochettino-ready-to-take-over-as-man-united-manager-report/) - **The Punch**
+5. [EPL: Panel confirms VAR error in Liverpool-Arsenal clash](https://punchng.com/epl-panel-confirms-var-error-in-liverpool-arsenal-clash/) - **The Punch**
+6. [Man City whistleblower Rui Pinto could help UK uncover more sporting crime](https://www.aljazeera.com/sports/2026/11/11/man-city-whistleblower-rui-pinto-could-help-uk-uncover-more-sporting-crime) - **Al Jazeera English**
+7. [You are Scotland boss Pocognoli - what would you do?](https://www.bbc.com/sport/football/articles/cwr7y79jm354o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+8. [Exclusive | Liverpool and Aston Villa monitor Le Havre’s Djibril Ouziad](https://www.getfootballnewsfrance.com/2026/exclusive-liverpool-and-aston-villa-monitor-le-havres-djibril-ouziad/) - **Get French Football News**
+9. [Wales boss Bellamy praises Liverpool's handling of Koumas](https://www.bbc.com/sport/football/articles/cm752n34wek9o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+10. [Wales boss Bellamy praises Liverpool's handling of Koumas](https://www.bbc.co.uk/sport/football/articles/cm752n34wek9o) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-11-12 12:07:28 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-12 20:29:02 (KST) / (하루 100회 제한 준수 중)*
