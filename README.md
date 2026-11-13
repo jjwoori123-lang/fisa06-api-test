@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Pep Guardiola’s USMNT dream job could come with problem he never faced at Manchester City as Mauricio Pochettino nears Manchester United move](https://worldsoccertalk.com/news/pep-guardiolas-usmnt-dream-job-could-come-with-problem-he-never-faced-at-manchester-city-as-mauricio-pochettino-nears-manchester-united-move/) - **Worldsoccertalk.com**
-2. [Steve Holland blamed for Man United’s alarming fall-off in training standards this season](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_f1f0acb3-b6c0-43e5-8d3e-93e4335a1936) - **Yahoo Entertainment**
-3. [Will White Be Alright at Wembley?](https://www.justarsenal.com/will-white-be-alright-at-wembley/425624) - **Just Arsenal News**
-4. [Pep Guardiola set to become United States' top target to replace Mauricio Pochettino as Manchester United close in](https://www.goal.com/en-us/news/pep-guardiola-set-to-become-united-states-top-target-to-replace-mauricio-pochettino-as-manchester-united-close-in/blt6b3bf5923691ca13) - **Goal.com**
-5. [Real Madrid star admits he rejected Premier League offers this summer](https://getfootballnewsspain.com/real-madrid-star-admits-he-rejected-premier-league-offers-this-summer/) - **Getfootballnewsspain.com**
-6. [Revealed: Astonishing images of the huge cache of weapons, ammunition and cash seized by Spanish police from Kinahan-linked gang suspected in 'abduction' of soccer star's brother](https://www.dailymail.com/news/article-16285077/Astonishing-images-weapons-ammunition-cash-seized-Spanish-police-Kinahan-gang-abduction-soccer-star-brother.html) - **Dailymail.com**
-7. [Mauricio Pochettino Tracker: Latest On USA Coach, Man United Rumors, Candidates](https://www.foxsports.com/stories/soccer/mauricio-pochettino-tracker-latest-usa-coach-man-united-rumors-candidates) - **Fox Sports**
-8. [Erling Haaland Beats Harry Kane to FIFPRO Men's World 11 Spot - Lionel Messi, Kylian Mbappe And Lamine Yamal Involved](https://cityxtra.co.uk/CITYXTRA/news/erling-haaland-beats-harry-kane-to-fifpro-mens-world-11-spot---lionel-messi-kylian-mbappe-and-lamine-yamal-involved) - **Cityxtra.co.uk**
-9. [Leeds United Eye Rare Early Deal For £34m Defender: Should Talks Open Now?](https://the4thofficial.net/2026/11/leeds-united-eye-rare-early-deal-for-34m-defender-should-talks-open-now/) - **The4thofficial.net**
-10. ['How disrespectful is that?' - Peter Schmeichel fumes at Man Utd over their treatment of Michael Carrick as Mauricio Pochettino closes in](https://www.goal.com/en-us/news/how-disrespectful-is-that-peter-schmeichel-fumes-man-utd-treatment-michael-carrick-mauricio-pochettino-closes-in/bltf5922498dd120ab7) - **Goal.com**
+1. [England's Blues brothers - how the Bellinghams helped save Birmingham](https://www.bbc.com/sport/football/articles/cm1j3j20r2rzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Man Utd and Man City set for £75m transfer battle over Chelsea defender Malo Gusto after losing starting spot to Josh Acheampong under Xabi Alonso](https://www.goal.com/en-us/news/man-utd-man-city-transfer-battle-chelsea-malo-gusto-josh-acheampong-xabi-alonso/blt09c3138a42c3c83e) - **Goal.com**
+3. [Is 10 points from the first 10 games a good return for Fulham?](https://roundtable.io/sports/soccer/premier-league/fulham/news/is-10-points-from-the-first-10-games-a-good-return-for-fulham) - **Roundtable.io**
+4. [Harry Kane Issues Telling Response After Being Asked Tottenham Return Question](https://roundtable.io/sports/soccer/premier-league/tottenham/opinion/harry-kane-issues-telling-response-after-being-asked-tottenham-return-question) - **Roundtable.io**
+5. [Why Chelsea Players Got Dressing Room Decision Wrong As 21-Year-Old Handed Duty](https://roundtable.io/sports/soccer/premier-league/chelsea/opinions/why-chelsea-players-got-dressing-room-decision-wrong-as-21-year-old-handed-duty) - **Roundtable.io**
+6. [Man United will regain their glory days with one change in their transfer approach](https://thepeoplesperson.com/2026/11/12/man-united-must-sign-hard-working-players-in-january-opinion-322138/) - **The Peoples Person**
+7. [England's one-cap wonders: The exclusive club mocked by some but cherished by its members](https://www.goal.com/en-us/originals/england-one-cap-wonders-exclusive-club-mocked-cherished/blt637d506c9d6b8ec5) - **Goal.com**
+8. ['Man of the Year' Declan Rice's relentless climb towards becoming a true football megastar](https://www.goal.com/en-us/originals/man-of-the-year-declan-rice-relentless-climb-football-megastar/blt816fbfad274d5daf) - **Goal.com**
+9. [Barcelona identify two dream centre-back targets but January transfers are impossible](https://barcauniversal.com/barcelona-identify-two-dream-centre-back-targets-but-january-transfers-are-impossible/) - **Barcauniversal.com**
+10. [Richarlison faces slim chance of January return to Everton despite being frozen out by Roberto De Zerbi at Tottenham as Toffees eye Dinamo Zagreb star Dion Beljo](https://www.goal.com/en-us/news/richarlison-chance-january-return-everton-roberto-de-zerbi-tottenham-dinamo-zagreb-dion-beljo/bltdfca233c0e3e519a) - **Goal.com**
 
 
 ---
-*최근 업데이트: 2026-11-13 09:33:19 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-13 16:15:28 (KST) / (하루 100회 제한 준수 중)*
