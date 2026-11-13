@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Gary Neville slams Manchester United's 'disgusting' treatment of Michael Carrick as Pochettino deal nears](https://www.footballmuse.com/news/gary-neville-slams-manchester-uniteds-disgusting-treatment-of-michael-carrick-as-pochettino-deal-nears) - **Footballmuse.com**
-2. [Largs versus Ayr in Scottish Cup live on BBC TV](https://www.bbc.com/sport/football/articles/cmqlq3llg19go?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-3. [Largs Thistle get floodlights consent in time for cup tie with Ayr – watch on BBC](https://www.bbc.co.uk/sport/football/articles/cmqlq3llg19go) - **BBC News**
-4. [Gatti-Premier League, Inter eye Richards, Endrick's future? Today's news ](https://onefootball.com/en/news/gatti-premier-league-inter-eye-richards-endricks-future-todays-news-43766823) - **Onefootball.com**
-5. [INEOS' reason for firing Michael Carrick emerges as Manchester United pursue Mauricio Pochettino](https://www.alloutsoccer.com/news/ineos-michael-carrick-firing-united-2107480) - **Alloutsoccer.com**
-6. [‘Big move’ coming for England rookie Josh King ‘sooner rather than later’ - with Darren Bent explaining where Fulham’s ‘special talent’ can still raise his game](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3b29009f-6e5d-42e8-b65e-76d4b3d094bf) - **Yahoo Entertainment**
-7. [Rio Ferdinand is right, Manchester United are a laughing stock and appointing a new ringmaster won’t make it less of a circus](https://www.101greatgoals.com/football/premier-league/rio-ferdinand-manchester-united-laughing-stock-pochettino-circus/) - **101 Great Goals**
-8. [Neville: Pochettino needs control of Man Utd recruitment](https://www.skysports.com/football/news/13611886/gary-neville-mauricio-pochettino-needs-control-of-manchester-united-recruitment) - **Sky Sports**
-9. [Defending champions Lumbini Lions become first team to qualify for NPL playoffs](https://english.khabarhub.com/2026/12/575388/) - **Khabarhub.com**
+1. [Chargers' Jim Harbaugh implores NFL to investigate 'loophole' that nixed Daiyan Henley trade](https://www.cbssports.com/nfl/news/chargers-jim-harbaugh-implores-nfl-investigate-loophole-daiyan-henley-trade/) - **CBS Sports**
+2. [Ranking All 30 NBA Benches From Worst To Best So Far This Season](https://fadeawayworld.net/ranking-all-30-nba-benches-from-worst-to-best-so-far-this-season) - **Fadeaway World**
+3. [Arsenal Are Big Admirers Of This Real Madrid Forward: Should Arteta Get Him On Board?](https://the4thofficial.net/2026/11/arsenal-are-big-admirers-of-this-real-madrid-forward/) - **The4thofficial.net**
+4. [Pochettino’s Manchester United Will Still Face Major Financial Woes](https://frontofficesports.com/article/mauricio-pochettino-manchester-united-glazers-debt/) - **Frontofficesports.com**
+5. [Monde Entier - Cricket Fans, Orange Money and Online Casino Payment Risks in 2026](https://www.camer.be/actualites/societe/monde-entier-cricket-fans-orange-money-and-online-casino-payment-risks-in-2026) - **Camer.be**
+6. [Arsenal star responds to January transfer rumours](https://eplindex.com/152371/arsenal-star-responds-to-january-transfer-rumours.html) - **English Premier League Index - Opta Stats**
+7. [‘Sobbing’ Andoni Iraola blamed for Liverpool’s latest injury blow](https://anfieldindex.com/103219/sobbing-andoni-iraola-blamed-for-liverpools-latest-injury-blow.html) - **Anfieldindex.com**
+8. [Rangers Rule Out January Sale Of Striker: Is Holding Firm Right?](https://the4thofficial.net/2026/11/rangers-rule-out-january-sale-of-striker-is-holding-firm-right/) - **The4thofficial.net**
+9. [Real Madrid could activate buyback clause before selling defender to Premier League](https://getfootballnewsspain.com/real-madrid-could-activate-buyback-clause-before-selling-defender-to-premier-league/) - **Getfootballnewsspain.com**
+10. [Folarin Balogun and Sebastian Berhalter speak out on Mauricio Pochettino’s USMNT impact and future](https://www.alloutsoccer.com/news/balogun-berhalter-pochettino-usmnt-united-2108047) - **Alloutsoccer.com**
 
 
 ---
-*최근 업데이트: 2026-11-14 00:30:03 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-14 06:36:01 (KST) / (하루 100회 제한 준수 중)*
