@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Manchester City And Manchester United Set for Transfer Battle Over £75 Million-Rated Chelsea Star](https://cityxtra.co.uk/CITYXTRA/transfers/manchester-city-and-manchester-united-set-for-transfer-battle-over-75-million-rated-chelsea-star) - **Cityxtra.co.uk**
-2. [Manchester City Are In The Race To Sign This Chelsea Full-Back: Should Maresca Go For Him?](https://the4thofficial.net/2026/11/manchester-city-are-in-the-race-to-sign-this-chelsea-full-back/) - **The4thofficial.net**
-3. [Cavan Sullivan may not beat Lionel Messi to MLS MVP - but he's already among the league's best at just 17](https://www.goal.com/en-us/originals/cavan-sullivan-mvp-candidacy-mls/bltd965ae41f4d2fafc) - **Goal.com**
-4. [Why is Virgil van Dijk not playing for the Netherlands vs Greece in 2026-27 UEFA Nations League Matchday 5?](https://worldsoccertalk.com/news/why-is-virgil-van-dijk-not-playing-for-the-netherlands-vs-greece-in-2026-27-uefa-nations-league-matchday-5/) - **Worldsoccertalk.com**
-5. [Man Utd handed fresh injury blow as Patrick Dorgu withdraws from Denmark squad](https://www.goal.com/en-us/news/man-utd-patrick-dorgu-injury-denmark-withdrawal/blta668d2bc978cae43) - **Goal.com**
-6. [United get their man](https://economictimes.indiatimes.com/news/sports/football/united-get-their-man/articleshow/135815615.cms) - **The Times of India**
-7. [On This Day: Brendan Shanahan Scores the 400th Goal, Could Return Detroit in Front Office Role](https://thehockeynews.com/nhl/detroit-red-wings/latest-news/on-this-day-brendan-shanahan-scores-the-400th-goal-could-return-detroit-in-front-office-role) - **The Hockey News**
-8. [Friday Chippy: Poch In, Bruno Out? (Maybe Later), Becks HOFer](https://thebusbybabe.sbnation.com/general/36424/friday-chippy-poch-in-bruno-out-maybe-later-becks-hofer) - **SB Nation**
-9. [INEOS confident of breakthrough in talks with Bruno Fernandes after double contract rejection](https://thepeoplesperson.com/2026/11/13/ineos-confident-of-keeping-bruno-fernandes-despite-rejection-322352/) - **The Peoples Person**
-10. [Arsenal Are In The Running To Land This Gifted Winger: One For The Future?](https://the4thofficial.net/2026/11/arsenal-are-in-the-running-to-land-this-gifted-winger-one-for-the-future/) - **The4thofficial.net**
+1. [Senne Lammens opens up on Michael Carrick’s sack](https://thepeoplesperson.com/2026/11/13/senne-lammens-says-man-united-players-backed-michael-carrick-322374/) - **The Peoples Person**
+2. [Real Madrid eye Vitão signing](https://getfootballnewsspain.com/real-madrid-eye-vitao-signing/) - **Getfootballnewsspain.com**
+3. [Fitness obsessed & 'control freak' - what can Man Utd expect from Pochettino?](https://www.bbc.com/sport/football/articles/c85y13pv69xwo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+4. [Three things Jürgen Klopp changed to make Germany DOMINATE Serbia](https://www.bavarianfootballworks.com/bayern-munich-match-observations/281062/serbia-vs-germany-three-things-jurgen-klopp-observations-match-analysis-florian-wirtz-kimmich-pavlovic-havertz) - **Bavarian Football Works**
+5. [Patrick Dorgu sent home from Denmark duty after failing fitness tests - just hours after joining up with team-mates - in early blow for new Man United boss Mauricio Pochettino](https://www.dailymail.com/sport/football/article-16291169/patrick-dorgu-man-united-mauricio-pochettino.html) - **Dailymail.com**
+6. [Tears for Pochettino as Man Utd turn to former Spurs boss](https://www.abc.net.au/news/2026-11-14/manchester-united-hire-tearful-us-coach-mauricio-pochettino/107385644) - **ABC News (AU)**
+7. [Arsenal star Max Dowman smashes Jude Bellingham's record - but a less-familiar name should catch Thomas Tuchel's eye ahead of Euro 2028: THINGS WE LEARNED from England U21's defeat to Portugal](https://www.dailymail.com/sport/football/article-16290173/Arsenal-Max-Dowman-Jude-Bellingham-record-Thomas-Tuchel-Euro-2028-England-U21s-defeat-Portugal.html) - **Dailymail.com**
+8. [Jason Wilcox and Omar Berrada thought Michael Carrick could win Premier League this season](https://thepeoplesperson.com/2026/11/13/michael-carrick-sir-jim-ratcliffes-man-united-title-belief-322362/) - **The Peoples Person**
+9. [Paramount+ Sets New Ted Lasso Rival Series With Kingsman Director](https://screenrant.com/day-1s-tv-show-paramount-plus-ted-lasso-rival-matthew-vaughn-damian-lewis/) - **Screen Rant**
+10. [Report Udogie could be eager for Juventus after Tottenham](https://football-italia.net/report-udogie-could-eager-juventus-tottenham/) - **Football Italia**
 
 
 ---
-*최근 업데이트: 2026-11-15 05:04:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-15 08:58:31 (KST) / (하루 100회 제한 준수 중)*
