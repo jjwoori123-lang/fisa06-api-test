@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Who makes your Northern Ireland XI against Ukraine?](https://www.bbc.com/sport/football/articles/c5y4jlplner0o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-2. [Who makes your Northern Ireland XI against Ukraine?](https://www.bbc.co.uk/sport/football/articles/c5y4jlplner0o) - **BBC News**
-3. [How do you stop Haaland? Wales show how it's done](https://www.bbc.com/sport/football/articles/c3y0e0z0r8kzo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
-4. [Grealish issues apology for recent absence at Everton for disciplinary reasons](https://sports.yahoo.com/articles/grealish-issues-apology-recent-absence-081616355.html) - **Yahoo Entertainment**
-5. [‘It’s A Lie’: Morgan Rogers Defends Chelsea Teammate Following Scrutiny](https://roundtable.io/sports/soccer/premier-league/chelsea/news/it-s-a-lie-morgan-rogers-defends-chelsea-teammate-following-scrutiny) - **Roundtable.io**
-6. [Pep Guardiola set to attend Brasileirao clash alongside City Group CEO Ferran Soriano amid USMNT links to replace Man Utd bound Mauricio Pochettino](https://www.goal.com/en-us/news/pep-guardiola-brasileirao-clash-city-group-ferran-soriano-usmnt-links-mauricio-pochettino/blt9c56583dfe126461) - **Goal.com**
-7. [How do you stop Haaland? Wales show how it's done](https://www.bbc.co.uk/sport/football/articles/c3y0e0z0r8kzo) - **BBC News**
-8. [Viktor Gyokeres asked if he wants to stay at Arsenal](https://dailycannon.com/2026/11/viktor-gyokeres-arsenal-future/) - **Dailycannon.com**
-9. [James Milner confirms emotional Liverpool return as Reds icon prepares to 'pull on the red shirt' again at Anfield](https://www.goal.com/en-us/news/james-milner-confirms-liverpool-return-anfield/blt76e2eba8a4a2a336) - **Goal.com**
-10. [Cole Palmer Names Former Manchester City Teammate ’Best in the Premier League’](https://cityxtra.co.uk/CITYXTRA/news/cole-palmer-names-former-manchester-city-teammate-best-in-the-premier-league) - **Cityxtra.co.uk**
+1. [Tearful Pochettino on 'difficult' decision to leave USA for Man Utd](https://www.bbc.co.uk/sport/football/articles/cmd61qne8352o) - **BBC News**
+2. [Leaving USA for Man Utd 'most difficult' decision of career: Pochettino](https://sports.yahoo.com/articles/leaving-usa-man-utd-most-152230607.html) - **Yahoo Entertainment**
+3. [NPL: Chitwan Rhinos defeat Janakpur Bolts by four wickets](https://english.khabarhub.com/2026/13/575495/) - **Khabarhub.com**
+4. [Fighting tears, Pochettino says leaving USMNT is one of 'most difficult' decisions](https://www.usatoday.com/story/sports/soccer/usmnt/2026/11/13/why-did-mauricio-pochettino-leave-usmnt-manchester-united-press-conference-tears/92757443007/) - **USA Today**
+5. [Mauricio Pochettino in tears as he breaks silence over Manchester United managerial appointment](https://thepeoplesperson.com/2026/11/13/mauricio-pochettino-in-tears-as-he-addresses-man-united-appointment-322334/) - **The Peoples Person**
+6. [If results continue as they have been so far, where will Arsenal end the season?](https://untold-arsenal.com/archives/124196) - **Untold-arsenal.com**
+7. [Tearful Pochettino admits he 'couldn't say no to Man Utd'](https://www.skysports.com/football/news/13611887/mauricio-pochettino-new-man-utd-head-coach-in-tears-as-he-labels-leaving-usmnt-toughest-decision-of-career) - **Sky Sports**
+8. [Pundit insists Brighton could challenge Arsenal all the way](https://www.justarsenal.com/pundit-insists-brighton-could-challenge-arsenal-all-the-way/425708) - **Just Arsenal News**
+9. [English Soccer Still Inundated by Gambling Ads Despite Jersey Ban](https://frontofficesports.com/article/english-soccer-still-inundated-by-gambling-ads-despite-jersey-ban/) - **Frontofficesports.com**
 
 
 ---
-*최근 업데이트: 2026-11-14 17:43:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-15 00:38:26 (KST) / (하루 100회 제한 준수 중)*
