@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal teenager Max Dowman eclipses Jude Bellingham to become youngest ever England Under-21 player during 1-0 friendly defeat to Portugal](https://www.goal.com/en-us/news/arsenal-max-dowman-eclipses-jude-bellingham-youngest-england-under-21-player-portugal/blt5021535ecf54fa5e) - **Goal.com**
-2. [The faded glamour of Mauricio Pochettino makes him the perfect fit for modern Manchester United](https://www.irishtimes.com/sport/2026/11/14/the-faded-glamour-of-mauricio-pochettino-makes-him-the-perfect-fit-for-modern-manchester-united/) - **The Irish Times**
-3. [Texas vs LSU Prediction: Odds, expert picks, team and player news, betting trends, and stats](https://www.nbcsports.com/betting/college-football/news/texas-vs-lsu-prediction-odds-expert-picks-team-and-player-news-betting-trends-and-stats) - **NBCSports.com**
-4. [How Can Sunderland Pose A Greater Attacking Threat?](https://rokerreport.sbnation.com/opinion/159457/how-can-sunderland-pose-a-greater-attacking-threat) - **SB Nation**
-5. [Phil Bardsley Reflects on Sunderland’s Memorable League Cup Run](https://rokerreport.sbnation.com/news/159495/phil-bardsley-reflects-on-sunderlands-memorable-league-cup-run) - **SB Nation**
-6. [Bayern Munich News: The aftermath of Germany’s 3-1 win over Serbia; Real Madrid not giving up on Michael Olise; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/280355/bayern-munich-germany-serbia-real-madrid-olise-arsenal-bayer-leverkusen-crystal-palace-liverpool) - **Bavarian Football Works**
-7. [US Soccer stays mum on whether Mauricio Pochettino’s $10M buyout with be used for next coach](https://nypost.com/2026/11/13/sports/us-stays-mum-on-if-mauricio-pochettinos-buyout-with-be-used-for-next-coach/) - **New York Post**
-8. [USC vs Indiana Prediction: Odds, expert picks, team and player news, betting trends, and stats](https://www.nbcsports.com/betting/college-football/news/usc-vs-indiana-prediction-odds-expert-picks-team-and-player-news-betting-trends-and-stats) - **NBCSports.com**
-9. [The four problems Mauricio Pochettino needs to fix at Man United: From big names causing unrest in the dressing room to an issue which plagued Ruben Amorim and Michael Carrick before him, these are the items top of his Old Trafford in-tray](https://www.dailymail.com/sport/football/article-16289923/The-four-problems-Mauricio-Pochettino-needs-fix-Man-United-big-names-causing-unrest-dressing-room-issue-plagued-Ruben-Amorim-Michael-Carrick-items-Old-Trafford-tray.html) - **Dailymail.com**
-10. [Guatemala vs Canada: Confirmed lineups for the 2026-27 Concacaf Nations League match](https://worldsoccertalk.com/news/guatemala-vs-canada-confirmed-lineups-for-the-2026-27-concacaf-nations-league-match/) - **Worldsoccertalk.com**
+1. [Why Bukayo Saka's England spot is suddenly under threat: Clocking up the miles has made Arsenal star a fitness concern - while his rival Morgan Rogers is hitting top gear: CRAIG HOPE](https://www.dailymail.com/sport/football/article-16290387/Why-Bukayo-Sakas-England-spot-suddenly-threat-Morgan-Rogers-hits-gear-CRAIG-HOPE.html) - **Dailymail.com**
+2. [Biratnagar Kings set 167-run target for Lumbini Lions](https://english.khabarhub.com/2026/14/575605/) - **Khabarhub.com**
+3. [Arsenal star breaks silence on his future amid exit rumours](https://eplindex.com/152432/arsenal-star-breaks-silence-on-his-future-amid-exit-rumours.html) - **English Premier League Index - Opta Stats**
+4. ['I don’t believe you need to dive' - Alexander Isak slams Premier League officiating after Liverpool denied blatant penalty against Arsenal](https://www.goal.com/en-us/news/alexander-isak-penalty-liverpool-arsenal-var-controversy-premier-league/blt227031a484ee0ab1) - **Goal.com**
+5. [Tyler Adjei: Fabrizio Romano confirms United have completed deal to sign striker for academy](https://thepeoplesperson.com/2026/11/14/tyler-adjei-deal-man-united-sign-reading-teenager-322424/) - **The Peoples Person**
+6. [Michele De Bruyne Discusses Manchester City Legend's "Very Restricted Life in Napoli" Amid January Exit Talk](https://cityxtra.co.uk/CITYXTRA/news/michele-de-bruyne-discusses-manchester-city-legends-very-restricted-life-in-napoli-amid-january-exit-talk) - **Cityxtra.co.uk**
+7. [Martin Odegaard brushes off Arsenal contract stress amid shock Bayern Munich transfer rumours](https://www.goal.com/en-us/news/martin-odegaard-arsenal-contract-bayern-munich-transfer/bltea63971f557f7593) - **Goal.com**
+8. [Report – Juventus Reignite Interest in Tottenham Defender Ahead of January Transfer Window](https://cultofcalcio.com/report-juventus-reignite-interest-in-tottenham-defender-ahead-of-january-transfer-window/) - **Cultofcalcio.com**
+9. [Spalletti’s three January transfer priorities for Juventus revealed](https://football-italia.net/spalletti-3-transfer-priorities-juventus-jan/) - **Football Italia**
+10. [‘I will never sell!’ - AC Milan owner Gerry Cardinale makes bold transfer promise and reveals ‘Berlusconi 2.0’ vision](https://www.goal.com/en-us/news/ac-milan-transfer-gerry-cardinale-new-holding-company/blt523bbe15b3a5f8e1) - **Goal.com**
 
 
 ---
-*최근 업데이트: 2026-11-15 15:10:39 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-15 23:05:11 (KST) / (하루 100회 제한 준수 중)*
