@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Arsenal striker Viktor Gyokeres scores twice against Bosnia and Herzegovina to fire Graham Potter's Sweden to Nations League A promotion](https://www.goal.com/en-us/news/viktor-gyokeres-nations-league-history-scoring-streak-sweden-arsenal-mikel-arteta/blt5978b5061372fbfc) - **Goal.com**
-2. [Adalberto Mondesi Attempting Comeback](https://www.mlbtraderumors.com/2026/11/adalberto-mondesi-attempting-comeback.html) - **MLB Trade Rumors**
-3. [Christian Pulisic sends message with double vs. Haiti in USMNT return](https://www.usatoday.com/story/sports/soccer/usmnt/2026/11/14/christian-pulisic-goals-future-usmnt-haiti-mauricio-pochettino/92791024007/) - **USA Today**
-4. ['Proud moment, new chapter': Lalit Modi announces British citizenship](https://www.business-standard.com/india-news/proud-moment-new-chapter-lalit-modi-announces-british-citizenship-126111401378_1.html) - **Business Standard**
-5. [As Mauricio Pochettino prepares to leave for Manchester United, USMNT players are giving him a fitting farewell](https://sports.yahoo.com/soccer/article/as-mauricio-pochettino-prepares-to-leave-for-manchester-united-usmnt-players-are-giving-him-a-fitting-farewell-035035946.html) - **Yahoo Entertainment**
-6. [Clemson Spiral Deepens After Crushing Loss To Georgia Tech](https://gamedayatlanta.com/clemson-spiral-deepens-after-crushing-loss-to-georgia-tech/) - **Gamedayatlanta.com**
-7. [Kris Bubic Drawing Widespread Interest](https://www.mlbtraderumors.com/2026/11/kris-bubic-drawing-widespread-interest.html) - **MLB Trade Rumors**
-8. [NPL: Two matches scheduled today to determine final league standings](https://english.khabarhub.com/2026/15/575630/) - **Khabarhub.com**
-9. [Oshoala’s super hat-trick sends Al Hilal into Saudi Cup q’finals](https://punchng.com/oshoalas-super-hat-trick-sends-al-hilal-into-saudi-cup-qfinals/) - **The Punch**
-10. [People’s Elephant keen to escape relegation zone](https://punchng.com/peoples-elephant-keen-to-escape-relegation-zone/) - **The Punch**
+1. [Pitch perimeters under review after Vigar death](https://www.bbc.com/sport/football/articles/c5y4jn2zw3yno?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D) - **BBC News**
+2. [Everton and Nottingham Forest are in the race for €15m Brazilian defender](https://eplindex.com/152446/everton-and-nottingham-forest-are-in-the-race-for-e15m-brazilian-defender.html) - **English Premier League Index - Opta Stats**
+3. [Pitch perimeters under review after Vigar death](https://www.bbc.co.uk/sport/football/articles/c5y4jn2zw3yno) - **BBC News**
+4. [€35m valued defender on Chelsea’s list – but Blues must shift overpaid problem first](https://www.talkchelsea.net/news-now/35m-defender-chelseas-transfer-list/) - **Talk Chelsea**
+5. [Chelsea fans rank ahead of Spurs and Man City for “passion and dedication”](https://www.talkchelsea.net/news/chelsea-fans-rank-ahead-spurs-man-city-passion/) - **Talk Chelsea**
+6. [Declan Rice confirms new Arsenal contract is 'on the horizon' as England star prepares to commit long-term future to Premier League champions](https://www.goal.com/en-us/news/declan-rice-arsenal-new-contract-england/blt0fcb80cd91474cd7) - **Goal.com**
+7. [Will Lankshear: Outrageous scoring form drags Man United into January battle with bitter rivals](https://thepeoplesperson.com/2026/11/15/will-lankshear-tracked-by-man-united-amid-arsenal-interest-322501/) - **The Peoples Person**
+8. [Why do rich people keep investing in loss making football clubs?](https://untold-arsenal.com/archives/124214) - **Untold-arsenal.com**
+9. [Celtic Interest in Signing Ligue 1 Starter Confirmed](https://roundtable.io/sports/soccer/scottish-premiership/celtic/news/celtic-interest-in-signing-ligue-1-starter-confirmed) - **Roundtable.io**
+10. [Haaland 'incredibly happy' at City and focused on form, not sanctions](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261115-930-998604/) - **Dpa-international.com**
 
 
 ---
-*최근 업데이트: 2026-11-16 14:29:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-16 22:58:31 (KST) / (하루 100회 제한 준수 중)*
