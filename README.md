@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bromley sign ex-West Ham defender Oxford](https://www.bbc.co.uk/sport/football/articles/c60qj10vyxq2o) - **BBC News**
-2. [Liverpool offered the chance to fix major issue for just £33m](https://anfieldindex.com/103453/liverpool-offered-the-chance-to-fix-major-issue-for-just-33m.html) - **Anfieldindex.com**
-3. [Inside the discontent at Newcastle United: Matthias Jassle wants greater transfer control as he eyes a new No 10 and No 9 in January - but the next four fixtures could make or break him and the club's season, writes CRAIG HOPE](https://www.dailymail.com/sport/football/article-16306201/Inside-discontent-Newcastle-United-Matthias-Jassle-wants-greater-transfer-control-eyes-new-No-10-No-9-January-four-fixtures-make-break-clubs-season-writes-CRAIG-HOPE.html) - **Dailymail.com**
-4. [Manchester United boss Pochettino boosted by return of key defensive duo for Liverpool clash](https://www.101greatgoals.com/football/premier-league/manchester-united-boss-pochettino-boosted-by-return-of-key-defensive-duo-for-liverpool-clash/) - **101 Great Goals**
-5. [Mbappe, Yamal, seven other footballers with €1bn release clauses](https://punchng.com/mbappe-yamal-seven-other-footballers-with-e1bn-release-clauses/) - **The Punch**
-6. ['Dhoni has a lot more to contribute': Venkatesh Prasad backs former India captain's mentor role after IPL retirement](https://timesofindia.indiatimes.com/sports/cricket/news/dhoni-has-a-lot-more-to-contribute-venkatesh-prasad-backs-former-india-captains-mentor-role-after-ipl-retirement/articleshow/136000463.cms) - **The Times of India**
-7. [‘Unbelievable talent’ - Folarin Balogun, Alex Freeman and the USMNT stars who could follow Mauricio Pochettino to Manchester United](https://www.goal.com/en-us/originals/they-are-all-players-with-unbelievable-talent-which-usmnt-players-could-mauricio-pochettino-bring-to-manchester-united/bltd4d0c3cba89b658e) - **Goal.com**
-8. [Skubala confident of Bristol City board's backing](https://www.bbc.com/sport/football/articles/cq742k82er71o) - **BBC News**
-9. [I had dinner with Rassie Erasmus recently and this lovable rogue is great company. Yes, he went too far this time but he's box-office, a pantomime villain - and GOOD for a sport bogged down by bores, writes NIK SIMON](https://www.dailymail.com/sport/rugbyunion/article-16305541/Rassie-Erasmus-south-africa.html) - **Dailymail.com**
-10. [Chris Waddle tells midfielder to snub Chelsea for Arsenal](https://www.justarsenal.com/chris-waddle-tells-midfielder-to-snub-chelsea-for-arsenal/426108) - **Just Arsenal News**
+1. [Young Aussies stun Argentina at under-17 World Cup](https://www.abc.net.au/news/2026-11-20/australia-defeats-argentina-under-17-world-cup/107407632) - **ABC News (AU)**
+2. [Roma & Lazio Considered the Most Concrete Options for Liverpool Outcast](https://thelaziali.com/2026/11/19/roma-lazio-concrete-options-liverpool-ferderico-chiesa/) - **Thelaziali.com**
+3. [Mauricio Pochettino’s first Manchester United practice sneakily recorded by drone](https://nypost.com/2026/11/19/sports/mauricio-pochettinos-first-manchester-united-practice-sneakily-recorded-by-drone/) - **New York Post**
+4. [Have Portugal found Cristiano Ronaldo's replacement? Ex-Man City star Carlos Forbs impressed Erling Haaland and stunned Wales this week in No 7 shirt - just over a year after being brutally axed via WHATSAPP](https://www.dailymail.com/sport/football/article-16305161/cristiano-ronaldo-carlos-forbs-portugal-man-city.html) - **Dailymail.com**
+5. [Frank has 'no problem' with McCarthy's Ireland role](https://www.rte.ie/sport/soccer/2026/1119/1599937-frank-has-no-problem-with-mccarthys-ireland-role/) - **RTE**
+6. [Padres owner prepares to add WNBA franchise to sports collection](https://nypost.com/2026/11/19/sports/sparks-padres-owner-wnba-sale-record-price/) - **New York Post**
+7. [Football club wishes manager a happy birthday, then sack him hours later](https://www.abc.net.au/news/2026-11-20/blackpool-fc-sack-manager-on-his-45th-birthday/107407378) - **ABC News (AU)**
+8. [Major embarrassment for Man United as first Pochettino training session leaks online](https://thepeoplesperson.com/2026/11/19/mauricio-pochettino-training-footage-leaks-from-man-united-322899/) - **The Peoples Person**
+9. [Liverpool receive triple injury boost ahead of Manchester United visit](https://www.alloutsoccer.com/news/liverpool-injury-boosts-manchester-united-2116671) - **Alloutsoccer.com**
+10. [Mauricio Pochettino could target a Barcelona star as his first Man United signing](https://getfootballnewsspain.com/mauricio-pochettino-could-target-a-barcelona-star-as-his-first-man-united-signing/) - **Getfootballnewsspain.com**
 
 
 ---
-*최근 업데이트: 2026-11-21 02:53:13 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-21 08:46:04 (KST) / (하루 100회 제한 준수 중)*
