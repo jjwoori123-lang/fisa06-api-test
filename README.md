@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['£50m wasted!' - Paul Ince slams Man Utd for Andrey Santos transfer and labels club a 'shambles'](https://www.goal.com/en-us/news/paul-ince-slams-man-utd-andrey-santos-transfer/blt5a60e7ce1fefc79b) - **Goal.com**
-2. [Should England snub disappoint Kiernan Dewsbury-Hall? Everton midfielder proves he is Chelsea & Three Lions class after ‘weird’ spell at Stamford Bridge](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_962ef777-46e9-40cc-a877-357a945a1711) - **Yahoo Entertainment**
-3. [Weather in play once again when Ottawa visits Calgary for CPL final rematch](https://www.cbc.ca/news/canada/ottawa/canadian-premier-league-cpl-2026-final-ottawa-calgary-9.7426713) - **CBC News**
-4. ['One HELL of a save!' - Raya's best Premier League saves for Arsenal](https://www.skysports.com/football/video/13613667/david-rayas-best-saves-for-arsenal-in-the-premier-league) - **Sky Sports**
-5. [Man United’s Carrington upgrade plans hit by unique “wildlife” challenge](https://thepeoplesperson.com/2026/11/19/man-united-carrington-plans-opposed-by-friends-of-carrington-moss-322842/) - **The Peoples Person**
-6. [Man City have problems - is Fernandez their most obvious?](https://www.skysports.com/football/news/13613559/man-city-vs-fulham-has-enzo-fernandez-given-enzo-maresca-a-problem-in-midfield-and-how-does-he-fix-the-imbalance) - **Sky Sports**
-7. [Everton actively pursue £25m-rated Flamengo winger Samuel Lino amid January competition from Aston Villa, Roma and PSG](https://www.goal.com/en-us/news/everton-actively-pursue-flamengo-winger-samuel-lino-aston-villa-roma-psg/bltfb3337fde441e672) - **Goal.com**
-8. [The best European strikers this century - ranked by you](https://www.bbc.com/sport/football/articles/cw5y1ver2rpyo) - **BBC News**
-9. [The best European strikers this century - ranked by you](https://www.bbc.co.uk/sport/football/articles/cw5y1ver2rpyo) - **BBC News**
-10. [Arsenal have joined Liverpool in the race to sign Premier League star](https://anfieldindex.com/103441/arsenal-have-joined-liverpool-in-the-race-to-sign-premier-league-star.html) - **Anfieldindex.com**
+1. [Bromley sign ex-West Ham defender Oxford](https://www.bbc.co.uk/sport/football/articles/c60qj10vyxq2o) - **BBC News**
+2. [Liverpool offered the chance to fix major issue for just £33m](https://anfieldindex.com/103453/liverpool-offered-the-chance-to-fix-major-issue-for-just-33m.html) - **Anfieldindex.com**
+3. [Inside the discontent at Newcastle United: Matthias Jassle wants greater transfer control as he eyes a new No 10 and No 9 in January - but the next four fixtures could make or break him and the club's season, writes CRAIG HOPE](https://www.dailymail.com/sport/football/article-16306201/Inside-discontent-Newcastle-United-Matthias-Jassle-wants-greater-transfer-control-eyes-new-No-10-No-9-January-four-fixtures-make-break-clubs-season-writes-CRAIG-HOPE.html) - **Dailymail.com**
+4. [Manchester United boss Pochettino boosted by return of key defensive duo for Liverpool clash](https://www.101greatgoals.com/football/premier-league/manchester-united-boss-pochettino-boosted-by-return-of-key-defensive-duo-for-liverpool-clash/) - **101 Great Goals**
+5. [Mbappe, Yamal, seven other footballers with €1bn release clauses](https://punchng.com/mbappe-yamal-seven-other-footballers-with-e1bn-release-clauses/) - **The Punch**
+6. ['Dhoni has a lot more to contribute': Venkatesh Prasad backs former India captain's mentor role after IPL retirement](https://timesofindia.indiatimes.com/sports/cricket/news/dhoni-has-a-lot-more-to-contribute-venkatesh-prasad-backs-former-india-captains-mentor-role-after-ipl-retirement/articleshow/136000463.cms) - **The Times of India**
+7. [‘Unbelievable talent’ - Folarin Balogun, Alex Freeman and the USMNT stars who could follow Mauricio Pochettino to Manchester United](https://www.goal.com/en-us/originals/they-are-all-players-with-unbelievable-talent-which-usmnt-players-could-mauricio-pochettino-bring-to-manchester-united/bltd4d0c3cba89b658e) - **Goal.com**
+8. [Skubala confident of Bristol City board's backing](https://www.bbc.com/sport/football/articles/cq742k82er71o) - **BBC News**
+9. [I had dinner with Rassie Erasmus recently and this lovable rogue is great company. Yes, he went too far this time but he's box-office, a pantomime villain - and GOOD for a sport bogged down by bores, writes NIK SIMON](https://www.dailymail.com/sport/rugbyunion/article-16305541/Rassie-Erasmus-south-africa.html) - **Dailymail.com**
+10. [Chris Waddle tells midfielder to snub Chelsea for Arsenal](https://www.justarsenal.com/chris-waddle-tells-midfielder-to-snub-chelsea-for-arsenal/426108) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-11-20 18:09:07 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-21 02:53:13 (KST) / (하루 100회 제한 준수 중)*
