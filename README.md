@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [World Cup winner Juan Mata retires from soccer after previous stints with Man U and Chelsea](https://sports.yahoo.com/articles/world-cup-winner-juan-mata-005723014.html) - **Yahoo Entertainment**
-2. [Ogunbote vows Plateau United won’t lose focus](https://punchng.com/ogunbote-vows-plateau-united-wont-lose-focus/) - **The Punch**
-3. [Osayi makes Uganda breakthrough after Nigeria switch](https://punchng.com/osayi-makes-uganda-breakthrough-after-nigeria-switch/) - **The Punch**
-4. [Ince tells United to chase Watkins, Toney over Osimhen](https://punchng.com/ince-tells-united-to-chase-watkins-toney-over-osimhen/) - **The Punch**
-5. [USMNT ‘Excited for Future’ After Successful November Camp](https://www.ussoccer.com/stories/on-the-pitch/2026/11/usmnt/november-camp-recap-concacaf-nations-league) - **U.S. Soccer**
-6. [Jesse Marsch Shares Honest Take on the CPL Ahead of North Star Cup Clash](https://heavy.com/sports/soccer/jesse-marsch-shares-honest-thoughts-cpl/) - **Heavy.com**
-7. [Fulham could target Rodrigo Riquelme in winger shake-up](https://roundtable.io/sports/soccer/premier-league/fulham/news/fulham-could-target-rodrigo-riquelme-in-winger-shake-up) - **Roundtable.io**
-8. [MLB Commissioner Rob Manfred expects $4 billion Angels sale to Kroenke to close in January](https://www.nbcsports.com/mlb/news/mlb-commissioner-rob-manfred-expects-4-billion-angels-sale-to-kroenke-to-close-in-january) - **NBCSports.com**
-9. [Bruno Fernandes, Lisandro Martinez want to jump ship as early as January in body blow to Pochettino’s plans](https://thepeoplesperson.com/2026/11/18/bruno-fernandes-and-lisandro-martinez-eye-man-united-exit-322815/) - **The Peoples Person**
-10. [Three ways Bayern Munich contributed to Harry Kane’s Ballon d’Or victory](https://www.bavarianfootballworks.com/bayern-munich-records-and-achievements/280882/three-ways-bayern-munich-contributed-to-harry-kanes-ballon-dor-victory) - **Bavarian Football Works**
+1. ['£50m wasted!' - Paul Ince slams Man Utd for Andrey Santos transfer and labels club a 'shambles'](https://www.goal.com/en-us/news/paul-ince-slams-man-utd-andrey-santos-transfer/blt5a60e7ce1fefc79b) - **Goal.com**
+2. [Should England snub disappoint Kiernan Dewsbury-Hall? Everton midfielder proves he is Chelsea & Three Lions class after ‘weird’ spell at Stamford Bridge](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_962ef777-46e9-40cc-a877-357a945a1711) - **Yahoo Entertainment**
+3. [Weather in play once again when Ottawa visits Calgary for CPL final rematch](https://www.cbc.ca/news/canada/ottawa/canadian-premier-league-cpl-2026-final-ottawa-calgary-9.7426713) - **CBC News**
+4. ['One HELL of a save!' - Raya's best Premier League saves for Arsenal](https://www.skysports.com/football/video/13613667/david-rayas-best-saves-for-arsenal-in-the-premier-league) - **Sky Sports**
+5. [Man United’s Carrington upgrade plans hit by unique “wildlife” challenge](https://thepeoplesperson.com/2026/11/19/man-united-carrington-plans-opposed-by-friends-of-carrington-moss-322842/) - **The Peoples Person**
+6. [Man City have problems - is Fernandez their most obvious?](https://www.skysports.com/football/news/13613559/man-city-vs-fulham-has-enzo-fernandez-given-enzo-maresca-a-problem-in-midfield-and-how-does-he-fix-the-imbalance) - **Sky Sports**
+7. [Everton actively pursue £25m-rated Flamengo winger Samuel Lino amid January competition from Aston Villa, Roma and PSG](https://www.goal.com/en-us/news/everton-actively-pursue-flamengo-winger-samuel-lino-aston-villa-roma-psg/bltfb3337fde441e672) - **Goal.com**
+8. [The best European strikers this century - ranked by you](https://www.bbc.com/sport/football/articles/cw5y1ver2rpyo) - **BBC News**
+9. [The best European strikers this century - ranked by you](https://www.bbc.co.uk/sport/football/articles/cw5y1ver2rpyo) - **BBC News**
+10. [Arsenal have joined Liverpool in the race to sign Premier League star](https://anfieldindex.com/103441/arsenal-have-joined-liverpool-in-the-race-to-sign-premier-league-star.html) - **Anfieldindex.com**
 
 
 ---
-*최근 업데이트: 2026-11-20 10:25:55 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-20 18:09:07 (KST) / (하루 100회 제한 준수 중)*
