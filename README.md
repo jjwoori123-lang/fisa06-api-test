@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Young Aussies stun Argentina at under-17 World Cup](https://www.abc.net.au/news/2026-11-20/australia-defeats-argentina-under-17-world-cup/107407632) - **ABC News (AU)**
-2. [Roma & Lazio Considered the Most Concrete Options for Liverpool Outcast](https://thelaziali.com/2026/11/19/roma-lazio-concrete-options-liverpool-ferderico-chiesa/) - **Thelaziali.com**
-3. [Mauricio Pochettino’s first Manchester United practice sneakily recorded by drone](https://nypost.com/2026/11/19/sports/mauricio-pochettinos-first-manchester-united-practice-sneakily-recorded-by-drone/) - **New York Post**
-4. [Have Portugal found Cristiano Ronaldo's replacement? Ex-Man City star Carlos Forbs impressed Erling Haaland and stunned Wales this week in No 7 shirt - just over a year after being brutally axed via WHATSAPP](https://www.dailymail.com/sport/football/article-16305161/cristiano-ronaldo-carlos-forbs-portugal-man-city.html) - **Dailymail.com**
-5. [Frank has 'no problem' with McCarthy's Ireland role](https://www.rte.ie/sport/soccer/2026/1119/1599937-frank-has-no-problem-with-mccarthys-ireland-role/) - **RTE**
-6. [Padres owner prepares to add WNBA franchise to sports collection](https://nypost.com/2026/11/19/sports/sparks-padres-owner-wnba-sale-record-price/) - **New York Post**
-7. [Football club wishes manager a happy birthday, then sack him hours later](https://www.abc.net.au/news/2026-11-20/blackpool-fc-sack-manager-on-his-45th-birthday/107407378) - **ABC News (AU)**
-8. [Major embarrassment for Man United as first Pochettino training session leaks online](https://thepeoplesperson.com/2026/11/19/mauricio-pochettino-training-footage-leaks-from-man-united-322899/) - **The Peoples Person**
-9. [Liverpool receive triple injury boost ahead of Manchester United visit](https://www.alloutsoccer.com/news/liverpool-injury-boosts-manchester-united-2116671) - **Alloutsoccer.com**
-10. [Mauricio Pochettino could target a Barcelona star as his first Man United signing](https://getfootballnewsspain.com/mauricio-pochettino-could-target-a-barcelona-star-as-his-first-man-united-signing/) - **Getfootballnewsspain.com**
+1. [How Can Sunderland Adapt Without Granit Xhaka And Brian Brobbey?](https://rokerreport.sbnation.com/opinion/159968/how-can-sunderland-adapt-without-granit-xhaka-and-brian-brobbey) - **SB Nation**
+2. [Louis Saha Backs Régis Le Bris Amid Sunderland’s Tough Spell](https://rokerreport.sbnation.com/sunderland-safc-interviews/159914/louis-saha-backs-regis-le-bris-amid-sunderlands-tough-spell) - **SB Nation**
+3. [Hiroshi Nanami: The magical left foot of Shizuoka who controlled time and space on the pitch](https://www.goal.com/en-us/news/hiroshi-nanami-the-magical-left-foot-of-shizuoka-who-controlled-time-and-space-on-the-pitch/blta20dee1a2c7d6ec5) - **Goal.com**
+4. [Manchester United Squad Clearout: Five Players Who Must Go In A Ruthless Overhaul](https://sports.yahoo.com/articles/manchester-united-squad-clearout-five-053121247.html) - **Yahoo Entertainment**
+5. [Donald aims for England T20 chance in Australia](https://www.bbc.com/sport/cricket/articles/cqe9lmngjm0eo) - **BBC News**
+6. [Bayern Munich News: Bernd Leno seems open to transfer; Liverpool leading on Finn Jeltsch?; Angelo Stiller not headed to MLS; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/283141/bayern-munich-fulham-leno-liverpool-ac-milan-real-madrid-fc-barcelona-dortmund-rb-leipzigjeltsch-stiller-mls-vfb-stuttgart) - **Bavarian Football Works**
+7. [Nepal to play six matches against Scotland, Bangladesh and Ireland in England in 2027](https://english.khabarhub.com/2026/20/576276/) - **Khabarhub.com**
+8. ['Pooran': Digvesh Rathi drops hint on LSG's new captain after Rishabh Pant trade](https://timesofindia.indiatimes.com/sports/cricket/ipl/top-stories/pooran-digvesh-rathi-drops-hint-on-lsgs-new-captain-after-rishabh-pant-trade/articleshow/136011850.cms) - **The Times of India**
+9. [Texans star Kamari Lassiter screams n-word at TV cameras after interception as fans anticipate 'historic fine'](https://www.dailymail.com/sport/nfl/article-16307903/Texans-star-Kamari-Lassiter-screams-n-word-TV.html) - **Dailymail.com**
+10. [Gonzaga Women’s Incoming Recruiting Class Starts to Take Shape](https://www.slipperstillfits.com/gonzaga-womens-basketball/31457/gonzaga-womens-incoming-recruiting-class-starts-to-take-shape) - **The Slipper Still Fits**
 
 
 ---
-*최근 업데이트: 2026-11-21 08:46:04 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-21 15:11:08 (KST) / (하루 100회 제한 준수 중)*
