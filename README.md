@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Sleepless in Carrington! Pochettino faces 'race' against time to wake up 18th-placed Man Utd for Anfield acid test](https://www.goal.com/en-us/news/mauricio-pochettino-manchester-united-press-conference-liverpool/blta75ddcd46c1cd11f) - **Goal.com**
-2. [Berrada on Carrick, Poch, defending club leadership and transfers](https://www.skysports.com/football/news/13614312/omar-berrada-interview-manchester-united-chief-executive-on-michael-carrick-mauricio-pochettino-recent-transfer-activity-and-the-club-hierarchy) - **Sky Sports**
-3. [Manchester City handed Marc Guehi boost ahead of Premier League return](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_01994b1b-35f2-4fed-b212-0b6fd8f60e6f) - **Yahoo Entertainment**
-4. [The drone footage was sent to me! Liverpool boss Iraola sees funny side of spying incident at Manchester United](https://www.101greatgoals.com/football/premier-league/the-drone-footage-was-sent-to-me-liverpool-boss-iraola-sees-funny-side-of-spying-incident-at-manchester-united/) - **101 Great Goals**
-5. [Alonso issues injury updates on Joao Pedro, Moises Caicedo, Maxence Lacroix, Reece James and more](https://hayters.com/alonso-issues-injury-updates-on-joao-pedro-moises-caicedo-maxence-lacroix-reece-james-and-more/) - **Hayters.com**
-6. [Iraola confirms ‘very good news’ after Leoni return to Liverpool training](https://football-italia.net/iraola-confirms-very-good-news-for-leoni/) - **Football Italia**
-7. [MultiChoice reduces entry-level DStv, GOtv packages to ₦6,000](https://punchng.com/multichoice-reduces-entry-level-dstv-gotv-packages-to-%E2%82%A66000/) - **The Punch**
-8. [Martinez, Acheampong, Caicedo, Joao Pedro: Chelsea Handed Triple Fitness Boost vs Leeds As Alonso Confirms Absences](https://roundtable.io/sports/soccer/premier-league/chelsea/news/martinez-acheampong-caicedo-joao-pedro-chelsea-handed-triple-fitness-boost-vs-leeds-as-alonso-confirms-absences) - **Roundtable.io**
-9. [Liverpool boss Iraola admits Pochettino 'advantage' in Man Utd clash](https://sports.yahoo.com/articles/liverpool-boss-iraola-admits-pochettino-141439657.html) - **Yahoo Entertainment**
-10. [Arteta warns Arsenal players over FPL team news leak](https://www.bbc.com/sport/football/articles/ck62pz5r16pro) - **BBC News**
+1. [The Oncoming Storm: Engineering the Future](https://www.truebluela.com/los-angeles-dodgers-news-notes/121013/the-oncoming-storm-engineering-the-future) - **True Blue LA**
+2. [Arsenal Are Set To Rival Bayern Munich For This La Liga Winger: Good Choice For Arteta?](https://the4thofficial.net/2026/11/arsenal-are-set-to-rival-bayern-munich-for-this-la-liga-winger/) - **The4thofficial.net**
+3. ['It's been an incredible journey' - Van Dijk uncertain on Liverpool future](https://www.skysports.com/football/news/13614508/liverpool-virgil-van-dijk-uncertain-on-anfield-future-beyond-the-summer-but-believes-he-can-play-for-many-more-years) - **Sky Sports**
+4. ['It's been an incredible journey' - Van Dijk uncertain on Liverpool future](https://www.skysports.com/football/news/13614508/liverpool-virgil-van-dijk-uncertain-on-anfield-future-beyond-the-summer-but-believes-he-can-play-for-many-more-years) - **Sky Sports**
+5. [Antonio Conte hits back after missing out on Man United job: Ex-Chelsea boss warns clubs they are 'frightened of winning' if they don't hire him in cryptic interview after Mauricio Pochettino landed Old Trafford gig](https://www.dailymail.com/sport/football/article-16309997/Antonio-Conte-Man-United-clubs-frightened-winning-cryptic-interview-Mauricio-Pochettino-landed-Old-Trafford-gig.html) - **Dailymail.com**
+6. [Osimhen keen on Man Utd move - Saturday's gossip](https://www.bbc.com/sport/football/articles/c60qj1924wyeo) - **BBC News**
+7. [Osimhen keen on Man Utd move - Saturday's gossip](https://www.bbc.co.uk/sport/football/articles/c60qj1924wyeo) - **BBC News**
+8. [Drones, data and Bruno - Pochettino on his early Man Utd challenges](https://www.skysports.com/football/news/13614363/mauricio-pochettino-manchester-united-head-coach-discusses-drone-footage-his-approach-to-data-and-bruno-fernandes-ahead-of-first-game) - **Sky Sports**
+9. [Iraola: Man Utd have 'small advantage' over Liverpool](https://www.rte.ie/sport/soccer/2026/1120/1600074-iraola-man-utd-have-small-advantage-over-liverpool/) - **RTE**
+10. [Mauricio Pochettino Compares Coaching USA At 2026 World Cup To Managing Man United](https://www.foxsports.com/stories/soccer/mauricio-pochettino-compares-coaching-usa-2026-world-cup-managing-man-united) - **Fox Sports**
 
 
 ---
-*최근 업데이트: 2026-11-21 23:46:34 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-22 05:48:32 (KST) / (하루 100회 제한 준수 중)*
