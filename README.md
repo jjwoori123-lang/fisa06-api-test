@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How Can Sunderland Adapt Without Granit Xhaka And Brian Brobbey?](https://rokerreport.sbnation.com/opinion/159968/how-can-sunderland-adapt-without-granit-xhaka-and-brian-brobbey) - **SB Nation**
-2. [Louis Saha Backs Régis Le Bris Amid Sunderland’s Tough Spell](https://rokerreport.sbnation.com/sunderland-safc-interviews/159914/louis-saha-backs-regis-le-bris-amid-sunderlands-tough-spell) - **SB Nation**
-3. [Hiroshi Nanami: The magical left foot of Shizuoka who controlled time and space on the pitch](https://www.goal.com/en-us/news/hiroshi-nanami-the-magical-left-foot-of-shizuoka-who-controlled-time-and-space-on-the-pitch/blta20dee1a2c7d6ec5) - **Goal.com**
-4. [Manchester United Squad Clearout: Five Players Who Must Go In A Ruthless Overhaul](https://sports.yahoo.com/articles/manchester-united-squad-clearout-five-053121247.html) - **Yahoo Entertainment**
-5. [Donald aims for England T20 chance in Australia](https://www.bbc.com/sport/cricket/articles/cqe9lmngjm0eo) - **BBC News**
-6. [Bayern Munich News: Bernd Leno seems open to transfer; Liverpool leading on Finn Jeltsch?; Angelo Stiller not headed to MLS; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/283141/bayern-munich-fulham-leno-liverpool-ac-milan-real-madrid-fc-barcelona-dortmund-rb-leipzigjeltsch-stiller-mls-vfb-stuttgart) - **Bavarian Football Works**
-7. [Nepal to play six matches against Scotland, Bangladesh and Ireland in England in 2027](https://english.khabarhub.com/2026/20/576276/) - **Khabarhub.com**
-8. ['Pooran': Digvesh Rathi drops hint on LSG's new captain after Rishabh Pant trade](https://timesofindia.indiatimes.com/sports/cricket/ipl/top-stories/pooran-digvesh-rathi-drops-hint-on-lsgs-new-captain-after-rishabh-pant-trade/articleshow/136011850.cms) - **The Times of India**
-9. [Texans star Kamari Lassiter screams n-word at TV cameras after interception as fans anticipate 'historic fine'](https://www.dailymail.com/sport/nfl/article-16307903/Texans-star-Kamari-Lassiter-screams-n-word-TV.html) - **Dailymail.com**
-10. [Gonzaga Women’s Incoming Recruiting Class Starts to Take Shape](https://www.slipperstillfits.com/gonzaga-womens-basketball/31457/gonzaga-womens-incoming-recruiting-class-starts-to-take-shape) - **The Slipper Still Fits**
+1. [Sleepless in Carrington! Pochettino faces 'race' against time to wake up 18th-placed Man Utd for Anfield acid test](https://www.goal.com/en-us/news/mauricio-pochettino-manchester-united-press-conference-liverpool/blta75ddcd46c1cd11f) - **Goal.com**
+2. [Berrada on Carrick, Poch, defending club leadership and transfers](https://www.skysports.com/football/news/13614312/omar-berrada-interview-manchester-united-chief-executive-on-michael-carrick-mauricio-pochettino-recent-transfer-activity-and-the-club-hierarchy) - **Sky Sports**
+3. [Manchester City handed Marc Guehi boost ahead of Premier League return](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_01994b1b-35f2-4fed-b212-0b6fd8f60e6f) - **Yahoo Entertainment**
+4. [The drone footage was sent to me! Liverpool boss Iraola sees funny side of spying incident at Manchester United](https://www.101greatgoals.com/football/premier-league/the-drone-footage-was-sent-to-me-liverpool-boss-iraola-sees-funny-side-of-spying-incident-at-manchester-united/) - **101 Great Goals**
+5. [Alonso issues injury updates on Joao Pedro, Moises Caicedo, Maxence Lacroix, Reece James and more](https://hayters.com/alonso-issues-injury-updates-on-joao-pedro-moises-caicedo-maxence-lacroix-reece-james-and-more/) - **Hayters.com**
+6. [Iraola confirms ‘very good news’ after Leoni return to Liverpool training](https://football-italia.net/iraola-confirms-very-good-news-for-leoni/) - **Football Italia**
+7. [MultiChoice reduces entry-level DStv, GOtv packages to ₦6,000](https://punchng.com/multichoice-reduces-entry-level-dstv-gotv-packages-to-%E2%82%A66000/) - **The Punch**
+8. [Martinez, Acheampong, Caicedo, Joao Pedro: Chelsea Handed Triple Fitness Boost vs Leeds As Alonso Confirms Absences](https://roundtable.io/sports/soccer/premier-league/chelsea/news/martinez-acheampong-caicedo-joao-pedro-chelsea-handed-triple-fitness-boost-vs-leeds-as-alonso-confirms-absences) - **Roundtable.io**
+9. [Liverpool boss Iraola admits Pochettino 'advantage' in Man Utd clash](https://sports.yahoo.com/articles/liverpool-boss-iraola-admits-pochettino-141439657.html) - **Yahoo Entertainment**
+10. [Arteta warns Arsenal players over FPL team news leak](https://www.bbc.com/sport/football/articles/ck62pz5r16pro) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-11-21 15:11:08 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-21 23:46:34 (KST) / (하루 100회 제한 준수 중)*
