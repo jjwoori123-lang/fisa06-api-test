@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [The Oncoming Storm: Engineering the Future](https://www.truebluela.com/los-angeles-dodgers-news-notes/121013/the-oncoming-storm-engineering-the-future) - **True Blue LA**
-2. [Arsenal Are Set To Rival Bayern Munich For This La Liga Winger: Good Choice For Arteta?](https://the4thofficial.net/2026/11/arsenal-are-set-to-rival-bayern-munich-for-this-la-liga-winger/) - **The4thofficial.net**
-3. ['It's been an incredible journey' - Van Dijk uncertain on Liverpool future](https://www.skysports.com/football/news/13614508/liverpool-virgil-van-dijk-uncertain-on-anfield-future-beyond-the-summer-but-believes-he-can-play-for-many-more-years) - **Sky Sports**
-4. ['It's been an incredible journey' - Van Dijk uncertain on Liverpool future](https://www.skysports.com/football/news/13614508/liverpool-virgil-van-dijk-uncertain-on-anfield-future-beyond-the-summer-but-believes-he-can-play-for-many-more-years) - **Sky Sports**
-5. [Antonio Conte hits back after missing out on Man United job: Ex-Chelsea boss warns clubs they are 'frightened of winning' if they don't hire him in cryptic interview after Mauricio Pochettino landed Old Trafford gig](https://www.dailymail.com/sport/football/article-16309997/Antonio-Conte-Man-United-clubs-frightened-winning-cryptic-interview-Mauricio-Pochettino-landed-Old-Trafford-gig.html) - **Dailymail.com**
-6. [Osimhen keen on Man Utd move - Saturday's gossip](https://www.bbc.com/sport/football/articles/c60qj1924wyeo) - **BBC News**
-7. [Osimhen keen on Man Utd move - Saturday's gossip](https://www.bbc.co.uk/sport/football/articles/c60qj1924wyeo) - **BBC News**
-8. [Drones, data and Bruno - Pochettino on his early Man Utd challenges](https://www.skysports.com/football/news/13614363/mauricio-pochettino-manchester-united-head-coach-discusses-drone-footage-his-approach-to-data-and-bruno-fernandes-ahead-of-first-game) - **Sky Sports**
-9. [Iraola: Man Utd have 'small advantage' over Liverpool](https://www.rte.ie/sport/soccer/2026/1120/1600074-iraola-man-utd-have-small-advantage-over-liverpool/) - **RTE**
-10. [Mauricio Pochettino Compares Coaching USA At 2026 World Cup To Managing Man United](https://www.foxsports.com/stories/soccer/mauricio-pochettino-compares-coaching-usa-2026-world-cup-managing-man-united) - **Fox Sports**
+1. [Can Mauricio Pochettino save Man United from Premier League relegation?](https://www.aljazeera.com/sports/2026/11/21/can-pochetinno-save-man-united-from-premier-league-relegation) - **Al Jazeera English**
+2. [JW8 Bangladesh account verification](https://www.sinhalanet.net/jw8-bangladesh-account-verification) - **Sinhalanet.net**
+3. [World’s best Bassey not for sale – Arbeloa](https://punchng.com/worlds-best-bassey-not-for-sale-arbeloa/) - **The Punch**
+4. [Brighton coach blames Nigeria for Yohanna blow](https://punchng.com/brighton-coach-blames-nigeria-for-yohanna-blow/) - **The Punch**
+5. [Osimhen, Onyeka return to club training after injuries](https://punchng.com/osimhen-onyeka-return-to-club-training-after-injuries/) - **The Punch**
+6. [Papers: Osimhen ready to listen to Man Utd offers](https://www.skysports.com/football/transfer-paper-talk/13614555/x-paper-talk) - **Sky Sports**
+7. [Felix Nmecha: Man United in touch with former Man City ace’s agent as INEOS explore January deal](https://thepeoplesperson.com/2026/11/20/man-united-contact-felix-nmecha-agents-over-dortmund-move-323004/) - **The Peoples Person**
+8. [Tom Brady targets $4.2 billion football team ownership stake after Birmingham City exit as seven-time Super Bowl champion expands sports empire](https://timesofindia.indiatimes.com/sports/nfl/news/tom-brady-targets-4-2-billion-football-team-ownership-stake-after-birmingham-city-exit-as-seven-time-super-bowl-champion-expands-sports-empire/articleshow/136041765.cms) - **The Times of India**
+9. [A footballer who loves getting cards! Tottenham star Tosin Adarabioyo opens up on his passion for collecting as he launches trading card shop in London with Chelsea's Reece James and Levi Colwill](https://www.dailymail.com/sport/football/article-16309679/A-footballer-loves-getting-cards-Tottenham-star-Tosin-Adarabioyo-opens-passion-collecting-launches-trading-card-shop-London-Chelseas-Reece-James-Levi-Colwill.html) - **Dailymail.com**
+10. [How Arsène Wenger Changed Arsenal Football Club Forever – Opinion](https://www.justarsenal.com/how-arsene-wenger-changed-arsenal-football-club-forever-opinion/426140) - **Just Arsenal News**
 
 
 ---
-*최근 업데이트: 2026-11-22 05:48:32 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-22 10:00:57 (KST) / (하루 100회 제한 준수 중)*
