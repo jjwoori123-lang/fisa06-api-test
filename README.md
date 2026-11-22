@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Pat Cummins in IPL 2027: SRH captain to play in upcoming Indian Premier League season amid Sandpapergate controversy - Report](https://www.cricketnews.com/en/cricket/news/pat-cummins-ipl-2027-srh-captain-play-sandpapergate/4c4f04c5de576b9106547869) - **Cricketnews.com**
-2. [Confirmed Arsenal Team v Newcastle: Guimarães Starts With Havertz Up Front](https://www.justarsenal.com/confirmed-arsenal-team-v-newcastle-guimaraes-starts-with-havertz-up-front/426183) - **Just Arsenal News**
-3. [Confirmed Arsenal Team v Newcastle: Guimarães Starts With Havertz Up Front](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_c6b553a1-b824-4a8d-8a64-0de4d956b236) - **Yahoo Entertainment**
-4. ['In control between both hands' - Premier League explain why Erling Haaland's goal against Fulham was disallowed after Man City striker was left furious](https://www.goal.com/en-us/news/premier-league-explain-erling-haaland-disallowed-goal-against-fulham-man-city/blt4e2a30343a96ea27) - **Goal.com**
-5. [Tottenham Hotspur's youngest Premier League goalscorers as Williams-Barnett joins list](https://www.footballmuse.com/news/williams-barnett-becomes-tottenhams-youngest-goalscorer-since-gareth-bale) - **Footballmuse.com**
-6. [Arteta sends message to Pochettino and reveals what new United coach told him](https://www.justarsenal.com/arteta-sends-message-to-pochettino-and-reveals-what-new-united-coach-told-him/426247) - **Just Arsenal News**
-7. [Jersey Bulls cruise to impressive Littlehampton win](https://www.bbc.com/sport/football/articles/cqvg2pzk0dvmo) - **BBC News**
-8. [Virgil van Dijk set for major milestone in Liverpool’s clash with Man United](https://anfieldindex.com/103510/virgil-van-dijk-set-for-major-milestone-in-liverpools-clash-with-man-united.html) - **Anfieldindex.com**
-9. [PM Shah congratulates NPL 3 champions Sudurpaschim Royals](https://english.khabarhub.com/2026/21/576470/) - **Khabarhub.com**
+1. [Arsenal 'pained' by dropping points at Newcastle, says Arteta](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e88a6e6b-bbd4-4810-a15c-591035a72252) - **Yahoo Entertainment**
+2. [Arsenal face nervous wait with David Raya set for scan after being forced off against Newcastle... as club legend Ian Wright admits he's 'petrified' of losing the keeper](https://www.dailymail.com/sport/football/article-16312085/Arsenal-David-Raya-arm-scan-Newcastle.html) - **Dailymail.com**
+3. [WSL December derbies light up the festive calendar](https://hayters.com/wsl-december-derbies-light-up-the-festive-calendar/) - **Hayters.com**
+4. [Arsenal is falling behind Barcelona in race for Premier League star](https://www.justarsenal.com/arsenal-is-falling-behind-barcelona-in-race-for-premier-league-star/426266) - **Just Arsenal News**
+5. [Raya set to have scan on injury - how much would Arsenal miss him?](https://www.bbc.co.uk/sport/football/articles/ckx28w9ree9vo) - **BBC News**
+6. [Jaissle on Hall injury worry and Newcastle’s draw with Arsenal](https://hayters.com/jaissle-on-hall-injury-worry-and-newcastles-draw-with-arsenal/) - **Hayters.com**
+7. [Cole Palmer shares frosty exchange with Joao Pedro before walking down the tunnel after Chelsea's 4-1 humiliation by Leeds](https://www.dailymail.com/sport/football/article-16311993/Cole-Palmer-frosty-exchange-Joao-Pedro-Chelsea-4-1-humiliation-Leeds.html) - **Dailymail.com**
+8. [Arteta sweats on Raya scan, rues missed chances at Newcastle](https://www.channelnewsasia.com/sport/arteta-sweats-raya-scan-rues-missed-chances-newcastle-6572146) - **CNA**
+9. [Leeds expose Chelsea's unresolved defensive problems as Xabi Alonso's crew yet to find footing](https://www.cbssports.com/soccer/news/leeds-expose-chelseas-unresolved-defensive-problems/) - **CBS Sports**
+10. [‘That was Newcastle United DNA par excellence’ Matthias Jaissle reacts to Newcastle 2 Arsenal 2](https://www.themag.co.uk/2026/11/that-was-newcastle-united-dna-par-excellence-matthias-jaissle-reacts-to-newcastle-2-arsenal-2/) - **The Mag**
 
 
 ---
-*최근 업데이트: 2026-11-23 01:24:46 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-23 06:59:52 (KST) / (하루 100회 제한 준수 중)*
