@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [How Do You Opt Out Of Democracy?](https://activistpost.com/how-do-you-opt-out-of-democracy/) - **Activistpost.com**
-2. [Fernandes says contract talks on hold as Man United battle poor start](https://www.channelnewsasia.com/sport/fernandes-says-contract-talks-hold-man-united-battle-poor-start-6572801) - **CNA**
-3. [Arsenal facing nervous wait for news on David Raya injury](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3d699797-04d8-462a-a40b-e0281d8a4ad5) - **Yahoo Entertainment**
-4. [Liverpool vs Manchester United: Projected lineups for the 2026-27 Premier League match](https://worldsoccertalk.com/news/liverpool-vs-manchester-united-lineups-for-the-2026-27-premier-league-match/) - **Worldsoccertalk.com**
-5. [Janan Ganesh: We are desperate to live in dramatic times, but the fact is the West is stuck](https://www.irishtimes.com/world/2026/11/22/janan-ganesh-we-are-desperate-to-live-in-dramatic-times-but-the-fact-is-the-west-is-stuck/) - **The Irish Times**
-6. [(VIDEO) Barcelona vs Villarreal Live Stream: How to Watch Today's La Liga Clash on TV in the US and Worldwide](https://www.ibtimes.com.au/barcelona-villarreal-how-watch-la-liga-1879141) - **Ibtimes.com.au**
-7. [Cork lead the way with nine All-Star awards as McCartan wins Player of the Year](https://www.the42.ie/camogie-allstars-cork-galway-7233733-Nov2026/) - **The42**
-8. [Rob Liefeld's Newmen, in The Daily LITG, 22nd of November 2026](https://bleedingcool.com/comics/rob-liefelds-newmen-in-the-daily-litg-22nd-of-november-2026/) - **Bleeding Cool News**
-9. [Camilo Duran is out on his own as the best striker in Scottish football](https://celticshorts.com/2026/11/camilo-duran-is-out-on-his-own-as-the-best-striker-in-scottish-football/) - **Celticshorts.com**
+1. ['World's best could've lost 4-0' - but should Man Utd have done more at Anfield?](https://www.bbc.com/sport/football/articles/cm782j80yypwo) - **BBC News**
+2. [STATE CHAMPS AGAIN! Harrison wins first state title since 2014](https://www.theobserver.com/2026/11/22/state-champs-again-harrison-wins-first-state-title-since-2014/) - **Theobserver.com**
+3. [Man Utd plotting Toney move - Monday's gossip](https://www.bbc.com/sport/football/articles/ck053nyl6399o) - **BBC News**
+4. [Chaotic week, nightmare start and huge reality check for Pochettino](https://www.bbc.com/sport/football/articles/cwd012903kvgo) - **BBC News**
+5. [‘It’s painful for me’: Pochettino’s angry at red card in Anfield humiliation](https://www.irishtimes.com/sport/soccer/2026/11/22/its-painful-for-me-pochettinos-angry-at-red-card-in-anfield-humiliation/) - **The Irish Times**
+6. [Ian Wright Urges Arsenal to “Just Go and Get” £67m Winger in January](https://www.justarsenal.com/ian-wright-urges-arsenal-to-just-go-and-get-67m-winger-in-january/426316) - **Just Arsenal News**
+7. ['World's best could've lost 4-0' - but should Man Utd have done more at Anfield?](https://www.bbc.co.uk/sport/football/articles/cm782j80yypwo) - **BBC News**
+8. [Liverpool fans savagely heckled Mauricio Pochettino in rough Manchester United debut](https://ftw.usatoday.com/story/sports/soccer/2026/11/22/how-liverpool-fans-heckled-mauricio-pochettino-manchester-united-debut/92915984007/) - **USA Today**
+9. [Mauricio Pochettino blames Man United's 'painful' thrashing at Liverpool on 'unfair' red card - after Roy Keane lashes out at Gary Neville for suggesting 4-0 defeat was an 'OK result' with 10 men](https://www.dailymail.com/sport/football/article-16313585/Mauricio-Pochettino-Man-United-thrashing-Liverpool.html) - **Dailymail.com**
+10. [Waliya Bet app and mobile guide for Ethiopian players](https://www.sinhalanet.net/waliya-bet-app-and-mobile-guide-for-ethiopian-players) - **Sinhalanet.net**
 
 
 ---
-*최근 업데이트: 2026-11-23 20:14:50 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-24 07:43:51 (KST) / (하루 100회 제한 준수 중)*
