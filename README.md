@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. ['World's best could've lost 4-0' - but should Man Utd have done more at Anfield?](https://www.bbc.com/sport/football/articles/cm782j80yypwo) - **BBC News**
-2. [STATE CHAMPS AGAIN! Harrison wins first state title since 2014](https://www.theobserver.com/2026/11/22/state-champs-again-harrison-wins-first-state-title-since-2014/) - **Theobserver.com**
-3. [Man Utd plotting Toney move - Monday's gossip](https://www.bbc.com/sport/football/articles/ck053nyl6399o) - **BBC News**
-4. [Chaotic week, nightmare start and huge reality check for Pochettino](https://www.bbc.com/sport/football/articles/cwd012903kvgo) - **BBC News**
-5. [‘It’s painful for me’: Pochettino’s angry at red card in Anfield humiliation](https://www.irishtimes.com/sport/soccer/2026/11/22/its-painful-for-me-pochettinos-angry-at-red-card-in-anfield-humiliation/) - **The Irish Times**
-6. [Ian Wright Urges Arsenal to “Just Go and Get” £67m Winger in January](https://www.justarsenal.com/ian-wright-urges-arsenal-to-just-go-and-get-67m-winger-in-january/426316) - **Just Arsenal News**
-7. ['World's best could've lost 4-0' - but should Man Utd have done more at Anfield?](https://www.bbc.co.uk/sport/football/articles/cm782j80yypwo) - **BBC News**
-8. [Liverpool fans savagely heckled Mauricio Pochettino in rough Manchester United debut](https://ftw.usatoday.com/story/sports/soccer/2026/11/22/how-liverpool-fans-heckled-mauricio-pochettino-manchester-united-debut/92915984007/) - **USA Today**
-9. [Mauricio Pochettino blames Man United's 'painful' thrashing at Liverpool on 'unfair' red card - after Roy Keane lashes out at Gary Neville for suggesting 4-0 defeat was an 'OK result' with 10 men](https://www.dailymail.com/sport/football/article-16313585/Mauricio-Pochettino-Man-United-thrashing-Liverpool.html) - **Dailymail.com**
-10. [Waliya Bet app and mobile guide for Ethiopian players](https://www.sinhalanet.net/waliya-bet-app-and-mobile-guide-for-ethiopian-players) - **Sinhalanet.net**
+1. [A toothless attack is beginning to become a constant theme for Manchester City](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_8e672d3e-3d71-4109-8e94-fa3a82e475c7) - **Yahoo Entertainment**
+2. [Starting a new midfield duo was full of promise for Manchester City against Fulham](https://esteemedkompany.com/2026/11/23/starting-a-new-midfield-duo-was-full-of-promise-for-manchester-city-against-fulham/) - **Esteemedkompany.com**
+3. [Manchester City host Napoli in the Champions League for the second season in a row as Kevin De Bruyne again returns to the Etihad Stadium in another shade of blue.](https://cityxtra.co.uk/CITYXTRA/match-coverage/predicted-xi-manchester-city-vs-napoli-uefa-champions-league) - **Cityxtra.co.uk**
+4. [Chelsea striker Emegha robbed after Leeds defeat](https://punchng.com/chelsea-striker-emegha-robbed-after-leeds-defeat/) - **The Punch**
+5. [One of football's most-hyped 16-year-olds - what next for JJ Gabriel?](https://www.bbc.com/sport/football/articles/c6p9dym309nxo) - **BBC News**
+6. [One of football's most-hyped 16-year-olds - what next for JJ Gabriel?](https://www.bbc.co.uk/sport/football/articles/c6p9dym309nxo) - **BBC News**
+7. [Mauricio Pochettino sticks to Manchester United tradition of getting his excuses in early](https://www.irishtimes.com/sport/soccer/2026/11/23/ken-early-just-like-the-old-boss-and-the-ones-before-that-poch-gets-his-excuses-in-early/) - **The Irish Times**
+8. [How Can Sunderland Navigate Their Next Two Games?](https://rokerreport.sbnation.com/roker-roundtable/160274/how-can-sunderland-navigate-their-next-two-games) - **SB Nation**
+9. [OTD (23/11/2015): Big Sam Claims Sunderland’s First Away Win Of The Season](https://rokerreport.sbnation.com/features/160042/otd-23-11-2015-big-sam-claims-sunderlands-first-away-win-of-the-season) - **SB Nation**
+10. [Luke O’Nien And Sunderland: A Story Never To Be Repeated](https://rokerreport.sbnation.com/opinion/160201/luke-onien-and-sunderland-a-story-never-to-be-repeated) - **SB Nation**
 
 
 ---
-*최근 업데이트: 2026-11-24 07:43:51 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-24 15:49:22 (KST) / (하루 100회 제한 준수 중)*
