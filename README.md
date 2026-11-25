@@ -1,16 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [ Champions League: 3 intriguing facts from matchday 5](https://onefootball.com/en/news/champions-league-3-intriguing-facts-from-matchday-5-43826835) - **Onefootball.com**
-2. [Peacock’s Black Friday Deal is finally here: Save up to 66% on one year](https://decider.com/2026/11/23/peacock-black-friday-sale-2026/) - **Decider**
-3. [Mauricio Pochettino can now see just how desperate Manchester United are](https://www.irishtimes.com/sport/soccer/2026/11/23/mauricio-pochettino-can-now-see-just-how-desperate-manchester-united-are/) - **The Irish Times**
-4. [Gateshead sign full-back Huggins until end of season](https://www.bbc.com/sport/football/articles/cmx28xdejz97o) - **BBC News**
-5. [UEFA Champions League: Live updates on the trip to London](https://onefootball.com/en/news/uefa-champions-league-live-updates-on-the-trip-to-london-43826665) - **Onefootball.com**
-6. [Adrian Morejon rejects QO, who emerges as Padres LH relief options](https://www.gaslampball.com/san-diego-padres-analysis/63538/adrian-morejon-rejects-qo-who-emerges-as-padres-lh-relief-options) - **Gaslampball.com**
-7. [Gary Neville and Roy Keane tear into Man Utd defending after Liverpool humiliation](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_2bdb4f05-22d2-4de3-8e8d-699049f6171c) - **Yahoo Entertainment**
-8. [Under Wraps 2026 Autographed Soccer Cleats Single Mystery Box for $400 + shipping varies](https://www.dealnews.com/Under-Wraps-2026-Autographed-Soccer-Cleats-Single-Mystery-Box-for-400-shipping-varies/22425032.html) - **Dealnews.com**
-9. [Relegation bound? How do Man Utd in 26/27 compare to Spurs in 25/26?](https://www.skysports.com/football/video/13615741/premier-league-show-is-relegation-a-serious-threat-for-manchester-united-this-season) - **Sky Sports**
-10. [A brand new, 'special edition' kit will make its debut for Manchester City this week, the club have confirmed, moving away from the traditional sky blue and white home strip for the meeting with Napoli at the Etihad Stadium.](https://cityxtra.co.uk/CITYXTRA/news/manchester-city-will-not-be-wearing-their-home-kit-against-napoli-at-the-etihad-stadium-this-week) - **Cityxtra.co.uk**
+1. ['Moments aren't enough': Inside Ethan Nwaneri's struggles on loan at Borussia Dortmund ahead of his return to the Emirates tonight - as Arsenal face dilemma over talented youngster suffering crisis of confidence](https://www.dailymail.com/sport/football/article-16315763/ethan-nwaneri-borussia-dortmund-arsenal-loan.html) - **Dailymail.com**
+2. ['They are clearly emotionally distressed': Top psychologist reveals how tragic death of All Blacks' security chief affected their 'vacant' players against England - and why critics should cut Dave Rennie's floundering side some slack](https://www.dailymail.com/sport/rugbyunion/article-16315819/all-blacks-logan-cadwallader-death-england.html) - **Dailymail.com**
+3. [Lampard sweats over Awoniyi’s ankle injury](https://punchng.com/lampard-sweats-over-awoniyis-ankle-injury/) - **The Punch**
+4. [INEOS have set aside shocking January transfer budget for new Man United boss Mauricio Pochettino](https://thepeoplesperson.com/2026/11/23/ineos-set-man-uniteds-january-budget-for-mauricio-pochettino-323279/) - **The Peoples Person**
+5. [Who has made Troy's Premier League team of the week?](https://www.bbc.com/sport/football/articles/c34gn2p5d0zwo) - **BBC News**
+6. [O'Neill joins Waterford on loan from Shamrock Rovers](https://www.rte.ie/sport/soccer/2026/1123/1600385-oneill-joins-waterford-on-loan-from-shamrock-rovers/) - **RTE**
+7. [Who has made Troy's Premier League team of the week?](https://www.bbc.co.uk/sport/football/articles/c34gn2p5d0zwo) - **BBC News**
+8. [Everton manager Moyes' special night ruined by heavy defeat at Brentford](https://www.channelnewsasia.com/sport/everton-manager-moyes-special-night-ruined-heavy-defeat-brentford-6576226) - **CNA**
+9. [Could Saliba and Gabriel top list of best CB pairings? Carra makes bold claim on Arsenal duo](https://www.skysports.com/football/video/13615847/mnf-could-saliba-and-gabriel-top-list-of-best-cb-pairings-carra-makes-bold-claim-on-arsenal-duo) - **Sky Sports**
+10. [Tarkowski's first Premier League red ruins Moyes' night - was it deserved?](https://www.bbc.com/sport/football/articles/cmqx5eynvpqno) - **BBC News**
 
 
 ---
-*최근 업데이트: 2026-11-25 03:42:58 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-25 11:57:20 (KST) / (하루 100회 제한 준수 중)*
