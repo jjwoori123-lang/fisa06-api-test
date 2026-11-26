@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Juan Miranda: Man United make major move to sign Bologna star in January](https://thepeoplesperson.com/2026/11/25/juan-miranda-man-united-and-newcastle-united-target-bologna-man-323413/) - **The Peoples Person**
-2. [Emmett Johnson & Antonio Williams Headline Week 12 Fantasy Football NFL Offensive Rookie of the Year Rankings](https://www.si.com/onsi/fantasy/rankings/emmett-johnson-antonio-williams-headline-week-12-fantasy-football-nfl-offensive-rookie-of-the-year-rankings) - **Sports Illustrated**
-3. [Gyokeres: Arsenal focused on game, not potential Man City sanctions](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261125-930-49723/) - **Dpa-international.com**
-4. [Sterling avoids jail after driving Lamborghini dangerously on motorway](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261125-930-49745/) - **Dpa-international.com**
-5. [IFR can bar clubs from FIFA competitions if domestic game harmed](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_3c7a3d14-03f4-428c-a2ed-f7c3203fadd6) - **Yahoo Entertainment**
-6. [2026 CONCACAF W Championship: Scouting El Salvador](https://www.starsandstripesfc.com/uswnt-coverage/47193/usa-vs-el-salvador-2026-concacaf-w-championship-scouting-el-salvador) - **Starsandstripesfc.com**
-7. [Mikel Arteta hails Arsenal striker Viktor Gyokeres after 'unbelievable' Champions League wonder-goal against Borussia Dortmund](https://www.goal.com/en-us/news/mikel-arteta-arsenal-viktor-gyokeres-champions-league-borussia-dortmund/blt1d4680a02726f0fa) - **Goal.com**
-8. [Raheem Sterling's chaotic descent into insanity is a product of the cocooned football world where stars can't handle rejection, writes IAN HERBERT - now he must listen to those around him if he wants to salvage his career](https://www.dailymail.com/sport/football/article-16321337/raheem-sterling-dangerous-driving-career.html) - **Dailymail.com**
-9. [Peacock Can Be Yours for 66% Off With This Early Black Friday Streaming Deal](https://uk.pcmag.com/video-streaming-services/168590/peacock-can-be-yours-for-66-off-with-this-early-black-friday-streaming-deal) - **PCMag.com**
-10. [The England opening batting pair made in Wales](https://www.bbc.co.uk/sport/cricket/articles/cw1mdzn9dzpzo) - **BBC News**
+1. [PSG and United held to draw, Bayern beaten by Lille](https://dpa-international.com/sports/urn:newsml:dpa.com:20090101:261125-930-51908/) - **Dpa-international.com**
+2. [Champions League contenders ranked: Real Madrid and PSG near top, but who is No. 1?](https://www.cbssports.com/soccer/news/champions-league-contenders-ranked-arsenal-psg-real-madrid-2026/) - **CBS Sports**
+3. [Alexander Isak brace fires Liverpool to Champions League win over Club Brugge](https://www.alloutsoccer.com/news/isak-liverpool-brugge-champions-league-2122133) - **Alloutsoccer.com**
+4. [Man United draw in Lisbon amid three penalties, two disallowed goals, a howler, and a red card](https://www.the42.ie/sporting-lisbon-manchester-united-champions-league-7238264-Nov2026/) - **The42**
+5. [Familiar failings for Man United vs Sporting as Senne Lammens and the referee cost the Red Devils yet again](https://thepeoplesperson.com/2026/11/25/senne-lammens-and-referee-errors-in-man-united-sporting-draw-323475/) - **The Peoples Person**
+6. [Club Brugge 0-3 Liverpool: Isak at the double as Reds cruise to victory](https://www.101greatgoals.com/football/champions-league/brugge-liverpool-report/) - **101 Great Goals**
+7. [Man United denied at Sporting as referee overshadows Fernandes double](https://www.aljazeera.com/sports/2026/11/25/man-united-denied-at-sporting-as-referee-overshadows-fernandes-double) - **Al Jazeera English**
+8. [Sporting deny Pochettino first Man Utd win despite Fernandes double](https://sports.yahoo.com/soccer/articles/sporting-deny-pochettino-first-man-220356036.html) - **Yahoo Entertainment**
+9. [Week 12 Yahoo Fantasy x Arena Club Slab Packs: Chase Patrick Mahomes, Josh Allen and Caleb Williams grails](https://sports.yahoo.com/fantasy/article/week-12-yahoo-fantasy-x-arena-club-slab-packs-chase-patrick-mahomes-josh-allen-and-caleb-williams-grails-220022024.html) - **Yahoo Entertainment**
 
 
 ---
-*최근 업데이트: 2026-11-26 23:00:33 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-27 08:04:27 (KST) / (하루 100회 제한 준수 중)*
