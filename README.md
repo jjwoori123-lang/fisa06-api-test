@@ -1,15 +1,16 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Alonso demands robust response from 'fragile' Chelsea](https://sports.yahoo.com/soccer/articles/alonso-demands-robust-response-fragile-151214017.html) - **Yahoo Entertainment**
-2. [Antonee Robinson on Fulham's development, Pochettino at Man United, Guardiola for USMNT and trophy dreams](https://www.nbcsports.com/soccer/news/antonee-robinson-on-fulhams-development-pochettino-at-man-united-guardiola-for-usmnt-and-trophy-dreams) - **NBCSports.com**
-3. [Sutton's predictions v Kings of Leon drummer Nathan Followill](https://www.bbc.co.uk/sport/football/articles/c3n0l29lrr27o) - **BBC News**
-4. [Former Gunner open to Manchester United transfer in January](https://dailycannon.com/2026/11/balogun-manchester-united-transfer/) - **Dailycannon.com**
-5. [Lammens - the Man Utd goalkeeper under scrutiny like never before](https://www.bbc.com/sport/football/articles/cmn4k7v93gvzo) - **BBC News**
-6. [Alonso demands Chelsea fix the basics and handle chaos to revive their Premier League season](https://www.footballmuse.com/news/alonso-demands-chelsea-fix-the-basics-and-handle-chaos-to-revive-their-premier-league-season) - **Footballmuse.com**
-7. [Chelsea set to battle Spurs in the race for Bundesliga defender](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_43c57294-b39e-401a-b0ce-507e1ae308b0) - **Yahoo Entertainment**
-8. [The Best Black Friday Video Streaming Deals: Save Up to 79% Off Apple TV, Disney+, HBO Max, Hulu, and Paramount+](https://uk.pcmag.com/video-streaming-services/168630/the-best-black-friday-video-streaming-deals-save-up-to-79-off-apple-tv-disney-hbo-max-hulu-and-param) - **PCMag.com**
-9. [Chelsea defender Fofana has apologised for ill-timed interview and Alonso insists focus is now on Forest](https://www.101greatgoals.com/football/premier-league/chelsea-defender-fofana-has-apologised-for-ill-timed-interview-and-alonso-insists-focus-is-now-on-forest/) - **101 Great Goals**
+1. [How Xabi Alonso's brittle Blues have wilted this season: KIERAN GILL runs the rule over all TWENTY Premier League goals conceded as new manager faces urgent demand to patch up leaky defence](https://www.dailymail.com/sport/football/article-16317465/Xabi-Alonso-brittle-Chelsea-KIERAN-GILL-TWENTY-Premier-League-goals-conceded.html) - **Dailymail.com**
+2. [Manchester City legend Kevin De Bruyne is in the frame for a January 2027 move to PSV Eindhoven, according to new reports.](https://cityxtra.co.uk/CITYXTRA/transfers/kevin-de-bruyne-in-frame-for-january-exit-after-manchester-city-return-with-napoli) - **Cityxtra.co.uk**
+3. [Keane And Grealish To Start | 4-2-3-1 Everton Predicted Lineup Vs Liverpool](https://the4thofficial.net/2026/11/keane-and-grealish-to-start-4-2-3-1-everton-predicted-lineup-vs-liverpool/) - **The4thofficial.net**
+4. [USC Trojans Recruits Make Waves in CIF Southern Section Championship](https://www.si.com/college/usc/football/usc-trojans-recruits-make-waves-cif-southern-section-championship) - **Sports Illustrated**
+5. [Frank earns first Palace win with late comeback against Sociedad](https://www.skysports.com/football/news/13616782/crystal-palace-2-1-real-sociedad-thomas-frank-earns-first-win-as-eagles-boss-with-europa-league-comeback-victory) - **Sky Sports**
+6. [Sunderland held by Polish side Jagiellonia](https://www.bbc.com/sport/football/live/c893r4n7622et) - **BBC News**
+7. [Europa League: Bournemouth, Milan secure comeback wins](https://punchng.com/europa-league-bournemouth-milan-secure-comeback-wins/) - **The Punch**
+8. [Leeds United Fend Off Man United For England Star: Is 2029 Wise?](https://the4thofficial.net/2026/11/leeds-united-fend-off-man-united-for-england-star-is-2029-wise/) - **The4thofficial.net**
+9. [Fermin Lopez: Barcelona deliver firm response to Man United over future of midfield talisman](https://thepeoplesperson.com/2026/11/26/fermin-lopez-barcelona-block-man-united-move-for-midfielder-323566/) - **The Peoples Person**
+10. [Inside Arsenal's tifo culture: how the Emirates banner at last year's PSG semi-final that fell flat led to fans taking control.... as they prepare to unveil new design for Sunday's showdown with Man City](https://www.dailymail.com/sport/football/article-16324183/Inside-Arsenals-tifo-culture-Emirates-banner-years-PSG-semi-final-fell-flat-led-fans-taking-control-prepare-unveil-new-design-Sundays-showdown-Man-City.html) - **Dailymail.com**
 
 
 ---
-*최근 업데이트: 2026-11-28 00:16:26 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-28 08:33:21 (KST) / (하루 100회 제한 준수 중)*
