@@ -1,16 +1,15 @@
 # ⚽ 실시간 EPL 뉴스 (15분 주기 업데이트)
 
-1. [Bayern Munich News: The aftermath of FC Bayern’s stunning 2-1 loss to LOSC Lille; Bayern still toying with move for Florian Wirtz?; and MORE!](https://www.bavarianfootballworks.com/transfer-rumors/285590/bayern-munich-losc-lille-liverpool-wirtz-manchester-united-stuttgart-juventus-kimmich) - **Bavarian Football Works**
-2. [How Rajasthan Royals missed a once-in-a-lifetime opportunity to acquire Hardik Pandya](https://timesofindia.indiatimes.com/sports/cricket/ipl/top-stories/how-rajasthan-royals-missed-a-once-in-a-lifetime-opportunity-to-acquire-hardik-pandya/articleshow/136179002.cms) - **The Times of India**
-3. [Fernandes Shines With Double But Manchester United Held To Draw](https://www.rediff.com/sports/report/champions-league-bruno-fernandess-double-not-enough-as-manchester-united-held-to-draw-by-sporting-cp/20261126.htm) - **Rediff.com**
-4. [Who is the youngest NBA MVP?](https://www.lifesciencesworld.com/who-is-the-youngest-nba-mvp/) - **Lifesciencesworld.com**
-5. [UEFA Champions League Roundup: Wonderful Wirtz scores again, Adeyemi ends goal drought, record winners pip holders](https://bulinews.com/uefa-champions-league-roundup-wonderful-wirtz-scores-again-adeyemi-ends-goal-drought-record-winners-pip-holders) - **Bulinews.com**
-6. [Cricket fever grips rural Bajhang](https://english.khabarhub.com/2026/26/577074/) - **Khabarhub.com**
-7. [The Snoop: Was Blyth’s defection on the wall? Plus elections at risk of AI slop tsunami, and more](https://www.crikey.com.au/2026/11/26/the-snoop-leah-blyth-one-nation-defection-angus-taylor-adf-apology/) - **Crikey**
-8. [Ricken: „We've shown we can compete at this level“](https://onefootball.com/en/news/ricken-weve-shown-we-can-compete-at-this-level-43841748) - **Onefootball.com**
-9. [Divots, howlers and bad decisions - dissecting Man Utd's draw in Lisbon](https://www.bbc.com/sport/football/articles/cvrlg074ld74o) - **BBC News**
-10. [Pochettino 'so proud' of players after draw in Lisbon](https://www.rte.ie/sport/soccer/2026/1125/1600704-pochettino-so-proud-of-players-after-draw-in-lisbon/) - **RTE**
+1. [Alonso demands robust response from 'fragile' Chelsea](https://sports.yahoo.com/soccer/articles/alonso-demands-robust-response-fragile-151214017.html) - **Yahoo Entertainment**
+2. [Antonee Robinson on Fulham's development, Pochettino at Man United, Guardiola for USMNT and trophy dreams](https://www.nbcsports.com/soccer/news/antonee-robinson-on-fulhams-development-pochettino-at-man-united-guardiola-for-usmnt-and-trophy-dreams) - **NBCSports.com**
+3. [Sutton's predictions v Kings of Leon drummer Nathan Followill](https://www.bbc.co.uk/sport/football/articles/c3n0l29lrr27o) - **BBC News**
+4. [Former Gunner open to Manchester United transfer in January](https://dailycannon.com/2026/11/balogun-manchester-united-transfer/) - **Dailycannon.com**
+5. [Lammens - the Man Utd goalkeeper under scrutiny like never before](https://www.bbc.com/sport/football/articles/cmn4k7v93gvzo) - **BBC News**
+6. [Alonso demands Chelsea fix the basics and handle chaos to revive their Premier League season](https://www.footballmuse.com/news/alonso-demands-chelsea-fix-the-basics-and-handle-chaos-to-revive-their-premier-league-season) - **Footballmuse.com**
+7. [Chelsea set to battle Spurs in the race for Bundesliga defender](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_43c57294-b39e-401a-b0ce-507e1ae308b0) - **Yahoo Entertainment**
+8. [The Best Black Friday Video Streaming Deals: Save Up to 79% Off Apple TV, Disney+, HBO Max, Hulu, and Paramount+](https://uk.pcmag.com/video-streaming-services/168630/the-best-black-friday-video-streaming-deals-save-up-to-79-off-apple-tv-disney-hbo-max-hulu-and-param) - **PCMag.com**
+9. [Chelsea defender Fofana has apologised for ill-timed interview and Alonso insists focus is now on Forest](https://www.101greatgoals.com/football/premier-league/chelsea-defender-fofana-has-apologised-for-ill-timed-interview-and-alonso-insists-focus-is-now-on-forest/) - **101 Great Goals**
 
 
 ---
-*최근 업데이트: 2026-11-27 14:08:29 (KST) / (하루 100회 제한 준수 중)*
+*최근 업데이트: 2026-11-28 00:16:26 (KST) / (하루 100회 제한 준수 중)*
